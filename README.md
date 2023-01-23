@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It looks to me like you've completely lost your touch."
+> "Isn’t there something strange in becoming friends because you’re asked? Friends aren’t given; you’re supposed to make them."
 
-&mdash; [**Shihouin Yoruichi**](https://anidb.net/search/fulltext/?adb.search=Shihouin%20AND%20Yoruichi&do.search=1&entity.chartb=1), [**Bleach**](https://anidb.net/search/fulltext/?adb.search=Bleach&do.search=1&entity.animetb=1&)
+&mdash; [**Fujibayashi Kyou**](https://anidb.net/search/fulltext/?adb.search=Fujibayashi%20AND%20Kyou&do.search=1&entity.chartb=1), [**CLANNAD**](https://anidb.net/search/fulltext/?adb.search=CLANNAD&do.search=1&entity.animetb=1)
