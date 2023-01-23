@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Love is a bitter sweet taste of life, which many humans many weaknesses and sometimes their strongest weapon."
+> "Human nature denies the past in order to justify the present. But do you believe there is anything in the present worth justifying?"
 
-&mdash; [**Mato Kuroi**](https://myanimelist.net/character.php?q=Mato%20Kuroi&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
+&mdash; [**Boogiepop**](https://myanimelist.net/character.php?q=Boogiepop&cat=character), [**Boogiepop Phantom**](https://myanimelist.net/search/all?q=Boogiepop%20Phantom&cat=all)
