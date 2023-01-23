@@ -1,0 +1,31 @@
+name: Update Quote
+
+on:
+  workflow_dispatch:
+
+jobs:
+  update:
+    runs-on: ubuntu-22.04
+
+    steps:
+      - uses: actions/checkout@v3
+
+      - name: Remove old quote from README
+        run: sed -i '/#### Hourly quote/q' README.md
+
+      - name: Fetch new quote
+        id: new-quote
+        run: |
+          data=$(curl --silent https://quotes.terworking.workers.dev/1 | jq .data[0])
+          echo "character=$(jq -r .character <<< $data)" >> $GITHUB_OUTPUT
+          echo "show=$(jq -r .show <<< $data)" >> $GITHUB_OUTPUT
+          echo "quote=$(jq -r .quote <<< $data)" >> $GITHUB_OUTPUT
+
+      - name: Add new quote to README
+        run: |
+          python ./process-quote.py \
+            "${{ .steps.new-quote.outputs.character }}" \
+            "${{ .steps.new-quote.outputs.show }}" \
+            "${{ .steps.new-quote.outputs.quote }}" >> README.md
+
+      - uses: stefanzweifel/git-auto-commit-action@v4
