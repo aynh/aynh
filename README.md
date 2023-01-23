@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The future isn’t written yet. There’s still time for things to change!"
+> "Trusting someone...means relying on them and only the weak do that."
 
-&mdash; [**Yūsei Fudō**](https://myanimelist.net/character.php?q=Y%C5%ABsei%20Fud%C5%8D&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh%21&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
