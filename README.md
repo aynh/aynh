@@ -10,3 +10,9 @@
 
 [![Most used languages](https://github-readme-stats-aynah.vercel.app/api/top-langs/?username=aynh&theme=solarized-dark&langs_count=6&layout=compact&hide_title=true)](https://github.com/anuraghazra/github-readme-stats#gh-dark-mode-only)
 [![Most used languages](https://github-readme-stats-aynah.vercel.app/api/top-langs/?username=aynh&theme=solarized-light&langs_count=6&layout=compact&hide_title=true)](https://github.com/anuraghazra/github-readme-stats#gh-light-mode-only)
+
+#### Hourly (anime) quote
+
+> "Isn’t there something strange in becoming friends because you’re asked? Friends aren’t given; you’re supposed to make them."
+
+&mdash; [**Fujibayashi Kyou**](https://anidb.net/search/fulltext/?adb.search=Fujibayashi%20AND%20Kyou&do.search=1&entity.chartb=1), [**CLANNAD**](https://anidb.net/search/fulltext/?adb.search=CLANNAD&do.search=1&entity.animetb=1)
