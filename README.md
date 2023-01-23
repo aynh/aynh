@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Obviously you are underestimating Kurama. Do you know why I chose him to be my partner? To avoid fighting him myself. Watch, he's more cut-throat then I am when it comes to battle, and unbelievably precise."
+> "Be on the Side that saves people, if both sides are the same, become a good man."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Sakunosuke Oda**](https://myanimelist.net/character.php?q=Sakunosuke%20Oda&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
