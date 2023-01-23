@@ -13,6 +13,6 @@
 
 #### Hourly quote
 
-> "So, how about you tell me right now whom you'd like me to kill, and how. I'll treat'cha to it."
+> "A pistol’s job is what its handler chooses. If I don’t wanna shoot, then I won’t."
 
-&mdash; [**Mello**](https://anidb.net/perl-bin/animedb.pl?adb.search=Mello&show=characterlist&do.search=1&cleanurl=1), [**Death Note**](https://anidb.net/perl-bin/animedb.pl?adb.search=Death%20Note&show=animelist&do.search=1&cleanurl=1)
+&mdash; [**Minatsuki Saya**](https://anidb.net/perl-bin/animedb.pl?adb.search=Minatsuki%20Saya&show=characterlist&do.search=1&cleanurl=1), [**Black Cat**](https://anidb.net/perl-bin/animedb.pl?adb.search=Black%20Cat&show=animelist&do.search=1&cleanurl=1)
