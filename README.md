@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Human nature denies the past in order to justify the present. But do you believe there is anything in the present worth justifying?"
+> "Are you, what they call, a heart?"
 
-&mdash; [**Boogiepop**](https://myanimelist.net/character.php?q=Boogiepop&cat=character), [**Boogiepop Phantom**](https://myanimelist.net/search/all?q=Boogiepop%20Phantom&cat=all)
+&mdash; [**Argentine**](https://myanimelist.net/character.php?q=Argentine&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
