@@ -9,7 +9,7 @@ bold = lambda s: f"**{s}**"
 quoted = lambda s: f'"{s}"'
 
 print()
-print(f"> {quoted(quote)}", end="\n\n")
+print("> {}".format(quoted(quote)), end="\n\n")
 
 print("&mdash;", end=" ")
 
@@ -19,10 +19,10 @@ character_url = (
         urllib.parse.quote(character_query.encode("utf-8"))
     )
 )
-print(f"[{bold(character)}]({character_url})", end=", ")
+print("[{}]({})".format(bold(character), character_url), end=", ")
 
 show_query = " AND ".join(show.split(" "))
-show_url = "https://anidb.net/search/fulltext/?adb.search={}&do.search=1&entity.animetb=1&".format(
+show_url = "https://anidb.net/search/fulltext/?adb.search={}&do.search=1&entity.animetb=1".format(
     urllib.parse.quote(show_query.encode("utf-8"))
 )
-print(f"[{bold(show)}]({show_url})")
+print("[{}]({})".format(bold(show), show_url))

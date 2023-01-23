@@ -16,7 +16,7 @@ jobs:
           ref: ${{ github.head_ref }}
 
       - name: Remove old quote from README
-        run: sed -i '/#### Hourly quote/q' README.md
+        run: sed -i '/#### Hourly (anime) quote/q' README.md
 
       - name: Fetch new quote
         id: new-quote
