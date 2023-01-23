@@ -13,6 +13,6 @@
 
 #### Hourly quote
 
-> "A pistol’s job is what its handler chooses. If I don’t wanna shoot, then I won’t."
+> "Aging is quite similar to death. Some people stand up to aging and death as if it were nothing. They can do it not because they're braver than others, but simply because they lack imagination. Only once people deny that which they love, do they become able to create it anew. Perhaps, the book I write, too, will die one day just like my body will. However, people have to accept that death is unavoidable. They will probably be gone in ten years. Their books will no longer exist in a hundred years. People accept this. Eternity is promised neither to humans nor to books. We live because we were born. If the system possesses the power of life and death over you... you're no longer a human. You're livestock. No matter how hard a rancher tries to pretend otherwise, they never recognize their livestock as friends. It's a mystery to me... How is it that these people, treated as livestock in this boring society, have not tried at all to destroy it? Nothing in this world is eternal. The only thing that truly exists is the splendor of the souls that atone for their sins."
 
-&mdash; [**Minatsuki Saya**](https://anidb.net/perl-bin/animedb.pl?adb.search=Minatsuki%20Saya&show=characterlist&do.search=1&cleanurl=1), [**Black Cat**](https://anidb.net/perl-bin/animedb.pl?adb.search=Black%20Cat&show=animelist&do.search=1&cleanurl=1)
+&mdash; [**Makishima Shougo**](https://anidb.net/search/fulltext/?adb.search=%22Makishima%20Shougo%22&do.search=1&entity.chartb=1), [**Psycho-Pass Extended Edition**](https://anidb.net/search/fulltext/?adb.search=%22Psycho-Pass%20Extended%20Edition%22&do.search=1&entity.animetb=1&)
