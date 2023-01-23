@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Are you, what they call, a heart?"
+> "Obviously you are underestimating Kurama. Do you know why I chose him to be my partner? To avoid fighting him myself. Watch, he's more cut-throat then I am when it comes to battle, and unbelievably precise."
 
-&mdash; [**Argentine**](https://myanimelist.net/character.php?q=Argentine&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
