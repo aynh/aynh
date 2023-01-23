@@ -5,7 +5,7 @@ on:
   workflow_dispatch:
 
 jobs:
-  update:
+  update-quote:
     runs-on: ubuntu-22.04
     permissions:
       contents: write
@@ -34,3 +34,6 @@ jobs:
             "${{ steps.new-quote.outputs.quote }}" >> README.md
 
       - uses: stefanzweifel/git-auto-commit-action@v4
+        with:
+          commit_message: Update README quote
+          file_pattern: README.md
