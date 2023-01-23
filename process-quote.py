@@ -5,13 +5,17 @@ import urllib.parse
 
 character, show, quote = sys.argv[1:]
 
+quoted = lambda s: f'"{s}"'
+
 print()
-print(f'> "{quote}"', end="\n\n")
+print(f"> {quoted(quote)}", end="\n\n")
 
-character = " ".join(reversed(character.split(" ")))  # reverse character name
-urlencoded_character = urllib.parse.quote(character.encode("utf-8"))
-character_url = f"https://anidb.net/perl-bin/animedb.pl?adb.search={urlencoded_character}&show=characterlist&do.search=1&cleanurl=1"
-urlencoded_show = urllib.parse.quote(show.encode("utf-8"))
-show_url = f"https://anidb.net/perl-bin/animedb.pl?adb.search={urlencoded_show}&show=animelist&do.search=1&cleanurl=1"
+print("&mdash;", end=" ")
 
-print(f"&mdash; [**{character}**]({character_url}), [**{show}**]({show_url})")
+urlencoded_character = urllib.parse.quote(quoted(character).encode("utf-8"))
+character_url = f"https://anidb.net/search/fulltext/?adb.search={urlencoded_character}&do.search=1&entity.chartb=1"
+print(f"[**{character}**]({character_url})", end=", ")
+
+urlencoded_show = urllib.parse.quote(quoted(show).encode("utf-8"))
+show_url = f"https://anidb.net/search/fulltext/?adb.search={urlencoded_show}&do.search=1&entity.animetb=1&"
+print(f"[**{show}**]({show_url})")
