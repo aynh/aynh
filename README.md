@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The world offers up a choice to live or die. The survival of the fittest that's the only governing law this world recognizes."
+> "And so, the prince and the princess lived happily ever... Happily!? Happiness in stories is, at most, a trifling matter of a couple of lines at the end — the epitome of boredom. Now, show me a magnificent tragedy! A cataclysm of tears from which not one of the players is saved, and to which a happy ending never comes!"
 
-&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Drosselmeyer**](https://myanimelist.net/character.php?q=Drosselmeyer&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
