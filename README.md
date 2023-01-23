@@ -13,6 +13,6 @@
 
 #### Hourly quote
 
-> "It's because I've experienced pain in the past, that I can even consider what would be best for the future!"
+> "So, how about you tell me right now whom you'd like me to kill, and how. I'll treat'cha to it."
 
-&mdash; [**Ohnoki**](https://anidb.net/perl-bin/animedb.pl?adb.search=Ohnoki&show=characterlist&do.search=1&cleanurl=1), [**Naruto**](https://anidb.net/perl-bin/animedb.pl?adb.search=Naruto&show=animelist&do.search=1&cleanurl=1)
+&mdash; [**Mello**](https://anidb.net/perl-bin/animedb.pl?adb.search=Mello&show=characterlist&do.search=1&cleanurl=1), [**Death Note**](https://anidb.net/perl-bin/animedb.pl?adb.search=Death%20Note&show=animelist&do.search=1&cleanurl=1)
