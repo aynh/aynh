@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You're a monster who deserves to die, right here, with me."
+> "The future isn’t written yet. There’s still time for things to change!"
 
-&mdash; [**Natarle Badgiruel**](https://myanimelist.net/character.php?q=Natarle%20Badgiruel&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Yūsei Fudō**](https://myanimelist.net/character.php?q=Y%C5%ABsei%20Fud%C5%8D&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh%21&cat=all)
