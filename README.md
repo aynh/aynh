@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Trusting someone...means relying on them and only the weak do that."
+> "The world offers up a choice to live or die. The survival of the fittest that's the only governing law this world recognizes."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
