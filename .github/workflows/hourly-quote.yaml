@@ -7,9 +7,13 @@ on:
 jobs:
   update:
     runs-on: ubuntu-22.04
+    permissions:
+      contents: write
 
     steps:
       - uses: actions/checkout@v3
+        with:
+          ref: ${{ github.head_ref }}
 
       - name: Remove old quote from README
         run: sed -i '/#### Hourly quote/q' README.md
