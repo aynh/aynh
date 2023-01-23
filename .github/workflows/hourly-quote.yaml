@@ -25,8 +25,8 @@ jobs:
       - name: Add new quote to README
         run: |
           python ./process-quote.py \
-            "${{ .steps.new-quote.outputs.character }}" \
-            "${{ .steps.new-quote.outputs.show }}" \
-            "${{ .steps.new-quote.outputs.quote }}" >> README.md
+            "${{ steps.new-quote.outputs.character }}" \
+            "${{ steps.new-quote.outputs.show }}" \
+            "${{ steps.new-quote.outputs.quote }}" >> README.md
 
       - uses: stefanzweifel/git-auto-commit-action@v4
