@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It might be dog food. Take it."
+> "Please don't worry, Mister, I only came here to obliterate you – not rob you."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Excel**](https://myanimelist.net/character.php?q=Excel&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
