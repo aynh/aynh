@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I have no idea what you really want, what you're really thinking, or what the right thing to do really is. But I'm your friend. Let me stay."
+> "Know how strong you are... and do what you can do. If you misjudge your abilities on the battlefield... you'll get yourself killed."
 
-&mdash; [**Takeo Gouda**](https://myanimelist.net/character.php?q=Takeo%20Gouda&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
+&mdash; [**Yugo Kuga**](https://myanimelist.net/character.php?q=Yugo%20Kuga&cat=character), [**World Trigger**](https://myanimelist.net/search/all?q=World%20Trigger&cat=all)
