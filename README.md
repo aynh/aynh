@@ -12,7 +12,5 @@
 [![Most used languages](https://github-readme-stats-aynah.vercel.app/api/top-langs/?username=aynh&theme=solarized-light&langs_count=6&layout=compact&hide_title=true)](https://github.com/anuraghazra/github-readme-stats#gh-light-mode-only)
 
 #### Hourly (anime) quote
-
-> "Ugly?! Who you callin' ugly?! C'mere you mouse!"
-
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+n> "You find a glimmer of hope, only to lose it. That is when your despair tastes the most divine."
+n&mdash; [**Takaya Kurisu**](https://myanimelist.net/character.php?q=Takaya%20Kurisu&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)n
