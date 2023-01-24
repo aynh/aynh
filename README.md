@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If I'm bad at doubting others, I'd rather believe in them! If I get tricked, I'll think about what to do when it happens! Things are simpler that way!"
+> "The moment you back down is the moment you lose!"
 
-&mdash; [**Shirota Mahiru**](https://myanimelist.net/character.php?q=Shirota%20Mahiru&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
+&mdash; [**Coach Kamogawa**](https://myanimelist.net/character.php?q=Coach%20Kamogawa&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
