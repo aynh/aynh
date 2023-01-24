@@ -33,10 +33,31 @@ jobs:
 
       - name: Add new quote to README
         run: |
-          python ./process-quote.py \
-            "${{ steps.new-quote.outputs.character }}" \
-            "${{ steps.new-quote.outputs.show }}" \
-            "${{ steps.new-quote.outputs.quote }}" >> README.md
+          echo -en \n >> README.md
+          echo '> "${{ steps.new-quote.outputs.quote }}"' >> README.md
+
+          echo -en \n >> README.md
+          echo -n "&mdash; " >> README.md
+
+          function markdown_link {
+            printf "[**%s**](%s)" "$1" "$2"
+          }
+
+          character="${{ steps.new-quote.outputs.character }}"
+          character_uri=$(printf \
+            "https://myanimelist.net/character.php?q=%s&cat=character" \
+            $(jq -Rr @uri <<< "$character"))
+
+          markdown_link "$character" "$character_uri" >> README.md
+          echo -n ", " >> README.md
+
+          show="${{ steps.new-quote.outputs.show }}"
+          show_uri=$(printf \
+            "https://myanimelist.net/search/all?q=%s&cat=all" \
+            $(jq -Rr @uri <<< "$show"))
+
+          markdown_link "$show" "$show_uri" >> README.md
+          echo -en \n >> README.md
 
       - uses: stefanzweifel/git-auto-commit-action@v4
         with:
