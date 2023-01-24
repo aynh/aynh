@@ -34,7 +34,9 @@ jobs:
       - name: Add new quote to README
         run: |
           echo -en "\n" >> README.md
-          echo '> "${{ steps.new-quote.outputs.quote }}"' >> README.md
+          cat >> README.md <<EOF
+          > "${{ steps.new-quote.outputs.quote }}"
+          EOF
 
           echo -en "\n" >> README.md
           echo -n "&mdash; " >> README.md
