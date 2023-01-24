@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "People who are confident in themselves never talk about expectations. 'Expectation' is a word rooted in giving up. It leaves you with no other choice. It makes it obvious that you're powerless."
+> "Some things can't be prevented. The last of which, is death. All we can do is live until the day we die. Control what we can... and fly free!"
 
-&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
