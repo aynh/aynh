@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Hey sis, I've been wondering. How come everyone always closes their eyes when they sneeze? Is it to keep their eyes from popping out of their heads?"
+> "The world consists of 'choices', in other words, it consists of continual gamble. Other guys are not aware of this. Thus they moved about in confusion."
 
-&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ikazuchi Akatsuki**](https://myanimelist.net/character.php?q=Ikazuchi%20Akatsuki&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
