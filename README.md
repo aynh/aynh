@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I hate this town. It’s too filled with memories I’d rather forget. I go to school every day, hang out with my friends, and then go home. There’s no place I’d rather not go ever again. I wonder if anything will ever change? Will that day ever come?"
+> "Use the Spirit Wave to float on top of the spike. Good. Now we'll hold this for twelve hours."
 
-&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
