@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The world consists of 'choices', in other words, it consists of continual gamble. Other guys are not aware of this. Thus they moved about in confusion."
+> "So, who should we hold responsible? Compensation. Punishment. If you didn't want any problems you shouldn't have taken risks."
 
-&mdash; [**Ikazuchi Akatsuki**](https://myanimelist.net/character.php?q=Ikazuchi%20Akatsuki&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
