@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Any treasure you attain without anyone ever working for it is no treasure at all."
+> "I hate perfection. To be perfect is to be unable to improve any further."
 
-&mdash; [**Nyanta**](https://myanimelist.net/character.php?q=Nyanta&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
