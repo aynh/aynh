@@ -33,10 +33,10 @@ jobs:
 
       - name: Add new quote to README
         run: |
-          echo -en \n >> README.md
+          echo -en "\n" >> README.md
           echo '> "${{ steps.new-quote.outputs.quote }}"' >> README.md
 
-          echo -en \n >> README.md
+          echo -en "\n" >> README.md
           echo -n "&mdash; " >> README.md
 
           function markdown_link {
@@ -57,7 +57,7 @@ jobs:
             $(jq -Rr @uri <<< "$show"))
 
           markdown_link "$show" "$show_uri" >> README.md
-          echo -en \n >> README.md
+          echo -en "\n" >> README.md
 
       - uses: stefanzweifel/git-auto-commit-action@v4
         with:
