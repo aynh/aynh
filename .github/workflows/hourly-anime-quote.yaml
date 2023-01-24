@@ -61,8 +61,25 @@ jobs:
           markdown_link "$show" "$show_uri" >> README.md
           echo -en "\n" >> README.md
 
+      - name: Set commit message
+        id: commit-message
+        run: |
+          echo 'value<<EOF' >> $GITHUB_OUTPUT
+
+          cat >> $GITHUB_OUTPUT <<EOF
+          Update README quote
+
+          Character: ${{ steps.new-quote.outputs.character }}
+          Show: ${{ steps.new-quote.outputs.show }}
+          Quote: ${{ steps.new-quote.outputs.quote }}
+          EOF
+
+          echo 'EOF' >> $GITHUB_OUTPUT
+
       - uses: stefanzweifel/git-auto-commit-action@v4
         with:
+          commit_user_name: github-actions[bot]
+          commit_user_email: 41898282+github-actions[bot]@users.noreply.github.com
           commit_author: github-actions[bot] <41898282+github-actions[bot]@users.noreply.github.com>
-          commit_message: Update README quote
+          commit_message: ${{ steps.commit-message.outputs.value }}
           file_pattern: README.md
