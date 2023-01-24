@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Use the Spirit Wave to float on top of the spike. Good. Now we'll hold this for twelve hours."
+> "If I'm bad at doubting others, I'd rather believe in them! If I get tricked, I'll think about what to do when it happens! Things are simpler that way!"
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Shirota Mahiru**](https://myanimelist.net/character.php?q=Shirota%20Mahiru&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
