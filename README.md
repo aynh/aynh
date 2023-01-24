@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "So, who should we hold responsible? Compensation. Punishment. If you didn't want any problems you shouldn't have taken risks."
+> "Your blade will never be able to touch me. Ever."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
