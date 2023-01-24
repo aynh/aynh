@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Life is like a playground swing, the higher and farther forward you go as you swing, it carries the risk of falling just as far back."
+> "[To Starrk, about Lilynette] That child with you... Can you send her somewhere else? I can't really go all out with her there."
 
-&mdash; [**Jiro**](https://myanimelist.net/character.php?q=Jiro&cat=character), [**Toriko**](https://myanimelist.net/search/all?q=Toriko&cat=all)
+&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
