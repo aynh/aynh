@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "No matter the journey, when you come to a fork in the road, you must decide in an instant which path to take."
+> "Any treasure you attain without anyone ever working for it is no treasure at all."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Nyanta**](https://myanimelist.net/character.php?q=Nyanta&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
