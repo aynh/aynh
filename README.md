@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Of course! Dogs embody loyalty, they follow their master's commands above all else! Be a jerk to them and they don't complain, and they never once beg for a paycheck! Trust me Fuery, they're the great servants of man! *singing* Loyal canine how we salute thee! *laughs maniacally*"
+> "But I think it’s natural that not everything you try will go well, right? So, I’m gonna start again from scratch."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
