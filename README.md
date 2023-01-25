@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I have so many things I want to say, so many things I want to ask you, but... When I see your face... None of that matters anymore!"
+> "Something as shady as a witch couldn't possibly exist."
 
-&mdash; [**Esdeath**](https://myanimelist.net/character.php?q=Esdeath&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Ushiromiya Battler**](https://myanimelist.net/character.php?q=Ushiromiya%20Battler&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
