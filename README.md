@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "But I think it’s natural that not everything you try will go well, right? So, I’m gonna start again from scratch."
+> "If you become perplexed or make errors, in the end have the kind of life that you can have pride in living. The kind where you can say, 'I persevered.' Repeating delightful things and sad things. And in that way keep getting older. I persevered."
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
