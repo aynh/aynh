@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "No matter how hard you practice, 'someday' and 'maybe' aren't good enough. I need to know if you have ambitious goals and the will to accomplish them."
+> "And the one person who I thought understood me was just using me all along. No one ever treated me as an equal. Adults are all trash. They didn't listen when I said that it hurt. They didn't listen when I told them to stop. They didn't listen to anything I said!"
 
-&mdash; [**Kuroko No Basket**](https://myanimelist.net/character.php?q=Kuroko%20No%20Basket&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Chris Yukine**](https://myanimelist.net/character.php?q=Chris%20Yukine&cat=character), [**Senki Zesshō Symphogear**](https://myanimelist.net/search/all?q=Senki%20Zessh%C5%8D%20Symphogear&cat=all)
