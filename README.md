@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I'm always just waiting. Waiting for someone to reach out to me. But at the same time, I'm really self-conscious and a coward."
+> "It doesn't matter how good your armor is... if you can barely move!"
 
-&mdash; [**Chizuru Ooshima**](https://myanimelist.net/character.php?q=Chizuru%20Ooshima&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Miguel Aiman**](https://myanimelist.net/character.php?q=Miguel%20Aiman&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
