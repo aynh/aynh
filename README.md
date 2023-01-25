@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "This is fear. That's good then, I had forgotten what it felt like."
+> "Power comes in response to a need, not a desire. You have to create that need."
 
-&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
