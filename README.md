@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "This is the world you've stuck yourself into, if you aren't strong enough to lead, then you lose the privilege of getting what you want."
+> "This is fear. That's good then, I had forgotten what it felt like."
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
