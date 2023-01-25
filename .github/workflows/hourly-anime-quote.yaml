@@ -2,7 +2,7 @@ name: Update Quote
 
 on:
   schedule:
-    - cron: "59 * * * *"
+    - cron: "55 * * * *"
   workflow_dispatch:
 
 jobs:
@@ -22,7 +22,7 @@ jobs:
       - name: Fetch new quote
         id: new-quote
         run: |
-          data=$(curl --silent https://quotes.terworking.workers.dev/1 | jq .data[0])
+          data=$(curl --silent https://anime-quotes.pages.dev/api/1 | jq .data[0])
           echo "character=$(jq -r .character <<< $data)" >> $GITHUB_OUTPUT
           echo "show=$(jq -r .show <<< $data)" >> $GITHUB_OUTPUT
 
