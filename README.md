@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "And the one person who I thought understood me was just using me all along. No one ever treated me as an equal. Adults are all trash. They didn't listen when I said that it hurt. They didn't listen when I told them to stop. They didn't listen to anything I said!"
+> "I'm always just waiting. Waiting for someone to reach out to me. But at the same time, I'm really self-conscious and a coward."
 
-&mdash; [**Chris Yukine**](https://myanimelist.net/character.php?q=Chris%20Yukine&cat=character), [**Senki Zesshō Symphogear**](https://myanimelist.net/search/all?q=Senki%20Zessh%C5%8D%20Symphogear&cat=all)
+&mdash; [**Chizuru Ooshima**](https://myanimelist.net/character.php?q=Chizuru%20Ooshima&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
