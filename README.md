@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Know how strong you are... and do what you can do. If you misjudge your abilities on the battlefield... you'll get yourself killed."
+> "Violence is never the right answer, unless used against heathens and monsters."
 
-&mdash; [**Yugo Kuga**](https://myanimelist.net/character.php?q=Yugo%20Kuga&cat=character), [**World Trigger**](https://myanimelist.net/search/all?q=World%20Trigger&cat=all)
+&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
