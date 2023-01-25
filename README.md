@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The 'tsun' personality is an armor that protects purity. An iron virgin."
+> "How I envy the feeble and frail... If I were inept, I could simply blend in, not stand out, and get lost in the crowd. I yearned to be just another sheep... And if that was asking too much I'd settle for... walking among the lions."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Starrk**](https://myanimelist.net/character.php?q=Starrk&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
