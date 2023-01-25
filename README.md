@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It is not the strong or the smart that survive, but the ones who can bring about change."
+> "Don't bother coming to the darkness that you don't need to see... I don't want to show you the darkness that doesn't belong to you... Don't let yourself be hurt so much anymore... Rather, let me be your strength."
 
-&mdash; [**Ludenberg Celestia**](https://myanimelist.net/character.php?q=Ludenberg%20Celestia&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Natsume Hyuuga**](https://myanimelist.net/character.php?q=Natsume%20Hyuuga&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
