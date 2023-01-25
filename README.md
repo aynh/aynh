@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Power comes in response to a need, not a desire. You have to create that need."
+> "I have so many things I want to say, so many things I want to ask you, but... When I see your face... None of that matters anymore!"
 
-&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Esdeath**](https://myanimelist.net/character.php?q=Esdeath&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
