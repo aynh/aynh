@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "How I envy the feeble and frail... If I were inept, I could simply blend in, not stand out, and get lost in the crowd. I yearned to be just another sheep... And if that was asking too much I'd settle for... walking among the lions."
+> "This is the world you've stuck yourself into, if you aren't strong enough to lead, then you lose the privilege of getting what you want."
 
-&mdash; [**Starrk**](https://myanimelist.net/character.php?q=Starrk&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
