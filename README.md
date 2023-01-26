@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There are so many weapons scattered across my path that it makes me wonder if this world is made of little more than lead and gunpowder."
+> "A bratty little midget."
 
-&mdash; [**Jonathan Mar**](https://myanimelist.net/character.php?q=Jonathan%20Mar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
