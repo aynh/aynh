@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "When you give up, your dreams and everything else, they're gone."
+> "Little man! Don't talk small , and say your goal is to become like me. You should become a master of your own game."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Masahiro**](https://myanimelist.net/character.php?q=Masahiro&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
