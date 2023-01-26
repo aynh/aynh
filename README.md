@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Even if you have regrets, even if you have remorse, you must fight. If you have made the decision for yourself to fight, to struggle, then fight with all you have. Do not give up for one second, one moment, or one instant. Cling greedily to the victory you have within your sight. If you can still stand, if your fingers still move, if all your teeth have not broken, stand and fight. You must fight!"
+> "I'm as normal as they come and this is a contest of freaks! What do you want me to do, shoot my slingshot at him?"
 
-&mdash; [**Wilhelm van Astrea**](https://myanimelist.net/character.php?q=Wilhelm%20van%20Astrea&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
