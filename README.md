@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Little man! Don't talk small , and say your goal is to become like me. You should become a master of your own game."
+> "Even if you have regrets, even if you have remorse, you must fight. If you have made the decision for yourself to fight, to struggle, then fight with all you have. Do not give up for one second, one moment, or one instant. Cling greedily to the victory you have within your sight. If you can still stand, if your fingers still move, if all your teeth have not broken, stand and fight. You must fight!"
 
-&mdash; [**Masahiro**](https://myanimelist.net/character.php?q=Masahiro&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
+&mdash; [**Wilhelm van Astrea**](https://myanimelist.net/character.php?q=Wilhelm%20van%20Astrea&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
