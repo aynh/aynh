@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Listen up numbskull, if Kasumi isn't back by dinnertime, we're gonna have to eat Akane's cooking, and if we do that, man oh man we're gonna wish we were lost at sea!"
+> "I am not so grand, not as a god. I am Horo, and Horo is all that I am."
 
-&mdash; [**Ranma Saotome**](https://myanimelist.net/character.php?q=Ranma%20Saotome&cat=character), [**Ranma ½**](https://myanimelist.net/search/all?q=Ranma%20%C2%BD&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
