@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "A bratty little midget."
+> "The great flow that maintains the universe, call it the cycle of life, the course of nature each one of us is just a small part of that part. One in the all. Yet without all the individual ones, the all can't exist. This world flows by following grander laws that we can't even imagine. To recognize that flow, to work in it. To decompose, and recreate, that is alchemy."
 
-&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
