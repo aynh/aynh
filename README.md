@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Hey mister, I am mad scientist. It's SO COOOOOL!!! Sonovabitch."
+> "If you're always worried about crushing the ants beneath you... you won't be able to walk."
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
