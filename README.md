@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If it means mankind will live on, I don't mind being called a murderer"
+> "I'm the sniper king, sogeking."
 
-&mdash; [**Dot Pixis**](https://myanimelist.net/character.php?q=Dot%20Pixis&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Usopp**](https://myanimelist.net/character.php?q=Usopp&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
