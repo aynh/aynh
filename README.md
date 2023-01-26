@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Even if Hell is where we're headed. You people might not have found it, but we're going to. We will find Paradise."
+> "Listen up numbskull, if Kasumi isn't back by dinnertime, we're gonna have to eat Akane's cooking, and if we do that, man oh man we're gonna wish we were lost at sea!"
 
-&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Ranma Saotome**](https://myanimelist.net/character.php?q=Ranma%20Saotome&cat=character), [**Ranma ½**](https://myanimelist.net/search/all?q=Ranma%20%C2%BD&cat=all)
