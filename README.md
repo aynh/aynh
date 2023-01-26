@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I am not so grand, not as a god. I am Horo, and Horo is all that I am."
+> "If it means mankind will live on, I don't mind being called a murderer"
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Dot Pixis**](https://myanimelist.net/character.php?q=Dot%20Pixis&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
