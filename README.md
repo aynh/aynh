@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you're always worried about crushing the ants beneath you... you won't be able to walk."
+> "Even though everything is going to disappear, it isn't supposed to be meaningless. It's exactly because you know you're going to part ways, that now and only now is your only chance."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Onoya An**](https://myanimelist.net/character.php?q=Onoya%20An&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
