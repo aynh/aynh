@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Weaklings will stay weak forever. But weakness is not evil, since human beings are weak creatures to begin with. Alone, you feel nothing but insecurity; that's why we form guilds, that's why we have friends. We walk together in order to live a strong life. The clumsy ones will walk into more walls than the others, and it may also take them longer to get there. If you believe in tomorrow and put yourself out there, you can naturally obtain your strength. That's how you will be able to smile and live strong."
+> "A left... and then a right. Or is it a right and then a left? Hmm... maybe the postcard's upside-down."
 
-&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Hikari**](https://myanimelist.net/character.php?q=Hikari&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
