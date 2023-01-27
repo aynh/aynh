@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Sometimes the person who tries to keep everyone happy is the the most lonely one."
+> "Every story has an ending. One day, we won’t be able to stay together."
 
-&mdash; [**Makoto Ōgami**](https://myanimelist.net/character.php?q=Makoto%20%C5%8Cgami&cat=character), [**Ghost Hound**](https://myanimelist.net/search/all?q=Ghost%20Hound&cat=all)
+&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
