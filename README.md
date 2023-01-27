@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "When a person lies, what is important is not the lie itself. No, it is their reason. Their why."
+> "If you can no longer believe in the person you love, then test him until you are satisfied."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Bianchi**](https://myanimelist.net/character.php?q=Bianchi&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
