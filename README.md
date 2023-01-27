@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "We finally became friends. I've said everything I wanted to say. Now we know everything about each other. Though, from the moment we become friends, we'll never speak to each other again."
+> "Protect the one thing you want to protect until the very end."
 
-&mdash; [**Touma Kazusa**](https://myanimelist.net/character.php?q=Touma%20Kazusa&cat=character), [**White Album 2**](https://myanimelist.net/search/all?q=White%20Album%202&cat=all)
+&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
