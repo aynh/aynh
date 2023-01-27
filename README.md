@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The choice we're making might be one of evil as well. For we call for peace, but with weapons in our hands. Nevertheless, allow us to break of endless conflict. Give us strength."
+> "The opposite of boredom is not pleasure... but excitement. People will gladly seek out any kind of excitement, even pain."
 
-&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
