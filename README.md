@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The way of the sword lies in one's heart. As long as you have your heart, you can live even without the sword."
+> "The choice we're making might be one of evil as well. For we call for peace, but with weapons in our hands. Nevertheless, allow us to break of endless conflict. Give us strength."
 
-&mdash; [**Mitsuyoshi Jubei Yagyu**](https://myanimelist.net/character.php?q=Mitsuyoshi%20Jubei%20Yagyu&cat=character), [**Jubei-Chan 2: The Counterattack of Siberia Yagyu**](https://myanimelist.net/search/all?q=Jubei-Chan%202%3A%20The%20Counterattack%20of%20Siberia%20Yagyu&cat=all)
+&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
