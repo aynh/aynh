@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It doesn't hurt! It's not hot! I'm not scared! I will not be beaten!"
+> "Is it painful to be the person who waits? Or is it more painful to be the person who makes others wait? Either way, there's no need to wait anymore. That's what is most painful."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Takada**](https://myanimelist.net/character.php?q=Takada&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
