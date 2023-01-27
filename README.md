@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Jojo, being human means having limits. I've learned something. The more carefully you scheme, the more unexpected events come along"
+> "No one dies alone. When someone dies, the part of them that lives inside someone else also dies. You already live inside me."
 
-&mdash; [**Dio Brando**](https://myanimelist.net/character.php?q=Dio%20Brando&cat=character), [**JoJo's Bizarre Adventure: Phantom Blood**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Phantom%20Blood&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
