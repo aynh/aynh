@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "[To Waver] The path of devotion is a great labor. Do not ever mar it."
+> "[Sees Yoruichi in cat form] Yes! It's Yoruichi! You've come back! Ha ha ha!! [Picks her up] Come here you little devil, let me take a look at you! You're my fuzzy little troublemaker, yes you are! Now who's your daddy? Hmm?"
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
