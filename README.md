@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "In exchange for gaining strength, have I lost something more important as a human being? Emotions used to swirl within me when I fought. Fear, impatience, anger... But now... Day after day, after one punch I go home unharmed and wash my gloves."
+> "The way of the sword lies in one's heart. As long as you have your heart, you can live even without the sword."
 
-&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Mitsuyoshi Jubei Yagyu**](https://myanimelist.net/character.php?q=Mitsuyoshi%20Jubei%20Yagyu&cat=character), [**Jubei-Chan 2: The Counterattack of Siberia Yagyu**](https://myanimelist.net/search/all?q=Jubei-Chan%202%3A%20The%20Counterattack%20of%20Siberia%20Yagyu&cat=all)
