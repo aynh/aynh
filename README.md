@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I guess it can't be helped. I'll bear your sins in your place."
+> "That's not love... A heroine's love is supposed to be sincere! If you can immediately move on and find someone new, it isn't love!"
 
-&mdash; [**Mikiya Kokutō**](https://myanimelist.net/character.php?q=Mikiya%20Kokut%C5%8D&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
