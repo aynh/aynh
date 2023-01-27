@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I don't even know the real names of the two... no, three that I killed back then. I just close my eyes, put my hands over my ears and tried to forget it all."
+> "I guess it can't be helped. I'll bear your sins in your place."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
+&mdash; [**Mikiya Kokutō**](https://myanimelist.net/character.php?q=Mikiya%20Kokut%C5%8D&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
