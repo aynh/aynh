@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Every story has an ending. One day, we won’t be able to stay together."
+> "We finally became friends. I've said everything I wanted to say. Now we know everything about each other. Though, from the moment we become friends, we'll never speak to each other again."
 
-&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Touma Kazusa**](https://myanimelist.net/character.php?q=Touma%20Kazusa&cat=character), [**White Album 2**](https://myanimelist.net/search/all?q=White%20Album%202&cat=all)
