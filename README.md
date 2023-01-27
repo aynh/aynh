@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you can no longer believe in the person you love, then test him until you are satisfied."
+> "Sometimes the person who tries to keep everyone happy is the the most lonely one."
 
-&mdash; [**Bianchi**](https://myanimelist.net/character.php?q=Bianchi&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Makoto Ōgami**](https://myanimelist.net/character.php?q=Makoto%20%C5%8Cgami&cat=character), [**Ghost Hound**](https://myanimelist.net/search/all?q=Ghost%20Hound&cat=all)
