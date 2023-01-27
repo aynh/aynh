@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Hmmm...how do I put this? My first impression of this group...you're a bunch of idiots!"
+> "Jojo, being human means having limits. I've learned something. The more carefully you scheme, the more unexpected events come along"
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Dio Brando**](https://myanimelist.net/character.php?q=Dio%20Brando&cat=character), [**JoJo's Bizarre Adventure: Phantom Blood**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Phantom%20Blood&cat=all)
