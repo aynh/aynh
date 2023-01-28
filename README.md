@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Weaklings will stay weak forever. But weakness is not evil, since human beings are weak creatures to begin with. Alone, you feel nothing but insecurity; that's why we form guilds, that's why we have friends. We walk together in order to live a strong life. The clumsy ones will walk into more walls than the others, and it may also take them longer to get there. If you believe in tomorrow and put yourself out there, you can naturally obtain your strength. That's how you will be able to smile and live strong."
+> "Your high school life will be over before you know it. There are things you can only do now. You should do as many of them as you can."
 
-&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Youichi Tanaka**](https://myanimelist.net/character.php?q=Youichi%20Tanaka&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
