@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Getting dumped always makes a man stronger. But then again, men aren't meant to pursue happiness."
+> "If there are no heroes, become one yourself."
 
-&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
