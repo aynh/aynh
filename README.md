@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "[Sees Yoruichi in cat form] Yes! It's Yoruichi! You've come back! Ha ha ha!! [Picks her up] Come here you little devil, let me take a look at you! You're my fuzzy little troublemaker, yes you are! Now who's your daddy? Hmm?"
+> "The big secret to breaking the rules is to make it look as though you're following them."
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
