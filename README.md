@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Your high school life will be over before you know it. There are things you can only do now. You should do as many of them as you can."
+> "Uhh.. Syaoran.. it's okay if you don't have any more feelings for me, that doesn't matter to me at all. But I'm in love with you and I just wanted you to know, that's all."
 
-&mdash; [**Youichi Tanaka**](https://myanimelist.net/character.php?q=Youichi%20Tanaka&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Sakura Kinomoto**](https://myanimelist.net/character.php?q=Sakura%20Kinomoto&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
