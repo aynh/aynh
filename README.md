@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There are two types of lies: Lies that hurt, and lies that don't hurt."
+> "Trying to improve by learning from others that is what calls friendship."
 
-&mdash; [**Itaru Hashida**](https://myanimelist.net/character.php?q=Itaru%20Hashida&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Shino Aburame**](https://myanimelist.net/character.php?q=Shino%20Aburame&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
