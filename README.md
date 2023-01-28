@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Sorry... I really... want to let you savor your moment of glory a little longer. But I really can't be having this. After all is said and done... he is still my man after all."
+> "We might be scared but that's what makes us stronger!"
 
-&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
