@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "People usually don't look back to see how far they've come while they're still walking. Of course, when they come to a standstill, the more progress they've made, the more betrayed they feel by their expectations."
+> "That was the sound of the last train back to my house. And once again, I missed it. Our English class always gets out late on Tuesdays, so I have to walk home. But that's OK, because I like English. And the walk home's not so bad. Usually."
 
-&mdash; [**Shizuka Hiratsuka**](https://myanimelist.net/character.php?q=Shizuka%20Hiratsuka&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Manta Oyamada**](https://myanimelist.net/character.php?q=Manta%20Oyamada&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
