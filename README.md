@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Wake up to reality! Nothing ever goes as planned in this world. The longer you live, the more you realize that in this reality only pain, suffering and futility exist."
+> "Sorry... I really... want to let you savor your moment of glory a little longer. But I really can't be having this. After all is said and done... he is still my man after all."
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
