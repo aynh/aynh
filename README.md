@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Believe in yourself and create your own destiny. Don't fear fate."
+> "You came without fear. Don't have any regrets, no matter what happens. This is the duel you wanted."
 
-&mdash; [**Outlaw Star**](https://myanimelist.net/character.php?q=Outlaw%20Star&cat=character), [**Outlaw Star**](https://myanimelist.net/search/all?q=Outlaw%20Star&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
