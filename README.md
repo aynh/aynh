@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I would rather be a brainless monkey than a heartless monster."
+> "There are two types of lies: Lies that hurt, and lies that don't hurt."
 
-&mdash; [**Goku**](https://myanimelist.net/character.php?q=Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Itaru Hashida**](https://myanimelist.net/character.php?q=Itaru%20Hashida&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
