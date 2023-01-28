@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "That was the sound of the last train back to my house. And once again, I missed it. Our English class always gets out late on Tuesdays, so I have to walk home. But that's OK, because I like English. And the walk home's not so bad. Usually."
+> "If there's something you want to go through with, you should stick to it without keeping up appearances."
 
-&mdash; [**Manta Oyamada**](https://myanimelist.net/character.php?q=Manta%20Oyamada&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Arato Hisako**](https://myanimelist.net/character.php?q=Arato%20Hisako&cat=character), [**Shokugeki no Sōma**](https://myanimelist.net/search/all?q=Shokugeki%20no%20S%C5%8Dma&cat=all)
