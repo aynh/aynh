@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "To get what you want, you put up with something, make an effort, learn a skill, and inspire yourself. Is that how it is with Hinazuki too? Right now... I can tell she's enduring something. Just the opposite of me, she is pretending to be indifferent. She pretends to feel nothing, but a 10 year old girl isn't that strong."
+> "Believe in yourself and create your own destiny. Don't fear fate."
 
-&mdash; [**Satoru Fujinuma**](https://myanimelist.net/character.php?q=Satoru%20Fujinuma&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
+&mdash; [**Outlaw Star**](https://myanimelist.net/character.php?q=Outlaw%20Star&cat=character), [**Outlaw Star**](https://myanimelist.net/search/all?q=Outlaw%20Star&cat=all)
