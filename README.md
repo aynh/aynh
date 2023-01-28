@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "In every time, in every world, the strong polish their fangs while the weak polish their wisdom."
+> "I would rather be a brainless monkey than a heartless monster."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Goku**](https://myanimelist.net/character.php?q=Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
