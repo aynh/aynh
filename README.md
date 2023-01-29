@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you're going to modify me, at least turn me into a grasshopper man! Or a beetle! Or one of those imaginary freaks!"
+> "Why do I always do this? I fall in love with someone, then I get all these and then I feel brokenhearted. And It's always my fault."
 
-&mdash; [**Itoshiki Nozomu**](https://myanimelist.net/character.php?q=Itoshiki%20Nozomu&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
+&mdash; [**Shōta Kisa**](https://myanimelist.net/character.php?q=Sh%C5%8Dta%20Kisa&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
