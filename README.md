@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "After the first note resonated through the hall, You became everything I yearn for."
+> "Simplicity is the easiest path to true beauty."
 
-&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Handa Seishū**](https://myanimelist.net/character.php?q=Handa%20Seish%C5%AB&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
