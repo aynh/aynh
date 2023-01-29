@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Men don't get touchy-feely with each other."
+> "If you're going to modify me, at least turn me into a grasshopper man! Or a beetle! Or one of those imaginary freaks!"
 
-&mdash; [**Taichi Mashima**](https://myanimelist.net/character.php?q=Taichi%20Mashima&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Itoshiki Nozomu**](https://myanimelist.net/character.php?q=Itoshiki%20Nozomu&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
