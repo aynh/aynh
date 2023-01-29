@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The world has too many heroes. It needs a monster."
+> "After the first note resonated through the hall, You became everything I yearn for."
 
-&mdash; [**Dracule Mihawk**](https://myanimelist.net/character.php?q=Dracule%20Mihawk&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
