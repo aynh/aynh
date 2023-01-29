@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Our differences are what let us understand each other. We've worked together to come this far, there are no doubts or regret anymore. I'll overcome this fight and prove that even we can come to an understanding."
+> "The peaceful world I'm fighting for is one where everyone has a smile on their face, not one where I have to pretend I didn't see you make my friend cry. I don't think that kind of peace is worth fighting for. And I don't think it's worth making sacrifices to achieve it."
 
-&mdash; [**Tsukune Aono**](https://myanimelist.net/character.php?q=Tsukune%20Aono&cat=character), [**Rosario Vampire**](https://myanimelist.net/search/all?q=Rosario%20Vampire&cat=all)
+&mdash; [**Emi Yusa**](https://myanimelist.net/character.php?q=Emi%20Yusa&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
