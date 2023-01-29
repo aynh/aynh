@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Happiness is only happiness when everyone shares it."
+> "I'm Black Star. I'm on a whole different level than you. I'm a big man! I beat death! Who else can say that?!"
 
-&mdash; [**Ryuugajou Nanana**](https://myanimelist.net/character.php?q=Ryuugajou%20Nanana&cat=character), [**Ryuugajou Nanana No Maizoukin**](https://myanimelist.net/search/all?q=Ryuugajou%20Nanana%20No%20Maizoukin&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
