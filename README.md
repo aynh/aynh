@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Why do I always do this? I fall in love with someone, then I get all these and then I feel brokenhearted. And It's always my fault."
+> "The gush from my fountain of wisdom told me."
 
-&mdash; [**Shōta Kisa**](https://myanimelist.net/character.php?q=Sh%C5%8Dta%20Kisa&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Victorique de Blois**](https://myanimelist.net/character.php?q=Victorique%20de%20Blois&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
