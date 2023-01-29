@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "When some things contradict each other, you should look at the opposite side of everything. And when the meanings behind the seemingly unnatural actions are made clear, a completely different answer might be reached... Justice can become evil. Reality can become an illusion. Meaning can be found in something that appears meaningless. Think. And find the answer for yourselves. A human ceases to be once he or she stops thinking."
+> "Our differences are what let us understand each other. We've worked together to come this far, there are no doubts or regret anymore. I'll overcome this fight and prove that even we can come to an understanding."
 
-&mdash; [**Merlin**](https://myanimelist.net/character.php?q=Merlin&cat=character), [**Nanatsu no Taizai**](https://myanimelist.net/search/all?q=Nanatsu%20no%20Taizai&cat=all)
+&mdash; [**Tsukune Aono**](https://myanimelist.net/character.php?q=Tsukune%20Aono&cat=character), [**Rosario Vampire**](https://myanimelist.net/search/all?q=Rosario%20Vampire&cat=all)
