@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "People with talent often have the wrong impression that things will go as they think."
+> "When some things contradict each other, you should look at the opposite side of everything. And when the meanings behind the seemingly unnatural actions are made clear, a completely different answer might be reached... Justice can become evil. Reality can become an illusion. Meaning can be found in something that appears meaningless. Think. And find the answer for yourselves. A human ceases to be once he or she stops thinking."
 
-&mdash; [**Karma Akabane**](https://myanimelist.net/character.php?q=Karma%20Akabane&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Merlin**](https://myanimelist.net/character.php?q=Merlin&cat=character), [**Nanatsu no Taizai**](https://myanimelist.net/search/all?q=Nanatsu%20no%20Taizai&cat=all)
