@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The peaceful world I'm fighting for is one where everyone has a smile on their face, not one where I have to pretend I didn't see you make my friend cry. I don't think that kind of peace is worth fighting for. And I don't think it's worth making sacrifices to achieve it."
+> "There's no telling when this war will end. No matter how many troops the country deploys, the desert just absorbs them like water. We suffer, conquer, and what's left? Nothing but sand."
 
-&mdash; [**Emi Yusa**](https://myanimelist.net/character.php?q=Emi%20Yusa&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
