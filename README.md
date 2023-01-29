@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you save Kaien, then what becomes of his pride? If you go to his aid now, his life will be saved. But... at the same time, it would end up killing his pride for all eternity."
+> "I’ll never give in to you circus freaks!"
 
-&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
