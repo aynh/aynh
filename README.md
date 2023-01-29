@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Your own path is for you to find out on your own."
+> "They don't know that once you lose something, you can never get it back again."
 
-&mdash; [**Subaru**](https://myanimelist.net/character.php?q=Subaru&cat=character), [**.hack//SIGN**](https://myanimelist.net/search/all?q=.hack%2F%2FSIGN&cat=all)
+&mdash; [**Carly Stratmann**](https://myanimelist.net/character.php?q=Carly%20Stratmann&cat=character), [**Shingeki no Kyojin: Lost Girls**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Lost%20Girls&cat=all)
