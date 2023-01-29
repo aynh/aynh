@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Success comes only to those who have dared to stand up without fear!"
+> "Your own path is for you to find out on your own."
 
-&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Subaru**](https://myanimelist.net/character.php?q=Subaru&cat=character), [**.hack//SIGN**](https://myanimelist.net/search/all?q=.hack%2F%2FSIGN&cat=all)
