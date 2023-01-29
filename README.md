@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "How is this possible? I must be the first person in history who was flushed down the toilet!"
+> "Why did I fall in love with music in the first place?"
 
-&mdash; [**Yuri Shibuya**](https://myanimelist.net/character.php?q=Yuri%20Shibuya&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
+&mdash; [**Jirō Yamada**](https://myanimelist.net/character.php?q=Jir%C5%8D%20Yamada&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
