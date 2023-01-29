@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "They don't know that once you lose something, you can never get it back again."
+> "Happiness is only happiness when everyone shares it."
 
-&mdash; [**Carly Stratmann**](https://myanimelist.net/character.php?q=Carly%20Stratmann&cat=character), [**Shingeki no Kyojin: Lost Girls**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Lost%20Girls&cat=all)
+&mdash; [**Ryuugajou Nanana**](https://myanimelist.net/character.php?q=Ryuugajou%20Nanana&cat=character), [**Ryuugajou Nanana No Maizoukin**](https://myanimelist.net/search/all?q=Ryuugajou%20Nanana%20No%20Maizoukin&cat=all)
