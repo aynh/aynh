@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The gush from my fountain of wisdom told me."
+> "People with talent often have the wrong impression that things will go as they think."
 
-&mdash; [**Victorique de Blois**](https://myanimelist.net/character.php?q=Victorique%20de%20Blois&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
+&mdash; [**Karma Akabane**](https://myanimelist.net/character.php?q=Karma%20Akabane&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
