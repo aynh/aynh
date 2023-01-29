@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There's no telling when this war will end. No matter how many troops the country deploys, the desert just absorbs them like water. We suffer, conquer, and what's left? Nothing but sand."
+> "If you save Kaien, then what becomes of his pride? If you go to his aid now, his life will be saved. But... at the same time, it would end up killing his pride for all eternity."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
