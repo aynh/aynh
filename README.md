@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Although Punpun didn’t really want to think about what the point of having dreams that could never come true was… To have dreams and worries that you could talk frankly about… In a way, that was probably a more fulfilling lifestyle than his own, Punpun admitted. Being cool was merely a paper-thin difference away from being empty."
+> "I thought growing older would turn me into an adult. I believed I'd find work, get married, and become an adult. But none of those things have happened. Even though I've grown older, I feel like nothing's changed."
 
-&mdash; [**Oyasumi Punpun**](https://myanimelist.net/character.php?q=Oyasumi%20Punpun&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Kimi To Boku.**](https://myanimelist.net/character.php?q=Kimi%20To%20Boku.&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
