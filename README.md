@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Even if we are far apart. We'll always be united by tennis."
+> "This little girl, who's not even half my size... taught me that tears can flow even from these silver eyes."
 
-&mdash; [**Fuji Shuusuke**](https://myanimelist.net/character.php?q=Fuji%20Shuusuke&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
