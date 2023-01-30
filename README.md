@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Happiness is only happiness when everyone shares it."
+> "This young girl, whose small body is only half the size of mine, has taught me that tears can flow from these silver eyes."
 
-&mdash; [**Ryuugajou Nanana**](https://myanimelist.net/character.php?q=Ryuugajou%20Nanana&cat=character), [**Ryuugajou Nanana No Maizoukin**](https://myanimelist.net/search/all?q=Ryuugajou%20Nanana%20No%20Maizoukin&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
