@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "No matter how strong a defense, a stronger offense will always shatter it."
+> "It's certainly good to be smart, but I think it's better that there are all kinds of people in the world"
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
