@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "This is called the 'Rippling Sword'. 'Rippling Ophelia'... Great name, don't you think? But it's not too well known yet. Because most of the people who've seen it are dead."
+> "If you feel yourself hitting up against your limit remember for what cause you clench your fists... remember why you started down this path, and let that memory carry you beyond your limit."
 
-&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
