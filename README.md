@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Birds with the wind in their wings are flying across the great blue sky right now. And all of you should be able to make it! To the highest limit, to the farthest limit!"
+> "Happiness is only happiness when everyone shares it."
 
-&mdash; [**Ittetsu Takeda**](https://myanimelist.net/character.php?q=Ittetsu%20Takeda&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
+&mdash; [**Ryuugajou Nanana**](https://myanimelist.net/character.php?q=Ryuugajou%20Nanana&cat=character), [**Ryuugajou Nanana No Maizoukin**](https://myanimelist.net/search/all?q=Ryuugajou%20Nanana%20No%20Maizoukin&cat=all)
