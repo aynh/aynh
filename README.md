@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I thought growing older would turn me into an adult. I believed I'd find work, get married, and become an adult. But none of those things have happened. Even though I've grown older, I feel like nothing's changed."
+> "[To Yammy] They're all trash...kill them all."
 
-&mdash; [**Kimi To Boku.**](https://myanimelist.net/character.php?q=Kimi%20To%20Boku.&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
