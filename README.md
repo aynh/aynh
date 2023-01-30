@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Life is like a playground swing, the higher and farther forward you go as you swing, it carries the risk of falling just as far back."
+> "Even if we are far apart. We'll always be united by tennis."
 
-&mdash; [**Jiro**](https://myanimelist.net/character.php?q=Jiro&cat=character), [**Toriko**](https://myanimelist.net/search/all?q=Toriko&cat=all)
+&mdash; [**Fuji Shuusuke**](https://myanimelist.net/character.php?q=Fuji%20Shuusuke&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
