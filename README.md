@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The question is what does it take to be the one in control? Money? Brains? Strategic Prowess? Of course, all three are very important. However, there is something that outshines them all and provides a faster and more effective way to victory. And that is... information. The one in possession of information will be able to easily become the ruler of the liar game."
+> "The most precious thing is different for every human. They resist and kill each other because of their difference. It has nothing to do with the inability to sense the other's most important thing."
 
-&mdash; [**Yokoya Norihiko**](https://myanimelist.net/character.php?q=Yokoya%20Norihiko&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Shijima Kurookano**](https://myanimelist.net/character.php?q=Shijima%20Kurookano&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
