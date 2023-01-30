@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "This young girl, whose small body is only half the size of mine, has taught me that tears can flow from these silver eyes."
+> "No matter how strong a defense, a stronger offense will always shatter it."
 
-&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
