@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Snowdrop. I also don't know what I'm looking for. What does the future hold? Will I be able to not forget what I have found?"
+> "Life is like a playground swing, the higher and farther forward you go as you swing, it carries the risk of falling just as far back."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Jiro**](https://myanimelist.net/character.php?q=Jiro&cat=character), [**Toriko**](https://myanimelist.net/search/all?q=Toriko&cat=all)
