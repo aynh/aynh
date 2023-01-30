@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "No matter what your power is, no matter how strong your opponent, lose once and it's over. That's the kind of world that's out there waiting for us. And once you lose, there's no do-overs."
+> "The question is what does it take to be the one in control? Money? Brains? Strategic Prowess? Of course, all three are very important. However, there is something that outshines them all and provides a faster and more effective way to victory. And that is... information. The one in possession of information will be able to easily become the ruler of the liar game."
 
-&mdash; [**Nagakura Imari**](https://myanimelist.net/character.php?q=Nagakura%20Imari&cat=character), [**Absolute Duo**](https://myanimelist.net/search/all?q=Absolute%20Duo&cat=all)
+&mdash; [**Yokoya Norihiko**](https://myanimelist.net/character.php?q=Yokoya%20Norihiko&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
