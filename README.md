@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Communication is the only way people can move ahead."
+> "I'm the only one who can bear the full brunt of your hate! It's my job, no one else's! I'll bear the burden of your hatred... and we'll die together!"
 
-&mdash; [**Tsukiko Tsutsukakushi**](https://myanimelist.net/character.php?q=Tsukiko%20Tsutsukakushi&cat=character), [**Hentai Ouji To Warawanai Neko**](https://myanimelist.net/search/all?q=Hentai%20Ouji%20To%20Warawanai%20Neko&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
