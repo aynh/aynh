@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Things like protecting the world are no more than moral reasons that sound good."
+> "It's not whether it's feasible or not – it's what I'm doing."
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
