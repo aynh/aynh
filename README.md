@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It's true that you're lacking in ability. That's because you don't work at it. However, you have a natural potential. That's why I chose you."
+> "Miracles are irrational by nature."
 
-&mdash; [**Koichiro Oota**](https://myanimelist.net/character.php?q=Koichiro%20Oota&cat=character), [**Gunbuster**](https://myanimelist.net/search/all?q=Gunbuster&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
