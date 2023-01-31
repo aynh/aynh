@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Why do you find it easy to kill? These are lives dammit!"
+> "The hot blood that flows through my body... is not something that can be suppressed by other people!"
 
-&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Bulat**](https://myanimelist.net/character.php?q=Bulat&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
