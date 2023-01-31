@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Never show your stupid self in public."
+> "Humans live behind masks."
 
-&mdash; [**Kanade Maki**](https://myanimelist.net/character.php?q=Kanade%20Maki&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
