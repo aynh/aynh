@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The hot blood that flows through my body... is not something that can be suppressed by other people!"
+> "There are some flowers you only see when you take detours."
 
-&mdash; [**Bulat**](https://myanimelist.net/character.php?q=Bulat&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Tanaka Saeko**](https://myanimelist.net/character.php?q=Tanaka%20Saeko&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
