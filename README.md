@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I won't ever be the best at anything. Or rather, you might say that I've stopped trying to be."
+> "Lives are never of equal value. There is always a ranking order."
 
-&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Mako Fujisaki**](https://myanimelist.net/character.php?q=Mako%20Fujisaki&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
