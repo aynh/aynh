@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "People share only one common fate... death."
+> "It's true that you're lacking in ability. That's because you don't work at it. However, you have a natural potential. That's why I chose you."
 
-&mdash; [**Neji Hyuuga**](https://myanimelist.net/character.php?q=Neji%20Hyuuga&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Koichiro Oota**](https://myanimelist.net/character.php?q=Koichiro%20Oota&cat=character), [**Gunbuster**](https://myanimelist.net/search/all?q=Gunbuster&cat=all)
