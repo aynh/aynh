@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Lives are never of equal value. There is always a ranking order."
+> "I can't let myself not like the person I like."
 
-&mdash; [**Mako Fujisaki**](https://myanimelist.net/character.php?q=Mako%20Fujisaki&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Shimada Minami**](https://myanimelist.net/character.php?q=Shimada%20Minami&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
