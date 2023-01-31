@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Humans live behind masks."
+> "True happiness comes from overcoming suffering. No one can shoulder your burdens for you."
 
-&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Labrador**](https://myanimelist.net/character.php?q=Labrador&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
