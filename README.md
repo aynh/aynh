@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I'm just a guy who's a hero for fun."
+> "Why do you find it easy to kill? These are lives dammit!"
 
-&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
