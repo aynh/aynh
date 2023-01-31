@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Tedium is such a crime. It takes the limited amount of time that is given to man, and rather than spending it in indolence or drowning it in pleasure it just sits there sucking, eating it up. I can't put up with that, tedium is a crime! Death to tedium! Die!"
+> "I won't ever be the best at anything. Or rather, you might say that I've stopped trying to be."
 
-&mdash; [**Graham Specter**](https://myanimelist.net/character.php?q=Graham%20Specter&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
