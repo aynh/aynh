@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "True happiness comes from overcoming suffering. No one can shoulder your burdens for you."
+> "A joke only lasts for a moment, if it leaves a misunderstanding, it becomes a lie."
 
-&mdash; [**Labrador**](https://myanimelist.net/character.php?q=Labrador&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
