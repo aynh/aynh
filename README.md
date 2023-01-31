@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "A joke only lasts for a moment, if it leaves a misunderstanding, it becomes a lie."
+> "Things like protecting the world are no more than moral reasons that sound good."
 
-&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
