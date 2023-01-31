@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There are some flowers you only see when you take detours."
+> "People share only one common fate... death."
 
-&mdash; [**Tanaka Saeko**](https://myanimelist.net/character.php?q=Tanaka%20Saeko&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Neji Hyuuga**](https://myanimelist.net/character.php?q=Neji%20Hyuuga&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
