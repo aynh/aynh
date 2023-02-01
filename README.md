@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "When some things contradict each other, you should look at the opposite side of everything. And when the meanings behind the seemingly unnatural actions are made clear, a completely different answer might be reached... Justice can become evil. Reality can become an illusion. Meaning can be found in something that appears meaningless. Think. And find the answer for yourselves. A human ceases to be once he or she stops thinking."
+> "Ugly? I'll have you know they call me The Rose of Martial Arts around here!"
 
-&mdash; [**Merlin**](https://myanimelist.net/character.php?q=Merlin&cat=character), [**Nanatsu no Taizai**](https://myanimelist.net/search/all?q=Nanatsu%20no%20Taizai&cat=all)
+&mdash; [**Kaoru Kamiya**](https://myanimelist.net/character.php?q=Kaoru%20Kamiya&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
