@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "No matter what you're doing, the most essential thing is to not give up. Fail as many times as it takes. Keep trying persistantly untill you can call yourself 'avarage'. If you can collect a nice group of avarage-level skills, that's already above-avarage. You've created your own sort of 'talent'."
+> "Sometimes your biggest effort will be ignored, but your smallest mistake will be judged."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
