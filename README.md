@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It looks like they only want me, and that's exactly who they'll get."
+> "Prince Zuko, pride is not the opposite of shame, but rather it's source. True humility is the only antidote to shame."
 
-&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
