@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The one hundred years we were apart were meant to bring me power and make you weak! Yoruichi!"
+> "A sound soul dwells within sound skin and sound cuticles."
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
