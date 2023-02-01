@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "A sound soul dwells within sound skin and sound cuticles."
+> "It's simply fun to be part of a group sharing the same interests, regardless of what those interests are."
 
-&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
