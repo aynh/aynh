@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Ugly? I'll have you know they call me The Rose of Martial Arts around here!"
+> "It looks like they only want me, and that's exactly who they'll get."
 
-&mdash; [**Kaoru Kamiya**](https://myanimelist.net/character.php?q=Kaoru%20Kamiya&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
