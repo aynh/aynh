@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There's no meaningful difference between a real and a virtual world. It's pointless to ask anyone who they really are. All you can do is accept and believe in them, because whoever they are in your mind, is their true identity."
+> "No matter what you're doing, the most essential thing is to not give up. Fail as many times as it takes. Keep trying persistantly untill you can call yourself 'avarage'. If you can collect a nice group of avarage-level skills, that's already above-avarage. You've created your own sort of 'talent'."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
