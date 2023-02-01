@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Hey, Shu, have you ever read a picture book called 'The Kind King'? The king was really kind, he gave everyone money and land, until finally... the country was gone. The people were all mad at the king. But I really loved him. I think he was my first love. You're like that king, Shu. The way you lose because of your kindness. You know what? I think you're going to be a great king."
+> "If you're friends with everyone, you become a popular guy in return; but then, you wouldn't have a place where you can be who you truly are."
 
-&mdash; [**Menjou Hare**](https://myanimelist.net/character.php?q=Menjou%20Hare&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Shin Meguro**](https://myanimelist.net/character.php?q=Shin%20Meguro&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
