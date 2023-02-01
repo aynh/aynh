@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you're friends with everyone, you become a popular guy in return; but then, you wouldn't have a place where you can be who you truly are."
+> "Let me tell you an incomprehensible story! What is it for the actions of men to be incomprehensible? It would seem to me that if it can't be comprehended, one should not even bother trying. It is useless to even think about it, I think. That said, I don't know exactly what's going on but may we continue fighting please?"
 
-&mdash; [**Shin Meguro**](https://myanimelist.net/character.php?q=Shin%20Meguro&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Graham Specter**](https://myanimelist.net/character.php?q=Graham%20Specter&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
