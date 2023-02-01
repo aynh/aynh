@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It's simply fun to be part of a group sharing the same interests, regardless of what those interests are."
+> "When some things contradict each other, you should look at the opposite side of everything. And when the meanings behind the seemingly unnatural actions are made clear, a completely different answer might be reached... Justice can become evil. Reality can become an illusion. Meaning can be found in something that appears meaningless. Think. And find the answer for yourselves. A human ceases to be once he or she stops thinking."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Merlin**](https://myanimelist.net/character.php?q=Merlin&cat=character), [**Nanatsu no Taizai**](https://myanimelist.net/search/all?q=Nanatsu%20no%20Taizai&cat=all)
