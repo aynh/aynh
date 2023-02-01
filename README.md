@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Prince Zuko, pride is not the opposite of shame, but rather it's source. True humility is the only antidote to shame."
+> "There isn't anything more painful than to have someone say that he doesn't believe you."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
