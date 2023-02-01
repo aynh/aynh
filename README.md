@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I'll never dream about things that I know won't come true."
+> "Your own feelings are the most important, when it comes to enjoying the interesting things in life. If you just follow what someone else says to do, or just do what you're told, you won't even be able to enjoy the things you like."
 
-&mdash; [**Chiriko Tsurumi**](https://myanimelist.net/character.php?q=Chiriko%20Tsurumi&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
