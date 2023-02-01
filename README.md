@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I hate humans. I find the thought that I'm from the same species to be depressing."
+> "People can only truly understand things that they've actually experienced."
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Lichtendahl Tsery**](https://myanimelist.net/character.php?q=Lichtendahl%20Tsery&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
