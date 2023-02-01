@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "People can only truly understand things that they've actually experienced."
+> "I understand your feelings of wanting to bring the bad guy to justice, but do bear with it. It also requires courage to hide oneself."
 
-&mdash; [**Lichtendahl Tsery**](https://myanimelist.net/character.php?q=Lichtendahl%20Tsery&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
