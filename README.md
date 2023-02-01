@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Sometimes your biggest effort will be ignored, but your smallest mistake will be judged."
+> "I hate humans. I find the thought that I'm from the same species to be depressing."
 
-&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
