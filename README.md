@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I realized it one day. The lyrics I struggled to create are only made up so I would have something to sing. Nothing genuine can come out of these flat and boring and ambiguous lives we're living, out of faking your worries for the sake of it."
+> "I am ME. No matter, what I say or do, I'm still ME. The things I feel, the things I do, being a vampire, being a man, being betrayed by my mother. When all those things come together, they make up ME. But I'm none of these things taken separately."
 
-&mdash; [**Ritsuko Ayukawa**](https://myanimelist.net/character.php?q=Ritsuko%20Ayukawa&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Touma Kyohei**](https://myanimelist.net/character.php?q=Touma%20Kyohei&cat=character), [**Midnight Secretary**](https://myanimelist.net/search/all?q=Midnight%20Secretary&cat=all)
