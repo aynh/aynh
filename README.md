@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "May those who accept their fate be granted Happiness, may those who defy their fate be granted Glory."
+> "Pretending to get along is just hypocritical. If you don't like me, that's fine. People are free to like and hate what they want."
 
-&mdash; [**Edel**](https://myanimelist.net/character.php?q=Edel&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
+&mdash; [**Rachnera Arachnera**](https://myanimelist.net/character.php?q=Rachnera%20Arachnera&cat=character), [**Monster Musume no Iru Nichijou**](https://myanimelist.net/search/all?q=Monster%20Musume%20no%20Iru%20Nichijou&cat=all)
