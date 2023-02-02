@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "(to Kagura) Sorry that's your cue to say 'Shigure you perv' and roll your eyes, slap me, whatever."
+> "[pulls a gun on a boy harassing Kaname] I'll let you go this time but if I see you doing this again, I'll come after you and all your relatives."
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Sousuke Sagara**](https://myanimelist.net/character.php?q=Sousuke%20Sagara&cat=character), [**Full Metal Panic!**](https://myanimelist.net/search/all?q=Full%20Metal%20Panic!&cat=all)
