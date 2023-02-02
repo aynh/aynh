@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If a man will not work, he shall not eat."
+> "For everything you wish, you have to pay an equal price in return. You can't get more or give more. You can't get less or give less. It must be in balance, or else there will be chaos."
 
-&mdash; [**Olivier Mira Armstrong**](https://myanimelist.net/character.php?q=Olivier%20Mira%20Armstrong&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
