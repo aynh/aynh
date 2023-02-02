@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Crazy baby."
+> "[To Chihiro as she's sleeping] Meet me at the bridge. Come alone."
 
-&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
