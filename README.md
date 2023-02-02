@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "For everything you wish, you have to pay an equal price in return. You can't get more or give more. You can't get less or give less. It must be in balance, or else there will be chaos."
+> "I'll be back."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
