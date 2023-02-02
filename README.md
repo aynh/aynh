@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Looks like most of what you say immediately vanishes from your head once you say it. I really envy you for a brain with such a lively metabolism."
+> "If a man will not work, he shall not eat."
 
-&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Olivier Mira Armstrong**](https://myanimelist.net/character.php?q=Olivier%20Mira%20Armstrong&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
