@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I am ME. No matter, what I say or do, I'm still ME. The things I feel, the things I do, being a vampire, being a man, being betrayed by my mother. When all those things come together, they make up ME. But I'm none of these things taken separately."
+> "(to Kagura) Sorry that's your cue to say 'Shigure you perv' and roll your eyes, slap me, whatever."
 
-&mdash; [**Touma Kyohei**](https://myanimelist.net/character.php?q=Touma%20Kyohei&cat=character), [**Midnight Secretary**](https://myanimelist.net/search/all?q=Midnight%20Secretary&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
