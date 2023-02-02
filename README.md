@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Human beings don't feel pain with their bodies. The brain is the thing that transmits the pain to the body."
+> "You will not go in there with hopes of winning the tournament the first time you compete. To do so would be arrogant! And arrogance is for fools, not warriors! So you will enter the tournament with the sole purpose of improving your fighting skills."
 
-&mdash; [**Madoka Shishito**](https://myanimelist.net/character.php?q=Madoka%20Shishito&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Master Roshi**](https://myanimelist.net/character.php?q=Master%20Roshi&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
