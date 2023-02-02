@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Pretending to get along is just hypocritical. If you don't like me, that's fine. People are free to like and hate what they want."
+> "I realized it one day. The lyrics I struggled to create are only made up so I would have something to sing. Nothing genuine can come out of these flat and boring and ambiguous lives we're living, out of faking your worries for the sake of it."
 
-&mdash; [**Rachnera Arachnera**](https://myanimelist.net/character.php?q=Rachnera%20Arachnera&cat=character), [**Monster Musume no Iru Nichijou**](https://myanimelist.net/search/all?q=Monster%20Musume%20no%20Iru%20Nichijou&cat=all)
+&mdash; [**Ritsuko Ayukawa**](https://myanimelist.net/character.php?q=Ritsuko%20Ayukawa&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
