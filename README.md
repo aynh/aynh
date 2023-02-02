@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I'll never dream about things that I know won't come true."
+> "The sea’s blue reflects because of the sky’s blue. Just like detectives and thieves. We’re all toying with the human mind. But the one who pries for others’ secrets is the one who’s truly impolite."
 
-&mdash; [**Chiriko Tsurumi**](https://myanimelist.net/character.php?q=Chiriko%20Tsurumi&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
+&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
