@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I'm going to teach you how to talk to your seniors, baldy."
+> "Humans can't live without memories, you know. Still, they can't live on memories alone. You have to awaken from your dreams eventually. Because dreams you don't awaken from eventually become sadness."
 
-&mdash; [**Hyuuga Junpei**](https://myanimelist.net/character.php?q=Hyuuga%20Junpei&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Michiru**](https://myanimelist.net/character.php?q=Michiru&cat=character), [**Air**](https://myanimelist.net/search/all?q=Air&cat=all)
