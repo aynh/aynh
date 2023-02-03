@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The sky is so low."
+> "I'm going to teach you how to talk to your seniors, baldy."
 
-&mdash; [**Alto Saotome**](https://myanimelist.net/character.php?q=Alto%20Saotome&cat=character), [**Macross Frontier**](https://myanimelist.net/search/all?q=Macross%20Frontier&cat=all)
+&mdash; [**Hyuuga Junpei**](https://myanimelist.net/character.php?q=Hyuuga%20Junpei&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
