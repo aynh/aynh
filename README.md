@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "In this crazy-ass world, there's no point in playing the blame game."
+> "The sky is so low."
 
-&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Alto Saotome**](https://myanimelist.net/character.php?q=Alto%20Saotome&cat=character), [**Macross Frontier**](https://myanimelist.net/search/all?q=Macross%20Frontier&cat=all)
