@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Humans can't live without memories, you know. Still, they can't live on memories alone. You have to awaken from your dreams eventually. Because dreams you don't awaken from eventually become sadness."
+> "Please... even if I die surrounded by snow that never melts... please let her be happy."
 
-&mdash; [**Michiru**](https://myanimelist.net/character.php?q=Michiru&cat=character), [**Air**](https://myanimelist.net/search/all?q=Air&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
