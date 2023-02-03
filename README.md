@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Please... even if I die surrounded by snow that never melts... please let her be happy."
+> "My name is Black Star. I'll surpass the power of the gods."
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
