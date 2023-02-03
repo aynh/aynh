@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Well, well, if it isn't the holy monk."
+> "In this crazy-ass world, there's no point in playing the blame game."
 
-&mdash; [**Naraku**](https://myanimelist.net/character.php?q=Naraku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
