@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It isn't even interesting fighting against someone who doesn't have their own goals."
+> "Someday, maybe you’ll find someone like you to share your pain with. I can’t tell you when that will happen.... But the important thing is to not reject them."
 
-&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Mei Tachibana**](https://myanimelist.net/character.php?q=Mei%20Tachibana&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
