@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Well done. That time, your fang definitely touched me."
+> "I highly recommend pissing yourself followed by a course of praying to your impotent god."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Walter C. Dornez**](https://myanimelist.net/character.php?q=Walter%20C.%20Dornez&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
