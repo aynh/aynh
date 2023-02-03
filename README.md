@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Yamcha, I was worried about you. For all I knew, you were dead in a ditch in a country you can’t pronounce. You’ll have to make this up to me. And you’re going to enjoy it."
+> "When you go easy on the ones with just a bit of power, they give you more trouble than anybody else."
 
-&mdash; [**Bulma Briefs**](https://myanimelist.net/character.php?q=Bulma%20Briefs&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Madara**](https://myanimelist.net/character.php?q=Madara&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
