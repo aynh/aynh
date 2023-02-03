@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Only victors are allowed to live... this world is merciless like that."
+> "Well, well, if it isn't the holy monk."
 
-&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Naraku**](https://myanimelist.net/character.php?q=Naraku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
