@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I think I finally understand... As long as there's someone who'll grieve, it's wrong to want to die."
+> "You can go anywhere you want in this world with a single blade. This may be a virtual world, but I feel more alive here than in the real world."
 
-&mdash; [**Hidehito Nomura**](https://myanimelist.net/character.php?q=Hidehito%20Nomura&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
