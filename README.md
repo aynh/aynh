@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You can go anywhere you want in this world with a single blade. This may be a virtual world, but I feel more alive here than in the real world."
+> "Well done. That time, your fang definitely touched me."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
