@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Only a genuine wish makes one's own soul shine beautifully in this life. That light is a messenger from heaven lighting the way for our unwavering souls to be brought to the God's side."
+> "There’s no use. There’s no such thing as a victory that can be won through effort. It doesn’t exist."
 
-&mdash; [**Bastien**](https://myanimelist.net/character.php?q=Bastien&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
