@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "We are taught never to shed tears. For to shed tears means that the body has been defeated by emotion. And to us, this simple act of crying proves, without question, that the existence of emotion is nothing but a burden."
+> "Yamcha, I was worried about you. For all I knew, you were dead in a ditch in a country you can’t pronounce. You’ll have to make this up to me. And you’re going to enjoy it."
 
-&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Bulma Briefs**](https://myanimelist.net/character.php?q=Bulma%20Briefs&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
