@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Everyone's carrying something that matters. You just don't realize when you're carrying it. It's only after it slips out of your hand that you realize how heavy it was in the first place. So many times I thought that I'd never carry a load like that ever again. And yet, before I realized it, I was carrying it again. I'd feel so much better if I just got rid of it. But I just can't bring myself to do it."
+> "Humans are creatures that dream. Different from others, they want to be special. They want to be adored by others, just like the heroes in comics and games, achieving great things with unique powers. Of course, no one ever believes deep down it will happen. Everyone knows there's no magic in this world."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Yoshiyuki Sakurai**](https://myanimelist.net/character.php?q=Yoshiyuki%20Sakurai&cat=character), [**Da Capo II**](https://myanimelist.net/search/all?q=Da%20Capo%20II&cat=all)
