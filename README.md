@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Is it okay for me to have my own life now, father, now that I'm not 'special' anymore?"
+> "Stop living in the past like an old man."
 
-&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
