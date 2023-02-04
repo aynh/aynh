@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "*referring to Armstrong taking off his shirt* Did he have to strip?.."
+> "I will do anything it takes to be the man she loves. I will survive this war. And when I return home, I will swallow every horrible thing I've done here, and I will smile when I'm with her. I swear on my life."
 
-&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist: Brotherhood OAV**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood%20OAV&cat=all)
