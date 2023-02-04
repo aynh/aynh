@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You’ll laugh at your fears when you find out who you are."
+> "If you give me wings, I will soar for you even if this whole land sinks down to the water. If you give me a sword, I will fight for you even if this whole sky shoots through with your light."
 
-&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
