@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I'm no one. I don't want to be anyone. All I care about is completing the moon's eye plan. This world is completely worthless. There is nothing left in it but misery."
+> "There are people who can't act unless they're faced with a problem. Unless they find their reason. All I was left with was the sinking suspicion that I'd gone horribly wrong."
 
-&mdash; [**Obito Uchiha**](https://myanimelist.net/character.php?q=Obito%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
