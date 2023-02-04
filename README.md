@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Are you a coward...OR ARE YOU A MAN OF AMERICA?!"
+> "*referring to Armstrong taking off his shirt* Did he have to strip?.."
 
-&mdash; [**Tao Len**](https://myanimelist.net/character.php?q=Tao%20Len&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
