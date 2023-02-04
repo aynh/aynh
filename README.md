@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I've always been afraid...Always been pretending to follow you closely, always pretending to sharpen my fangs, when the truth is...I'm scared to death just treading on your shadow."
+> "You’ll laugh at your fears when you find out who you are."
 
-&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
