@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "An unreasonable situation deserves an unreasonable solution."
+> "Do you think everyone can make their dreams come true through hard work? Hard work isn't always rewarded."
 
-&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Atsushi Murasakibara**](https://myanimelist.net/character.php?q=Atsushi%20Murasakibara&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
