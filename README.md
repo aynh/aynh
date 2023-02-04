@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Do you think everyone can make their dreams come true through hard work? Hard work isn't always rewarded."
+> "But I suppose it’s not so bad that an old friend is the same as ever."
 
-&mdash; [**Atsushi Murasakibara**](https://myanimelist.net/character.php?q=Atsushi%20Murasakibara&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
