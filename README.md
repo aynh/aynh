@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "To create something that appeals to the emotions of users, you need to make something that sways your own heart. You can't move others hearts, unless you can move your own."
+> "Are you a coward...OR ARE YOU A MAN OF AMERICA?!"
 
-&mdash; [**Kazuki Fujisawa**](https://myanimelist.net/character.php?q=Kazuki%20Fujisawa&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Tao Len**](https://myanimelist.net/character.php?q=Tao%20Len&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
