@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There are people who can't act unless they're faced with a problem. Unless they find their reason. All I was left with was the sinking suspicion that I'd gone horribly wrong."
+> "No matter what you do, no matter where you go, you can't get away from your nature."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Oomine Daiya**](https://myanimelist.net/character.php?q=Oomine%20Daiya&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
