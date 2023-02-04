@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I came to realize something. Parenthesis are amazing! No matter how negative something sounds, if you throw 'LOL' in some parentheses behind it - it becomes positive!"
+> "I've always been afraid...Always been pretending to follow you closely, always pretending to sharpen my fangs, when the truth is...I'm scared to death just treading on your shadow."
 
-&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
