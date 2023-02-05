@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you married someone, that means you love every side of your significant other that you already know. So if you find a new side after to love, doesn't that mean you'll love your partner even more?"
+> "Any treasure you attain without anyone ever working for it is no treasure at all."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Nyanta**](https://myanimelist.net/character.php?q=Nyanta&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
