@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Breaking a bond is every bit as painful as being physically torn apart. Can you endure that?"
+> "You give up your future, lose your dream, are stained with despair... yet at the same time, you shake off you past, fight reality, and never lose your nobility."
 
-&mdash; [**Amamiya Yuuko**](https://myanimelist.net/character.php?q=Amamiya%20Yuuko&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
