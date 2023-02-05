@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Life is like a mountain - you can say you've reached the top, but only after climbing back down."
+> "It's over when you give up."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
