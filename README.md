@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "People who perish in other’s battles are worms… If one can’t live their life the way they want, they might as well die."
+> "Violence is the greatest power of the world!"
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Meruem**](https://myanimelist.net/character.php?q=Meruem&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
