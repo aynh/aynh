@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Secondhand smoke kills, you know. It's far worse than the fumes you inhale directly. Take diethylene, one of those nasty carcinogens your doctor might have warned you about on your last visit. Firsthand smoke has between 5.3 and 43 nanograms of diethylene, whereas, secondhand smoke has 680 and 823 nanograms.Then we've got quinoline, another effective one, secondhand smoke has 18,000 nanograms; 11 times more than the amount you're sucking down firsthand. You can make the choice to blacken your lungs, but don't expect to enforce that on me."
+> "There is no such thing as 'truth' or 'lies' in this world; there never has been. There are only plain, hard facts. And yet, all beings who exist in this world acknowledge only those 'facts' that are convenient to them, and take them to be the 'truth'. They do so because they know no other way of living. However, for those powerless beings who comprise the majority of this world's population, inconvenient facts that affirm their very existence, are their only truth."
 
-&mdash; [**November 11**](https://myanimelist.net/character.php?q=November%2011&cat=character), [**Darker than Black**](https://myanimelist.net/search/all?q=Darker%20than%20Black&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
