@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Unless someone makes the first move, nothing will happen."
+> "Against the power of will I posses... The capability of my body is nothing."
 
-&mdash; [**Misa Amane**](https://myanimelist.net/character.php?q=Misa%20Amane&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
