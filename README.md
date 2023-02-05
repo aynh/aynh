@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "WHO ARE YOU CALLING A MOUSY LITTLE PIPSQUEAK?!"
+> "People who perish in other’s battles are worms… If one can’t live their life the way they want, they might as well die."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
