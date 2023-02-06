@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If I told her how I feel, she'd miss me even more. Afterall, I'm the guy who keeps breaking her heart by making her wait an eternity... even though I'm always by her side. I don't wanna see her cry anymore. Even if it means I no longer have a place in her heart. Seems pretty childish of me, doesn't it?"
+> "The weight of a sin depends on the person measuring it."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Featherine Augustus Aurora**](https://myanimelist.net/character.php?q=Featherine%20Augustus%20Aurora&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
