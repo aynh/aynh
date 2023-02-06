@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Our bodies get bigger, but our hearts get torn up."
+> "When you said that you hate yourself, it made me want to tell you all the wonderful things I know about you."
 
-&mdash; [**Mikoto Suoh**](https://myanimelist.net/character.php?q=Mikoto%20Suoh&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
+&mdash; [**Rem (re:zero)**](https://myanimelist.net/character.php?q=Rem%20(re%3Azero)&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
