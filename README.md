@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Once you've been loved once and have loved once, you cannot forget it."
+> "Over the course of several hundred years, I've seen many ages end, conflict between people, hatred, wicked hearts. I always have hope that the new age will purify all of that. How many times has it happened? People repeat themselves. They commit the same mistakes, over and over.... They haven't survived, not in true sense. The precious race called people has become extinct."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Zeref**](https://myanimelist.net/character.php?q=Zeref&cat=character), [**Fairy Tail TV 2/2014**](https://myanimelist.net/search/all?q=Fairy%20Tail%20TV%202%2F2014&cat=all)
