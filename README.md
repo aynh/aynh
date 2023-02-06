@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The weak can never break out of their own mold. They cry piteously within their cells, while they try to kick down anyone who strives to break free."
+> "Come on. I don't like this trend of explaining anything and everything about my love life. It's impossible."
 
-&mdash; [**Moral**](https://myanimelist.net/character.php?q=Moral&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
