@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Do not fear Death. Death is always at our side. When we show fear, it jumps at us faster than light. But, if we do not show fear, it casts its eye upon us gently and then guides us into infinity."
+> "If I told her how I feel, she'd miss me even more. Afterall, I'm the guy who keeps breaking her heart by making her wait an eternity... even though I'm always by her side. I don't wanna see her cry anymore. Even if it means I no longer have a place in her heart. Seems pretty childish of me, doesn't it?"
 
-&mdash; [**Laughing Bull**](https://myanimelist.net/character.php?q=Laughing%20Bull&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
