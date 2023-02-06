@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "When you said that you hate yourself, it made me want to tell you all the wonderful things I know about you."
+> "When you are feeling sad... smile, even if you have to force yourself... If you cry when it gets painful... it will only get more painful."
 
-&mdash; [**Rem (re:zero)**](https://myanimelist.net/character.php?q=Rem%20(re%3Azero)&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
+&mdash; [**Chie**](https://myanimelist.net/character.php?q=Chie&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
