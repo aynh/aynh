@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The spring of my heart surges upon the sight of your fresh smile, my love."
+> "You're a monster who deserves to die, right here, with me."
 
-&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Natarle Badgiruel**](https://myanimelist.net/character.php?q=Natarle%20Badgiruel&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
