@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You're a monster who deserves to die, right here, with me."
+> "Anything edible is acceptable. Extravagance is our enemy."
 
-&mdash; [**Natarle Badgiruel**](https://myanimelist.net/character.php?q=Natarle%20Badgiruel&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
