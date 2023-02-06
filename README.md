@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Somewhere inside of me?! Take a good look, there's nothing inside of me anymore!!! I don't feel pain, I don't feel anything! You need to let that guilt go Kakashi. This wind hole wasn't your doing... It was made by this evil, cruel world."
+> "Ha-ha these humans are definitely foolish creatures.  Think as hard as those weak brains of yours can manage. Do you humans ever listen to the cries of mercy coming from pigs and cows you slaughter?"
 
-&mdash; [**Obito Uchiha**](https://myanimelist.net/character.php?q=Obito%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Meruem**](https://myanimelist.net/character.php?q=Meruem&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
