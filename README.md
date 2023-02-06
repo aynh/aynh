@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Lovers don't need words to communicate."
+> "This is a case of personal feelings: there's no way to force someone into saying that he or she loves someone. Besides, only the person knows whether the love truly exists. Even if it's said out with false feelings, it'll just cause damage on both sides."
 
-&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
