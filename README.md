@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "YAAAAAAHHHHHHHOOOOOOOOOOOOOOOO!"
+> "Lovers don't need words to communicate."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
