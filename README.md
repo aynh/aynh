@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Vash the Stampede... every time I observe his actions I can't help but sense something hidden deep within him, something we can't being to understand. But this much is certain: everyone who has become involved with him has somehow regained an emotion which was once lost."
+> "Our names are given to us by God. I have betrayed God, and so I no longer have a name."
 
-&mdash; [**Meryl Stryfe**](https://myanimelist.net/character.php?q=Meryl%20Stryfe&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Scar**](https://myanimelist.net/character.php?q=Scar&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
