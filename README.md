@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "MAKA CHOP!"
+> "Being able to cry for his companion. I was thinking you couldn't cry, nor did you have a heart. But in that case why... even a little... don't you share that feeling... with all the people you kill !!"
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Gon Freecss**](https://myanimelist.net/character.php?q=Gon%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
