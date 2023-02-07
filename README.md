@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Death is simply another stage of our life."
+> "Regret is a powerful poison. The more you harbor those thoughts, the harder it is to move on."
 
-&mdash; [**Grand Elder Guru**](https://myanimelist.net/character.php?q=Grand%20Elder%20Guru&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Sakurako Amamiya**](https://myanimelist.net/character.php?q=Sakurako%20Amamiya&cat=character), [**Psyren**](https://myanimelist.net/search/all?q=Psyren&cat=all)
