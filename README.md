@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Okay. I will protect all of you. I will never let another friend die."
+> "Things that don't change go extinct."
 
-&mdash; [**Mary**](https://myanimelist.net/character.php?q=Mary&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Milly Ashford**](https://myanimelist.net/character.php?q=Milly%20Ashford&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
