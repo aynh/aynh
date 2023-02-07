@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The best way to remove your lies is to make them come true."
+> "I have no idea what you really want, what you're really thinking, or what the right thing to do really is. But I'm your friend. Let me stay."
 
-&mdash; [**Suzaku Kururugi**](https://myanimelist.net/character.php?q=Suzaku%20Kururugi&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Takeo Gouda**](https://myanimelist.net/character.php?q=Takeo%20Gouda&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
