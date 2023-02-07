@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "What are you good at, what do you like… You need to show something that makes people understand who you are."
+> "I'm warning you. You so much as bruise what you hold in your hand and I will show you pain. The hue of your soul will cease to matter, because you will not be judged when you die, you will no longer to exist."
 
-&mdash; [**Tatsuya Himuro**](https://myanimelist.net/character.php?q=Tatsuya%20Himuro&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
