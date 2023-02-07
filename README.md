@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Our names are given to us by God. I have betrayed God, and so I no longer have a name."
+> "Death is simply another stage of our life."
 
-&mdash; [**Scar**](https://myanimelist.net/character.php?q=Scar&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Grand Elder Guru**](https://myanimelist.net/character.php?q=Grand%20Elder%20Guru&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
