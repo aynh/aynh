@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I'm warning you. You so much as bruise what you hold in your hand and I will show you pain. The hue of your soul will cease to matter, because you will not be judged when you die, you will no longer to exist."
+> "Even if everyone calls you a liar, even if you hate yourself, I’ll be on your side."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Inori Yuzuriha**](https://myanimelist.net/character.php?q=Inori%20Yuzuriha&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
