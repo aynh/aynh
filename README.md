@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You don't get to choose who you fall for. The heart doesn't always work the way you want it to. You should just follow your feelings honestly. You'll be happier that way."
+> "Vash the Stampede... every time I observe his actions I can't help but sense something hidden deep within him, something we can't being to understand. But this much is certain: everyone who has become involved with him has somehow regained an emotion which was once lost."
 
-&mdash; [**Ayumi Sanda**](https://myanimelist.net/character.php?q=Ayumi%20Sanda&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
+&mdash; [**Meryl Stryfe**](https://myanimelist.net/character.php?q=Meryl%20Stryfe&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
