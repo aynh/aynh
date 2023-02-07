@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "My goal isn't your death. I will just torture you, make you awaken and then make you my friends!"
+> "The more I concentrate, the more I get consumed by my performance. The sounds I play fade away from my reach, tangling up like flowers seized by the spring wind and vanish."
 
-&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
