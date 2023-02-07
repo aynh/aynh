@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Things that don't change go extinct."
+> "MAKA CHOP!"
 
-&mdash; [**Milly Ashford**](https://myanimelist.net/character.php?q=Milly%20Ashford&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
