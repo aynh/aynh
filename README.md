@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Sometimes feelings get tangled together with deductions, forming a veil that hides the truth."
+> "Okay. I will protect all of you. I will never let another friend die."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Mary**](https://myanimelist.net/character.php?q=Mary&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
