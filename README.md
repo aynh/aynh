@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Regret is a powerful poison. The more you harbor those thoughts, the harder it is to move on."
+> "The best way to remove your lies is to make them come true."
 
-&mdash; [**Sakurako Amamiya**](https://myanimelist.net/character.php?q=Sakurako%20Amamiya&cat=character), [**Psyren**](https://myanimelist.net/search/all?q=Psyren&cat=all)
+&mdash; [**Suzaku Kururugi**](https://myanimelist.net/character.php?q=Suzaku%20Kururugi&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
