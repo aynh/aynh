@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Why is it that making our dreams come true, and being truly happy are often two separate things?.. I still haven't figured that one out."
+> "I'm actually a hardcore otaku who likes maids more than having three meals a day. And I only read books related to maids. Also, I only visit maid cafes. Of course, I also collect maid figurines. I play games which feature female maids and it turns me on so much. Then I wear maid uniforms and jump in joy. I'll take my leave now."
 
-&mdash; [**Nana Komatsu**](https://myanimelist.net/character.php?q=Nana%20Komatsu&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
