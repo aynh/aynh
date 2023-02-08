@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There are times in life when you have to distance yourself from those you love, because you love them."
+> "If we give our best in something we love, we'll enjoy the victories from the bottom of our hearts."
 
-&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
