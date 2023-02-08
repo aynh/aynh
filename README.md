@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Any harm that comes to me because of you is harm that I need. I want to share your pain. So I want you to let me fight. With you."
+> "Forgiving someone and being forgiven, that’s what binds people together."
 
-&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Nagi Sanzenin**](https://myanimelist.net/character.php?q=Nagi%20Sanzenin&cat=character), [**Hayate no Gotoku!**](https://myanimelist.net/search/all?q=Hayate%20no%20Gotoku!&cat=all)
