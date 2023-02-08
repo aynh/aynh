@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "(Master Roshi is reaching for Launch's buttocks as Krillin barges in and makes him angry) Do you time this?"
+> "There are times in life when you have to distance yourself from those you love, because you love them."
 
-&mdash; [**Master Roshi**](https://myanimelist.net/character.php?q=Master%20Roshi&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
