@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If we give our best in something we love, we'll enjoy the victories from the bottom of our hearts."
+> "If it's not enough to believe in justice, then I will become justice. I will seek out all evil in this world and wipe them out like the clouds in the sky. I swear I will...For justice."
 
-&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
