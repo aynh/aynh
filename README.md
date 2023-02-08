@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Do you have any idea how stupid we are? Don't underestimate us!!!"
+> "Are you going to keep staring at me because it's ticking me off. If you got something to say, say it."
 
-&mdash; [**Gintama**](https://myanimelist.net/character.php?q=Gintama&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
