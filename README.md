@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It's alright to feel sad. When you're sad, you should experience that sorrow fully. It's not too late to move on after that."
+> "I don't need some ring or some throne! If it means that I won't lose you... I would throw everything away!"
 
-&mdash; [**Urutori**](https://myanimelist.net/character.php?q=Urutori&cat=character), [**Utawarerumono**](https://myanimelist.net/search/all?q=Utawarerumono&cat=all)
+&mdash; [**Livius Orvinus Ifrikia**](https://myanimelist.net/character.php?q=Livius%20Orvinus%20Ifrikia&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
