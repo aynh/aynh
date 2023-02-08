@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Are you going to keep staring at me because it's ticking me off. If you got something to say, say it."
+> "Sometimes, your future is already set, and there's nothing you can do about it. There are some things you just can't change, no matter how hard you work. Unfair, don't you think? It isn't an easy fact to accept, and I'm not telling you to, but that's just how life is. Unfair."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Kazuki Fujisawa**](https://myanimelist.net/character.php?q=Kazuki%20Fujisawa&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
