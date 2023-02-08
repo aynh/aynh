@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Mayama, if you can't be with her on every festival, then you have no right to say anything."
+> "There isn’t just one truth. That truth only exists because a few people saw it. If you don’t believe what the books say, then you should go see the world for yourself."
 
-&mdash; [**Takumi Nomiya**](https://myanimelist.net/character.php?q=Takumi%20Nomiya&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
