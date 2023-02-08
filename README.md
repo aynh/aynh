@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There is no such thing as a perfect person. That is why we cannot live alone."
+> "When a person is hard to reach, someone has to extend their hand to that person to get to them, because of that dream, because they dream that freedom really exists, the roses will look up at the sky when they bloom."
 
-&mdash; [**Chichiri**](https://myanimelist.net/character.php?q=Chichiri&cat=character), [**Fushigi Yuugi**](https://myanimelist.net/search/all?q=Fushigi%20Yuugi&cat=all)
+&mdash; [**Ringo Noyamano**](https://myanimelist.net/character.php?q=Ringo%20Noyamano&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
