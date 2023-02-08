@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It's amazing no one's locked you up yet (to Shigure)"
+> "There is no such thing as a perfect person. That is why we cannot live alone."
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Chichiri**](https://myanimelist.net/character.php?q=Chichiri&cat=character), [**Fushigi Yuugi**](https://myanimelist.net/search/all?q=Fushigi%20Yuugi&cat=all)
