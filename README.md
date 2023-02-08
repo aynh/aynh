@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Things that don't change go extinct."
+> "We are both merchants, and I'll promise you one thing. We will not laugh until we get the money, and we will not cry until we go bankrupt. And guess what? We are going to laugh."
 
-&mdash; [**Milly Ashford**](https://myanimelist.net/character.php?q=Milly%20Ashford&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
