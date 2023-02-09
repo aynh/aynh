@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Then I ask you, what do you define as the beginning of the sky? At one hundred meter or even one thousand meters, it isn't much different from right here. The sole difference is the air density and water concentration. So, this is where sky begins. Anything above the earth belongs to the domain of sky."
+> "I don't think it's all that bad to be surrounded by people who don't care much about authority or social status. It's good to know that there are various various ways of thinking."
 
-&mdash; [**Yoshitsune**](https://myanimelist.net/character.php?q=Yoshitsune&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Zen Wistalia**](https://myanimelist.net/character.php?q=Zen%20Wistalia&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
