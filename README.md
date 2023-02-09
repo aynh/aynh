@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Attaining happiness is quite simple. All you have to do is cast away your humanity."
+> "You're proud of your white clothes?.. It sounds like a laundry detergent commercial."
 
-&mdash; [**Akihiko Chuuzenji**](https://myanimelist.net/character.php?q=Akihiko%20Chuuzenji&cat=character), [**Mouryou No Hako**](https://myanimelist.net/search/all?q=Mouryou%20No%20Hako&cat=all)
+&mdash; [**Pesche Guatiche**](https://myanimelist.net/character.php?q=Pesche%20Guatiche&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
