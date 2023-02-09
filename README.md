@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I know you're not supposed to cry over spilled tea, but (sniffs) it's just so sad!"
+> "Life isn't about what can and can not be done, it's about doing it or not doing it!"
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Shio Sakaki**](https://myanimelist.net/character.php?q=Shio%20Sakaki&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
