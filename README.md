@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "What’s wrong Frieza? Is your brain another one of your weak and under used muscles?"
+> "It takes a mere second for treasure to turn to trash."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Hisoka**](https://myanimelist.net/character.php?q=Hisoka&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
