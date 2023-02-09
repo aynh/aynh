@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You're proud of your white clothes?.. It sounds like a laundry detergent commercial."
+> "If you're gonna kill me, then kill me. If you're gonna execute me, stop waiting. Until then, I live by my own rules!"
 
-&mdash; [**Pesche Guatiche**](https://myanimelist.net/character.php?q=Pesche%20Guatiche&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
