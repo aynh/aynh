@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Know that the only people you can save like that are the ones that survive."
+> "Sometimes, the questions are complicated - and the answers are simple."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
