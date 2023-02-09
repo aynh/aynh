@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The only lucky item you'll need is already within - CONFIDENCE."
+> "The best way to succeed is to use your own abilities to the fullest."
 
-&mdash; [**Midorima Shintarou**](https://myanimelist.net/character.php?q=Midorima%20Shintarou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Yukio Okumura**](https://myanimelist.net/character.php?q=Yukio%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
