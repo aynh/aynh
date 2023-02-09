@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It takes a mere second for treasure to turn to trash."
+> "Then I ask you, what do you define as the beginning of the sky? At one hundred meter or even one thousand meters, it isn't much different from right here. The sole difference is the air density and water concentration. So, this is where sky begins. Anything above the earth belongs to the domain of sky."
 
-&mdash; [**Hisoka**](https://myanimelist.net/character.php?q=Hisoka&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Yoshitsune**](https://myanimelist.net/character.php?q=Yoshitsune&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
