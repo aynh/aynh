@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If it's going to be a relationship of hardship and mental agony, you should put an end to it."
+> "What’s wrong Frieza? Is your brain another one of your weak and under used muscles?"
 
-&mdash; [**Masafumi Takeuchi**](https://myanimelist.net/character.php?q=Masafumi%20Takeuchi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
