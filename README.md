@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I do love Akito... I love her then... I still do now."
+> "This body comes with many inconveniences. But inconveniences don't make me miserable! There is no reason for you to pity me! My life was put back together with alchemy by my brother. If I deny myself, that would mean I'm denying my brother, along with alchemy. I believe in the potential that alchemy holds. I want to believe in it!"
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
