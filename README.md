@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I don't think it's all that bad to be surrounded by people who don't care much about authority or social status. It's good to know that there are various various ways of thinking."
+> "I pull the trigger. The gun goes off. Your brains splatter all over the sand. The beach gets bloody and you get dead."
 
-&mdash; [**Zen Wistalia**](https://myanimelist.net/character.php?q=Zen%20Wistalia&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
+&mdash; [**Bando**](https://myanimelist.net/character.php?q=Bando&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
