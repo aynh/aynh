@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There are many kinds of fights in this world, but if you don't stick to the rules you won't win support from the people around you."
+> "Broken promises, regardless of how horrid transform into rage that stinks to the ocean floor. Through those bonds, we're drawn together countless times."
 
-&mdash; [**Maebara Ichirō**](https://myanimelist.net/character.php?q=Maebara%20Ichir%C5%8D&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
+&mdash; [**Narumi Fujishima**](https://myanimelist.net/character.php?q=Narumi%20Fujishima&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
