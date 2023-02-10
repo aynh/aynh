@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Do you know how they say that love is like a dream? With a dream, you eventually wake up from it. It's hard to force yourself to wake up."
+> "Of course! Dogs embody loyalty, they follow their master's commands above all else! Be a jerk to them and they don't complain, and they never once beg for a paycheck! Trust me Fuery, they're the great servants of man! *singing* Loyal canine how we salute thee! *laughs maniacally*"
 
-&mdash; [**Kumin Tsuyuri**](https://myanimelist.net/character.php?q=Kumin%20Tsuyuri&cat=character), [**Chuunibyou Demo Koi Ga Shitai!**](https://myanimelist.net/search/all?q=Chuunibyou%20Demo%20Koi%20Ga%20Shitai!&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
