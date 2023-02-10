@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It's not justice if you don't go overboard."
+> "There are many kinds of fights in this world, but if you don't stick to the rules you won't win support from the people around you."
 
-&mdash; [**Myouri Unzen**](https://myanimelist.net/character.php?q=Myouri%20Unzen&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Maebara Ichirō**](https://myanimelist.net/character.php?q=Maebara%20Ichir%C5%8D&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
