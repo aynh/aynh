@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Everyone wants to think like this: 'It can't be helped if I lose against someone with talent'. Like that, be it consciously or unconsciously... People put a lid on their hearts. They want to protect their pride, self-esteem... or whatever."
+> "Where do people stray off the path? When do they begin to obey their greed rather than their ideals? Or are ideals just prone to morphing easily into greed?"
 
-&mdash; [**Jōichirō Yukihira**](https://myanimelist.net/character.php?q=J%C5%8Dichir%C5%8D%20Yukihira&cat=character), [**Shokugeki no Sōma**](https://myanimelist.net/search/all?q=Shokugeki%20no%20S%C5%8Dma&cat=all)
+&mdash; [**Sion**](https://myanimelist.net/character.php?q=Sion&cat=character), [**No.6**](https://myanimelist.net/search/all?q=No.6&cat=all)
