@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "When you say you 'can't hear the sound', doesn't it really mean you 'aren't restrained by the sound'? Rather than the sound you hear with your ears, an image inside you is boiling up from the depths of yourself and taking over without you even knowing. The sound inside, the landscape in your heart, your wishes, a sound loaded with your thoughts; didn't you feel it, even for a moment? 'Not being able to hear the sound.' That is a gift."
+> "[to Nemu about Uryuu. Nemu is currently attempting to restrain Uryuu so Mayruri can heal him, but she is unknowingly smothering him with her breasts] Yes, Nemu. Just smother him with those things. Worst case, he dies happy."
 
-&mdash; [**Hiroko Seto**](https://myanimelist.net/character.php?q=Hiroko%20Seto&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
