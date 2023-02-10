@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Every sword belongs in its sheath. Go back to the sheath your master holds. Go back to Griffith."
+> "You have no effect on me because you are flat chested!"
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Laharl**](https://myanimelist.net/character.php?q=Laharl&cat=character), [**Disgaea**](https://myanimelist.net/search/all?q=Disgaea&cat=all)
