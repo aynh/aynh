@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Because people don't have wings... We look for ways to fly."
+> "Without a body, I can't even cry. Why am I here? I can't go anywhere. I'm neither here nor there. Who am I here for? What am I here for?"
 
-&mdash; [**Ukai Keishin**](https://myanimelist.net/character.php?q=Ukai%20Keishin&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Atsushi Shimao**](https://myanimelist.net/character.php?q=Atsushi%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
