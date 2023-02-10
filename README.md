@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I don't regret using my wish for another's sake. If I regret my decision now, the feelings upon which it was based will be for naught."
+> "Because people don't have wings... We look for ways to fly."
 
-&mdash; [**Sayaka Miki**](https://myanimelist.net/character.php?q=Sayaka%20Miki&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Ukai Keishin**](https://myanimelist.net/character.php?q=Ukai%20Keishin&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
