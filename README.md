@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Listen carefully because I'm only gonna say this once, I love you."
+> "It's not justice if you don't go overboard."
 
-&mdash; [**Motoharu Yano**](https://myanimelist.net/character.php?q=Motoharu%20Yano&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Myouri Unzen**](https://myanimelist.net/character.php?q=Myouri%20Unzen&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
