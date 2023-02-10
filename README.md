@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You have no effect on me because you are flat chested!"
+> "Do you know how they say that love is like a dream? With a dream, you eventually wake up from it. It's hard to force yourself to wake up."
 
-&mdash; [**Laharl**](https://myanimelist.net/character.php?q=Laharl&cat=character), [**Disgaea**](https://myanimelist.net/search/all?q=Disgaea&cat=all)
+&mdash; [**Kumin Tsuyuri**](https://myanimelist.net/character.php?q=Kumin%20Tsuyuri&cat=character), [**Chuunibyou Demo Koi Ga Shitai!**](https://myanimelist.net/search/all?q=Chuunibyou%20Demo%20Koi%20Ga%20Shitai!&cat=all)
