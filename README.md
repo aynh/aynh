@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "When you entrust so much of your everyday life to those electronic devices, the argument that you aren't a cyborg isn't very convincing. To you, those portable terminals are already your second brain. Isn't that right? It can be said that the history of science is a history of the expansion of the human body's functionality, in other words, the history of man's cyberization. That's why it's a matter of degree."
+> "Making sure I have no regrets... that would just be self-serving, nothing more. It's all right. I mean, this is a great memory in itself, right?"
 
-&mdash; [**Toyohisa Senguji**](https://myanimelist.net/character.php?q=Toyohisa%20Senguji&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
