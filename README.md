@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It's only natural for the girl you're crushing on to be in love with someone else. Since you're in love with her, she sparkles in your eyes. That's why people fall so irrationally in love."
+> "Courage is the magic that turns dreams into reality."
 
-&mdash; [**Watari Ryouta**](https://myanimelist.net/character.php?q=Watari%20Ryouta&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Richter Abend**](https://myanimelist.net/character.php?q=Richter%20Abend&cat=character), [**Tales Of Symphonia**](https://myanimelist.net/search/all?q=Tales%20Of%20Symphonia&cat=all)
