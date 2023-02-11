@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You guys sure are a worthless bunch. If you wanna wallow in your tears, save it for after you've done everything you can!"
+> "I read in some book that sad and painful things are the spices of an enjoyable life... But I seem to get nothing but spices!"
 
-&mdash; [**Seiya Kanie**](https://myanimelist.net/character.php?q=Seiya%20Kanie&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
+&mdash; [**Tomoko Kuroki**](https://myanimelist.net/character.php?q=Tomoko%20Kuroki&cat=character), [**WATAMOTE**](https://myanimelist.net/search/all?q=WATAMOTE&cat=all)
