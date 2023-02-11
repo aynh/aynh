@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you plan to continue being a detective and using words to entrap people, inscribe this in your hearts: Words are like knives. When used incorrectly, they turn into foul weapons. You have to understand the opponent’s heart and use them with discretion. No matter who it is you’re dealing with."
+> "Damn piece of Earth trash!"
 
-&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Miguel Aiman**](https://myanimelist.net/character.php?q=Miguel%20Aiman&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
