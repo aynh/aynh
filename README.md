@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "His stupidity is 50% above normal levels."
+> "No one’s going to criticize you if you get excited for something, or you laugh with all your heart! And if someone does, I’ll beat them up!"
 
-&mdash; [**Masahiro**](https://myanimelist.net/character.php?q=Masahiro&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
