@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I am your weapon partner Maka! That means I'm always prepared to die for my Meister!"
+> "If talking won't resolve matters, maybe inflicting some pain will."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Shinichi Izumi**](https://myanimelist.net/character.php?q=Shinichi%20Izumi&cat=character), [**Parasyte -the maxim-**](https://myanimelist.net/search/all?q=Parasyte%20-the%20maxim-&cat=all)
