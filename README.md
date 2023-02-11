@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Everyone has to die someday. But what they believed in will never fade away as long as someone protects it. Once you've resolved to take on those principles, no matter how much blood and tears you shed, you follow through with it! That's what it means to be a knight."
+> "Everything in existence has a flaw. Not to mention humans, but air, will, and even time. It's natural to have an end if it has a beginning."
 
-&mdash; [**Meliodas**](https://myanimelist.net/character.php?q=Meliodas&cat=character), [**Nanatsu no Taizai**](https://myanimelist.net/search/all?q=Nanatsu%20no%20Taizai&cat=all)
+&mdash; [**Ryougi Shiki**](https://myanimelist.net/character.php?q=Ryougi%20Shiki&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
