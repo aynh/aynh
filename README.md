@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Any betrayal you can see is trivial,  what is truly frightening and much more lethal, is the betrayal you cannot see."
+> "You don't feel as good on my foot now, change yourself back into a frog."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
