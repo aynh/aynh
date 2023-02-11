@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There's no such thing as a painless lesson, they just don't exist. Sacrifices are necessary, you can't gain something without losing something first... Although if you can endure that pain and walk away from it, you'll find that you now have a heart strong enough to overcome any obstacle... Yeah... A Fullmetal Heart."
+> "I am your weapon partner Maka! That means I'm always prepared to die for my Meister!"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
