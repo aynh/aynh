@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I read in some book that sad and painful things are the spices of an enjoyable life... But I seem to get nothing but spices!"
+> "There's no such thing as a painless lesson, they just don't exist. Sacrifices are necessary, you can't gain something without losing something first... Although if you can endure that pain and walk away from it, you'll find that you now have a heart strong enough to overcome any obstacle... Yeah... A Fullmetal Heart."
 
-&mdash; [**Tomoko Kuroki**](https://myanimelist.net/character.php?q=Tomoko%20Kuroki&cat=character), [**WATAMOTE**](https://myanimelist.net/search/all?q=WATAMOTE&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
