@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The Other Side of the Other Side of the Other Side would be the Other Side."
+> "If you plan to continue being a detective and using words to entrap people, inscribe this in your hearts: Words are like knives. When used incorrectly, they turn into foul weapons. You have to understand the opponent’s heart and use them with discretion. No matter who it is you’re dealing with."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
