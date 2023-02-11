@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You don't feel as good on my foot now, change yourself back into a frog."
+> "Good evening, Espada. There has been an enemy attack. But first...Let us brew some tea."
 
-&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
