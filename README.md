@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Life and death are the very basis of all things. They intensify every emotion. Or, to put it in a rather different way, there is nothing quite so dull as 'life'."
+> "Any betrayal you can see is trivial,  what is truly frightening and much more lethal, is the betrayal you cannot see."
 
-&mdash; [**Jellal Fernandes**](https://myanimelist.net/character.php?q=Jellal%20Fernandes&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
