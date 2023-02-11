@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "[to Nemu about Uryuu. Nemu is currently attempting to restrain Uryuu so Mayruri can heal him, but she is unknowingly smothering him with her breasts] Yes, Nemu. Just smother him with those things. Worst case, he dies happy."
+> "You guys sure are a worthless bunch. If you wanna wallow in your tears, save it for after you've done everything you can!"
 
-&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Seiya Kanie**](https://myanimelist.net/character.php?q=Seiya%20Kanie&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
