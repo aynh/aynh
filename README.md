@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you only feel fear after knowing both the abilities of your enemy and yourself, flee with your tail between your legs. However, if you're going to stand firm and fight with a focused mind, you will definitely have victory within reach."
+> "They say 'there's always room for dessert', but for me, it's more like 'there's always room if someone else is paying'."
 
-&mdash; [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/character.php?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Kasumi Fuu**](https://myanimelist.net/character.php?q=Kasumi%20Fuu&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
