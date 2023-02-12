@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Good evening, Espada. There has been an enemy attack. But first...Let us brew some tea."
+> "What is right... what is wrong... you can't easily tell the difference. That's why you must keep thinking, whether what you are doing is right or not. That act itself, alone, can be called right."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Koutarou Amon**](https://myanimelist.net/character.php?q=Koutarou%20Amon&cat=character), [**Tokyo Ghoul:re**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%3Are&cat=all)
