@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You always seem to look back. The scenery in front of you, the people near you, don't you see it? Live right now. That's what life is."
+> "I lie all the time. Who cares if you know something, but you say you don't? Forcing something out of someone without permission is worse."
 
-&mdash; [**Izumi Yukihira**](https://myanimelist.net/character.php?q=Izumi%20Yukihira&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
