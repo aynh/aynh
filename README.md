@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Sorry, I don't have time to be arrested."
+> "You're Puss in Boots, the one who tricks the prince. He hides who he really is and pretends to be someone else forever. So in time he becomes that person, so his lie becomes the truth, see? He transcends the mask. Don't you get it? That's how he finds happiness. That's pretty good, right?"
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Eri Ninamori**](https://myanimelist.net/character.php?q=Eri%20Ninamori&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
