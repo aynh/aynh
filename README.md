@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Strive to consistently maintain the proper flow. That is the Tohsaka family motto. It means always remaining reserved and elegant."
+> "Now you're suddenly in a big rush to go? What's the point in hurrying, we're already three hours late."
 
-&mdash; [**Tohsaka Tokiomi**](https://myanimelist.net/character.php?q=Tohsaka%20Tokiomi&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
