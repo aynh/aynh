@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "[About Omashu] There really is no fathoming the depths of my hatred for this place."
+> "Do you think you could tell me what true strength is? I may be out of line, but hiding your true self and putting on airs doesn't seem any different than running away to me. I would think that embracing the things you truly like and being able to enjoy them is worth more than anything. To just be yourself… I believe that's what true strength really is."
 
-&mdash; [**Mai**](https://myanimelist.net/character.php?q=Mai&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
