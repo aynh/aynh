@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Now you're suddenly in a big rush to go? What's the point in hurrying, we're already three hours late."
+> "You always seem to look back. The scenery in front of you, the people near you, don't you see it? Live right now. That's what life is."
 
-&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Izumi Yukihira**](https://myanimelist.net/character.php?q=Izumi%20Yukihira&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
