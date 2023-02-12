@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "What is right... what is wrong... you can't easily tell the difference. That's why you must keep thinking, whether what you are doing is right or not. That act itself, alone, can be called right."
+> "I despise you with my last breath. My spirit will not forget that all consuming hatred.  So long that you live, my spirit can not be free. *to Inuyasha*"
 
-&mdash; [**Koutarou Amon**](https://myanimelist.net/character.php?q=Koutarou%20Amon&cat=character), [**Tokyo Ghoul:re**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%3Are&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
