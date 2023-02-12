@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "They say 'there's always room for dessert', but for me, it's more like 'there's always room if someone else is paying'."
+> "I don't want to regret anything. I want to make all the tragedies that happened into meaningful things by believing that my path is right."
 
-&mdash; [**Kasumi Fuu**](https://myanimelist.net/character.php?q=Kasumi%20Fuu&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
