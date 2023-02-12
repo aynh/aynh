@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I don't want to regret anything. I want to make all the tragedies that happened into meaningful things by believing that my path is right."
+> "Books are not something that you just read words in. They're also a tool to adjust your senses."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
