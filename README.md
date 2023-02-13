@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you trip while running down a hallway, you'll get a nosebleed. If you trip in life, you'll cry."
+> "Listen up, kid. There's one thing you need to understand. Human life is a fragile thing. So weak that I can destroy it with a touch of my finger. So watch what you say. If you don't, I may break something I shouldn't."
 
-&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
