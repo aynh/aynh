@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The system created by the divine ones segregates every single person into his living assignment in the world, determines his roles and controls them...the melancholy voices of those born into this world have pierced the depths of my heart. I feel the need to do something for them without discriminating against anyone."
+> "Food tastes best when you don't have to work for it."
 
-&mdash; [**Celestin**](https://myanimelist.net/character.php?q=Celestin&cat=character), [**Aah! Megami-Sama**](https://myanimelist.net/search/all?q=Aah!%20Megami-Sama&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
