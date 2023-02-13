@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I am the Defender of the pride of New Hell...!!"
+> "You can come up with any number of reasons why you love someone. Like they are cool, or kind, or tall, or rich. There are all sorts of reasons you can say, but those are all lies. They're just excuses you tell yourself to rationally justify your emotions. Well, not so much excuses, as tricks. It's like a ladder you climb, based on the conclusion that you love them. When you feel like you want to be together forever, that's love."
 
-&mdash; [**Hakua Du Lot Herminium**](https://myanimelist.net/character.php?q=Hakua%20Du%20Lot%20Herminium&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Tsukihi Araragi**](https://myanimelist.net/character.php?q=Tsukihi%20Araragi&cat=character), [**Nekomonogatari: Kuro**](https://myanimelist.net/search/all?q=Nekomonogatari%3A%20Kuro&cat=all)
