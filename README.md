@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "What is eternal? ...Eternal life. Eternal love. Eternal flow of time. Instinctively, they all seem wonderful, but in reality, they are also cruel."
+> "Making such a sleazebag a spokesman..."
 
-&mdash; [**Yuki Saegusa**](https://myanimelist.net/character.php?q=Yuki%20Saegusa&cat=character), [**Dance in the Vampire Bund**](https://myanimelist.net/search/all?q=Dance%20in%20the%20Vampire%20Bund&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
