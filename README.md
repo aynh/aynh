@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I realized that back then, the reason I wanted to become human, was that I really just wanted to have friends. Now, I just want to be a monster that can help Luffy."
+> "We weep for the blood of a bird, but not for the blood of a fish. Blessed are those with a voice. If the dolls could speak, no doubt they'd scream, 'I didn't want to become human'."
 
-&mdash; [**Tony Tony Chopper**](https://myanimelist.net/character.php?q=Tony%20Tony%20Chopper&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Motoko Kusanagi**](https://myanimelist.net/character.php?q=Motoko%20Kusanagi&cat=character), [**Ghost in the Shell 2: Innocence**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell%202%3A%20Innocence&cat=all)
