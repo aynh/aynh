@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "This frustrating happiness... Days so warm it almost makes you dizzy. By this time next year... It may be time for me to stop looking away and know for real. Since I've decided to protect the Book of Friends... Since I decided to accept what I hear and see."
+> "She beat me like I owed her money."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
