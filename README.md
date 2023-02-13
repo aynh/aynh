@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "To someone who bears responsibility, there's no greater treasure than experience."
+> "A heart's a heavy burden."
 
-&mdash; [**Litonar**](https://myanimelist.net/character.php?q=Litonar&cat=character), [**Suisei no Gargantia**](https://myanimelist.net/search/all?q=Suisei%20no%20Gargantia&cat=all)
+&mdash; [**Sophie Hatter**](https://myanimelist.net/character.php?q=Sophie%20Hatter&cat=character), [**Howl's Moving Castle**](https://myanimelist.net/search/all?q=Howl's%20Moving%20Castle&cat=all)
