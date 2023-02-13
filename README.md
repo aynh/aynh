@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Listen up, kid. There's one thing you need to understand. Human life is a fragile thing. So weak that I can destroy it with a touch of my finger. So watch what you say. If you don't, I may break something I shouldn't."
+> "If there's someone you wish to see, then you are no longer alone."
 
-&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
