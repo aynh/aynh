@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The scars that you can't see are the hardest to heal."
+> "To someone who bears responsibility, there's no greater treasure than experience."
 
-&mdash; [**Nao Tomori**](https://myanimelist.net/character.php?q=Nao%20Tomori&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
+&mdash; [**Litonar**](https://myanimelist.net/character.php?q=Litonar&cat=character), [**Suisei no Gargantia**](https://myanimelist.net/search/all?q=Suisei%20no%20Gargantia&cat=all)
