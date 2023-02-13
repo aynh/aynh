@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "She beat me like I owed her money."
+> "The scars that you can't see are the hardest to heal."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Nao Tomori**](https://myanimelist.net/character.php?q=Nao%20Tomori&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
