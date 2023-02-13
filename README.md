@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "They may all look the same to you, but there are different kinds and different levels of evil. A first-class villain doesn't target honest lives."
+> "I realized that back then, the reason I wanted to become human, was that I really just wanted to have friends. Now, I just want to be a monster that can help Luffy."
 
-&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Tony Tony Chopper**](https://myanimelist.net/character.php?q=Tony%20Tony%20Chopper&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
