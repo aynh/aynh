@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Holding in your own feelings like that... ye think tha' no one's gonna get hurt since ye're not lettin' it show to anyone? Tha's just the same as goin' 'round hurting everyone anyway!! What ye're doin' isn't ye keepin' everyone dear to ye!! Ye're just protectin' yerself!!! Ye're just 'fraid of gettin' hurt! Losin' yer nerve! Ye're just scared!!"
+> "If you trip while running down a hallway, you'll get a nosebleed. If you trip in life, you'll cry."
 
-&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
