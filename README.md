@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "And what of it? If you're good on the inside, then looks don't matter!"
+> "Meeting you was the best thing that ever happened to me. You made me so happy. I don’t want you to be lost or afraid or anything like that. From here on out, I know things might be hard sometimes. But no matter what may await, please don’t regret meeting me."
 
-&mdash; [**Kei Enomoto**](https://myanimelist.net/character.php?q=Kei%20Enomoto&cat=character), [**Hatsukoi Limited**](https://myanimelist.net/search/all?q=Hatsukoi%20Limited&cat=all)
+&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
