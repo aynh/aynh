@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Is there any purpose to wings that can't fly?"
+> "I have so many things I want to say, so many things I want to ask you, but... When I see your face... None of that matters anymore!"
 
-&mdash; [**Minagi Tohno**](https://myanimelist.net/character.php?q=Minagi%20Tohno&cat=character), [**Air**](https://myanimelist.net/search/all?q=Air&cat=all)
+&mdash; [**Esdeath**](https://myanimelist.net/character.php?q=Esdeath&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
