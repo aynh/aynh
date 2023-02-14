@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "We weep for the blood of a bird, but not for the blood of a fish. Blessed are those with a voice. If the dolls could speak, no doubt they'd scream, 'I didn't want to become human'."
+> "It doesn't matter if we're wrong...because every time we go wrong, we'll continue to look for the right answer."
 
-&mdash; [**Motoko Kusanagi**](https://myanimelist.net/character.php?q=Motoko%20Kusanagi&cat=character), [**Ghost in the Shell 2: Innocence**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell%202%3A%20Innocence&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
