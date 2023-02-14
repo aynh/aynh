@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Because of our broken instincts, we are in pain. We continue living in pain, because our instincts have been twisted by reason. So, what are we supposed to do? Should we abandon knowledge? Throw away reason? In any event, that wouldn't be possible. For better or for worse, we ate the fruit of knowledge long, long ago."
+> "Trunks, Bulma, I’m doing this for you. And yes, even for you, Kakarot."
 
-&mdash; [**Satou Tatsuhiro**](https://myanimelist.net/character.php?q=Satou%20Tatsuhiro&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
