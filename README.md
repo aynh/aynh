@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The more material you possess, the harder you'll feel the loss."
+> "In a real fight, there is no next time. You can't choose your opponent's strength. Losing would mean death. If a duty-bound person dies, a hundred more innocent people would die. We exorcists cannot die easily, and that is a responsibility."
 
-&mdash; [**Arima Teppei**](https://myanimelist.net/character.php?q=Arima%20Teppei&cat=character), [**Princess Lover!**](https://myanimelist.net/search/all?q=Princess%20Lover!&cat=all)
+&mdash; [**Tsuchimiya Kagura**](https://myanimelist.net/character.php?q=Tsuchimiya%20Kagura&cat=character), [**Ga-Rei:Zero**](https://myanimelist.net/search/all?q=Ga-Rei%3AZero&cat=all)
