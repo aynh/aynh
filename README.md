@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Doesn't even think about giving up just because it's useless! The moment you give up is when your life ends."
+> "And what of it? If you're good on the inside, then looks don't matter!"
 
-&mdash; [**Ushiromiya Jessica**](https://myanimelist.net/character.php?q=Ushiromiya%20Jessica&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Kei Enomoto**](https://myanimelist.net/character.php?q=Kei%20Enomoto&cat=character), [**Hatsukoi Limited**](https://myanimelist.net/search/all?q=Hatsukoi%20Limited&cat=all)
