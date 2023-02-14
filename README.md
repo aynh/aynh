@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Whatever you value... What you consider right is up to you. But don't force those ideals onto other people."
+> "Because of our broken instincts, we are in pain. We continue living in pain, because our instincts have been twisted by reason. So, what are we supposed to do? Should we abandon knowledge? Throw away reason? In any event, that wouldn't be possible. For better or for worse, we ate the fruit of knowledge long, long ago."
 
-&mdash; [**Yozuru Kagenui**](https://myanimelist.net/character.php?q=Yozuru%20Kagenui&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Satou Tatsuhiro**](https://myanimelist.net/character.php?q=Satou%20Tatsuhiro&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
