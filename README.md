@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Kill me. Make it quick. I no longer have the strength left in me to even walk. If you do not cut me down now, then this will go unsettled for eternity."
+> "You're not the first person I went out with... But you're my first love."
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
