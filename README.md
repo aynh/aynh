@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Being angry consumes energy and makes me tired. So I'd rather apologize, even if I'm not at fault. Besides, we get along, and we both want to stay friends. Prolonging an awkward situation out of stubbornness is just silly."
+> "Is there any purpose to wings that can't fly?"
 
-&mdash; [**Tanaka**](https://myanimelist.net/character.php?q=Tanaka&cat=character), [**Tanaka-kun wa Itsumo Kedaruge**](https://myanimelist.net/search/all?q=Tanaka-kun%20wa%20Itsumo%20Kedaruge&cat=all)
+&mdash; [**Minagi Tohno**](https://myanimelist.net/character.php?q=Minagi%20Tohno&cat=character), [**Air**](https://myanimelist.net/search/all?q=Air&cat=all)
