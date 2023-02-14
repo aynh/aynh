@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Don't remind me. I'm mad enough to hurt somebody and pounding you just might be the therapy I need."
+> "Whatever you value... What you consider right is up to you. But don't force those ideals onto other people."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Yozuru Kagenui**](https://myanimelist.net/character.php?q=Yozuru%20Kagenui&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
