@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "No matter how beautiful a person may be, they will still age and ultimately - die. But even so, even if appearances change, don't you believe that we have, in us, things that don't change? Even as our bodies crumble, even as the months and years take their toll... don't you believe that we all have something that time can't spoil? Even if you cover us with wrinkles, we won't lose to you. That's because we know what beauty truly is."
+> "The more material you possess, the harder you'll feel the loss."
 
-&mdash; [**Shimura Tae**](https://myanimelist.net/character.php?q=Shimura%20Tae&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Arima Teppei**](https://myanimelist.net/character.php?q=Arima%20Teppei&cat=character), [**Princess Lover!**](https://myanimelist.net/search/all?q=Princess%20Lover!&cat=all)
