@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Everything in existence has a flaw. Not to mention humans, but air, will, and even time. It's natural to have an end if it has a beginning."
+> "I'll give it a try. Anything that man can do, I'm sure I can do just as well."
 
-&mdash; [**Ryougi Shiki**](https://myanimelist.net/character.php?q=Ryougi%20Shiki&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
