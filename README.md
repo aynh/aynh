@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you can't understand the darkness in your opponent's heart, you will never comprehend the pain and suffering of others."
+> "Everyone's reality is freight with some degree of pain. What's wrong with seeing what makes you happy in your dreams?"
 
-&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Natsume**](https://myanimelist.net/character.php?q=Natsume&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
