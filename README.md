@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Sadness is just another wall that blocks you from moving on. I know it's hard to get past it, but you got to break through."
+> "Everything in existence has a flaw. Not to mention humans, but air, will, and even time. It's natural to have an end if it has a beginning."
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Ryougi Shiki**](https://myanimelist.net/character.php?q=Ryougi%20Shiki&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
