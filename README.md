@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Even if it is shameless and vulgar, somewhere I seek some sort of connection with people."
+> "I am not strong in the least, I merely started walking steps earlier than you. The only difference between you and me is the distance between us at this moment."
 
-&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
+&mdash; [**Ewan Remington**](https://myanimelist.net/character.php?q=Ewan%20Remington&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
