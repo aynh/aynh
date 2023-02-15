@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you're felling like there's nowhere you belong... That you're trapped in a small world. It's those feelings that drive us beyond our world."
+> "*to Katara* Try to understand. I need to capture him to restore something I've lost. [Katara jerks her head away from Zuko] Perhaps in exchange, I can restore something you've lost."
 
-&mdash; [**Reiji Nitta**](https://myanimelist.net/character.php?q=Reiji%20Nitta&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
