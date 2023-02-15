@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There is great satisfaction in fighting for the sake of gaining power, but it’s joyless to fight for the sake of maintaining it."
+> "I'm not smart enough to figure out answers no matter how much time I spend thinking. All I can do now is to empty my head and dash forward."
 
-&mdash; [**Reinhard von Lohengramm**](https://myanimelist.net/character.php?q=Reinhard%20von%20Lohengramm&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
