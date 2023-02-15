@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "*to Katara* Try to understand. I need to capture him to restore something I've lost. [Katara jerks her head away from Zuko] Perhaps in exchange, I can restore something you've lost."
+> "There is great satisfaction in fighting for the sake of gaining power, but it’s joyless to fight for the sake of maintaining it."
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Reinhard von Lohengramm**](https://myanimelist.net/character.php?q=Reinhard%20von%20Lohengramm&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
