@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Ancient creatures died and left naught but fossil fuels, like coal and petroleum. Without that sacrifice, our present energy civilization would not exist. That sort of sacrifice is what is always demanded."
+> "Are you helping because you're a doctor? Or is it because you're a Witch?"
 
-&mdash; [**Souji Mikage**](https://myanimelist.net/character.php?q=Souji%20Mikage&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
+&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
