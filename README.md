@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "As long as you live things will keep happening! As long as you're alive wishes will keep being made!"
+> "Remember this. The only words that can keep you alive are 'I want to live.'"
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Hampnie Hambart**](https://myanimelist.net/character.php?q=Hampnie%20Hambart&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
