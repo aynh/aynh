@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "*to Ichigo* I thought you were interesting before, but now you're just a creepy kid."
+> "There are reasons each of us are born. We have to find those reasons."
 
-&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
