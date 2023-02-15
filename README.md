@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Everyone's reality is freight with some degree of pain. What's wrong with seeing what makes you happy in your dreams?"
+> "If you're felling like there's nowhere you belong... That you're trapped in a small world. It's those feelings that drive us beyond our world."
 
-&mdash; [**Natsume**](https://myanimelist.net/character.php?q=Natsume&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
+&mdash; [**Reiji Nitta**](https://myanimelist.net/character.php?q=Reiji%20Nitta&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
