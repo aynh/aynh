@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You can't just erase people's feelings. It's as if my emotions were lost somewhere hundreds of miles away. It's as if they were sent long ago, in a letter that was always intended for me."
+> "*to Ichigo* I thought you were interesting before, but now you're just a creepy kid."
 
-&mdash; [**Wolfgang Grimmer**](https://myanimelist.net/character.php?q=Wolfgang%20Grimmer&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
