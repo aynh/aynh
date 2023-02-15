@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There are reasons each of us are born. We have to find those reasons."
+> "Sadness is just another wall that blocks you from moving on. I know it's hard to get past it, but you got to break through."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
