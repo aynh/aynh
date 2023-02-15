@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I am not strong in the least, I merely started walking steps earlier than you. The only difference between you and me is the distance between us at this moment."
+> "You can't just erase people's feelings. It's as if my emotions were lost somewhere hundreds of miles away. It's as if they were sent long ago, in a letter that was always intended for me."
 
-&mdash; [**Ewan Remington**](https://myanimelist.net/character.php?q=Ewan%20Remington&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
+&mdash; [**Wolfgang Grimmer**](https://myanimelist.net/character.php?q=Wolfgang%20Grimmer&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
