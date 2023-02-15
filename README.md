@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Play to the last note, and leave no regrets."
+> "Even if it is shameless and vulgar, somewhere I seek some sort of connection with people."
 
-&mdash; [**Kiyora Miki**](https://myanimelist.net/character.php?q=Kiyora%20Miki&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
+&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
