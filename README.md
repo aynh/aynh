@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It doesn't matter if we're wrong...because every time we go wrong, we'll continue to look for the right answer."
+> "If you feel like crying you should not hold back your tears. You should let it all out while you still can - because when you get bigger sometimes you can't cry even if you have something to cry about."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
