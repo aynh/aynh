@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "A wall's a wall and there's no wall I can't punch a hole through!"
+> "Chizuru, you shouldn't be laughing too much. It was just a youthful indiscretion. Don't treat someone's first love like a mistake!"
 
-&mdash; [**Kiba Inuzuka**](https://myanimelist.net/character.php?q=Kiba%20Inuzuka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kaname Tsukahara**](https://myanimelist.net/character.php?q=Kaname%20Tsukahara&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
