@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Chizuru, you shouldn't be laughing too much. It was just a youthful indiscretion. Don't treat someone's first love like a mistake!"
+> "It doesn't matter if we're wrong...because every time we go wrong, we'll continue to look for the right answer."
 
-&mdash; [**Kaname Tsukahara**](https://myanimelist.net/character.php?q=Kaname%20Tsukahara&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
