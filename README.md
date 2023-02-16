@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I am the God placed here to save the weak and create a perfect world."
+> "For people like us, we do not have a choice over the environment we're in, but we get to decide what we will make of it and what path we will take from there."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Yu Fujikura**](https://myanimelist.net/character.php?q=Yu%20Fujikura&cat=character), [**Princess Lover!**](https://myanimelist.net/search/all?q=Princess%20Lover!&cat=all)
