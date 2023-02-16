@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I'm rather proud of my ability to tell lies. I can trick not only others, but even my own heart."
+> "Righteousness cannot save the world."
 
-&mdash; [**Ludenberg Celestia**](https://myanimelist.net/character.php?q=Ludenberg%20Celestia&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
