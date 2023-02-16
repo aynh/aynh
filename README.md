@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "All things change in a dynamic environment. Your effort to remain what you are is what limits you."
+> "A person who can't care about himself can't protect anyone, I think."
 
-&mdash; [**Puppet Master**](https://myanimelist.net/character.php?q=Puppet%20Master&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Mitsukuni Haninozuka**](https://myanimelist.net/character.php?q=Mitsukuni%20Haninozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
