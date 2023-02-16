@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The old me would never have known how blue the afternoon sky looks from the roof. My world is growing. What I once considered background noise is now comforting."
+> "How much weight can a simple promise carry?"
 
-&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
