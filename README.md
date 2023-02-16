@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "For people like us, we do not have a choice over the environment we're in, but we get to decide what we will make of it and what path we will take from there."
+> "As for me, I have a lot of things that I'm not good at and that I need to work on. My comrades make up for those weaknesses by help me out, and maybe that's how we've found a balance in our party."
 
-&mdash; [**Yu Fujikura**](https://myanimelist.net/character.php?q=Yu%20Fujikura&cat=character), [**Princess Lover!**](https://myanimelist.net/search/all?q=Princess%20Lover!&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
