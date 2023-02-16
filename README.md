@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "All of the disadvantage in this world stems from a person's lack of ability."
+> "There are things you can only share with someone by fighting. For instance, how serious you are."
 
-&mdash; [**Rize Kamishiro**](https://myanimelist.net/character.php?q=Rize%20Kamishiro&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Konno Yuuki**](https://myanimelist.net/character.php?q=Konno%20Yuuki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
