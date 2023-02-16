@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "No matter how messed up things get, you can always figure out the best solution."
+> "A wall's a wall and there's no wall I can't punch a hole through!"
 
-&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Kiba Inuzuka**](https://myanimelist.net/character.php?q=Kiba%20Inuzuka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
