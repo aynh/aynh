@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The essence of good deeds and evil is the same. They're both no more than a person's actions to make up for a defect in themselves."
+> "We have walked through the darkness of this world, that’s why we are able to see even a sliver of light."
 
-&mdash; [**Yashiro Gaku**](https://myanimelist.net/character.php?q=Yashiro%20Gaku&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
