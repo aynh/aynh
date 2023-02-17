@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You're disgustingly hideous! What the hell kind of thing are you? I've never seen anything more messed up in my life! Do you know nothing about symmetry? Whoever made you should be dug up from his grave, shot and reburied! You make me violently ill."
+> "[to Toboe] I wanted to take you to paradise."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
