@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Stop pouting! You learned something valuable. Remember the lesson, not the disappointment."
+> "A detective must become nothing more than an advocate. We must never put words to the feelings that failed to take form."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
