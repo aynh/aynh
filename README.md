@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Yes, I have no reason to take part in the Absurd and Unreasonable real world."
+> "I am Horo the Wise Wolf, and I am a very proud wolf."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
