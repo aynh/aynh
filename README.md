@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I am Horo the Wise Wolf, and I am a very proud wolf."
+> "There's nothing that won't change, every day things will change a little bit more."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
