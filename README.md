@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I will fight for my friends than watching them get hurt, I will fight for those I love."
+> "I just want to relieve my sexual frustrations. All I feel towards a cat eared high school girl in her underwear... is lust."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
