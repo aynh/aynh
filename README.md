@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "[to Toboe] I wanted to take you to paradise."
+> "Sometimes, I wonder why people fall in love. Why do we abandon ourselves... to these painful and burdensome feelings?"
 
-&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Nejima Yukari**](https://myanimelist.net/character.php?q=Nejima%20Yukari&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
