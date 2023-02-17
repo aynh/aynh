@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I want to make his dreams come true..."
+> "I finished Hige off. I don't want to move any more either. I knew it from the beginning, I knew it somewhere in my heart. That's why I led a spontaneous life. I was confident after having met you... that I wasn't the one who would open Paradise. [groans]"
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
