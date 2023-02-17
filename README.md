@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There's nothing that won't change, every day things will change a little bit more."
+> "You're disgustingly hideous! What the hell kind of thing are you? I've never seen anything more messed up in my life! Do you know nothing about symmetry? Whoever made you should be dug up from his grave, shot and reburied! You make me violently ill."
 
-&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
