@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "A detective must become nothing more than an advocate. We must never put words to the feelings that failed to take form."
+> "I can't forgive myself. I wanted something to happen without doing anything myself! I have to do it. I have to do it all... Or I can't even stand by her side!"
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Bell Cranel**](https://myanimelist.net/character.php?q=Bell%20Cranel&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
