@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "We have walked through the darkness of this world, that’s why we are able to see even a sliver of light."
+> "I will fight for my friends than watching them get hurt, I will fight for those I love."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
