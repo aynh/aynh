@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Sometimes, I wonder why people fall in love. Why do we abandon ourselves... to these painful and burdensome feelings?"
+> "Stop pouting! You learned something valuable. Remember the lesson, not the disappointment."
 
-&mdash; [**Nejima Yukari**](https://myanimelist.net/character.php?q=Nejima%20Yukari&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
