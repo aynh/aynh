@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If it's a wish that can be fulfilled, then fulfill it. If there's hesitation and worries, then remove the sources of worries altogether."
+> "Yamcha, I was worried about you. For all I knew, you were dead in a ditch in a country you can't pronounce. You'll have to make this up to me. And you're going to enjoy it."
 
-&mdash; [**Yoite**](https://myanimelist.net/character.php?q=Yoite&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Bulma**](https://myanimelist.net/character.php?q=Bulma&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
