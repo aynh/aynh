@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "No person exists that is just virtuous, and kindness is only something piled on the outside. There are no humans with just virtue and fairness. Rather, they try to be that and just build up stress."
+> "Memories - they can sometimes become vague and foggy and there are times when they disappear altogether. Therefore, because there are many things I don't want to lose track of, I will record everything in here (his diary) for the sake of those moments that should not be forgotten."
 
-&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Keisuke Urashima**](https://myanimelist.net/character.php?q=Keisuke%20Urashima&cat=character), [**Love Hina**](https://myanimelist.net/search/all?q=Love%20Hina&cat=all)
