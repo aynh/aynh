@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Sometimes it's necessary to courageously retreat."
+> "Depending on your request, whether I will laugh or get angry - that will decide your lifespan, boy."
 
-&mdash; [**Ashiya Shirou**](https://myanimelist.net/character.php?q=Ashiya%20Shirou&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
+&mdash; [**Ladd Russo**](https://myanimelist.net/character.php?q=Ladd%20Russo&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
