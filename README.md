@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I don't think I'll learn anything if I don't try to do something about it on my own."
+> "'Time' is proof that people have lived. Every person lives the time that has been given to them... that is life."
 
-&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
