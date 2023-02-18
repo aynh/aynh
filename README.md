@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "'Goodbye' is the word that I've come to hate the most."
+> "Liars always say the same things. 'I'll believe in you. I'll protect you. I care about you.' I'll never believe that again... No one will ever protect me. I won't even think about it. I'll fight alone, live alone, and die alone. I know... I've felt it on my skin and in my body... That it's better not to believe in anyone than believe and be betrayed!"
 
-&mdash; [**Goro Shigeno**](https://myanimelist.net/character.php?q=Goro%20Shigeno&cat=character), [**Major**](https://myanimelist.net/search/all?q=Major&cat=all)
+&mdash; [**Fremy Speedraw**](https://myanimelist.net/character.php?q=Fremy%20Speedraw&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
