@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Without love, people could exist without knowing truth and falsehood. By knowing it, they cry and grief and get lost. I was the same back then."
+> "I don't regret using my wish for another's sake. If I regret my decision now, the feelings upon which it was based will be for naught."
 
-&mdash; [**Furudo Erika**](https://myanimelist.net/character.php?q=Furudo%20Erika&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Sayaka Miki**](https://myanimelist.net/character.php?q=Sayaka%20Miki&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
