@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I don't regret using my wish for another's sake. If I regret my decision now, the feelings upon which it was based will be for naught."
+> "A world where everyone is equal and receives the same treatment. No such place exists. If there was a world of equality, where talent and aptitude didn't matter, we would all be equally snubbed there."
 
-&mdash; [**Sayaka Miki**](https://myanimelist.net/character.php?q=Sayaka%20Miki&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Tatsuya Shiba**](https://myanimelist.net/character.php?q=Tatsuya%20Shiba&cat=character), [**Mahouka Koukou no Rettousei**](https://myanimelist.net/search/all?q=Mahouka%20Koukou%20no%20Rettousei&cat=all)
