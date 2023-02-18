@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "'Time' is proof that people have lived. Every person lives the time that has been given to them... that is life."
+> "Sometimes it's necessary to courageously retreat."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Ashiya Shirou**](https://myanimelist.net/character.php?q=Ashiya%20Shirou&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
