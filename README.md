@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Liars always say the same things. 'I'll believe in you. I'll protect you. I care about you.' I'll never believe that again... No one will ever protect me. I won't even think about it. I'll fight alone, live alone, and die alone. I know... I've felt it on my skin and in my body... That it's better not to believe in anyone than believe and be betrayed!"
+> "Didn't your mother ever tell you that mentioning a woman's age will get you killed?"
 
-&mdash; [**Fremy Speedraw**](https://myanimelist.net/character.php?q=Fremy%20Speedraw&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
+&mdash; [**Shizuka Hiratsuka**](https://myanimelist.net/character.php?q=Shizuka%20Hiratsuka&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
