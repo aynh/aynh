@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It's not like I'm desperate to have friends, anyway. I just don't like being looked down on as that sad person with no friends."
+> "Without love, people could exist without knowing truth and falsehood. By knowing it, they cry and grief and get lost. I was the same back then."
 
-&mdash; [**Yozora Mikazuki**](https://myanimelist.net/character.php?q=Yozora%20Mikazuki&cat=character), [**Boku wa Tomodachi ga Sukunai**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai&cat=all)
+&mdash; [**Furudo Erika**](https://myanimelist.net/character.php?q=Furudo%20Erika&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
