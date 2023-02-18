@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There are some people who are rich and stay in beautiful places but are still unhappy. There are some people who are poor, but happy. In the end, happiness or sadness, only the person can determine."
+> "A dog's happiness is measured by how useful he is to his master."
 
-&mdash; [**Alicia Florence**](https://myanimelist.net/character.php?q=Alicia%20Florence&cat=character), [**Aria the Animation**](https://myanimelist.net/search/all?q=Aria%20the%20Animation&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
