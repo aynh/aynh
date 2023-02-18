@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "People make a lot of mistakes, and strength is necessary to straighten those out."
+> "What you speak of at greatest length is what interests you the most."
 
-&mdash; [**Yahiro Samukawa**](https://myanimelist.net/character.php?q=Yahiro%20Samukawa&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
