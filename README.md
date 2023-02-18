@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Depending on your request, whether I will laugh or get angry - that will decide your lifespan, boy."
+> "Hey... They say it's five centimeters per second. *Takaki asks her what she means by that* The speed at which the sakura blossom petals fall... Five centimeters per second."
 
-&mdash; [**Ladd Russo**](https://myanimelist.net/character.php?q=Ladd%20Russo&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Akari Shinohara**](https://myanimelist.net/character.php?q=Akari%20Shinohara&cat=character), [**5 Centimeters per Second**](https://myanimelist.net/search/all?q=5%20Centimeters%20per%20Second&cat=all)
