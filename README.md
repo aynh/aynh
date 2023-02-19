@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you don't like how things turned out, then try to change it. And then if it still doesn't work out, that's when you can be depressed."
+> "Is it wrong to do stuff by yourself? If someone worked hard on their own until now, why do they have to face rejection here?"
 
-&mdash; [**Nanana Ryuugajou**](https://myanimelist.net/character.php?q=Nanana%20Ryuugajou&cat=character), [**Ryuugajou Nanana No Maizoukin**](https://myanimelist.net/search/all?q=Ryuugajou%20Nanana%20No%20Maizoukin&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
