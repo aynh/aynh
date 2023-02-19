@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "A man, slave to gold, holds a whip...And beats the slave he bought with that gold as if to claim HE is the master. He just doesn't see it for himself. Every living human being is a slave to something"
+> "Educating a heterosexual person about anime, is a joy for an otaku."
 
-&mdash; [**Askeladd**](https://myanimelist.net/character.php?q=Askeladd&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
