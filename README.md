@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Educating a heterosexual person about anime, is a joy for an otaku."
+> "Life is suffering. It is hard. The world is cursed. But still you find reasons to keep living."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Lady Eboshi**](https://myanimelist.net/character.php?q=Lady%20Eboshi&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
