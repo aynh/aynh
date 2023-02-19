@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Life is suffering. It is hard. The world is cursed. But still you find reasons to keep living."
+> "Ruling over death means ruling over life. Death is the climax of life. To have the best death, you must honor life."
 
-&mdash; [**Lady Eboshi**](https://myanimelist.net/character.php?q=Lady%20Eboshi&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Rory Mercury**](https://myanimelist.net/character.php?q=Rory%20Mercury&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
