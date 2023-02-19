@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If I sit like a normal person my investigative abilities are only working at 50% efficiency."
+> "Your grievance shall be avenged."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
