@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I know that I'm not alone, but I want to be strong even when I am."
+> "If you give me wings, I will soar for you even if this whole land sinks down to the water. If you give me a sword, I will fight for you even if this whole sky shoots through with your light."
 
-&mdash; [**Taichi Mashima**](https://myanimelist.net/character.php?q=Taichi%20Mashima&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
