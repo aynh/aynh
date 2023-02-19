@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Since childhood, my body was weak. There was a limit to what I could do. A weak body... A life which I don't know how long I would live for. Well, life has its limits. I felt like my limit was exceeding faster than others' limit."
+> "A man, slave to gold, holds a whip...And beats the slave he bought with that gold as if to claim HE is the master. He just doesn't see it for himself. Every living human being is a slave to something"
 
-&mdash; [**Kanata Nanami**](https://myanimelist.net/character.php?q=Kanata%20Nanami&cat=character), [**Starry Sky**](https://myanimelist.net/search/all?q=Starry%20Sky&cat=all)
+&mdash; [**Askeladd**](https://myanimelist.net/character.php?q=Askeladd&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
