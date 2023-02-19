@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you give me wings, I will soar for you even if this whole land sinks down to the water. If you give me a sword, I will fight for you even if this whole sky shoots through with your light."
+> "On this hand, imagine that these four fingers represent the animals, and the thumb represents plants. Then let's say people are here... On the tip of the middle finger, farthest from the heart."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
