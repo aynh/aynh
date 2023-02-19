@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Those who seem kindest, are often the most insidiously cruel."
+> "For a second there I thought the floor was going to--AAAAAAAAAAAAAAAAAAAAAA!! Where'd the ground go?"
 
-&mdash; [**Karyuudo Tsukishima**](https://myanimelist.net/character.php?q=Karyuudo%20Tsukishima&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
