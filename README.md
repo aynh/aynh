@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Your grievance shall be avenged."
+> "At that point in my life, I couldn't find any value in anything. I was a brat who may as well be dead."
 
-&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
