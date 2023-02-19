@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "For a second there I thought the floor was going to--AAAAAAAAAAAAAAAAAAAAAA!! Where'd the ground go?"
+> "If I sit like a normal person my investigative abilities are only working at 50% efficiency."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
