@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Hey... They say it's five centimeters per second. *Takaki asks her what she means by that* The speed at which the sakura blossom petals fall... Five centimeters per second."
+> "I am not a hero. I can't make anyone happy with any result. I can only do what I deem right with me not hating my choice at a later point."
 
-&mdash; [**Akari Shinohara**](https://myanimelist.net/character.php?q=Akari%20Shinohara&cat=character), [**5 Centimeters per Second**](https://myanimelist.net/search/all?q=5%20Centimeters%20per%20Second&cat=all)
+&mdash; [**Osamu Mikumo**](https://myanimelist.net/character.php?q=Osamu%20Mikumo&cat=character), [**World Trigger**](https://myanimelist.net/search/all?q=World%20Trigger&cat=all)
