@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "At that point in my life, I couldn't find any value in anything. I was a brat who may as well be dead."
+> "I know that I'm not alone, but I want to be strong even when I am."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Taichi Mashima**](https://myanimelist.net/character.php?q=Taichi%20Mashima&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
