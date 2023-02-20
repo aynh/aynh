@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "So what if I'd spare him? In my mind it's the certainty in myself that I possess which allows me to have that kind of mercy or compassion. There's no wavering on that point. It's fixed like the stars. The fact is I'm never gonna be killed! So remember this: mercy and compassion are virtues that only the strong are privileged to possess. And I am strong."
+> "[After Hatori asks what snow becomes when it melts]Ah...um, well...hmm. It becomes spring! No matter how cold it is now, spring will come again! Without fail. It's strange isn't it? But it's true."
 
-&mdash; [**Claire Stanfield**](https://myanimelist.net/character.php?q=Claire%20Stanfield&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
