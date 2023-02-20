@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It's okay to live, even if there's no greater point to living."
+> "Someday... no matter how cold it is now... the snow will melt. Without fail."
 
-&mdash; [**Konno Yuuki**](https://myanimelist.net/character.php?q=Konno%20Yuuki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
