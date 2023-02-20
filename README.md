@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Of course, every soldier is prepared to die. But these people aren't just pawns on a chessboard. They all have names, families and feelings in their hearts too. They are all humans who live and bleed. You have the responsibility to ensure their death will not be in vain. No matter what may come, remember this in your naive heart, and be ready to die to fulfill that duty."
+> "I'm not lazy, I'm just conserving energy."
 
-&mdash; [**Rico Brzenska**](https://myanimelist.net/character.php?q=Rico%20Brzenska&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
