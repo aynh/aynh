@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "[talking about food] The last bite. It is the final one, and the most suitable one to enjoy the most. No matter what it costs, I will not give it up."
+> "Of course, every soldier is prepared to die. But these people aren't just pawns on a chessboard. They all have names, families and feelings in their hearts too. They are all humans who live and bleed. You have the responsibility to ensure their death will not be in vain. No matter what may come, remember this in your naive heart, and be ready to die to fulfill that duty."
 
-&mdash; [**Chouji Akimichi**](https://myanimelist.net/character.php?q=Chouji%20Akimichi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Rico Brzenska**](https://myanimelist.net/character.php?q=Rico%20Brzenska&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
