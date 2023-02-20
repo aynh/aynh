@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Someday... no matter how cold it is now... the snow will melt. Without fail."
+> "The ability to understand others just by touching definitely exists. There might not be any reason to be afraid of touching and being touched by others, or hugging and being hugged by others."
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
