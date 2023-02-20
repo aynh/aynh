@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It's true, crying unexpectedly does make you feel better. When you're an adult you forget that."
+> "Love is brightest in the dark."
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
