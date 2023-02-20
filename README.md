@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Please don't tell people our bakery's motorbike ran you over."
+> "[talking about food] The last bite. It is the final one, and the most suitable one to enjoy the most. No matter what it costs, I will not give it up."
 
-&mdash; [**Haruko Haruhara**](https://myanimelist.net/character.php?q=Haruko%20Haruhara&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Chouji Akimichi**](https://myanimelist.net/character.php?q=Chouji%20Akimichi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
