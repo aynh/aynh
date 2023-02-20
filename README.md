@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "After being driven out of the orphanage, I had nothing to eat, nowhere to sleep, and, as one might expect, not a cent to my name. Yet, I lack the courage to commit theft. That is how I've arrived at my current predicament... However... if I wish to live, I have no choice but to steal and take from others!"
+> "So sorry you caught me on such a bad day, it makes me a real jerk!"
 
-&mdash; [**Atsushi Nakajima**](https://myanimelist.net/character.php?q=Atsushi%20Nakajima&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
