@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Dying now, my breath will be erased, okay?"
+> "Once the kiln is opened and the pottery inspected, all that are crooked or bear cracks are fated to be smashed. If all that awaited us was the fate of smashed pottery, then we decided we would rather run away in the hopes of finding a different future."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Maria Akitsuki**](https://myanimelist.net/character.php?q=Maria%20Akitsuki&cat=character), [**Shinsekai Yori**](https://myanimelist.net/search/all?q=Shinsekai%20Yori&cat=all)
