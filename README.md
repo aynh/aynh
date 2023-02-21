@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The most certain way to succeed is to try one more time. Our greatest weakness lies in giving up."
+> "You’re too kind. Remember this and take it to heart: kindness sometimes leads to even greater tragedy."
 
-&mdash; [**Classroom Crisis**](https://myanimelist.net/character.php?q=Classroom%20Crisis&cat=character), [**Classroom Crisis**](https://myanimelist.net/search/all?q=Classroom%20Crisis&cat=all)
+&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
