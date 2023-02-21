@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Thinking of you wherever you are. We pray for our sorrows to end, and hope that our hearts will blend. Now I will step forward to realize this wish. And who knows... starting a new journey may not be so hard, or maybe it has already begun. There are many worlds, but they share the same sky... one sky, one destiny."
+> "Ed believes he saved that town, it's one of the first successes he's had. I'll let him keep thinking that for a while. He'll learn the truth soon enough: we always do."
 
-&mdash; [**Kairi**](https://myanimelist.net/character.php?q=Kairi&cat=character), [**Kingdom Hearts 2**](https://myanimelist.net/search/all?q=Kingdom%20Hearts%202&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
