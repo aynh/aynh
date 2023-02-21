@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "This is pure offense. They gave up fighting with their brains a long time ago."
+> "I'll get what I want... even if I have to steal it."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Rue Kuroha**](https://myanimelist.net/character.php?q=Rue%20Kuroha&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
