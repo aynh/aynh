@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The best way to live a full life is to be a child, no matter your age."
+> "Do they love you, or the mask you put every day?"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Shido Itsuka**](https://myanimelist.net/character.php?q=Shido%20Itsuka&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
