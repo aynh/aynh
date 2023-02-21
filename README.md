@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You’re too kind. Remember this and take it to heart: kindness sometimes leads to even greater tragedy."
+> "Thinking of you wherever you are. We pray for our sorrows to end, and hope that our hearts will blend. Now I will step forward to realize this wish. And who knows... starting a new journey may not be so hard, or maybe it has already begun. There are many worlds, but they share the same sky... one sky, one destiny."
 
-&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Kairi**](https://myanimelist.net/character.php?q=Kairi&cat=character), [**Kingdom Hearts 2**](https://myanimelist.net/search/all?q=Kingdom%20Hearts%202&cat=all)
