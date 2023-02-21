@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I've already decided. Getting good grades and listening to teachers can take me somewhere high and far away, but what if that's not where I want to go? Right here, by your side, Tomoya, is the only place I want to be."
+> "I don’t need to believe in God to believe in myself."
 
-&mdash; [**Sakagami Tomoyo**](https://myanimelist.net/character.php?q=Sakagami%20Tomoyo&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
