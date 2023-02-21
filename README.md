@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The fastest way to happiness is to avoid looking at reality."
+> "I just want to keep looking at her."
 
-&mdash; [**Ame Ochibana**](https://myanimelist.net/character.php?q=Ame%20Ochibana&cat=character), [**Denpa teki na Kanojo**](https://myanimelist.net/search/all?q=Denpa%20teki%20na%20Kanojo&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
