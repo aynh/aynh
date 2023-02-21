@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Don't go thinking that there's a world where it's natural to be happy! Even if you start complaining, nothing will change! You need to make things fun by yourself!"
+> "If you're going to hide a tree, put it in the forest."
 
-&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
