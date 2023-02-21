@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "A sound soul dwells within sound skin and sound cuticles."
+> "Even if everyone in the whole world dies, I won't care, as long as my beloved survives."
 
-&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Shinra Kishitani**](https://myanimelist.net/character.php?q=Shinra%20Kishitani&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
