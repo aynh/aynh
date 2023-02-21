@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you're going to hide a tree, put it in the forest."
+> "The most certain way to succeed is to try one more time. Our greatest weakness lies in giving up."
 
-&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Classroom Crisis**](https://myanimelist.net/character.php?q=Classroom%20Crisis&cat=character), [**Classroom Crisis**](https://myanimelist.net/search/all?q=Classroom%20Crisis&cat=all)
