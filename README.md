@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Everyone thinks at some point if what they are doing has any meaning or not. Will the day come when I get what's coming to me, or not? How much influence does my existence have on the world at all, or doesn't it?"
+> "A clever retreat? Throw that to the dogs! Once you've dived into the battlefield, you can only devote yourself to the fight, regardless of your opponent!"
 
-&mdash; [**William Macbeth**](https://myanimelist.net/character.php?q=William%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Kuroyukihime**](https://myanimelist.net/character.php?q=Kuroyukihime&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
