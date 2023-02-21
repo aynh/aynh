@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Ed believes he saved that town, it's one of the first successes he's had. I'll let him keep thinking that for a while. He'll learn the truth soon enough: we always do."
+> "Does the world hate me or something? I've always rejected it in an exceedingly friendly manner."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
