@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "A clever retreat? Throw that to the dogs! Once you've dived into the battlefield, you can only devote yourself to the fight, regardless of your opponent!"
+> "A sound soul dwells within sound skin and sound cuticles."
 
-&mdash; [**Kuroyukihime**](https://myanimelist.net/character.php?q=Kuroyukihime&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
+&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
