@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Do they love you, or the mask you put every day?"
+> "This is pure offense. They gave up fighting with their brains a long time ago."
 
-&mdash; [**Shido Itsuka**](https://myanimelist.net/character.php?q=Shido%20Itsuka&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
