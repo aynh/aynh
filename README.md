@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I just want to keep looking at her."
+> "Unfortunately, in reality there is no situation where one can win merely by following the rules. There will be knights that break the rules, and even chess pieces that betray him."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
