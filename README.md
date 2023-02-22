@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Unfortunately, in reality there is no situation where one can win merely by following the rules. There will be knights that break the rules, and even chess pieces that betray him."
+> "Events that happen in this world, are a continuous series of trifling things, and within those myriad pieces of puzzles, there is always a fragment that leads to the truth."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Kishou Arima**](https://myanimelist.net/character.php?q=Kishou%20Arima&cat=character), [**Tokyo Ghoul: Jack**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%3A%20Jack&cat=all)
