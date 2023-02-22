@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Your friend thinks he can win the prize crown, but he has no hope whatsoever. He is a mere shadow of a true shaman and he will be the first in a long line to perish in my hands."
+> "Why you ask? That's the stupidest question I've ever heard.  The answer is obvious.  Because I want to! *to Misaki Takahashi*"
 
-&mdash; [**Tao Len**](https://myanimelist.net/character.php?q=Tao%20Len&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
