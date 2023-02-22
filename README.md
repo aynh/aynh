@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There's something you can't see unless you're standing at the top, to experience that for the first time, I'm struggling to a higher place than anyone else, isn't that what freedom is?"
+> "Your friend thinks he can win the prize crown, but he has no hope whatsoever. He is a mere shadow of a true shaman and he will be the first in a long line to perish in my hands."
 
-&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Tao Len**](https://myanimelist.net/character.php?q=Tao%20Len&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
