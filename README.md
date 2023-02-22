@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Human beings are strong because we have the ability to change ourselves."
+> "In this world, there are crimes too depraved to ever be forgiven."
 
-&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Tomio Ookawa**](https://myanimelist.net/character.php?q=Tomio%20Ookawa&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
