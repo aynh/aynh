@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Men don't get touchy-feely with each other."
+> "A beautiful flower too will eventually wither and fall. That's the fate of all living beings. If that's the case, it's only natural for one to want to stop the time while they're still blossoming in all full glory."
 
-&mdash; [**Taichi Mashima**](https://myanimelist.net/character.php?q=Taichi%20Mashima&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
