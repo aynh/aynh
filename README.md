@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There are bad ways to win and good ways to lose. What's interesting and troubling, is that it's not always clear which is which. A flipped coin doesn't always land heads or tails. Sometimes it may never land at all."
+> "Does this world feel like hell to you? Of course it does, because it is. So take it all in, don't even blink, Miroku. There's no place like hell! We made it so. With our lust, and greed. It always comes down to this. Life is desire. It's what we do. When desire meets desire, the stronger survives. The predator will eat the prey. It's dirty, and cruel. But just look around you, there is so much beauty in this truth. And yet you still look away. And you waste all your time alone in your head. Don't deny your desires. Hell is the real paradise. And we, my friend, are in paradise! Don't look away, Miroku!"
 
-&mdash; [**Grimsley**](https://myanimelist.net/character.php?q=Grimsley&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Kai Sudo**](https://myanimelist.net/character.php?q=Kai%20Sudo&cat=character), [**Tsumi to Batsu: A Falsified Romance**](https://myanimelist.net/search/all?q=Tsumi%20to%20Batsu%3A%20A%20Falsified%20Romance&cat=all)
