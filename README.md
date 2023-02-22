@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Events that happen in this world, are a continuous series of trifling things, and within those myriad pieces of puzzles, there is always a fragment that leads to the truth."
+> "When something impossible happens, there are only two possibilities. Either your assumptions are wrong, or you have gone crazy."
 
-&mdash; [**Kishou Arima**](https://myanimelist.net/character.php?q=Kishou%20Arima&cat=character), [**Tokyo Ghoul: Jack**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%3A%20Jack&cat=all)
+&mdash; [**Kougami Shinya**](https://myanimelist.net/character.php?q=Kougami%20Shinya&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
