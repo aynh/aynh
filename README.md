@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You can run from your past all you want, but it will always follow you. Forever and ever and ever and ever."
+> "Bring on the hardship. It's preferred in a path of carnage."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
