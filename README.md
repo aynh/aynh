@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "When something impossible happens, there are only two possibilities. Either your assumptions are wrong, or you have gone crazy."
+> "Men don't get touchy-feely with each other."
 
-&mdash; [**Kougami Shinya**](https://myanimelist.net/character.php?q=Kougami%20Shinya&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Taichi Mashima**](https://myanimelist.net/character.php?q=Taichi%20Mashima&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
