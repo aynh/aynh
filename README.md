@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I've never seen a hero fall down stairs, cry, and get first aid from demons."
+> "Talking about peace whilst spilling blood, it's something that only humans can do."
 
-&mdash; [**Maou Sadao**](https://myanimelist.net/character.php?q=Maou%20Sadao&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
