@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It doesn't hurt! It's not hot! I'm not scared! I will not be beaten!"
+> "It’s not that I’m a tolerant person. I just don’t want to think about these troublesome things."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
