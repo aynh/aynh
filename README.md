@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Each person has his or her own way of having fun."
+> "Once a person is ready to die, anything is possible."
 
-&mdash; [**Itsuki Koizumi**](https://myanimelist.net/character.php?q=Itsuki%20Koizumi&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Shimada Minami**](https://myanimelist.net/character.php?q=Shimada%20Minami&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
