@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Once a person is ready to die, anything is possible."
+> "It's just like changes in the notes and passports. You may find it hard to adjust to at the beginning, but you get used to it eventually. Time is very depressing after all... Both happiness and sadness fade away with time."
 
-&mdash; [**Shimada Minami**](https://myanimelist.net/character.php?q=Shimada%20Minami&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
