@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It’s not that I’m a tolerant person. I just don’t want to think about these troublesome things."
+> "I've never seen a hero fall down stairs, cry, and get first aid from demons."
 
-&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
+&mdash; [**Maou Sadao**](https://myanimelist.net/character.php?q=Maou%20Sadao&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
