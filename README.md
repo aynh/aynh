@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There is nothing outside of yourself that can ever enable you to get better, stronger, richer, quicker, or smarter. Everything is within. Everything exists. Seek nothing outside of yourself."
+> "If you have the guts to not give up,you can be anything you want to be.We're living creature that don't have wings, but still went to the moon."
 
-&mdash; [**Miyamoto Musashi**](https://myanimelist.net/character.php?q=Miyamoto%20Musashi&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
+&mdash; [**Kurogane Ryouma**](https://myanimelist.net/character.php?q=Kurogane%20Ryouma&cat=character), [**Rakudai Kishi no Cavalry**](https://myanimelist.net/search/all?q=Rakudai%20Kishi%20no%20Cavalry&cat=all)
