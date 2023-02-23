@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "[in reference to Mizuho Asano, Keigo's sister] I owe this crazy woman."
+> "Change is never easy in this world. I can't even change one friend, let alone a whole country."
 
-&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
