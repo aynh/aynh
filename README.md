@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "No... this is wrong! Didn't I fall into hell? This can't be hell! Surrendering my body to the devil, I should have become a wrinkled hag! My hair should be full of hateful snakes, my skin should be the color of a vile frog's! And my blood should be burning with the jet black flames of my grudge..! A lie. This form, it's a lie! I've been tricked! I wanted to become a terrifying woman, one that just a look from, would send anyone running. I have to be such a woman! I don't want to forget my anger and hate!"
+> "'Slacking off' sounds bad. However, enjoying more of your day with the time you saved by doing your job in a clever way is definitely not a bad thing. Times like that are what makes a human's life rich. If you exaggerate, it could be called laziness, surely. However, people only become mature when they are able to balance work with enjoyment. In short, if all you care about is your job, you're not fully mature."
 
-&mdash; [**Jeanne**](https://myanimelist.net/character.php?q=Jeanne&cat=character), [**Kanashimi no Belladonna**](https://myanimelist.net/search/all?q=Kanashimi%20no%20Belladonna&cat=all)
+&mdash; [**Gaap**](https://myanimelist.net/character.php?q=Gaap&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
