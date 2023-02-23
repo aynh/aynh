@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Let's face the truth, without relying on any dreamlike power."
+> "[in reference to Mizuho Asano, Keigo's sister] I owe this crazy woman."
 
-&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
