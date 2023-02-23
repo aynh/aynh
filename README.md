@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Change is never easy in this world. I can't even change one friend, let alone a whole country."
+> "Can't you tell, Aizen? You no longer have a place to run away to."
 
-&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
