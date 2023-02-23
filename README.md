@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you have the guts to not give up,you can be anything you want to be.We're living creature that don't have wings, but still went to the moon."
+> "Let's face the truth, without relying on any dreamlike power."
 
-&mdash; [**Kurogane Ryouma**](https://myanimelist.net/character.php?q=Kurogane%20Ryouma&cat=character), [**Rakudai Kishi no Cavalry**](https://myanimelist.net/search/all?q=Rakudai%20Kishi%20no%20Cavalry&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
