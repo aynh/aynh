@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It's just like changes in the notes and passports. You may find it hard to adjust to at the beginning, but you get used to it eventually. Time is very depressing after all... Both happiness and sadness fade away with time."
+> "...A human's belief can make the impossible possible."
 
-&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Kouta Tsuchiya**](https://myanimelist.net/character.php?q=Kouta%20Tsuchiya&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
