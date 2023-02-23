@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "When you get a piece of Ryu you get the whole pie!"
+> "There is nothing outside of yourself that can ever enable you to get better, stronger, richer, quicker, or smarter. Everything is within. Everything exists. Seek nothing outside of yourself."
 
-&mdash; [**RYU**](https://myanimelist.net/character.php?q=RYU&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Miyamoto Musashi**](https://myanimelist.net/character.php?q=Miyamoto%20Musashi&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
