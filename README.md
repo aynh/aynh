@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "An island from a dream within a dream? I could never pass up a great adventure like this!"
+> "Stupid ocean!!! Ya want me to kill you? Huh??"
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
