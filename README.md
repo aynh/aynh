@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Stupid ocean!!! Ya want me to kill you? Huh??"
+> "No point in wondering who someone really is, all you can do is trust them and accept them for who they are. Because the person you come to know is who that person really is."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
