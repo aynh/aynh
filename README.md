@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There's nothing more satisfying than conquering all types of girls."
+> "Life itself is a frightening image for every human being... being strong in life isn't easy."
 
-&mdash; [**Mikoto Mikoshiba**](https://myanimelist.net/character.php?q=Mikoto%20Mikoshiba&cat=character), [**Gekkan Shoujo Nozaki-kun**](https://myanimelist.net/search/all?q=Gekkan%20Shoujo%20Nozaki-kun&cat=all)
+&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
