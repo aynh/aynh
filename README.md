@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "When you protect someone you want to keep safe, do you always weigh your own life against theirs?"
+> "I'm a pirate hunter."
 
-&mdash; [**Hak Son**](https://myanimelist.net/character.php?q=Hak%20Son&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
