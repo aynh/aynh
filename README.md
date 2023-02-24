@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Someone the exact opposite of Inuyasha.  That's the perfect guy for me."
+> "You know how they have parameters in games? Like, you're good at magic, but your combat skills blow, or you're a great fighter, but you lack in the brains department."
 
-&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!×2 Shou**](https://myanimelist.net/search/all?q=Durarara!!%C3%972%20Shou&cat=all)
