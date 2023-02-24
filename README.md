@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Even if you can't walk or stand and even if you can't have kids, I'll still marry you, I'll always stay by your side."
+> "When you protect someone you want to keep safe, do you always weigh your own life against theirs?"
 
-&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Hak Son**](https://myanimelist.net/character.php?q=Hak%20Son&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
