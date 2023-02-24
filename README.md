@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "We reset, and return to our separate lives. You can't reset your life, but you can reset your relationships."
+> "Even if you can't walk or stand and even if you can't have kids, I'll still marry you, I'll always stay by your side."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
