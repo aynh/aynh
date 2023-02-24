@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Fulfilled people are just an urban legend."
+> "Your happiness is in a much more vast world. Look for it. Find it. (to Hatsuharu)"
 
-&mdash; [**Shiro**](https://myanimelist.net/character.php?q=Shiro&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
