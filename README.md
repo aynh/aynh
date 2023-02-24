@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Nothing that happens is ever forgotten, even if you can't remember it."
+> "A friend would not just follow another's dream... a friend would find his own reason to live."
 
-&mdash; [**Zeniba**](https://myanimelist.net/character.php?q=Zeniba&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
+&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
