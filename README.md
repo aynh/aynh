@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I want to believe that life isn't full of darkness. Even if storms come to pass, the sun will shine again. No matter how painful and hard the rain my beat down on me."
+> "People are weak. They have no fangs or claws. All they can do is cry. And yet, how was it that this world came into the possession of humans? That's because...  among all living things... they are... the cruelest!"
 
-&mdash; [**Akito Sohma**](https://myanimelist.net/character.php?q=Akito%20Sohma&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Shinnou**](https://myanimelist.net/character.php?q=Shinnou&cat=character), [**Naruto Shippūden: Kizuna**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden%3A%20Kizuna&cat=all)
