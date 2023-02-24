@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "People are weak. They have no fangs or claws. All they can do is cry. And yet, how was it that this world came into the possession of humans? That's because...  among all living things... they are... the cruelest!"
+> "Nothing that happens is ever forgotten, even if you can't remember it."
 
-&mdash; [**Shinnou**](https://myanimelist.net/character.php?q=Shinnou&cat=character), [**Naruto Shippūden: Kizuna**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden%3A%20Kizuna&cat=all)
+&mdash; [**Zeniba**](https://myanimelist.net/character.php?q=Zeniba&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
