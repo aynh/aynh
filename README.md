@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Life is never fair. I'm sure you're well aware of that."
+> "I want to believe that life isn't full of darkness. Even if storms come to pass, the sun will shine again. No matter how painful and hard the rain my beat down on me."
 
-&mdash; [**Decim**](https://myanimelist.net/character.php?q=Decim&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Akito Sohma**](https://myanimelist.net/character.php?q=Akito%20Sohma&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
