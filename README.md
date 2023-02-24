@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "They say that fools learn from their experiences, while the wise learn from history. I hope you're not a fool."
+> "Pum, Pumkins, Smashing Pumkins!"
 
-&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Blair**](https://myanimelist.net/character.php?q=Blair&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
