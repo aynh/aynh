@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You know how they have parameters in games? Like, you're good at magic, but your combat skills blow, or you're a great fighter, but you lack in the brains department."
+> "I can't tell you that… You have to figure it out. Stand up and walk. Keep moving forward. You've got two good legs. So get up and use them. You're strong enough to make your own path."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!×2 Shou**](https://myanimelist.net/search/all?q=Durarara!!%C3%972%20Shou&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
