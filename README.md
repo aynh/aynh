@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Pum, Pumkins, Smashing Pumkins!"
+> "Fulfilled people are just an urban legend."
 
-&mdash; [**Blair**](https://myanimelist.net/character.php?q=Blair&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Shiro**](https://myanimelist.net/character.php?q=Shiro&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
