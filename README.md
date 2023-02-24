@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Your happiness is in a much more vast world. Look for it. Find it. (to Hatsuharu)"
+> "Hey! It looks like now is a good time to do a little tail fishing!"
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
