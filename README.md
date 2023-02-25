@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I said she's not an Angel. She's a human, just like us. Didn't you notice?"
+> "If you want to get to know someone, you need to make an effort to learn why they're angry."
 
-&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Mito Freecss**](https://myanimelist.net/character.php?q=Mito%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
