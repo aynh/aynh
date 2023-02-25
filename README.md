@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If it's this world behind the eyelids, anybody can become the person I imagine them to be."
+> "Relying on someone else without exerting any effort of your own is just not right. Because the one you rely on most, can disappear, at any time."
 
-&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
+&mdash; [**Jodie Starling**](https://myanimelist.net/character.php?q=Jodie%20Starling&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
