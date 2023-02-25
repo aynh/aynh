@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Tell me, do you feel my presence? Do you sense it the same way that I sense yours? A rather unfortunate twist of fate, wouldn't you say... Mu La Flaga?"
+> "No amount of natural talent trumps hard work."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Rin Matsuoka**](https://myanimelist.net/character.php?q=Rin%20Matsuoka&cat=character), [**Free!**](https://myanimelist.net/search/all?q=Free!&cat=all)
