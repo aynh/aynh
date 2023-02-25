@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Even if we're not confident that we'll win, even if others tell us we don't stand a chance, we must never tell ourselves that."
+> "Yeah, I know there's no right answer. All I know for sure is that time keeps on flowing like a river, and a river eventually leads to the ocean. Maybe I will try swimming against the current."
 
-&mdash; [**Daichi Sawamura**](https://myanimelist.net/character.php?q=Daichi%20Sawamura&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
