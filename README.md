@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The old me would never have known how blue the afternoon sky looks from the roof. My world is growing. What I once considered background noise is now comforting."
+> "Even if we're not confident that we'll win, even if others tell us we don't stand a chance, we must never tell ourselves that."
 
-&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Daichi Sawamura**](https://myanimelist.net/character.php?q=Daichi%20Sawamura&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
