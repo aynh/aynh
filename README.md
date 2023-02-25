@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "*to Ichigo* I thought you were interesting before, but now you're just a creepy kid."
+> "The old me would never have known how blue the afternoon sky looks from the roof. My world is growing. What I once considered background noise is now comforting."
 
-&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
