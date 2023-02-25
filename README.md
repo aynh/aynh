@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Well, this blows."
+> "It looks like they only want me, and that's exactly who they'll get."
 
 &mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
