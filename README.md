@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "[thinking] I only take family as patients and I still get worked to death."
+> "I said she's not an Angel. She's a human, just like us. Didn't you notice?"
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
