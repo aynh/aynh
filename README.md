@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "[To Orihime] I've repaid my debt to you. Now, you're gonna accompany me on a little errand."
+> "You'll break. Humans are so fragile."
 
-&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Argentine**](https://myanimelist.net/character.php?q=Argentine&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
