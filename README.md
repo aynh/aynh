@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You'll break. Humans are so fragile."
+> "You can't just run away, especially from the things you want to forget!"
 
-&mdash; [**Argentine**](https://myanimelist.net/character.php?q=Argentine&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
