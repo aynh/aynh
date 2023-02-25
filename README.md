@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "No amount of natural talent trumps hard work."
+> "Oh right, most talented artists become famous after they're dead, I'll make you great by taking you to the cemetery called prison!"
 
-&mdash; [**Rin Matsuoka**](https://myanimelist.net/character.php?q=Rin%20Matsuoka&cat=character), [**Free!**](https://myanimelist.net/search/all?q=Free!&cat=all)
+&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
