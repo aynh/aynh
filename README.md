@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you want to get to know someone, you need to make an effort to learn why they're angry."
+> "*to Ichigo* I thought you were interesting before, but now you're just a creepy kid."
 
-&mdash; [**Mito Freecss**](https://myanimelist.net/character.php?q=Mito%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
