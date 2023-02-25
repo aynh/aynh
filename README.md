@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It looks like they only want me, and that's exactly who they'll get."
+> "These days, there are angry ghosts all around us. Dead from wars, sickness, starvation, and nobody cares. So - you say you're under a curse. So what, so's the whole damn world."
 
-&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Jigo**](https://myanimelist.net/character.php?q=Jigo&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
