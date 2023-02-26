@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "He wouldn't notice if I got a crew cut, shaved my head bald, or even grew an afro!"
+> "It's not an issue of what you should do, it's an issue of what you want to do."
 
-&mdash; [**Riku Harada**](https://myanimelist.net/character.php?q=Riku%20Harada&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Yamamoto Tsuyoshi**](https://myanimelist.net/character.php?q=Yamamoto%20Tsuyoshi&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
