@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "This blank space represents infinite potential. One day, it may become anything."
+> "Don't make it sound so easy! Don't you realize how hard I had to study? I worked hard... I worked so hard!"
 
-&mdash; [**No Game No Life**](https://myanimelist.net/character.php?q=No%20Game%20No%20Life&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Hakua Du Lot Herminium**](https://myanimelist.net/character.php?q=Hakua%20Du%20Lot%20Herminium&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
