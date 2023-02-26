@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "This feels like extortion."
+> "I do not allow anyone acting against me to look down upon me."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
