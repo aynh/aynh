@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It's not the final judgement of 'good' and 'evil' that's important. What matters is that you come to that decision yourself. That you agonize over it and eventually accept it."
+> "'Never trust anyone too much... Remember the devil was once an angel...'"
 
-&mdash; [**Akane Tsunemori**](https://myanimelist.net/character.php?q=Akane%20Tsunemori&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul √A**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%20%E2%88%9AA&cat=all)
