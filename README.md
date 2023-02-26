@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You can't just run away, especially from the things you want to forget!"
+> "Don’t tell me he wants to conquer the world? Can’t he come up with something more original?"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
