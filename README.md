@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Can you stop guessing if they got the question right based on the amount of time left when they cut to commercial!?"
+> "It's not the final judgement of 'good' and 'evil' that's important. What matters is that you come to that decision yourself. That you agonize over it and eventually accept it."
 
-&mdash; [**Kagami Hiiragi**](https://myanimelist.net/character.php?q=Kagami%20Hiiragi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
+&mdash; [**Akane Tsunemori**](https://myanimelist.net/character.php?q=Akane%20Tsunemori&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
