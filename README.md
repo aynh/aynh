@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Those who rely on 'someday' will only grow weaker and lowlier."
+> "While it takes time to recover from the loss of a loved one, having an opportunity to take your mind off things helps too."
 
-&mdash; [**Shana**](https://myanimelist.net/character.php?q=Shana&cat=character), [**Shakugan no Shana**](https://myanimelist.net/search/all?q=Shakugan%20no%20Shana&cat=all)
+&mdash; [**Yogi**](https://myanimelist.net/character.php?q=Yogi&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
