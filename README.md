@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It's painful when you get disappointed by the person you look up to."
+> "Can you stop guessing if they got the question right based on the amount of time left when they cut to commercial!?"
 
-&mdash; [**Misaki Ayuzawa**](https://myanimelist.net/character.php?q=Misaki%20Ayuzawa&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Kagami Hiiragi**](https://myanimelist.net/character.php?q=Kagami%20Hiiragi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
