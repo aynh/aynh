@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Instead of regretting what we cannot do, it is better to do what one can. Even for example, what you do has nothing to do with results, you must forge forward."
+> "This blank space represents infinite potential. One day, it may become anything."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**No Game No Life**](https://myanimelist.net/character.php?q=No%20Game%20No%20Life&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
