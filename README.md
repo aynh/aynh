@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It's not an issue of what you should do, it's an issue of what you want to do."
+> "It's not a sin to fall in love. You can't even arrest someone over that."
 
-&mdash; [**Yamamoto Tsuyoshi**](https://myanimelist.net/character.php?q=Yamamoto%20Tsuyoshi&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Gajeel Redfox**](https://myanimelist.net/character.php?q=Gajeel%20Redfox&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
