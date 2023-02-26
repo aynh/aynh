@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "'Never trust anyone too much... Remember the devil was once an angel...'"
+> "I intended to listen to your voice, but it really was nothing but intentions. It's pretty obvious, huh? Of course there's more going on than what people choose to tell you... But I convinced myself that was all there is to a person. I knew that, but still I interpreted the stuff I didn't understand about you in ways convenient for me... That's just how I am."
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul √A**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%20%E2%88%9AA&cat=all)
+&mdash; [**Shouya Ishida**](https://myanimelist.net/character.php?q=Shouya%20Ishida&cat=character), [**Koe no Katachi**](https://myanimelist.net/search/all?q=Koe%20no%20Katachi&cat=all)
