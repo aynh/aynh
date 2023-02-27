@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Don't start a fight if you can't end it."
+> "People have many different ways of thinking. Even if you make a mistake, if you realize it was a mistake, You can always fix it. Then if you turn around, you will see the future. This must be realized by oneself."
 
-&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
