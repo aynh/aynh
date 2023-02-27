@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "People have many different ways of thinking. Even if you make a mistake, if you realize it was a mistake, You can always fix it. Then if you turn around, you will see the future. This must be realized by oneself."
+> "I have nothing but me. I'll give you myself. You can use me however you like for the rest of my life. (To Shigure)"
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
