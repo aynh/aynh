@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Only a foolish human would attempt to rationalize emotion."
+> "[after Naruto does his Shadow Clone Jutsu] Oh, there sure is a lot of garbage scattered around here. But, trash is just trash after all. It simply needs to be cleaned up."
 
-&mdash; [**Makina**](https://myanimelist.net/character.php?q=Makina&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
