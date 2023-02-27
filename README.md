@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It's not like we lost anything when there was nothing between us to start with. We could never really be equals. I've always been alone."
+> "I have a mind of a genius and a strong sense of justice."
 
-&mdash; [**Izumiko Suzuhara**](https://myanimelist.net/character.php?q=Izumiko%20Suzuhara&cat=character), [**RDG: Red Data Girl**](https://myanimelist.net/search/all?q=RDG%3A%20Red%20Data%20Girl&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
