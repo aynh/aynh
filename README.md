@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I led me by the hand, as if to fill the niches in the memories in my oozing brain fluid. Without even a destination, we kept walking. Disgusting clouds were floating in the sky. I already know what will happen to me the next time I wake up."
+> "No matter how foolish or incomprehensible, some love cannot be discarded. You may try to stop your heart, unable to forgive yourself, but there will be times when you lose hope and your heart is moved again."
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Ik-su**](https://myanimelist.net/character.php?q=Ik-su&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
