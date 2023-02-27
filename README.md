@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I have a mind of a genius and a strong sense of justice."
+> "No matter what, if you intend to interfere, I will eliminate you too."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Scar**](https://myanimelist.net/character.php?q=Scar&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
