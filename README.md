@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "No matter what, if you intend to interfere, I will eliminate you too."
+> "I think manga and life are the same thing. A weekly manga lasts for a week, and life lasts until you die. It's making the best of whatever time you're given. So, you can't hold back. 'Conceit' and 'Luck' are important, but the most important one is 'Hard Work'."
 
-&mdash; [**Scar**](https://myanimelist.net/character.php?q=Scar&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Akito Takagi**](https://myanimelist.net/character.php?q=Akito%20Takagi&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
