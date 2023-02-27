@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "[after Naruto does his Shadow Clone Jutsu] Oh, there sure is a lot of garbage scattered around here. But, trash is just trash after all. It simply needs to be cleaned up."
+> "While we are talking of peace, people are dying."
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Setsuna F. Seiei**](https://myanimelist.net/character.php?q=Setsuna%20F.%20Seiei&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
