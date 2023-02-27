@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I have a confession. I love special things."
+> "Don't start a fight if you can't end it."
 
-&mdash; [**Azaka Kokutō**](https://myanimelist.net/character.php?q=Azaka%20Kokut%C5%8D&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
