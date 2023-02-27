@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "People should be doubted. Many people misunderstand this concept. Doubting people is just a part of getting to know them. What many people call 'trust' is really just giving up on trying to understand others, and that very act is far worse than doubting. It is actually 'apathy'."
+> "Don't bother coming to the darkness that you don't need to see... I don't want to show you the darkness that doesn't belong to you... Don't let yourself be hurt so much anymore... Rather, let me be your strength."
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Natsume Hyuuga**](https://myanimelist.net/character.php?q=Natsume%20Hyuuga&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
