@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Ready or not, Spirit, this is where you take over."
+> "People should be doubted. Many people misunderstand this concept. Doubting people is just a part of getting to know them. What many people call 'trust' is really just giving up on trying to understand others, and that very act is far worse than doubting. It is actually 'apathy'."
 
-&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
