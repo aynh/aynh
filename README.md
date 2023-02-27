@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I think manga and life are the same thing. A weekly manga lasts for a week, and life lasts until you die. It's making the best of whatever time you're given. So, you can't hold back. 'Conceit' and 'Luck' are important, but the most important one is 'Hard Work'."
+> "I have a confession. I love special things."
 
-&mdash; [**Akito Takagi**](https://myanimelist.net/character.php?q=Akito%20Takagi&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Azaka Kokutō**](https://myanimelist.net/character.php?q=Azaka%20Kokut%C5%8D&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
