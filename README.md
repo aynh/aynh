@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "[to Katara] You rise with the moon. I rise with the sun."
+> "It will be alright, have faith in yourself. Crona, you will be a Kishin."
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
