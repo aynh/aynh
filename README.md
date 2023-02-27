@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Pain is the way to bring peace."
+> "[to Yuzu] Ah! It's okay, Yuzu, don't cry! Daddy will show you something really hilarious!"
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
