@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "[to Yuzu] Ah! It's okay, Yuzu, don't cry! Daddy will show you something really hilarious!"
+> "... After all, our goal each year should be to increase the NUMBER of goals we set for ourselves!"
 
-&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
