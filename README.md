@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Even if it's small, take a step forward."
+> "*referring to Azula* She can shoot all the lightning she wants at me, I'm not going into that wall sludge juice. [shudders]"
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Mai**](https://myanimelist.net/character.php?q=Mai&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
