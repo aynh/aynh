@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "When captured birds grow wiser, they try to open the cage with their beaks. They don't give up, because they want to fly again."
+> "Taking responsibility for yourself is the first condition for humanity. One who cannot do even that is less than human. Just a dog, Kariya."
 
-&mdash; [**Genma Shiranui**](https://myanimelist.net/character.php?q=Genma%20Shiranui&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Tohsaka Tokiomi**](https://myanimelist.net/character.php?q=Tohsaka%20Tokiomi&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
