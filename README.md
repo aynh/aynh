@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I'm still very very young. I want to go shopping, and I want to eats lots more of all kinds of yummy foods, you know? And of course... Of course... have a wonderful romance too. If I could have something like that, it would be the best. Yeah... That really would be the best."
+> "No matter where I might have met you, I'm sure I'd come to love you."
 
-&mdash; [**Anemone**](https://myanimelist.net/character.php?q=Anemone&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
