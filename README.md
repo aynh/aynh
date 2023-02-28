@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The warmth of another person's flesh is scary. It thaws out the loneliness that you had forgotten about so easily."
+> "I will do what I can, even if my chance of passing is minuscule, if that will allow me to move forward."
 
-&mdash; [**Rokka Shimao**](https://myanimelist.net/character.php?q=Rokka%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
