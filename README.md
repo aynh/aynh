@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Immortality is wasted on the young."
+> "When captured birds grow wiser, they try to open the cage with their beaks. They don't give up, because they want to fly again."
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Genma Shiranui**](https://myanimelist.net/character.php?q=Genma%20Shiranui&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
