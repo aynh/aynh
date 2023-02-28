@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "No matter where I might have met you, I'm sure I'd come to love you."
+> "Immortality is wasted on the young."
 
-&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
