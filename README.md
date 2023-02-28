@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The chosen one? I feel more like the frozen one."
+> "The warmth of another person's flesh is scary. It thaws out the loneliness that you had forgotten about so easily."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Rokka Shimao**](https://myanimelist.net/character.php?q=Rokka%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
