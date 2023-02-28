@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You don't get to choose who you fall for. The heart doesn't always work the way you want it to. You should just follow your feelings honestly. You'll be happier that way."
+> "I'm still very very young. I want to go shopping, and I want to eats lots more of all kinds of yummy foods, you know? And of course... Of course... have a wonderful romance too. If I could have something like that, it would be the best. Yeah... That really would be the best."
 
-&mdash; [**Ayumi Sanda**](https://myanimelist.net/character.php?q=Ayumi%20Sanda&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
+&mdash; [**Anemone**](https://myanimelist.net/character.php?q=Anemone&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
