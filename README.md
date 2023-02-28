@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "*referring to Azula* She can shoot all the lightning she wants at me, I'm not going into that wall sludge juice. [shudders]"
+> "You don't get to choose who you fall for. The heart doesn't always work the way you want it to. You should just follow your feelings honestly. You'll be happier that way."
 
-&mdash; [**Mai**](https://myanimelist.net/character.php?q=Mai&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Ayumi Sanda**](https://myanimelist.net/character.php?q=Ayumi%20Sanda&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
