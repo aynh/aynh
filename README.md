@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Emotion leads one to hate... and hate leads one to conflict and war."
+> "Just how many times must I strain my voice before it will reach you? And yet, nowhere in this world can there be anyone who knows me better than you."
 
-&mdash; [**Shimura Danzo**](https://myanimelist.net/character.php?q=Shimura%20Danzo&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Zangetsu**](https://myanimelist.net/character.php?q=Zangetsu&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
