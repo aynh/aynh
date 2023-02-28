@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "When a person lies, what is important is not the lie itself. No, it is their reason. Their why."
+> "Until just recently, the stars were something I only saw by myself."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
