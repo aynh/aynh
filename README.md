@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I will do what I can, even if my chance of passing is minuscule, if that will allow me to move forward."
+> "Emotion leads one to hate... and hate leads one to conflict and war."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Shimura Danzo**](https://myanimelist.net/character.php?q=Shimura%20Danzo&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
