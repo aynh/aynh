@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It's impossible to work hard for something you don't enjoy."
+> "When one person kills, resentment is born. That resentment makes a person kill again. To sever that vicious cycle--that is the purpose of this sword that cannot kill."
 
-&mdash; [**Keiko Ayano**](https://myanimelist.net/character.php?q=Keiko%20Ayano&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
