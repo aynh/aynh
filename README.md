@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Having everything handed to you on a silver platter doesn't necessarily equate to happiness. There are too many choices that you don't even want..."
+> "There's no such thing as useless effort."
 
-&mdash; [**Takane Saibara**](https://myanimelist.net/character.php?q=Takane%20Saibara&cat=character), [**Takane to Hana**](https://myanimelist.net/search/all?q=Takane%20to%20Hana&cat=all)
+&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
