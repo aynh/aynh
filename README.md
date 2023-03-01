@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Anyone can make a mistake. If you feel bad about it, will that sin disappear?"
+> "A lie yields hope when you realize it's a lie. On the other hand, when you feel that a cruel fact is reality, you fall into despair all the more."
 
-&mdash; [**Akoes**](https://myanimelist.net/character.php?q=Akoes&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
+&mdash; [**Miyazaki Ryuu**](https://myanimelist.net/character.php?q=Miyazaki%20Ryuu&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
