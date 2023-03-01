@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I wanted to be saved too..."
+> "When a dog soils the carpet, its master is responsible."
 
-&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Cruhteo**](https://myanimelist.net/character.php?q=Cruhteo&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
