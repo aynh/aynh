@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If someone starts doing the right thing, the others will follow."
+> "Having everything handed to you on a silver platter doesn't necessarily equate to happiness. There are too many choices that you don't even want..."
 
-&mdash; [**Ronaldo Kuriki**](https://myanimelist.net/character.php?q=Ronaldo%20Kuriki&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Takane Saibara**](https://myanimelist.net/character.php?q=Takane%20Saibara&cat=character), [**Takane to Hana**](https://myanimelist.net/search/all?q=Takane%20to%20Hana&cat=all)
