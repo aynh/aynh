@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "When you love someone, sometimes your head hurts. And it's so agonizing that you want to burst into tears. But even the smallest thing can bring you happiness. It's complicated, but simple. Perhaps all these emotions are irreplaceable and precious."
+> "I wanted to be saved too..."
 
-&mdash; [**Ageha Shiroi**](https://myanimelist.net/character.php?q=Ageha%20Shiroi&cat=character), [**Velvet Blue Rose**](https://myanimelist.net/search/all?q=Velvet%20Blue%20Rose&cat=all)
+&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
