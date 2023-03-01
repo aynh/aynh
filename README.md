@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Friends are a good thing, even if they tread a different path."
+> "Even if there's nothing here today, there might be something tomorrow.  It's a caring heart that's important."
 
-&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
