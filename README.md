@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Even if there's nothing here today, there might be something tomorrow.  It's a caring heart that's important."
+> "Is dying that scary to you?"
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Minato Arisato**](https://myanimelist.net/character.php?q=Minato%20Arisato&cat=character), [**Persona 3 The Movie #1 Spring of Birth**](https://myanimelist.net/search/all?q=Persona%203%20The%20Movie%20%231%20Spring%20of%20Birth&cat=all)
