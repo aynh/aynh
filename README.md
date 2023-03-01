@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Just how many times must I strain my voice before it will reach you? And yet, nowhere in this world can there be anyone who knows me better than you."
+> "Without strength, you won't be able to save anyone."
 
-&mdash; [**Zangetsu**](https://myanimelist.net/character.php?q=Zangetsu&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kizaru**](https://myanimelist.net/character.php?q=Kizaru&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
