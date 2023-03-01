@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Usui, you perverted, outer spaceman human being!"
+> "Sometimes the truth can hurt others more than a lie."
 
-&mdash; [**Misaki Ayuzawa**](https://myanimelist.net/character.php?q=Misaki%20Ayuzawa&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Nonomiya**](https://myanimelist.net/character.php?q=Nonomiya&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
