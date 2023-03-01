@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Is dying that scary to you?"
+> "When you love someone, sometimes your head hurts. And it's so agonizing that you want to burst into tears. But even the smallest thing can bring you happiness. It's complicated, but simple. Perhaps all these emotions are irreplaceable and precious."
 
-&mdash; [**Minato Arisato**](https://myanimelist.net/character.php?q=Minato%20Arisato&cat=character), [**Persona 3 The Movie #1 Spring of Birth**](https://myanimelist.net/search/all?q=Persona%203%20The%20Movie%20%231%20Spring%20of%20Birth&cat=all)
+&mdash; [**Ageha Shiroi**](https://myanimelist.net/character.php?q=Ageha%20Shiroi&cat=character), [**Velvet Blue Rose**](https://myanimelist.net/search/all?q=Velvet%20Blue%20Rose&cat=all)
