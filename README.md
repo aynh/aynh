@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "When one person kills, resentment is born. That resentment makes a person kill again. To sever that vicious cycle--that is the purpose of this sword that cannot kill."
+> "Oh, it IS a chore. Risking your life and keeping busy are all the same!"
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
