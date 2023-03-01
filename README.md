@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Without strength, you won't be able to save anyone."
+> "Friends are a good thing, even if they tread a different path."
 
-&mdash; [**Kizaru**](https://myanimelist.net/character.php?q=Kizaru&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
