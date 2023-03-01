@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "A lie yields hope when you realize it's a lie. On the other hand, when you feel that a cruel fact is reality, you fall into despair all the more."
+> "Any kind of life can go wrong, or sicken or suffer. Lives get old, decay, and finally die. Disliking that fact because it hurts, isn't any different than disliking life itself."
 
-&mdash; [**Miyazaki Ryuu**](https://myanimelist.net/character.php?q=Miyazaki%20Ryuu&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Nyanta**](https://myanimelist.net/character.php?q=Nyanta&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
