@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Any kind of life can go wrong, or sicken or suffer. Lives get old, decay, and finally die. Disliking that fact because it hurts, isn't any different than disliking life itself."
+> "If someone starts doing the right thing, the others will follow."
 
-&mdash; [**Nyanta**](https://myanimelist.net/character.php?q=Nyanta&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Ronaldo Kuriki**](https://myanimelist.net/character.php?q=Ronaldo%20Kuriki&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
