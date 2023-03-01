@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "When a dog soils the carpet, its master is responsible."
+> "It's impossible to work hard for something you don't enjoy."
 
-&mdash; [**Cruhteo**](https://myanimelist.net/character.php?q=Cruhteo&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
+&mdash; [**Keiko Ayano**](https://myanimelist.net/character.php?q=Keiko%20Ayano&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
