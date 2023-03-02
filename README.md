@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I know you play by higher standards, but at least give me credit for the nose."
+> "Living your life sympathizing with others in your everyday life is more powerful, than living your life based on a religious belief or some story."
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Akuto Sai**](https://myanimelist.net/character.php?q=Akuto%20Sai&cat=character), [**Demon King Daimao**](https://myanimelist.net/search/all?q=Demon%20King%20Daimao&cat=all)
