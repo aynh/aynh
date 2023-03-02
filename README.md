@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I'm a terrible person, aren't I? 'If only Kurosaki-kun would cheer up, I'd be happy.' At least, I thought that was how I felt. Then Kuchiki-san came back and cheered Kurosaki-kun up. I should have been really happy, but... but... [starts to cry] but instead I'm jealous of Kuchiki-san!"
+> "Such a shame. I overestimated you. As a vampire, you were just a pathetic piece of shit. And now you're nothing but dog shit!"
 
-&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
