@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "School trips are simply a simulation of adult social life. If you ever go on a business trip with your boss, you won't get to choose where to stay or what to eat, but if you compromise, you can still have a modicum of fun. School trips train you to trick yourself into that kinda mindset."
+> "It's not like people only look for help by saying 'please help me.' In similiar vein, it's not like you're only in love with someone if you say 'I love you.' Everyone has things they can't say on impulse."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Nekomonogatari: Kuro**](https://myanimelist.net/search/all?q=Nekomonogatari%3A%20Kuro&cat=all)
