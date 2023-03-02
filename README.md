@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There's no such thing as useless effort."
+> "Even if I'm an outsider, even if I'm hers for only a moment, I wanted to become someone special to her. Just by being together with me, just for a little while, I wanted her to be happy."
 
-&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Daiki Mamura**](https://myanimelist.net/character.php?q=Daiki%20Mamura&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
