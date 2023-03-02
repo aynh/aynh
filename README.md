@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The human heart will always sway. And only then do we know that it is truly a human heart."
+> "Idiot... There's no win or lose in this, no higher or lower... There is always...only ONE truth."
 
-&mdash; [**Sister Libelle**](https://myanimelist.net/character.php?q=Sister%20Libelle&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
