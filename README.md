@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There are times in life when you have to distance yourself from those you love, because you love them."
+> "School trips are simply a simulation of adult social life. If you ever go on a business trip with your boss, you won't get to choose where to stay or what to eat, but if you compromise, you can still have a modicum of fun. School trips train you to trick yourself into that kinda mindset."
 
-&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
