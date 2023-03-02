@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It's only obvious that the world is a cruel place. If you can't change the world, then you have to change yourself!"
+> "I'm a terrible person, aren't I? 'If only Kurosaki-kun would cheer up, I'd be happy.' At least, I thought that was how I felt. Then Kuchiki-san came back and cheered Kurosaki-kun up. I should have been really happy, but... but... [starts to cry] but instead I'm jealous of Kuchiki-san!"
 
-&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
