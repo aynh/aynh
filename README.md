@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Those who rely on 'someday' will only grow weaker and lowlier."
+> "It seems Saiyans have changed since the last time I saw them. They have become cowardly."
 
-&mdash; [**Shana**](https://myanimelist.net/character.php?q=Shana&cat=character), [**Shakugan no Shana**](https://myanimelist.net/search/all?q=Shakugan%20no%20Shana&cat=all)
+&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
