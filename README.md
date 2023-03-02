@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It's not like people only look for help by saying 'please help me.' In similiar vein, it's not like you're only in love with someone if you say 'I love you.' Everyone has things they can't say on impulse."
+> "It's only obvious that the world is a cruel place. If you can't change the world, then you have to change yourself!"
 
-&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Nekomonogatari: Kuro**](https://myanimelist.net/search/all?q=Nekomonogatari%3A%20Kuro&cat=all)
+&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
