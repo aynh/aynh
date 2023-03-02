@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Nothing can be communicated without words but if you really care about someone, even the smallest details are important to notice."
+> "When you're ten, they call you a prodigy. When you're fifteen, they call you a genius. Once you hit twenty, you're just an ordinary person."
 
-&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Haruka Nanase**](https://myanimelist.net/character.php?q=Haruka%20Nanase&cat=character), [**Free!**](https://myanimelist.net/search/all?q=Free!&cat=all)
