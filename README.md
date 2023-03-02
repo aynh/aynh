@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I must spill yet more blood, so the blood already split will not be in vain."
+> "Then, if he accepts who you are, it doesn't matter if you're perfect for him or not. Rather, he may prefer you just the way you are now."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Tanaka**](https://myanimelist.net/character.php?q=Tanaka&cat=character), [**Tanaka-kun wa Itsumo Kedaruge**](https://myanimelist.net/search/all?q=Tanaka-kun%20wa%20Itsumo%20Kedaruge&cat=all)
