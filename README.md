@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Idiot... There's no win or lose in this, no higher or lower... There is always...only ONE truth."
+> "I must spill yet more blood, so the blood already split will not be in vain."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
