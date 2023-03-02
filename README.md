@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you have a wish, don't go back to the past and redo everything. If you want to change yourself, don't change the past, but change who you are now!"
+> "As it turns out, living was a punishment."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Himari Takakura**](https://myanimelist.net/character.php?q=Himari%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
