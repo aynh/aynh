@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Living your life sympathizing with others in your everyday life is more powerful, than living your life based on a religious belief or some story."
+> "The human heart will always sway. And only then do we know that it is truly a human heart."
 
-&mdash; [**Akuto Sai**](https://myanimelist.net/character.php?q=Akuto%20Sai&cat=character), [**Demon King Daimao**](https://myanimelist.net/search/all?q=Demon%20King%20Daimao&cat=all)
+&mdash; [**Sister Libelle**](https://myanimelist.net/character.php?q=Sister%20Libelle&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
