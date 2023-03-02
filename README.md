@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It seems Saiyans have changed since the last time I saw them. They have become cowardly."
+> "If the dark sky is me, then the sparkling stars are Tsubaki."
 
-&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
