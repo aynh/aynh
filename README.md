@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If the dark sky is me, then the sparkling stars are Tsubaki."
+> "Nothing can be communicated without words but if you really care about someone, even the smallest details are important to notice."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
