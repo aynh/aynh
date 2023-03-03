@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If there's something you want to go through with, you should stick to it without keeping up appearances."
+> "Hey, Tsubaki, come out of there already. You haven't lost to him, have you? You can put on a better show than that, come back out on stage. Encore, encore. Tsubaki encore, give us an encore!"
 
-&mdash; [**Arato Hisako**](https://myanimelist.net/character.php?q=Arato%20Hisako&cat=character), [**Shokugeki no Sōma**](https://myanimelist.net/search/all?q=Shokugeki%20no%20S%C5%8Dma&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
