@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Love is not necessary, power is the only true necessity."
+> "Whatever I do, I'll always be me. I won't tone myself down to fit in."
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
