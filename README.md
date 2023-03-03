@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "*about Grevil* He's the owner of the oddest hair in all of Sauville."
+> "There is something mysterious about the life of a pirate."
 
-&mdash; [**Victorique de Blois**](https://myanimelist.net/character.php?q=Victorique%20de%20Blois&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
