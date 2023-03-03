@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Stand back? [To Kira after Gin asked him to stand back] No, Kira...Run. Run until you're out of my sight, and keep running. Otherwise...I can't guarantee you won't get dragged into this and be killed."
+> "I don't have anything anymore, but if there's something on the floor, I'll pick it up."
 
-&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
