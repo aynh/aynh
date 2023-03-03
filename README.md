@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Why shouldn't you quit, if that's what you really want to do? Everything will work out somehow."
+> "There is only one person who you can each truly love. It’s too bad that you can’t change who that person is. If you could, the you both would be a lot happier."
 
-&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Juri Arisugawa**](https://myanimelist.net/character.php?q=Juri%20Arisugawa&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
