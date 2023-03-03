@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "But there are no coincidences in this world. There is only Hitsuzen. You were destined to meet each other."
+> "For everything you wish, you have to pay an equal price in return. You can't get more or give more. You can't get less or give less. It must be in balance, or else there will be chaos."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
