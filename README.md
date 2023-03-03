@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "For everything you wish, you have to pay an equal price in return. You can't get more or give more. You can't get less or give less. It must be in balance, or else there will be chaos."
+> "If we only focus on making the best moves, we will never get the better of our opponent. When necessary, we must be willing to take big risks, and be prepared to lose everything. Unless we change how we fight, we cannot win."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Erwin Smith**](https://myanimelist.net/character.php?q=Erwin%20Smith&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
