@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There is only one person who you can each truly love. It’s too bad that you can’t change who that person is. If you could, the you both would be a lot happier."
+> "This eternally cursed power. This extremely disgusting existence! May this wretched body help me protect the things most important to me now! This is the only power that makes atonement for my sins possible! Ashes to Ashes, Dust to Dust, Earth to Earth! Amen!"
 
-&mdash; [**Juri Arisugawa**](https://myanimelist.net/character.php?q=Juri%20Arisugawa&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
+&mdash; [**Abel Nightroad**](https://myanimelist.net/character.php?q=Abel%20Nightroad&cat=character), [**Trinity Blood**](https://myanimelist.net/search/all?q=Trinity%20Blood&cat=all)
