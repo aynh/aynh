@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "This eternally cursed power. This extremely disgusting existence! May this wretched body help me protect the things most important to me now! This is the only power that makes atonement for my sins possible! Ashes to Ashes, Dust to Dust, Earth to Earth! Amen!"
+> "A suicide means you've killed the most important existence of all: yourself."
 
-&mdash; [**Abel Nightroad**](https://myanimelist.net/character.php?q=Abel%20Nightroad&cat=character), [**Trinity Blood**](https://myanimelist.net/search/all?q=Trinity%20Blood&cat=all)
+&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
