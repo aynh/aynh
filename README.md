@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If we only focus on making the best moves, we will never get the better of our opponent. When necessary, we must be willing to take big risks, and be prepared to lose everything. Unless we change how we fight, we cannot win."
+> "As time goes by without anyone eating it, it starts getting dry and looking anything but appetizing, and no one's willing to make a move, but when the busboy takes it you go 'wait, we're not done with that yet.' kinda on reflex. But then you end up leaving without eating it."
 
-&mdash; [**Erwin Smith**](https://myanimelist.net/character.php?q=Erwin%20Smith&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Konata Izumi**](https://myanimelist.net/character.php?q=Konata%20Izumi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
