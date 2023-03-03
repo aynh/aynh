@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The probability of success was zero percent. But I've learned that probabilities are meaningless when it comes to you guys."
+> "Love is not necessary, power is the only true necessity."
 
-&mdash; [**Lordgenome**](https://myanimelist.net/character.php?q=Lordgenome&cat=character), [**Tengen Toppa Gurren Laggan**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Laggan&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
