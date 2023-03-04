@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Konoha's Uchiha clan and the Mist's Seven Shinobi-gatana seem petty before his name."
+> "Kindness can bring you even bigger troubles."
 
-&mdash; [**Kisame Hoshigaki**](https://myanimelist.net/character.php?q=Kisame%20Hoshigaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
