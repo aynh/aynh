@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Some people want power and they get mad when they don't get it. They take their fury out on everyone else. You don't want it, it becomes you."
+> "Fear is what creates order."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
