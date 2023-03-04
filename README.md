@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I believe you have the potential to bloom into something even more beautiful than the cosmos."
+> "Those who do well, respect their chances. Those who pass on chances, may never be presented with that chance again."
 
-&mdash; [**Ino Yamanaka**](https://myanimelist.net/character.php?q=Ino%20Yamanaka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
