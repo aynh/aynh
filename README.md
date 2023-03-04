@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Hurting people won't help you regain your pride!"
+> "Konoha's Uchiha clan and the Mist's Seven Shinobi-gatana seem petty before his name."
 
-&mdash; [**Tsunayoshi Sawada**](https://myanimelist.net/character.php?q=Tsunayoshi%20Sawada&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Kisame Hoshigaki**](https://myanimelist.net/character.php?q=Kisame%20Hoshigaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
