@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Kindness can bring you even bigger troubles."
+> "Some people want power and they get mad when they don't get it. They take their fury out on everyone else. You don't want it, it becomes you."
 
-&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
