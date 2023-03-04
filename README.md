@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "'Selection' is important. Even in life. Living, dying, killing are all the results from your selection. Bad luck? Poor fortune? Poor judges of character? You're wrong. It's a selection error for not thinking thoroughly and choosing the answer without proper consideration."
+> "If your face gets any closer, someone who isn't supposed to be in this scene is going to come over there and kick your ass!"
 
-&mdash; [**Blue Owl**](https://myanimelist.net/character.php?q=Blue%20Owl&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
