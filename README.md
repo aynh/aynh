@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Red is supposed to be the color of fate, right? Even if its annoying right now, it might connect to something good when you least expect it."
+> "An oasis for my withered heart in this harsh reality."
 
-&mdash; [**Zen Wistalia**](https://myanimelist.net/character.php?q=Zen%20Wistalia&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
+&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
