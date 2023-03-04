@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "People can say there is a balance, a logic that everything happens for a reason... But the truth is far less designed. No matter how hard you work, when you die, you die. Some spend their entire life trying to scratch their way to the top, and still die in poverty. While others are born into wealth without ever working at all. It's a cruel and random world. And yet the chaos is all so beautiful."
+> "You don't dress stylishly or put on makeup to impress guys. You do it to keep other girls in their place."
 
-&mdash; [**Dante (Fullmetal Alchemist)**](https://myanimelist.net/character.php?q=Dante%20(Fullmetal%20Alchemist)&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Rika Yoshitake**](https://myanimelist.net/character.php?q=Rika%20Yoshitake&cat=character), [**Genshiken: Second Generation**](https://myanimelist.net/search/all?q=Genshiken%3A%20Second%20Generation&cat=all)
