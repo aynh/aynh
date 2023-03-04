@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "All these things you guys seek....hard work, guts, faith....I'll crush them all."
+> "I believe you have the potential to bloom into something even more beautiful than the cosmos."
 
-&mdash; [**Atsushi Murasakibara**](https://myanimelist.net/character.php?q=Atsushi%20Murasakibara&cat=character), [**Kuroko's Basketball**](https://myanimelist.net/search/all?q=Kuroko's%20Basketball&cat=all)
+&mdash; [**Ino Yamanaka**](https://myanimelist.net/character.php?q=Ino%20Yamanaka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
