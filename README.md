@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Romance is just trying to convey your feelings to another person."
+> "Like God, you mean? That might be pleasurable in its own way, but unfortunately I'm not into being an umpire or a referee, as I can't genuinely enjoy the game unless I'm part of it. And I love this game that people call 'life' from the bottom of my heart. That's why I'd like to continue to participate in it as a player, forever and ever."
 
-&mdash; [**Tadashi Isogai**](https://myanimelist.net/character.php?q=Tadashi%20Isogai&cat=character), [**Living for the Day After Tomorrow**](https://myanimelist.net/search/all?q=Living%20for%20the%20Day%20After%20Tomorrow&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
