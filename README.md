@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Fear is what creates order."
+> "'Selection' is important. Even in life. Living, dying, killing are all the results from your selection. Bad luck? Poor fortune? Poor judges of character? You're wrong. It's a selection error for not thinking thoroughly and choosing the answer without proper consideration."
 
-&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Blue Owl**](https://myanimelist.net/character.php?q=Blue%20Owl&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
