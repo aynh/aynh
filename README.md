@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Like God, you mean? That might be pleasurable in its own way, but unfortunately I'm not into being an umpire or a referee, as I can't genuinely enjoy the game unless I'm part of it. And I love this game that people call 'life' from the bottom of my heart. That's why I'd like to continue to participate in it as a player, forever and ever."
+> "No matter what you're doing, the most essential thing is to not give up. Fail as many times as it takes. Keep trying persistantly untill you can call yourself 'avarage'. If you can collect a nice group of avarage-level skills, that's already above-avarage. You've created your own sort of 'talent'."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
