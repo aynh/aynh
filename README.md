@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Only two kinds of people exist in this world, those who steal and those who are stolen from."
+> "If you hurt somebody... or if somebody hurts you, the same red blood will be shed"
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
