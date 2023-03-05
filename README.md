@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You may not always see the light at the end of the tunnel, but if you keep moving, you will come to a better place."
+> "The past makes you wanna die out of regret and future makes you depressed out of anxiety. So by elimination, the present is likely the happiest time."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
