@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Appearances rarely share the whole truth."
+> "There’s no such thing as a person who doesn’t belong. You’re here because there’s someone who wants you to be here."
 
-&mdash; [**Pride**](https://myanimelist.net/character.php?q=Pride&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Seki Kenji**](https://myanimelist.net/character.php?q=Seki%20Kenji&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
