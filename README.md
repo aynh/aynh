@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Memories of someone who’s passed away remains beautiful forever and a person’s heart will linger over them, they say."
+> "If someone always follows the perfect path without ever facing hardship... Is it really what's best for that person?"
 
-&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Yoake Ryou**](https://myanimelist.net/character.php?q=Yoake%20Ryou&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
