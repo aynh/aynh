@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "To realize a mistake. To not lie. To love one another. To not kill. Those are very simple things, but these times won't allow for them. There is no green on this planet, even though we want it... though we want it so badly. A place where we can live peaceful days with no wars nor stealing. A sacred place where people can live as people. Yes there, that place is called Paradise."
+> "There are reasons each of us are born. We have to find those reasons."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
