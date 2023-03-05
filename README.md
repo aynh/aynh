@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It doesn't matter what you were like before. Nobody cares."
+> "To realize a mistake. To not lie. To love one another. To not kill. Those are very simple things, but these times won't allow for them. There is no green on this planet, even though we want it... though we want it so badly. A place where we can live peaceful days with no wars nor stealing. A sacred place where people can live as people. Yes there, that place is called Paradise."
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
