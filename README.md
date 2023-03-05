@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If someone always follows the perfect path without ever facing hardship... Is it really what's best for that person?"
+> "The heart may be weak and sometimes it may even give in, but I've learned that deep down, there's a light that never goes out!"
 
-&mdash; [**Yoake Ryou**](https://myanimelist.net/character.php?q=Yoake%20Ryou&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**Kingdom Hearts**](https://myanimelist.net/search/all?q=Kingdom%20Hearts&cat=all)
