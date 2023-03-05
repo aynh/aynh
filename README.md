@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Instead of judging others based on rumors and gossip articles, I must look and feel for myself. You cannot know anyone without coming face-to-face with them."
+> "A path not chosen is the same as a path that never existed."
 
-&mdash; [**Haine Wittgenstein**](https://myanimelist.net/character.php?q=Haine%20Wittgenstein&cat=character), [**Oushitsu Kyoushi Haine**](https://myanimelist.net/search/all?q=Oushitsu%20Kyoushi%20Haine&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
