@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "A path not chosen is the same as a path that never existed."
+> "You don't have any power or technique like Jack Johnson or Jack Dempsey either! You know any boxer names? You know I'm right? If you're an American, of course you know! If you say you don't know, or something, I won't forgive you! I will never forgive you! And even if you know them, I still won't forgive you, though!"
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Ladd Russo**](https://myanimelist.net/character.php?q=Ladd%20Russo&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
