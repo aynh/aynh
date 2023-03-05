@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The past makes you wanna die out of regret and future makes you depressed out of anxiety. So by elimination, the present is likely the happiest time."
+> "If you endure too much, it'll be your loss."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Naruse Kakeru**](https://myanimelist.net/character.php?q=Naruse%20Kakeru&cat=character), [**Orange**](https://myanimelist.net/search/all?q=Orange&cat=all)
