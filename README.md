@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you endure too much, it'll be your loss."
+> "Hard work is worthless for those that don't believe in themselves."
 
-&mdash; [**Naruse Kakeru**](https://myanimelist.net/character.php?q=Naruse%20Kakeru&cat=character), [**Orange**](https://myanimelist.net/search/all?q=Orange&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
