@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There's no reason a fake can't do what the real thing would. And it's possible for a fake to be more real than the real thing."
+> "Do you think it's possible to send Flame Alchemy through the phone and burn someones ears off?"
 
-&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
