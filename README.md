@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "When the hunger seemed to kill me, I was wondering if the world hates me. I can't explain it, but I still love the world."
+> "Do you really intend to lose even more of your friends for something like that? I'll pass on that. As long as I'm alive, I'll live by my own rules. I'll live as I see fit and protect that which I hold dear."
 
-&mdash; [**Johnathan Mar**](https://myanimelist.net/character.php?q=Johnathan%20Mar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
