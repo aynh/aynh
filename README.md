@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You know the first rule in combat? [Empties sub-machine gun through closed door] ... shoot them before they shoot you."
+> "I just told you what I think, now say something DAMMIT!"
 
-&mdash; [**Faye Valentine**](https://myanimelist.net/character.php?q=Faye%20Valentine&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
