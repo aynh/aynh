@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There’s no such thing as a person who doesn’t belong. You’re here because there’s someone who wants you to be here."
+> "Man seeks peace, yet at the same time yearning for war... Those are the two realms belonging solely to man. Thinking of peace whilst spilling blood is something that only humans could do. They're two sides of the same coin... to protect something... another must be sacrificed."
 
-&mdash; [**Seki Kenji**](https://myanimelist.net/character.php?q=Seki%20Kenji&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
