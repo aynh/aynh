@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I just told you what I think, now say something DAMMIT!"
+> "When the hunger seemed to kill me, I was wondering if the world hates me. I can't explain it, but I still love the world."
 
-&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Johnathan Mar**](https://myanimelist.net/character.php?q=Johnathan%20Mar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
