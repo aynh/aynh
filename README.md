@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "People who perish in other’s battles are worms… If one can’t live their life the way they want, they might as well die."
+> "You may come to a standstill or get irritated because things don't work out the way you want them to, but what you gain from hard work will never betray you."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Tooru Miyagishi**](https://myanimelist.net/character.php?q=Tooru%20Miyagishi&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
