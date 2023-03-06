@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Even though there's such a thing as an impossible game, there's no such thing as an impossible reality."
+> "People who perish in other’s battles are worms… If one can’t live their life the way they want, they might as well die."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
