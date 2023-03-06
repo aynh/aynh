@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "*points at Black Star* What is that? Some kind of monkey? Yeah...it must be a monkey."
+> "Human nature denies the past in order to justify the present. But do you believe there is anything in the present worth justifying?"
 
-&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Boogiepop**](https://myanimelist.net/character.php?q=Boogiepop&cat=character), [**Boogiepop Phantom**](https://myanimelist.net/search/all?q=Boogiepop%20Phantom&cat=all)
