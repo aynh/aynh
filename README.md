@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There are many different ways to solve a problem. But once it's solved, we must live our lives. Which means we should choose not the simplest solution, but the one that will allow us to feel the most at peace once it's done."
+> "People are capable of creating another part of themselves inside themselves at any time. A part that they can truly like."
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Ushiromiya Jessica**](https://myanimelist.net/character.php?q=Ushiromiya%20Jessica&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
