@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You may come to a standstill or get irritated because things don't work out the way you want them to, but what you gain from hard work will never betray you."
+> "I don't like men with glasses."
 
-&mdash; [**Tooru Miyagishi**](https://myanimelist.net/character.php?q=Tooru%20Miyagishi&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
