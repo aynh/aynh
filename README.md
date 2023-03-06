@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The weaker person is the more he gets hung up on other people's pain and then he self-destructs"
+> "Even though there's such a thing as an impossible game, there's no such thing as an impossible reality."
 
-&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
