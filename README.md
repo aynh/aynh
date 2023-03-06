@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Do you really intend to lose even more of your friends for something like that? I'll pass on that. As long as I'm alive, I'll live by my own rules. I'll live as I see fit and protect that which I hold dear."
+> "There are many different ways to solve a problem. But once it's solved, we must live our lives. Which means we should choose not the simplest solution, but the one that will allow us to feel the most at peace once it's done."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
