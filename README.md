@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "No matter how dark things may get, the special bond I share with my friends will always find a way to shine through! I may be scared, but that fear won't keep me from dueling!"
+> "So sorry you caught me on such a bad day, it makes me a real jerk!"
 
-&mdash; [**Tea Gardner**](https://myanimelist.net/character.php?q=Tea%20Gardner&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
