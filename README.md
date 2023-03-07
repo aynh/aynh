@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Don't try to find a reason for somebody's love!!"
+> "No matter how dark things may get, the special bond I share with my friends will always find a way to shine through! I may be scared, but that fear won't keep me from dueling!"
 
-&mdash; [**Sengoku the Buddha**](https://myanimelist.net/character.php?q=Sengoku%20the%20Buddha&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Tea Gardner**](https://myanimelist.net/character.php?q=Tea%20Gardner&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
