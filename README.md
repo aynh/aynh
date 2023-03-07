@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You've only seen one of my dances."
+> "Childish ideals pale when placed before reality."
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Citan Uzuki**](https://myanimelist.net/character.php?q=Citan%20Uzuki&cat=character), [**Xenogears**](https://myanimelist.net/search/all?q=Xenogears&cat=all)
