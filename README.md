@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "So sorry you caught me on such a bad day, it makes me a real jerk!"
+> "People can run from the things they don't like all they want. But if they're just averting their eyes, they're not running. As long as you think the current situation is okay, no one can help."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Mother Araragi**](https://myanimelist.net/character.php?q=Mother%20Araragi&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
