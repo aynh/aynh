@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "People can run from the things they don't like all they want. But if they're just averting their eyes, they're not running. As long as you think the current situation is okay, no one can help."
+> "Please stop adding to my misery. (to Ayame)"
 
-&mdash; [**Mother Araragi**](https://myanimelist.net/character.php?q=Mother%20Araragi&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
