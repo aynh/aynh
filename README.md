@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "*to Araragi* A creature like you having a brain residing in his skull...is already a miracle in and of itself."
+> "It makes you sad when someone suddenly just up and disappears without a word. If you're just going to end up hurt in the end, you're better off not forming any bonds at all."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Yozora Mikazuki**](https://myanimelist.net/character.php?q=Yozora%20Mikazuki&cat=character), [**Boku wa Tomodachi ga Sukunai**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai&cat=all)
