@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "No need to be afraid of the end, because this world is infinite!"
+> "That's right! I admired his desire to save people because it was beautiful! But none of that feeling is my own! What else can you call it but hypocrisy?! I was driven by my obsessive need to help someone. I kept running, neither noticing the pain nor how wrong I was! But it's all a fake. Such hypocrisy can not save anything. No, first of all, I didn't even know what I wanted to save!"
 
-&mdash; [**Kuroyukihime**](https://myanimelist.net/character.php?q=Kuroyukihime&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
