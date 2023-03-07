@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Please stop adding to my misery. (to Ayame)"
+> "No need to be afraid of the end, because this world is infinite!"
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kuroyukihime**](https://myanimelist.net/character.php?q=Kuroyukihime&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
