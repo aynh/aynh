@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "History is not merely a linear collection of points that we pass through on a timeline. They are connected by a line. No, perhaps it is more accurate to say that they are made to connect."
+> "No matter how painful, no matter how much solitary struggle awaits us, because we have joyous moments like this, we can face the challenges over and over again."
 
-&mdash; [**Serial Experiments Lain**](https://myanimelist.net/character.php?q=Serial%20Experiments%20Lain&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
+&mdash; [**Chiaki Shinichi**](https://myanimelist.net/character.php?q=Chiaki%20Shinichi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
