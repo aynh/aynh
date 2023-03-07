@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I could kill you, but I wont become like you, who uses power for his own egoism."
+> "I'mma... I'm not very good at talking with girls. They make me nervous."
 
-&mdash; [**Toki Fujiwara**](https://myanimelist.net/character.php?q=Toki%20Fujiwara&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
