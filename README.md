@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "No matter how painful, no matter how much solitary struggle awaits us, because we have joyous moments like this, we can face the challenges over and over again."
+> "If it's this world behind the eyelids, anybody can become the person I imagine them to be."
 
-&mdash; [**Chiaki Shinichi**](https://myanimelist.net/character.php?q=Chiaki%20Shinichi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
+&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
