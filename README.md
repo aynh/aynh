@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Childish ideals pale when placed before reality."
+> "It would be cruelest to keep your hopes up when I already know the answer."
 
-&mdash; [**Citan Uzuki**](https://myanimelist.net/character.php?q=Citan%20Uzuki&cat=character), [**Xenogears**](https://myanimelist.net/search/all?q=Xenogears&cat=all)
+&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
