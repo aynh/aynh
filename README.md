@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You only need a strong will and a clear purpose."
+> "Don't try to find a reason for somebody's love!!"
 
-&mdash; [**Kureo Mado**](https://myanimelist.net/character.php?q=Kureo%20Mado&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Sengoku the Buddha**](https://myanimelist.net/character.php?q=Sengoku%20the%20Buddha&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
