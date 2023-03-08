@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "My mother told me something long ago. She said “The world belongs to you just as much as you belong to the world”. For you were born and that gives you the right to exist."
+> "If you are still determined to take your own life, please do so outside... *To Grell*"
 
-&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
