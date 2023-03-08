@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you let the fly live, the spider is going to die. You can't save both without one suffering."
+> "Perhaps the distant part of the sky always seems clearest, so that we will always strive to reach it."
 
-&mdash; [**Millions Knives**](https://myanimelist.net/character.php?q=Millions%20Knives&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
