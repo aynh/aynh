@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You probably do lose a lot, but that just means you need to fill what you lost with new things."
+> "'Control'... you say? When you stand before me... that word holds no meaning. Bankai. Senbonzakura Kageyoshi."
 
-&mdash; [**Tsumugu Kihara**](https://myanimelist.net/character.php?q=Tsumugu%20Kihara&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
