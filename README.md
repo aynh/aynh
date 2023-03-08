@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I'mma... I'm not very good at talking with girls. They make me nervous."
+> "There were a lot of people who were kind to begin with. No, they were probably good people but, I don't want to see the disappointment in their eyes anymore. I don't really want to meet kind of people anymore."
 
-&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Natsume Takeshi**](https://myanimelist.net/character.php?q=Natsume%20Takeshi&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
