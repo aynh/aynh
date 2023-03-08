@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you are still determined to take your own life, please do so outside... *To Grell*"
+> "Are you selling soup or donkey piss?"
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Jigo**](https://myanimelist.net/character.php?q=Jigo&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
