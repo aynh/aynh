@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Are you telling me to exploit an opening for the likes of you? Do not speak out of your league, boy."
+> "Noooo, there's no way I, a mere handsome and sexy shopkeeper, could possibly have bankai!"
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
