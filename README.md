@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Hmm... Itachi... it would be annoying if he moved around a lot. Perhaps we should cut off a leg or two?"
+> "Atone for my sins? [...] I have no sins to atone for, nor have I forced such a meaningless concept on anyone."
 
-&mdash; [**Kisame Hoshigaki**](https://myanimelist.net/character.php?q=Kisame%20Hoshigaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
