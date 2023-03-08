@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If it's a wish that can be fulfilled, then fulfill it. If there's hesitation and worries, then remove the sources of worries altogether."
+> "We humans are miserable creatures. We reject what we fear. We attack because we don' t understand. Human cowardice... breeds war."
 
-&mdash; [**Yoite**](https://myanimelist.net/character.php?q=Yoite&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Biba Amatori**](https://myanimelist.net/character.php?q=Biba%20Amatori&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
