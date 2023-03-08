@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Simple yet mysterious. Distant ancestors unlike any plant or animal we've ever seen. These groups of odd creatures have induced whispers of fear among man since ancient times."
+> "My mother told me something long ago. She said “The world belongs to you just as much as you belong to the world”. For you were born and that gives you the right to exist."
 
-&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
