@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "(after Goku moves a huge boulder all by himself) Krillin wants everybody to know he's speechless right now."
+> "So what if I'd spare him? In my mind it's the certainty in myself that I possess which allows me to have that kind of mercy or compassion. There's no wavering on that point. It's fixed like the stars. The fact is I'm never gonna be killed! So remember this: mercy and compassion are virtues that only the strong are privileged to possess. And I am strong."
 
-&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Claire Stanfield**](https://myanimelist.net/character.php?q=Claire%20Stanfield&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
