@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Atone for my sins? [...] I have no sins to atone for, nor have I forced such a meaningless concept on anyone."
+> "You probably do lose a lot, but that just means you need to fill what you lost with new things."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Tsumugu Kihara**](https://myanimelist.net/character.php?q=Tsumugu%20Kihara&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
