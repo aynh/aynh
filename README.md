@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Even if we don't understand each other, that's not a reason to reject each other. There are two sides to any argument. Is there one point of view that has all the anwers? Give it some thought."
+> "I never rely on luck. It's all my own choice. It leads me to the future."
 
-&mdash; [**Alder**](https://myanimelist.net/character.php?q=Alder&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Kagura Mikazuchi**](https://myanimelist.net/character.php?q=Kagura%20Mikazuchi&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
