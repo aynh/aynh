@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Are you ready now to witness a power not seen for thousands of years?"
+> "Alcohol is humanity's friend. How can I abandon a friend?"
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
