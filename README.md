@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Someone told me this: 'Nothing is 'forever' in human relationships'. That might be true, but it sounds awfully lonely. But I realized today... If there really is no such thing as 'forever'... Then having someone important is the happiest thing one can attain in life."
+> "What we need now is not the diary of the past, but instead the calendar of the future."
 
-&mdash; [**Yukino Miyashita**](https://myanimelist.net/character.php?q=Yukino%20Miyashita&cat=character), [**Octave**](https://myanimelist.net/search/all?q=Octave&cat=all)
+&mdash; [**Dusty Attenborough**](https://myanimelist.net/character.php?q=Dusty%20Attenborough&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
