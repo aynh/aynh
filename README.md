@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It's something that appear on the chests of illegal contractees."
+> "A choice isn't something someone gives you, it's something you make for yourself."
 
-&mdash; [**Gilbert Nightray**](https://myanimelist.net/character.php?q=Gilbert%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Papillon**](https://myanimelist.net/character.php?q=Papillon&cat=character), [**Busou Renkin**](https://myanimelist.net/search/all?q=Busou%20Renkin&cat=all)
