@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "[To Kyo] Being away from everyone else may be lonely, but being away from you will be even lonelier."
+> "Even if we don't understand each other, that's not a reason to reject each other. There are two sides to any argument. Is there one point of view that has all the anwers? Give it some thought."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Alder**](https://myanimelist.net/character.php?q=Alder&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
