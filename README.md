@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Ayuzawa, you are the first person ever to appear in my life and able to make me a mess."
+> "Ask of me, and I shall give thee the heathen for thine inheritance, and for thy possession, the ends of the earth. Thou shalt break them with a rod of iron. Thou shalt dash them in pieces, like a potters vessel. Be wise now, therefore ye kings. Be admonished ye judges of the earth. Serve the lord with fear, and rejoice with trembling. Kiss the son lest he be angry, and ye perish in the way, though his wrath be kindled but a little."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
