@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Please, let that iron guard down for a minute. It's only hurting you. I know when you've hit rock bottom, people trying to cheer you up can be really annoying. 'What would you know?' 'Just leave me alone.' But what if someone you're pushing away is really worried about you? That'd be a shame."
+> "....Would you consider dying together 'Teamwork' as well?"
 
-&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
