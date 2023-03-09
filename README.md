@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Chastity and grace - traditional virtues that have been lost. They comprise the educational ideology of Ousou Academy. They're priorities that are not valued in boys, only in girls. After having them instilled in us, we're shipped out as brand-name product, refined, sheltered maidens, and purchased by men who seek a classic piece of furniture called 'a good wife and mother' in a formality known as marriage. Students in this school are all components that will be processed into an artwork called 'the lady'. They are rough stones waiting to be polished and finished up. They live sad and boring lives, even though there are many other possible ways they could bloom."
+> "Ayuzawa, you are the first person ever to appear in my life and able to make me a mess."
 
-&mdash; [**Oryou Rikako**](https://myanimelist.net/character.php?q=Oryou%20Rikako&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
