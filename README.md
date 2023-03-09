@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I never rely on luck. It's all my own choice. It leads me to the future."
+> "Someone told me this: 'Nothing is 'forever' in human relationships'. That might be true, but it sounds awfully lonely. But I realized today... If there really is no such thing as 'forever'... Then having someone important is the happiest thing one can attain in life."
 
-&mdash; [**Kagura Mikazuchi**](https://myanimelist.net/character.php?q=Kagura%20Mikazuchi&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Yukino Miyashita**](https://myanimelist.net/character.php?q=Yukino%20Miyashita&cat=character), [**Octave**](https://myanimelist.net/search/all?q=Octave&cat=all)
