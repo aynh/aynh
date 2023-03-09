@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If I don't have to do it, I won't. If I have to do it, I'll make it quick."
+> "[To Kyo] Being away from everyone else may be lonely, but being away from you will be even lonelier."
 
-&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
