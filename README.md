@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "A choice isn't something someone gives you, it's something you make for yourself."
+> "Are you ready now to witness a power not seen for thousands of years?"
 
-&mdash; [**Papillon**](https://myanimelist.net/character.php?q=Papillon&cat=character), [**Busou Renkin**](https://myanimelist.net/search/all?q=Busou%20Renkin&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
