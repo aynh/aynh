@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I hate waiting, but if waiting means being able to be with you I'll wait for as long as forever."
+> "Trusting someone...means relying on them and only the weak do that."
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
