@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "What we need now is not the diary of the past, but instead the calendar of the future."
+> "I dunno, getting rid of stuff that doesn't even exist... it's basically just counselling, isn't it?"
 
-&mdash; [**Dusty Attenborough**](https://myanimelist.net/character.php?q=Dusty%20Attenborough&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
