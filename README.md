@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If there are no heroes, become one yourself."
+> "O anger, turn to heat, dry up my brains! This mad thirst for vengeance must be quenched… no matter how cruel and merciless I must become!"
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
