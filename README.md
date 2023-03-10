@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You don't need a driver's license to hit and run!"
+> "Of course, every soldier is prepared to die. But these people aren't just pawns on a chessboard. They all have names, families and feelings in their hearts too. They are all humans who live and bleed. You have the responsibility to ensure their death will not be in vain. No matter what may come, remember this in your naive heart, and be ready to die to fulfill that duty."
 
-&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Rico Brzenska**](https://myanimelist.net/character.php?q=Rico%20Brzenska&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
