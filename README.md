@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I am a supporting actor, a shadow. But a shadow will become darker if the light is stronger and it will make the white of the light stand out. As the shadow of the main actor, I will make you, the light, the number one in Japan."
+> "*To Kaoru* Even if I searched the world over, no one could compare to you."
 
-&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
