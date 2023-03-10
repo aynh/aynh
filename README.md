@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The only ones that can miss a kick draw match are those who have enough courage to kick it."
+> "We evolve beyond the person we were a minute before. Little by little, we advance a bit further with each turn."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Simon**](https://myanimelist.net/character.php?q=Simon&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
