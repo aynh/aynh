@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "We evolve beyond the person we were a minute before. Little by little, we advance a bit further with each turn."
+> "I know, someone like me can't just go out and change the world on a whim."
 
-&mdash; [**Simon**](https://myanimelist.net/character.php?q=Simon&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
+&mdash; [**Akatsuki Kojou**](https://myanimelist.net/character.php?q=Akatsuki%20Kojou&cat=character), [**Strike the Blood**](https://myanimelist.net/search/all?q=Strike%20the%20Blood&cat=all)
