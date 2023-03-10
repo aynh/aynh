@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "They come without asking, and then they leave just the same. But once you meet them, even if nobody ever knows it, that encounter will change your life for the better."
+> "If you can't see what's important, then it's because you're too ashamed to open your eyes."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
