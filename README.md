@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you see a girl lookin' unhappy, be a man and help her."
+> "Once drowned in the depths of darkness, you lose sight of light. When that light has dispersed there is no return. My light has died out long ago and so there's nothing back for me to go back, or look forward to I shall continue to indulge myself in this darkness until it completely consumes me, then I will be nothing but an empty course left on this cold & cruel world to rot."
 
-&mdash; [**Wave**](https://myanimelist.net/character.php?q=Wave&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Alois Trancy**](https://myanimelist.net/character.php?q=Alois%20Trancy&cat=character), [**Black Butler II**](https://myanimelist.net/search/all?q=Black%20Butler%20II&cat=all)
