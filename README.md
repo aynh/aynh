@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "It's not that you don't know how to interact with people. It's just that no one ever came to interact with you."
+> "You don't need a driver's license to hit and run!"
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
