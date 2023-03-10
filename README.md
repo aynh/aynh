@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Is it painful to be the person who waits? Or is it more painful to be the person who makes others wait? Either way, there's no need to wait anymore. That's what is most painful."
+> "You clearly have nerves of steel. But, I'd say you still have much to learn about the world."
 
-&mdash; [**Takada**](https://myanimelist.net/character.php?q=Takada&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
+&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
