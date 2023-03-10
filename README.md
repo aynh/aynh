@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I know, someone like me can't just go out and change the world on a whim."
+> "If you see a girl lookin' unhappy, be a man and help her."
 
-&mdash; [**Akatsuki Kojou**](https://myanimelist.net/character.php?q=Akatsuki%20Kojou&cat=character), [**Strike the Blood**](https://myanimelist.net/search/all?q=Strike%20the%20Blood&cat=all)
+&mdash; [**Wave**](https://myanimelist.net/character.php?q=Wave&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
