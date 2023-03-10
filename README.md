@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "True destiny cannot be changed. The reason is actually quite simple. True destiny isn't granted - it is earned."
+> "I know everyone has their stories of pain and sadness or things that they don't want to bring up, but if you can't be a good friend without telling that, then I don't need any friends at all!"
 
-&mdash; [**Count D**](https://myanimelist.net/character.php?q=Count%20D&cat=character), [**Pet Shop of Horrors**](https://myanimelist.net/search/all?q=Pet%20Shop%20of%20Horrors&cat=all)
+&mdash; [**Sonozaki Mion**](https://myanimelist.net/character.php?q=Sonozaki%20Mion&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
