@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You clearly have nerves of steel. But, I'd say you still have much to learn about the world."
+> "It's not that you don't know how to interact with people. It's just that no one ever came to interact with you."
 
-&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
