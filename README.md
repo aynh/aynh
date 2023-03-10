@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Your own path is for you to find out on your own."
+> "I'll die smiling! Because if you ever think of me in the future, I want you to remember me smiling."
 
-&mdash; [**Subaru**](https://myanimelist.net/character.php?q=Subaru&cat=character), [**.hack//SIGN**](https://myanimelist.net/search/all?q=.hack%2F%2FSIGN&cat=all)
+&mdash; [**Donquixote Rosinante**](https://myanimelist.net/character.php?q=Donquixote%20Rosinante&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
