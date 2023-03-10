@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I know everyone has their stories of pain and sadness or things that they don't want to bring up, but if you can't be a good friend without telling that, then I don't need any friends at all!"
+> "They come without asking, and then they leave just the same. But once you meet them, even if nobody ever knows it, that encounter will change your life for the better."
 
-&mdash; [**Sonozaki Mion**](https://myanimelist.net/character.php?q=Sonozaki%20Mion&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
