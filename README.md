@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you'll cower at the sight of the great foe before you, leave at once, coward. If you'll lose the strength you believed in, then fall to the ground, weakling."
+> "True destiny cannot be changed. The reason is actually quite simple. True destiny isn't granted - it is earned."
 
-&mdash; [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/character.php?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Count D**](https://myanimelist.net/character.php?q=Count%20D&cat=character), [**Pet Shop of Horrors**](https://myanimelist.net/search/all?q=Pet%20Shop%20of%20Horrors&cat=all)
