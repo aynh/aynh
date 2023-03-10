@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Until just recently, the stars were something I only saw by myself."
+> "Souls of the dead are like a bunch of leftover feelings from those who've died."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Yakumo Saitō**](https://myanimelist.net/character.php?q=Yakumo%20Sait%C5%8D&cat=character), [**Psychic Detective Yakumo**](https://myanimelist.net/search/all?q=Psychic%20Detective%20Yakumo&cat=all)
