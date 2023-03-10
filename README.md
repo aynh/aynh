@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Souls of the dead are like a bunch of leftover feelings from those who've died."
+> "The only ones that can miss a kick draw match are those who have enough courage to kick it."
 
-&mdash; [**Yakumo Saitō**](https://myanimelist.net/character.php?q=Yakumo%20Sait%C5%8D&cat=character), [**Psychic Detective Yakumo**](https://myanimelist.net/search/all?q=Psychic%20Detective%20Yakumo&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
