@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Loving a person isn’t about logic or reason."
+> "If the father's responsibility is to protect the child... then my responsibility is to exceed the father."
 
-&mdash; [**Yukari Hayasaka**](https://myanimelist.net/character.php?q=Yukari%20Hayasaka&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
