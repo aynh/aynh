@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Humans always pursue things they can’t reach. Doesn’t it single-heartedly symbolize such yearnings?"
+> "It's not a crime if no one knows about it."
 
-&mdash; [**Legend of the Galactic Heroes**](https://myanimelist.net/character.php?q=Legend%20of%20the%20Galactic%20Heroes&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Nyaruko**](https://myanimelist.net/character.php?q=Nyaruko&cat=character), [**Haiyore! Nyaruko-san**](https://myanimelist.net/search/all?q=Haiyore!%20Nyaruko-san&cat=all)
