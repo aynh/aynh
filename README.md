@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If the father's responsibility is to protect the child... then my responsibility is to exceed the father."
+> "Even though I'm expressionless, being told that I'm annoying still hurts."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
