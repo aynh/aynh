@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "A man who raises his hands on a woman is trash. If I have to become trash in order to survive... It'll be just like dying."
+> "You've just gained the privilege to kill."
 
-&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
