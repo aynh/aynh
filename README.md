@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The world is a dark place... because you have a gloomy look on your face."
+> "Being unable to trust anything is the same as being unable to sense other people's love."
 
-&mdash; [**No-Sense**](https://myanimelist.net/character.php?q=No-Sense&cat=character), [**Coppelion**](https://myanimelist.net/search/all?q=Coppelion&cat=all)
+&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
