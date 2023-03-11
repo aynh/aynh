@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you feel the ends justify the means, how does that make you different from us demons, exactly?"
+> "Humans always pursue things they can’t reach. Doesn’t it single-heartedly symbolize such yearnings?"
 
-&mdash; [**Maou Sadao**](https://myanimelist.net/character.php?q=Maou%20Sadao&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
+&mdash; [**Legend of the Galactic Heroes**](https://myanimelist.net/character.php?q=Legend%20of%20the%20Galactic%20Heroes&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
