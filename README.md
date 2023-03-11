@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "People cry, not because they're weak. Its because they've been strong for too long."
+> "What is the resulting amperage when applying 3.0V to a conductor with 20ohm resistance?"
 
-&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Yuzuru Otonashi**](https://myanimelist.net/character.php?q=Yuzuru%20Otonashi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
