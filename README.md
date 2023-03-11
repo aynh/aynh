@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You've just gained the privilege to kill."
+> "People who've lost their dreams, don't need a place to go."
 
-&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**White Rabbit**](https://myanimelist.net/character.php?q=White%20Rabbit&cat=character), [**Are You Alice?**](https://myanimelist.net/search/all?q=Are%20You%20Alice%3F&cat=all)
