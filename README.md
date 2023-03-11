@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "What is the resulting amperage when applying 3.0V to a conductor with 20ohm resistance?"
+> "Different conclusions are reached when one fact is viewed from two separate points of view. When that happens, there is no immediate way to judge which point of view is the correct one. There is no way to conclude one's own conclusion is the correct one. But for that exact reason, it is also premature to decide one's own conclusion is wrong."
 
-&mdash; [**Yuzuru Otonashi**](https://myanimelist.net/character.php?q=Yuzuru%20Otonashi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
