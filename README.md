@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Being unable to trust anything is the same as being unable to sense other people's love."
+> "What would you ask a grave, which can never reply? What do you pray for? Saying anything after someone's death is far too late."
 
-&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
