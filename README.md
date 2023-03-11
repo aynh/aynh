@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Stop running! I know. Even if you find the kids, you might not be able to help them. Maybe something could happen that can never unhappen. That scares you, doesn't it? But you need to think about now. Really take it in! Look at you: you think you've got it so damn hard. Well, you hate being alone, so let people in! Sure, you may not answer the phone, but I don't see you throwing it away, either!"
+> "Then let me ask you, do gods of death love apples?"
 
-&mdash; [**Tifa Lockhart**](https://myanimelist.net/character.php?q=Tifa%20Lockhart&cat=character), [**Final Fantasy VII: Advent Children**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Advent%20Children&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
