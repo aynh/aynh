@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Justice and charity don't mix."
+> "No one really starts out kind. All we know how to do at first is want. We want food, we want attention... It's just natural survival instinct, I guess... But kindness is something that we all have to learn as we go. It's something that grows and develops slowly over time... The same way our bodies do..."
 
-&mdash; [**Myouri Unzen**](https://myanimelist.net/character.php?q=Myouri%20Unzen&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
