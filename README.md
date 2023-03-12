@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There are walls that can't be broken through power alone. But if there is a power that can break through those walls, it is the power of feelings."
+> "I know as much of games as I do of hugs and puppies, and care for them even less. Wake me for the end of the world."
 
-&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
