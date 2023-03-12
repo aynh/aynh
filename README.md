@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "True beauty lies in things that last forever, never rotting or fading."
+> "I won't be defeated because I know how awful it feels to lose after doing my very best!"
 
-&mdash; [**Sasori**](https://myanimelist.net/character.php?q=Sasori&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Shō Kazamatsuri**](https://myanimelist.net/character.php?q=Sh%C5%8D%20Kazamatsuri&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
