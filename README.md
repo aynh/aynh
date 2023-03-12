@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "If you dislike the situation, use your strength to change it."
+> "We've never worked together before, so don't worry about teamwork! Just stay out of each other's way. Fight the way you want to fight!"
 
-&mdash; [**Hoshimura Junichirou**](https://myanimelist.net/character.php?q=Hoshimura%20Junichirou&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Bors Elder**](https://myanimelist.net/character.php?q=Bors%20Elder&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
