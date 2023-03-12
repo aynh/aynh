@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Watching TV or playing games alone is more fun. Playing along with your friends' hobbies... Laughing at their jokes when they're not funny... All that does is tire me out."
+> "There are walls that can't be broken through power alone. But if there is a power that can break through those walls, it is the power of feelings."
 
-&mdash; [**Yuzuru Otonashi**](https://myanimelist.net/character.php?q=Yuzuru%20Otonashi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
