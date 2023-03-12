@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "*to Ohana* You can't do everything by yourself!... But I can't do it by myself, either. I need your help."
+> "There's no such thing as a perfect person in this world."
 
-&mdash; [**Minko Tsurugi**](https://myanimelist.net/character.php?q=Minko%20Tsurugi&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
