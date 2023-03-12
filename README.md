@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Pull yourself up after falling and advance with resilience."
+> "I think the only time people really have value is when they act according to their own will."
 
-&mdash; [**Kamiya Kyousuke**](https://myanimelist.net/character.php?q=Kamiya%20Kyousuke&cat=character), [**Psycho Love Comedy**](https://myanimelist.net/search/all?q=Psycho%20Love%20Comedy&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
