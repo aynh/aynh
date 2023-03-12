@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "No one really starts out kind. All we know how to do at first is want. We want food, we want attention... It's just natural survival instinct, I guess... But kindness is something that we all have to learn as we go. It's something that grows and develops slowly over time... The same way our bodies do..."
+> "*to Ohana* You can't do everything by yourself!... But I can't do it by myself, either. I need your help."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Minko Tsurugi**](https://myanimelist.net/character.php?q=Minko%20Tsurugi&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
