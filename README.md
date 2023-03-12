@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Even though I'm expressionless, being told that I'm annoying still hurts."
+> "True beauty lies in things that last forever, never rotting or fading."
 
-&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Sasori**](https://myanimelist.net/character.php?q=Sasori&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
