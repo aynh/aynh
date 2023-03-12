@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There's no such thing as a perfect person in this world."
+> "Often times in memory, we have the tendency to overly romanticize the people we care about."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
