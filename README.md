@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I won't be defeated because I know how awful it feels to lose after doing my very best!"
+> "Those who win are not strong. It is those who lose and crawl back up who are strong."
 
-&mdash; [**Shō Kazamatsuri**](https://myanimelist.net/character.php?q=Sh%C5%8D%20Kazamatsuri&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
+&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
