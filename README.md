@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I'm not against socializing, so long as it's not tiring."
+> "I’m not going to apologize. This is an absurd, unfair world."
 
-&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Yahiro Samukawa**](https://myanimelist.net/character.php?q=Yahiro%20Samukawa&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
