@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Know how strong you are... and do what you can do. If you misjudge your abilities on the battlefield... you'll get yourself killed."
+> "You're free to like or hate whoever you want."
 
-&mdash; [**Yugo Kuga**](https://myanimelist.net/character.php?q=Yugo%20Kuga&cat=character), [**World Trigger**](https://myanimelist.net/search/all?q=World%20Trigger&cat=all)
+&mdash; [**Rachnera Arachnera**](https://myanimelist.net/character.php?q=Rachnera%20Arachnera&cat=character), [**Monster Musume no Iru Nichijou**](https://myanimelist.net/search/all?q=Monster%20Musume%20no%20Iru%20Nichijou&cat=all)
