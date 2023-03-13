@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Today, everything's shining brightly! The air, the people, and even this classroom; because today, I actually did my homework!"
+> "I was wondering. Do souls taste good? You seem to like 'em."
 
-&mdash; [**Yuuko Aioi**](https://myanimelist.net/character.php?q=Yuuko%20Aioi&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
