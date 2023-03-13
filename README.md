@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You're free to like or hate whoever you want."
+> "'No longer the Aizen you know,' hm...? I'm afraid you've been deluded, Abarai-kun...The 'Aizen Sousuke' you knew never existed to begin with."
 
-&mdash; [**Rachnera Arachnera**](https://myanimelist.net/character.php?q=Rachnera%20Arachnera&cat=character), [**Monster Musume no Iru Nichijou**](https://myanimelist.net/search/all?q=Monster%20Musume%20no%20Iru%20Nichijou&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
