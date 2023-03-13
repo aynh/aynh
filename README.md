@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I do not allow anyone acting against me to look down upon me."
+> "People are all evil. In order to falsely believe yourself to be just, you must inevitably falsely believe that someone else is more evil than you."
 
-&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach the Movie: Hell Verse**](https://myanimelist.net/search/all?q=Bleach%20the%20Movie%3A%20Hell%20Verse&cat=all)
