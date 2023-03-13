@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Forget about me, and starting tomorrow live your own life. Don't keep dragging the dead into your life, otherwise your life would get screwed up and you won't be happy in the future, okay?"
+> "Today, everything's shining brightly! The air, the people, and even this classroom; because today, I actually did my homework!"
 
-&mdash; [**Misa Kurobane**](https://myanimelist.net/character.php?q=Misa%20Kurobane&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
+&mdash; [**Yuuko Aioi**](https://myanimelist.net/character.php?q=Yuuko%20Aioi&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
