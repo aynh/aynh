@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Breaking a bond is every bit as painful as being physically torn apart. Can you endure that?"
+> "Know how strong you are... and do what you can do. If you misjudge your abilities on the battlefield... you'll get yourself killed."
 
-&mdash; [**Amamiya Yuuko**](https://myanimelist.net/character.php?q=Amamiya%20Yuuko&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Yugo Kuga**](https://myanimelist.net/character.php?q=Yugo%20Kuga&cat=character), [**World Trigger**](https://myanimelist.net/search/all?q=World%20Trigger&cat=all)
