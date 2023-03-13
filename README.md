@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "You know, with talented people... They draw people to themselves, and without even trying to, they tear them to shreds. The closer you are to them, the more viciously you'll be torn apart. They're living in a completely different world above us. One that us normal people can't reach. In a world that we'll never see. A world above the clouds. That's the kind of world they live in."
+> "A miracle never comes to those who seek it."
 
-&mdash; [**Jin Mitaka**](https://myanimelist.net/character.php?q=Jin%20Mitaka&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Amamiya Yuuko**](https://myanimelist.net/character.php?q=Amamiya%20Yuuko&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
