@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "People are all evil. In order to falsely believe yourself to be just, you must inevitably falsely believe that someone else is more evil than you."
+> "No one can draw a clear line between sane and insane. You move that line as you see fit for yourself. No one else can. You'll understand soon... that the one that's insane is this world."
 
-&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach the Movie: Hell Verse**](https://myanimelist.net/search/all?q=Bleach%20the%20Movie%3A%20Hell%20Verse&cat=all)
+&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
