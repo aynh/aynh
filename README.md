@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The moment a person says he's working hard without thinking, he's still being naive. He is not trying at all!"
+> "Forget about me, and starting tomorrow live your own life. Don't keep dragging the dead into your life, otherwise your life would get screwed up and you won't be happy in the future, okay?"
 
-&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Misa Kurobane**](https://myanimelist.net/character.php?q=Misa%20Kurobane&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
