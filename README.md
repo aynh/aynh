@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Don't judge me based on the same story and laugh."
+> "The moment a person says he's working hard without thinking, he's still being naive. He is not trying at all!"
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
