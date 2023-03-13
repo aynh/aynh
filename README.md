@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Know how strong you are... and do what you can do. If you misjudge your abilities on the battlefield... you'll get yourself killed."
+> "Is fighting right, or wrong? Does winning in the end mean justice? Truthfully, I don't know. But I know we must fight this battle! Or we will never save the world."
 
-&mdash; [**Yugo Kuga**](https://myanimelist.net/character.php?q=Yugo%20Kuga&cat=character), [**World Trigger**](https://myanimelist.net/search/all?q=World%20Trigger&cat=all)
+&mdash; [**Haru Glory**](https://myanimelist.net/character.php?q=Haru%20Glory&cat=character), [**Rave Master**](https://myanimelist.net/search/all?q=Rave%20Master&cat=all)
