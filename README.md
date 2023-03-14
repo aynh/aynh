@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "When people are protecting something truly special to them, they truly can become... as strong as they can be."
+> "Mere scores do not measure a person’s worth."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Aoi Yamada**](https://myanimelist.net/character.php?q=Aoi%20Yamada&cat=character), [**Working!!**](https://myanimelist.net/search/all?q=Working!!&cat=all)
