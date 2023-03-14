@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "I do not hate you. However, to protect our peaceful existence, there is no other way!"
+> "When people are protecting something truly special to them, they truly can become... as strong as they can be."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
