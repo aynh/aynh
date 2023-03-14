@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "There’s only one certainty in life. A strong man stands above and conquers all!"
+> "Yes, I have no reason to take part in the Absurd and Unreasonable real world."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
