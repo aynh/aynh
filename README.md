@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "The double grief of a lost bliss is to recall its happy hour in pain."
+> "There’s only one certainty in life. A strong man stands above and conquers all!"
 
-&mdash; [**Shuichiro Keido**](https://myanimelist.net/character.php?q=Shuichiro%20Keido&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
