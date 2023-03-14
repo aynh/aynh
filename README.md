@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "Yes, I have no reason to take part in the Absurd and Unreasonable real world."
+> "I do not hate you. However, to protect our peaceful existence, there is no other way!"
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
