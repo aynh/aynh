@@ -13,6 +13,6 @@
 
 #### Hourly (anime) quote
 
-> "What I hate the most in the world is when I'm already trying hard and I'm told to try harder!"
+> "The double grief of a lost bliss is to recall its happy hour in pain."
 
-&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Shuichiro Keido**](https://myanimelist.net/character.php?q=Shuichiro%20Keido&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
