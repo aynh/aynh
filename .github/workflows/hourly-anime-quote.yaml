@@ -16,10 +16,7 @@ jobs:
         with:
           ref: ${{ github.head_ref }}
 
-      - name: Remove old quote from README
-        run: sed -i '/#### Hourly (anime) quote/q' README.md
-
-      - name: Fetch new quote
+      - name: Fetch quote
         id: new-quote
         run: |
           data=$(curl --silent https://anime-quotes.pages.dev/api/1 | jq .data[0])
@@ -31,9 +28,10 @@ jobs:
           quote=$(tr '"' "'" <<< $quote)
           echo "quote=$quote" >> $GITHUB_OUTPUT
 
-      - name: Add new quote to README
+      - name: Add quote to README
         run: |
-          echo -en "\n" >> README.md
+          cp README.base.md README.md
+
           cat >> README.md <<EOF
           > "${{ steps.new-quote.outputs.quote }}"
           EOF
