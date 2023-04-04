@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am looking at things from a much higher perspective than you. I observe this world, this universe, the truth of all things. And I have realized that humans must be destroyed. Out of all which the gods have made, mortals are their sole failure. In order to make this world, this universe, into a beautiful utopia, I must remove humanity, in place of the gods who refuse to admit their mistake."
+> "Crazy baby."
 
-&mdash; [**Black Goku**](https://myanimelist.net/character.php?q=Black%20Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
