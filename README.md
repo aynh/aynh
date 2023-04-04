@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is this God's punishemt for falling in love with an angel? As the gossamer floats ever eluding my grasp, it weighs heavily upon my heart."
+> "You can't pick up water once it's spilled, so handle it carefully."
 
-&mdash; [**Talho Yuuki**](https://myanimelist.net/character.php?q=Talho%20Yuuki&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
