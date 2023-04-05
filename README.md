@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah, I know. It's not good to be reading Jump at my age."
+> "There are people who don't know you, who are saying a lot of awful things. But just saying stuff is easy, and anyone can do it. However...There's no one out there who could take your place."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Mutta Namba**](https://myanimelist.net/character.php?q=Mutta%20Namba&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
