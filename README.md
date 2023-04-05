@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Of the days that I have lived, only those I spent with you seemed real."
+> "Yeah, I know. It's not good to be reading Jump at my age."
 
-&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop: The Movie**](https://myanimelist.net/search/all?q=Cowboy%20Bebop%3A%20The%20Movie&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
