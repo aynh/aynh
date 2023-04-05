@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "NEETs aren't people who can't do or won't do things. The only difference is the rules. Because we're playing with different rules, we're forced to do things differently. The participants are disoriented. They frown. Then they are discouraged by labeling and stereotyping and find comfort in isolation."
+> "Impossible, right? Compared to the enemy we're facing, you and I are the same, no more than dots! What's the point in comparing our heights? That is what makes this exciting! The smallest, the weakest - it doesn't matter! I should still wish to go and take over the world, with nothing more than my tiny dot of a body! Within my chest, beats the heart of the King of Conquerors!"
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
