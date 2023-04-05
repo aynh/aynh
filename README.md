@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People become stronger because they have things they cannot forget. That's what you call growth."
+> "When it comes to catching Spinda, we sure are the Winda!"
 
-&mdash; [**Tsunade**](https://myanimelist.net/character.php?q=Tsunade&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
