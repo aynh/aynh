@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's because I've experienced pain in the past, that I can even consider what would be best for the future!"
+> "An earnest failure has meaning."
 
-&mdash; [**Ohnoki**](https://myanimelist.net/character.php?q=Ohnoki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Mutta Namba**](https://myanimelist.net/character.php?q=Mutta%20Namba&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
