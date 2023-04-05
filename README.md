@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I don't stand up here... If I don't reach higher here... When am I ever going to do it?"
+> "I have no interest in being a villain, and I don’t think that I can become a good person. I’m at a halfway point where I’m not even sure which path I should walk down… but I guess even there, I can still interfere in someone’s life and help bring things to a positive conclusion…"
 
-&mdash; [**Bell Cranel**](https://myanimelist.net/character.php?q=Bell%20Cranel&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
+&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
