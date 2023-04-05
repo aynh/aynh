@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You’re the spore of a flower. You’ll be going on a trip, taken away by the wind. To go to new places and meet new people. You shouldn’t always rely on your sister. Even if you’re apart, your bonds still remain. That’s what family is."
+> "I'm sorry, but I never lose to the same opponent twice."
 
-&mdash; [**Sunohara Youhei**](https://myanimelist.net/character.php?q=Sunohara%20Youhei&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Fuji Shuusuke**](https://myanimelist.net/character.php?q=Fuji%20Shuusuke&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
