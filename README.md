@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You all underestimate humans. Individually, they may appear weak, but that is not the case. What we need to recognize is that humans are a single life-form comprised of millions of individuals. Besides their individual brains, humans possess a different 'brain' of enormous magnitude. The moment we act in opposition to that brain, we will lose."
+> "An ideal is only an ideal after all. As long as you embrace that ideal, the friction with reality will continue to increase. So you will someday face reality and will have to pay the price for your compromises."
 
-&mdash; [**Tamura Reiko**](https://myanimelist.net/character.php?q=Tamura%20Reiko&cat=character), [**Parasyte -the maxim-**](https://myanimelist.net/search/all?q=Parasyte%20-the%20maxim-&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
