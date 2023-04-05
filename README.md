@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People do change, little by little."
+> "I wouldn't call myself a saint, but I think I do alright. My mind's about as sharp as the average person. When it comes to an iron will or noble spirit, well... I might have to ask you to turn a blind eye there..."
 
-&mdash; [**Tetsudō Hisakawa**](https://myanimelist.net/character.php?q=Tetsud%C5%8D%20Hisakawa&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
+&mdash; [**Amagiri Ayato**](https://myanimelist.net/character.php?q=Amagiri%20Ayato&cat=character), [**Gakusen Toshi Asterisk**](https://myanimelist.net/search/all?q=Gakusen%20Toshi%20Asterisk&cat=all)
