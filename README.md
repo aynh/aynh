@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The life of each human is worth one life, that's it. Nothing more, nothing less."
+> "[to a dating simulation that has just dumped him] Wait! If you cut off negotiations, it can only lead to war. Accept a truce, and I will listen to whatever you have to say. Let's work toward a compromise!"
 
-&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Sousuke Sagara**](https://myanimelist.net/character.php?q=Sousuke%20Sagara&cat=character), [**Full Metal Panic!**](https://myanimelist.net/search/all?q=Full%20Metal%20Panic!&cat=all)
