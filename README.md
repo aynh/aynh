@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "An earnest failure has meaning."
+> "You’re the spore of a flower. You’ll be going on a trip, taken away by the wind. To go to new places and meet new people. You shouldn’t always rely on your sister. Even if you’re apart, your bonds still remain. That’s what family is."
 
-&mdash; [**Mutta Namba**](https://myanimelist.net/character.php?q=Mutta%20Namba&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Sunohara Youhei**](https://myanimelist.net/character.php?q=Sunohara%20Youhei&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
