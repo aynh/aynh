@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When it comes to catching Spinda, we sure are the Winda!"
+> "Choosing your calling based solely on your talents won't always guarantee you happiness."
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Kaminski Natalia**](https://myanimelist.net/character.php?q=Kaminski%20Natalia&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
