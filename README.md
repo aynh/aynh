@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are some things that can only be conveyed through words."
+> "Why is it that when humans regret the decision based on a misunderstanding they feel resentment toward the other party?"
 
-&mdash; [**Winry Rockbell**](https://myanimelist.net/character.php?q=Winry%20Rockbell&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
