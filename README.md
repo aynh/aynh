@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*about Katsura, who apparently got his head hit very hard* Forget his name, this guy's questioning his own existence!"
+> "A person grows up when he's able to overcome hardships. Protection is important, but there are some things that a person must learn on his own."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
