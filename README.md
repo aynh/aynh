@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What do you know of death?!! Have you ever died?!! You think death will preserve your cause forever?!! Ridiculous!! Death leaves nothing behind!! Once a person passes on, nothing remains but dead bones!! If there is one thing I can’t stand, it is a person with no respect for life!!"
+> "No matter what your power is, no matter how strong your opponent, lose once and it's over. That's the kind of world that's out there waiting for us. And once you lose, there's no do-overs."
 
-&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Nagakura Imari**](https://myanimelist.net/character.php?q=Nagakura%20Imari&cat=character), [**Absolute Duo**](https://myanimelist.net/search/all?q=Absolute%20Duo&cat=all)
