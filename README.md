@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At times, the truth can be cruel."
+> "Sakura-chan, you sure do love Sasuke, don't you?"
 
-&mdash; [**Shin Fukuhara**](https://myanimelist.net/character.php?q=Shin%20Fukuhara&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
