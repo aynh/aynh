@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to a dating simulation that has just dumped him] Wait! If you cut off negotiations, it can only lead to war. Accept a truce, and I will listen to whatever you have to say. Let's work toward a compromise!"
+> "At times, the truth can be cruel."
 
-&mdash; [**Sousuke Sagara**](https://myanimelist.net/character.php?q=Sousuke%20Sagara&cat=character), [**Full Metal Panic!**](https://myanimelist.net/search/all?q=Full%20Metal%20Panic!&cat=all)
+&mdash; [**Shin Fukuhara**](https://myanimelist.net/character.php?q=Shin%20Fukuhara&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
