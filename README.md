@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You kids don't understand anything! By declaring that you're neutral and have nothing to do with this, you can still distance yourselves from what's happening? You don't really believe that, do you?"
+> "There are some things that can only be conveyed through words."
 
-&mdash; [**Murrue Ramius**](https://myanimelist.net/character.php?q=Murrue%20Ramius&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Winry Rockbell**](https://myanimelist.net/character.php?q=Winry%20Rockbell&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
