@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The warmth of another person's flesh is scary. It thaws out the loneliness that you had forgotten about so easily."
+> "As long as I'm with you, I get fed and nobody picks on me! I like being here!"
 
-&mdash; [**Rokka Shimao**](https://myanimelist.net/character.php?q=Rokka%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
+&mdash; [**South Italy**](https://myanimelist.net/character.php?q=South%20Italy&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
