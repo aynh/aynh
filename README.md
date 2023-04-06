@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans will wither away if they're always alone. The only remedy would be to seek out other people."
+> "The warmth of another person's flesh is scary. It thaws out the loneliness that you had forgotten about so easily."
 
-&mdash; [**Misawa Kyouko**](https://myanimelist.net/character.php?q=Misawa%20Kyouko&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Rokka Shimao**](https://myanimelist.net/character.php?q=Rokka%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
