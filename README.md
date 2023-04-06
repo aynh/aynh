@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We've got nothing left at home but salt and sugar."
+> "A guy with only a cat for a friend won't look attractive by playing cool."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Saya Minatsuki**](https://myanimelist.net/character.php?q=Saya%20Minatsuki&cat=character), [**Black Cat**](https://myanimelist.net/search/all?q=Black%20Cat&cat=all)
