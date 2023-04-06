@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A guy with only a cat for a friend won't look attractive by playing cool."
+> "Humans will wither away if they're always alone. The only remedy would be to seek out other people."
 
-&mdash; [**Saya Minatsuki**](https://myanimelist.net/character.php?q=Saya%20Minatsuki&cat=character), [**Black Cat**](https://myanimelist.net/search/all?q=Black%20Cat&cat=all)
+&mdash; [**Misawa Kyouko**](https://myanimelist.net/character.php?q=Misawa%20Kyouko&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
