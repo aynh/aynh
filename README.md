@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as I'm with you, I get fed and nobody picks on me! I like being here!"
+> "You think surrendering, and offering yourself will stop the war? How arrogant. The life of each human is worth one, that's it. Nothing more, nothing less."
 
-&mdash; [**South Italy**](https://myanimelist.net/character.php?q=South%20Italy&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
