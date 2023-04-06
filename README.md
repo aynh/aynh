@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(Her dad) He'd always tell me that family isn't about being related by blood. Living under the same roof and caring for each other is what family is all about."
+> "If we're going to win, we might as well get the best deal out of it in the process."
 
-&mdash; [**Charunee Kusakabe**](https://myanimelist.net/character.php?q=Charunee%20Kusakabe&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Kyoya Ootori**](https://myanimelist.net/character.php?q=Kyoya%20Ootori&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
