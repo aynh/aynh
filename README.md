@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I always wished to be accepted by my surroundings. I tried to change myself for that reason. But, I don't care if I'm disliked. I don't care if I don't have a place where I belong. I don't mind if everybody rejects me starting tomorrow. I will even become a devil for the person who is trying to protect me."
+> "They'll learn that a man without reason is no different from an animal who defecates wherever it pleases."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Marlowe Sand**](https://myanimelist.net/character.php?q=Marlowe%20Sand&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
