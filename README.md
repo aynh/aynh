@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Taking responsibility for yourself is the first condition for humanity. One who cannot do even that is less than human. Just a dog, Kariya."
+> "Death may be my only freedom."
 
-&mdash; [**Tohsaka Tokiomi**](https://myanimelist.net/character.php?q=Tohsaka%20Tokiomi&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
