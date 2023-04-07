@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we continue on the same path, we are likely to meet again."
+> "Kyo-kun! Kyo-kun! I do love you, Kyo-kun! I love you!!!"
 
-&mdash; [**Handa Seishū**](https://myanimelist.net/character.php?q=Handa%20Seish%C5%AB&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
