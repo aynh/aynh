@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I'm not at my limit, means I'm not trying as hard as I can!"
+> "Time waits for no one."
 
-&mdash; [**Naru**](https://myanimelist.net/character.php?q=Naru&cat=character), [**Girl Friends**](https://myanimelist.net/search/all?q=Girl%20Friends&cat=all)
+&mdash; [**The Girl Who Leapt Through Time**](https://myanimelist.net/character.php?q=The%20Girl%20Who%20Leapt%20Through%20Time&cat=character), [**The Girl Who Leapt Through Time**](https://myanimelist.net/search/all?q=The%20Girl%20Who%20Leapt%20Through%20Time&cat=all)
