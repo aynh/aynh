@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't do something wasteful as to wash your frustrations with tears. Your frustration is motivation that you can use to make yourself better. Hold it inside like it's an important thing!"
+> "What the hell is with everyone telling me to change? I don't want other people telling me who I am."
 
-&mdash; [**Maria Momoe**](https://myanimelist.net/character.php?q=Maria%20Momoe&cat=character), [**Big Windup!**](https://myanimelist.net/search/all?q=Big%20Windup!&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
