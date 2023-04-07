@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To Mello, it's like playing a videogame against me, I think. 'See who gets to Kira, the last boss, first.'"
+> "I hate the fox, but the boy - I don't hate the boy."
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
