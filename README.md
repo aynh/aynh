@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even crabs have to go on a journey sometime."
+> "To Mello, it's like playing a videogame against me, I think. 'See who gets to Kira, the last boss, first.'"
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
