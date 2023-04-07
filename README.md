@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death may be my only freedom."
+> "Don't do something wasteful as to wash your frustrations with tears. Your frustration is motivation that you can use to make yourself better. Hold it inside like it's an important thing!"
 
-&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Maria Momoe**](https://myanimelist.net/character.php?q=Maria%20Momoe&cat=character), [**Big Windup!**](https://myanimelist.net/search/all?q=Big%20Windup!&cat=all)
