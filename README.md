@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's absurd to think your life won't have a meaning unless you leave some work behind. Just living is enough."
+> "We can't waste time worrying about the what-if's. Rukia's execution date has been changed to noon tomorrow. So what? If the deadline has been changed to tomorrow... I'll just have to finish today!"
 
-&mdash; [**Shinobu Morita**](https://myanimelist.net/character.php?q=Shinobu%20Morita&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
