@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They'll learn that a man without reason is no different from an animal who defecates wherever it pleases."
+> "How can someone who seeks a reason from another person be right? While you're forcing that reason on someone else, how can you take responsibility?"
 
-&mdash; [**Marlowe Sand**](https://myanimelist.net/character.php?q=Marlowe%20Sand&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
