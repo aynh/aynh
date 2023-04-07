@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times in life when you have to distance yourself from those you love, because you love them."
+> "[To Father] You've certainly mellowed out... you used to be fun, full of life and emotion. Lust, Greed, Sloth, Gluttony, Envy, Wrath, and Pride. Of course, excessive want will destroy anyone, but those same desires are necessary to understand what it means to be human. Why did you rid yourself of them?"
 
-&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Van Hohenheim**](https://myanimelist.net/character.php?q=Van%20Hohenheim&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
