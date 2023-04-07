@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate the fox, but the boy - I don't hate the boy."
+> "Eating together makes food taste better and makes friends grow closer."
 
-&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Karuta Roromiya**](https://myanimelist.net/character.php?q=Karuta%20Roromiya&cat=character), [**Inu X Boku SS**](https://myanimelist.net/search/all?q=Inu%20X%20Boku%20SS&cat=all)
