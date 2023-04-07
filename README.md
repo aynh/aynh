@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What the hell is with everyone telling me to change? I don't want other people telling me who I am."
+> "If I'm not at my limit, means I'm not trying as hard as I can!"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Naru**](https://myanimelist.net/character.php?q=Naru&cat=character), [**Girl Friends**](https://myanimelist.net/search/all?q=Girl%20Friends&cat=all)
