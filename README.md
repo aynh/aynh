@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who can see get to choose... if you want them to know you can see. To pretend to be able to see, even when you can't... Or to pretend that you can't see even when you can."
+> "If your face gets any closer, someone who isn't supposed to be in this scene is going to come over there and kick your ass!"
 
-&mdash; [**Akagi Shigeru**](https://myanimelist.net/character.php?q=Akagi%20Shigeru&cat=character), [**Touhai Densetsu Akagi: Yami Ni Maiorita Tensai**](https://myanimelist.net/search/all?q=Touhai%20Densetsu%20Akagi%3A%20Yami%20Ni%20Maiorita%20Tensai&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
