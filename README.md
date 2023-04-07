@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How can someone who seeks a reason from another person be right? While you're forcing that reason on someone else, how can you take responsibility?"
+> "[to Katara] Come... closer... closer... Will you go penguin sledding with me?"
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
