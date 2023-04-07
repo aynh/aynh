@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time waits for no one."
+> "There are times in life when you have to distance yourself from those you love, because you love them."
 
-&mdash; [**The Girl Who Leapt Through Time**](https://myanimelist.net/character.php?q=The%20Girl%20Who%20Leapt%20Through%20Time&cat=character), [**The Girl Who Leapt Through Time**](https://myanimelist.net/search/all?q=The%20Girl%20Who%20Leapt%20Through%20Time&cat=all)
+&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
