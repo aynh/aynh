@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think I've found what I was looking for all this time. I, who was always alone... found comrades for the first time."
+> "*to Kikyo* I swear... I will never let Naraku harm you."
 
-&mdash; [**Jin**](https://myanimelist.net/character.php?q=Jin&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
