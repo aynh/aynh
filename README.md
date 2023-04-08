@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The essence of good deeds and evil is the same. They're both no more than a person's actions to make up for a defect in themselves."
+> "You clearly have nerves of steel. But, I'd say you still have much to learn about the world."
 
-&mdash; [**Yashiro Gaku**](https://myanimelist.net/character.php?q=Yashiro%20Gaku&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
+&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
