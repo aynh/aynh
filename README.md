@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one's going to give you a map. You've got to walk your own path."
+> "Pum, Pumkins, Smashing Pumkins!"
 
-&mdash; [**Hilda**](https://myanimelist.net/character.php?q=Hilda&cat=character), [**Outlaw Star**](https://myanimelist.net/search/all?q=Outlaw%20Star&cat=all)
+&mdash; [**Blair**](https://myanimelist.net/character.php?q=Blair&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
