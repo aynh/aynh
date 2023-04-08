@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'To enjoy what one loves to do'. Those words come easily from the mouth. But it's another thing to help them grow."
+> "Anything edible is acceptable. Extravagance is our enemy."
 
-&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
