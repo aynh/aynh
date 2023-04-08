@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Kikyo* I swear... I will never let Naraku harm you."
+> "'To enjoy what one loves to do'. Those words come easily from the mouth. But it's another thing to help them grow."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
