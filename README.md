@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Doesn't even think about giving up just because it's useless! The moment you give up is when your life ends."
+> "I would be nothing without you."
 
-&mdash; [**Ushiromiya Jessica**](https://myanimelist.net/character.php?q=Ushiromiya%20Jessica&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
