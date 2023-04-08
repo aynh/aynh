@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Somewhere inside of me?! Take a good look, there's nothing inside of me anymore!!! I don't feel pain, I don't feel anything! You need to let that guilt go Kakashi. This wind hole wasn't your doing... It was made by this evil, cruel world."
+> "Her sword shines, a dream that all warriors  scattered in battle, past, present, and future, hold and mournfully exalt as their final moments approach. She carries their will as her pride, bidding them to remain steadfast in their loyalty."
 
-&mdash; [**Obito Uchiha**](https://myanimelist.net/character.php?q=Obito%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Irisviel von Einzbern**](https://myanimelist.net/character.php?q=Irisviel%20von%20Einzbern&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
