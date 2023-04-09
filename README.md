@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Believing in someone.' That's a weird phrase, isn't it? After all, if you truly believed in a person, you wouldn't need to say, 'I believe you.' It's like saying, 'I believe in air.' I don't mean to say that 'believing in something' is like a lie. 'Believing' is really a term of hope of wanting to believe."
+> "When you pick the only option you have to choose from, can you really call that your own decision?"
 
-&mdash; [**Satoru Fujinuma**](https://myanimelist.net/character.php?q=Satoru%20Fujinuma&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
+&mdash; [**Hayato Hayama**](https://myanimelist.net/character.php?q=Hayato%20Hayama&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
