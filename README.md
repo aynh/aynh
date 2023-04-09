@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To become a monster like me, is to admit you were too weak to remain a human."
+> "I came to believe that a world where people can understand each other isn't impossible. That's why even if the world rejects me... even if the world blames me... I'll keep on fighting."
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Lockon Stratos**](https://myanimelist.net/character.php?q=Lockon%20Stratos&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
