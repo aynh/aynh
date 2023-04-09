@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I came to believe that a world where people can understand each other isn't impossible. That's why even if the world rejects me... even if the world blames me... I'll keep on fighting."
+> "'Believing in someone.' That's a weird phrase, isn't it? After all, if you truly believed in a person, you wouldn't need to say, 'I believe you.' It's like saying, 'I believe in air.' I don't mean to say that 'believing in something' is like a lie. 'Believing' is really a term of hope of wanting to believe."
 
-&mdash; [**Lockon Stratos**](https://myanimelist.net/character.php?q=Lockon%20Stratos&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Satoru Fujinuma**](https://myanimelist.net/character.php?q=Satoru%20Fujinuma&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
