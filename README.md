@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As time passes, the day will come when everything will fade to memories. But, those miraculous days, when you and I along with everyone else, searched together for just one thing... will continue revolving forever. Somewhere deep in my heart as my bittersweet memory."
+> "You STILL don't get it? When you tossed all of that away, a few important things were discarded as well. You abandoned your friends? More like you were afraid of BEING abandoned. You fight by yourself? More like you hid yourself in solitude from the beginning. You abandoned yourself? No... You just couldn't bear the pain of having a heavy load place upon you, or being a heavy load, so you ran. Like the coward you are. If you want to live your life abandoning one thing after another, that's your choice. But to try to incite your student to join you because you can't handle being alone, makes you a fool."
 
-&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
