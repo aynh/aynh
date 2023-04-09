@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You STILL don't get it? When you tossed all of that away, a few important things were discarded as well. You abandoned your friends? More like you were afraid of BEING abandoned. You fight by yourself? More like you hid yourself in solitude from the beginning. You abandoned yourself? No... You just couldn't bear the pain of having a heavy load place upon you, or being a heavy load, so you ran. Like the coward you are. If you want to live your life abandoning one thing after another, that's your choice. But to try to incite your student to join you because you can't handle being alone, makes you a fool."
+> "This era is not so simple that you can put everything on your shoulders and be the only sacrifice. And, at the same time, one person's happiness isn't that simple, either. If you should fall as a sacrifice, one girl who came to Kyoto with the one wish to see you will definitely face misfortune. Remember that. No matter how strong you get, you are just a human being. There is no need for you to either become Buddha, or a murderer."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
