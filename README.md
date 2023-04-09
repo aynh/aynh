@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He realized that he had lost sight of something important. No matter what turn he took he should have kept singing. Even if his songs couldn’t save the world, he could still sing songs for her. Don’t ever lose sight of what’s important to you."
+> "I won't ever be the best at anything. Or rather, you might say that I've stopped trying to be."
 
-&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
