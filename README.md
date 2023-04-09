@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who aren't geniuses only have effort. All you can do is use effort to compensate for a deficiency of talent."
+> "Can I shoot them now?"
 
-&mdash; [**Kurusu Syo**](https://myanimelist.net/character.php?q=Kurusu%20Syo&cat=character), [**Uta no Prince-sama**](https://myanimelist.net/search/all?q=Uta%20no%20Prince-sama&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
