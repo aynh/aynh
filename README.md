@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What about when you reciprocate someone else’s emotions? Is that still coming from you… or is the air connecting you to one another?"
+> "To become a monster like me, is to admit you were too weak to remain a human."
 
-&mdash; [**Jinno Yuu**](https://myanimelist.net/character.php?q=Jinno%20Yuu&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
