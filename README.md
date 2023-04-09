@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I see. So basically, you're a shinigami? And you came all the way from some place called Soul Society to vanquish evil spirits? Which means that monster earlier was one of those evil spirits? And it attacked that little girl? Okay, I belie- NO WAY I'LL BELIEVE THAT, DUMBASS!"
+> "In this world, nobody is free. Even the flying birds are chained to the sky."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yuu Otosaka**](https://myanimelist.net/character.php?q=Yuu%20Otosaka&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
