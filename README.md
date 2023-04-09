@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's time I started living my own life."
+> "Only a foolish human would attempt to rationalize emotion."
 
-&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Makina**](https://myanimelist.net/character.php?q=Makina&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
