@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I won't ever be the best at anything. Or rather, you might say that I've stopped trying to be."
+> "Why don't you buy paper books? E-books lack character."
 
-&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
