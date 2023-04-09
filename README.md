@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you pick the only option you have to choose from, can you really call that your own decision?"
+> "The trees cry out as they die, but you cannot hear them. I lie here. I listen to the pain of the forest and feel the ache of the bullet in my chest and dream of the day when I will finally crunch that gun woman's head in my jaws... She is my daughter. One of the wolf tribe. When the forest dies, so does she. I caught her human parents defiling my forest. They threw their baby at my feet as they ran away. Instead of eating her, I raised her as my own. Now my poor, ugly, beautiful daughter is neither human nor wolf."
 
-&mdash; [**Hayato Hayama**](https://myanimelist.net/character.php?q=Hayato%20Hayama&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Moro**](https://myanimelist.net/character.php?q=Moro&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
