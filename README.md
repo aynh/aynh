@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Hige* Coming from you, that sounds kind of fishy."
+> "We should work towards world peace. Like giving everyone in the world an Upa cushion..."
 
-&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Mayuri Shiina**](https://myanimelist.net/character.php?q=Mayuri%20Shiina&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
