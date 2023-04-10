@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We should work towards world peace. Like giving everyone in the world an Upa cushion..."
+> "Nothing beats a cup of herbal tea in the morning."
 
-&mdash; [**Mayuri Shiina**](https://myanimelist.net/character.php?q=Mayuri%20Shiina&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
