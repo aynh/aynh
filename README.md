@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, hurting girls isn't one of my hobbies. That's why I'll make it my hobby to stomp on their cell phones. Hahahahahaha! I'm so bored of it now... it's no longer my hobby to stomp on cell phones."
+> "Nobody can make someone who isn't trying to be happy into someone that's happy"
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Tsubasa Hanekawa**](https://myanimelist.net/character.php?q=Tsubasa%20Hanekawa&cat=character), [**Owarimonogatari**](https://myanimelist.net/search/all?q=Owarimonogatari&cat=all)
