@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we give up before we try, then nothing is going to happen."
+> "I can only say that the human curiosity is something completely irrational."
 
-&mdash; [**Eli Ayase**](https://myanimelist.net/character.php?q=Eli%20Ayase&cat=character), [**Love Live! School idol project**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project&cat=all)
+&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
