@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can only say that the human curiosity is something completely irrational."
+> "Inability to overcome fear is human."
 
-&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Yun**](https://myanimelist.net/character.php?q=Yun&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
