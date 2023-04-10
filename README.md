@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't lose to my older sister! Right now she's ahead of me by 2 millimeters in chest size!"
+> "Whenever you fight from this point on, there is one thing you must never do. Which is...to die alone."
 
-&mdash; [**Risa Harada**](https://myanimelist.net/character.php?q=Risa%20Harada&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
