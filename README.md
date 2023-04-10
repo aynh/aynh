@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People aren't born social. Sure it comes easier to some people... but most people, like you, need to work at it. Some more than others. You're just inexperienced. For example, as a martial artist, you have the strength to break the table with your fist. But you also have the self-control to stop your fist right before it hits the table. You weren't born with that control, were you? You had to refine it. It's the same as interacting with people. But training for that isn't in the mountains - it has to be in town where people live. Mingling with people, hurting them, getting hurt by them. That's how you learn about people and about yourself. If you don't, you'll never care about anyone but yourself. You may be a black belt fighter, but you're still a white belt in dealing with people. For the sake of the girl who will one day tell you she loves you... Don't turn away. Keep training."
+> "Even though I'm bitter over losing, even though I'm depressed, even though my ankle hurts, and my eyes are smeared with tears...even though I've never felt worse...I wonder why the stars are sparkling like this. The scent of the music room in his hair. I can hear his slightly ragged breathing. His shoulder, wet with tears, is so warm. I am by his side. I wish time would just stand still."
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Tsubaki Sawabe**](https://myanimelist.net/character.php?q=Tsubaki%20Sawabe&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
