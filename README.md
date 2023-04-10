@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing beats a cup of herbal tea in the morning."
+> "Are you a coward...OR ARE YOU A MAN OF AMERICA?!"
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Tao Len**](https://myanimelist.net/character.php?q=Tao%20Len&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
