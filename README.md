@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are some scars that never fade."
+> "Well, hurting girls isn't one of my hobbies. That's why I'll make it my hobby to stomp on their cell phones. Hahahahahaha! I'm so bored of it now... it's no longer my hobby to stomp on cell phones."
 
-&mdash; [**Basara Tōjō**](https://myanimelist.net/character.php?q=Basara%20T%C5%8Dj%C5%8D&cat=character), [**Shinmai Maou no Testament**](https://myanimelist.net/search/all?q=Shinmai%20Maou%20no%20Testament&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
