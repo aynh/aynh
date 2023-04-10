@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who the hell are they? Pedophile yakuza?"
+> "It’s like an automated vending machine for canned juice. You’ll get what you want so long as you have the money, but… You get nothing in return without it. You can’t buy your way into the hearts of others."
 
-&mdash; [**Shimura Shinpachi**](https://myanimelist.net/character.php?q=Shimura%20Shinpachi&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
