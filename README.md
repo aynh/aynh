@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whenever you fight from this point on, there is one thing you must never do. Which is...to die alone."
+> "Who the hell are they? Pedophile yakuza?"
 
-&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Shimura Shinpachi**](https://myanimelist.net/character.php?q=Shimura%20Shinpachi&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
