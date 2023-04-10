@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One day, we will vanish. New senshi and new stars will be born. But you, Sailor Moon, you will forever be immortal. You will be the most beautiful star shining in the sky for eternity."
+> "If there's no one happy, is it really a victory?"
 
-&mdash; [**Mamoru Chiba**](https://myanimelist.net/character.php?q=Mamoru%20Chiba&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
+&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
