@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is a meaning for wings that cannot fly! It's a precious memory of when you once flew in the sky."
+> "Crying when you need to cry is another way to show strength."
 
-&mdash; [**Yukito Kunisaki**](https://myanimelist.net/character.php?q=Yukito%20Kunisaki&cat=character), [**Air**](https://myanimelist.net/search/all?q=Air&cat=all)
+&mdash; [**Fay D. Flourite**](https://myanimelist.net/character.php?q=Fay%20D.%20Flourite&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
