@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry, but...believe it or not, I'm a male too."
+> "If I were the rain, that binds together the heavens and the earth, whom in all eternity will never mingle, would I be able to bind two hearts together?"
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
