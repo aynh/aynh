@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The first requirement of being a hero isn't being right. It's being strong. That's why the hero always wins."
+> "So what if you're an aristocrat?! Dying for the sake of honor is something an idiot does!"
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Saito Hiraga**](https://myanimelist.net/character.php?q=Saito%20Hiraga&cat=character), [**Zero no Tsukaima: Futatsuki no Kishi**](https://myanimelist.net/search/all?q=Zero%20no%20Tsukaima%3A%20Futatsuki%20no%20Kishi&cat=all)
