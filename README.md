@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are some people who possess certain things that money cannot buy... as if it as as natural as breathing..."
+> "Sorry, but...believe it or not, I'm a male too."
 
-&mdash; [**Ryūichirō Isaka**](https://myanimelist.net/character.php?q=Ry%C5%ABichir%C5%8D%20Isaka&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
