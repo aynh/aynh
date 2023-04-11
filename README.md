@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yes, it really﻿ was a fairy tale. A pretty girl reached out her hand to me and ... told me to die!"
+> "No matter how hard or impossible it is, never lose sight of your goal."
 
-&mdash; [**Ohana Matsumae**](https://myanimelist.net/character.php?q=Ohana%20Matsumae&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
