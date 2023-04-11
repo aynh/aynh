@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You got in an accident. You couldn't do anything afterward. It's okay to feel ashamed about that. But don't run from that shame! You have to carry that humiliation with you and live on!"
+> "Death is never an apology."
 
-&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
