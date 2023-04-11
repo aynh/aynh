@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I were the rain, that binds together the heavens and the earth, whom in all eternity will never mingle, would I be able to bind two hearts together?"
+> "The first requirement of being a hero isn't being right. It's being strong. That's why the hero always wins."
 
-&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
