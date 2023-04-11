@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Birds with the wind in their wings are flying across the great blue sky right now. And all of you should be able to make it! To the highest limit, to the farthest limit!"
+> "Yes, it really﻿ was a fairy tale. A pretty girl reached out her hand to me and ... told me to die!"
 
-&mdash; [**Ittetsu Takeda**](https://myanimelist.net/character.php?q=Ittetsu%20Takeda&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
+&mdash; [**Ohana Matsumae**](https://myanimelist.net/character.php?q=Ohana%20Matsumae&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
