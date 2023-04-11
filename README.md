@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death is never an apology."
+> "It isn't like I understand what you want. You want to change the world, huh? I understand, everyone feels that way... But it doesn't give you the right to treat other's lifes like toys. You can't just destroy what you want!"
 
-&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Lubbock**](https://myanimelist.net/character.php?q=Lubbock&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
