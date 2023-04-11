@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It isn't like I understand what you want. You want to change the world, huh? I understand, everyone feels that way... But it doesn't give you the right to treat other's lifes like toys. You can't just destroy what you want!"
+> "The storyteller may fall silent, the music may cease, but the story will not end. Be it tragedy or comedy, as long as there is applause, the story will not end. It is just like the multitude of human lives. Warm blessings to we who were not rewarded, and we who are still on our way. Our travels continue on."
 
-&mdash; [**Lubbock**](https://myanimelist.net/character.php?q=Lubbock&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Fate/stay night**](https://myanimelist.net/character.php?q=Fate%2Fstay%20night&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
