@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Inability to overcome fear is human."
+> "There are some people who possess certain things that money cannot buy... as if it as as natural as breathing..."
 
-&mdash; [**Yun**](https://myanimelist.net/character.php?q=Yun&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Ryūichirō Isaka**](https://myanimelist.net/character.php?q=Ry%C5%ABichir%C5%8D%20Isaka&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
