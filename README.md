@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The sorrows of life...To not be able to live like yourself. The joys of life...To be able to die like yourself."
+> "Birds with the wind in their wings are flying across the great blue sky right now. And all of you should be able to make it! To the highest limit, to the farthest limit!"
 
-&mdash; [**Karren von Rosewald**](https://myanimelist.net/character.php?q=Karren%20von%20Rosewald&cat=character), [**Tokyo Ghoul:re**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%3Are&cat=all)
+&mdash; [**Ittetsu Takeda**](https://myanimelist.net/character.php?q=Ittetsu%20Takeda&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
