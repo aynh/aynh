@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Incomprehensibility is a part of human life. But what does this mean? I just can't understand it."
+> "Do you think you're the main character of some kind of sob story? You don't want to see people get hurt, so you cover your eyes and ears. Using your grief to hide the suffering is the easiest path to take. But I won't forgive you if you do. You're a Brave aren't you? Do you intend to live as someone who's always protected by others!? Fight! What will you solve by running away? The ability to keep going forward is strength as well! Physical strength is not all there is to it!"
 
-&mdash; [**Graham Specter**](https://myanimelist.net/character.php?q=Graham%20Specter&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Anastasia**](https://myanimelist.net/character.php?q=Anastasia&cat=character), [**Brave 10**](https://myanimelist.net/search/all?q=Brave%2010&cat=all)
