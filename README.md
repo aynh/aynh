@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A name has nothing to do with loving someone."
+> "In life, nothing good comes out of hurrying."
 
-&mdash; [**Seiji Yagiri**](https://myanimelist.net/character.php?q=Seiji%20Yagiri&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
