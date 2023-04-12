@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In life, nothing good comes out of hurrying."
+> "Hatred will never be erased! The only thing you can do... is erase the ones you hate!"
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ren Hakuryuu**](https://myanimelist.net/character.php?q=Ren%20Hakuryuu&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
