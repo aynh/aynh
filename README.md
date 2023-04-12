@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you think you're the main character of some kind of sob story? You don't want to see people get hurt, so you cover your eyes and ears. Using your grief to hide the suffering is the easiest path to take. But I won't forgive you if you do. You're a Brave aren't you? Do you intend to live as someone who's always protected by others!? Fight! What will you solve by running away? The ability to keep going forward is strength as well! Physical strength is not all there is to it!"
+> "I've lived my life as a newspaper reporter. I uncover the truth and write my articles. But then I learned, all too well, that a mere reporter like myself can't ever get to the truth in this city... it's nearly impossible. And it's unsure! No one here is even interested in learning the truth - a truth that must be known. But I want to know! I want to learn what must be known!"
 
-&mdash; [**Anastasia**](https://myanimelist.net/character.php?q=Anastasia&cat=character), [**Brave 10**](https://myanimelist.net/search/all?q=Brave%2010&cat=all)
+&mdash; [**Michael Seebach**](https://myanimelist.net/character.php?q=Michael%20Seebach&cat=character), [**The Big O**](https://myanimelist.net/search/all?q=The%20Big%20O&cat=all)
