@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've lived my life as a newspaper reporter. I uncover the truth and write my articles. But then I learned, all too well, that a mere reporter like myself can't ever get to the truth in this city... it's nearly impossible. And it's unsure! No one here is even interested in learning the truth - a truth that must be known. But I want to know! I want to learn what must be known!"
+> "Hope is like a treasure, which you cannot carry alone."
 
-&mdash; [**Michael Seebach**](https://myanimelist.net/character.php?q=Michael%20Seebach&cat=character), [**The Big O**](https://myanimelist.net/search/all?q=The%20Big%20O&cat=all)
+&mdash; [**Sayonara Zetsubou Sensei**](https://myanimelist.net/character.php?q=Sayonara%20Zetsubou%20Sensei&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
