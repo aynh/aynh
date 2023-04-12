@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have a simpler motive. Experimentation and observation - that's all a true scientist cares about. And I am a scientist. Everything in the world is an experimental test subject, of course, that includes myself as well."
+> "Books are nice, aren't they? With just one sentence you can get lost in all sorts of dreams. They way I think of it, literature allows the reader's consciousness to deeply relish the author and be closer to him. And so, we freely walk around the world of the story from the yarn spinner's point of view. It's only when you immerse yourself in the world of a book that you are able to forget just who you are."
 
-&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Shuu Tsukiyama**](https://myanimelist.net/character.php?q=Shuu%20Tsukiyama&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
