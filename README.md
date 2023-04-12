@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The choice we're making might be one of evil as well. For we call for peace, but with weapons in our hands. Nevertheless, allow us to break of endless conflict. Give us strength."
+> "Your new form is burning through more power than your body can supply. You should hav ewaited until you were used to this form and knew how to regulate it before you started picking fights."
 
-&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Goku**](https://myanimelist.net/character.php?q=Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
