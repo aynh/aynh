@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hope is like a treasure, which you cannot carry alone."
+> "Being happy is not a right, but a duty. A duty to yourself. Waiving rights is one thing, but failing in your duty is downright irresponsible."
 
-&mdash; [**Sayonara Zetsubou Sensei**](https://myanimelist.net/character.php?q=Sayonara%20Zetsubou%20Sensei&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
