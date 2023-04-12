@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I work to support my hobby. So if you asked me which I'd choose, my job or my hobby, my hobby takes priority."
+> "When people get close to death they change."
 
-&mdash; [**Itami Youji**](https://myanimelist.net/character.php?q=Itami%20Youji&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Jin-Ie Kwon**](https://myanimelist.net/character.php?q=Jin-Ie%20Kwon&cat=character), [**The Breaker**](https://myanimelist.net/search/all?q=The%20Breaker&cat=all)
