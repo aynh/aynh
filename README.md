@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how many times I do this, it results in a wonderful reaction from you, Ichigo!"
+> "I have my own method of bending spoons. (bends the spoon with his hands) Ha! Muscle over mind!"
 
-&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
