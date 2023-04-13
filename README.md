@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You believe that the strong exist to cull the weak. To use them as food. But you are mistaken... The strong exist, not to feed off of the weak, but to protect them!"
+> "I understand now. Even if I must take the devil's fruit, I must gain power. I am an avenger."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
