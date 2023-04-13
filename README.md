@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Shinpachi is tied up, hanging from a tree, and the rope is held by the client] What kind of training is this? What kind of potential does he have?"
+> "...And the unbreaking bonds will... The bonds will... Ah, what was it? Ah, well. There was a bunch of stuff about the unbreakable bonds that you'll have to deal with while your guts overflow! Show the results of your everyday training and guts! Show off that splendor and guts to those weaklings without it! To make this tournament the best memory ever! By overcoming all sorts obstacles through trial and hardship and getting up everytime we fall down! OVERCOME EVERYTHING WITH GUTS!!"
 
-&mdash; [**Shimura Shinpachi**](https://myanimelist.net/character.php?q=Shimura%20Shinpachi&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Sogiita Gunha**](https://myanimelist.net/character.php?q=Sogiita%20Gunha&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
