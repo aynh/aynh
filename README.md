@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The truth is, there are no lives that are nothing but pretty."
+> "All I ever did was pay attention to myself. And I'm not even sure I saw myself clearly."
 
-&mdash; [**Nona**](https://myanimelist.net/character.php?q=Nona&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Luke Fon Fabre**](https://myanimelist.net/character.php?q=Luke%20Fon%20Fabre&cat=character), [**Tales of the Abyss**](https://myanimelist.net/search/all?q=Tales%20of%20the%20Abyss&cat=all)
