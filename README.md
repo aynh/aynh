@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans who would dare to play God must pay a steep price for their arrogance, that is Truth."
+> "To have the one you think is your ideal self standing in front of you, it's tough..."
 
-&mdash; [**Father**](https://myanimelist.net/character.php?q=Father&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
