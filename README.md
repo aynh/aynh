@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You trusted me, so I'll trust you too. That's what being friends means, doesn't it?"
+> "Any event is a personal episode, where only those involved comprehend what's happening."
 
-&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Kuro Fukase**](https://myanimelist.net/character.php?q=Kuro%20Fukase&cat=character), [**ib: Instant Bullet**](https://myanimelist.net/search/all?q=ib%3A%20Instant%20Bullet&cat=all)
