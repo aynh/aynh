@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has desires they can't tell anyone about. It goes without saying."
+> "You believe that the strong exist to cull the weak. To use them as food. But you are mistaken... The strong exist, not to feed off of the weak, but to protect them!"
 
-&mdash; [**Yuuki Shinjuurou**](https://myanimelist.net/character.php?q=Yuuki%20Shinjuurou&cat=character), [**Un-Go**](https://myanimelist.net/search/all?q=Un-Go&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
