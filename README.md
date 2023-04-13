@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even when our eyes are closed, there's a whole world out there, that lives outside of ourselves and our dreams."
+> "I'm okay with anything as long as it doesn't harm me."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kyoya Ootori**](https://myanimelist.net/character.php?q=Kyoya%20Ootori&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
