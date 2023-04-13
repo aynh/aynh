@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I understand now. Even if I must take the devil's fruit, I must gain power. I am an avenger."
+> "You trusted me, so I'll trust you too. That's what being friends means, doesn't it?"
 
-&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
