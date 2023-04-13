@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...And the unbreaking bonds will... The bonds will... Ah, what was it? Ah, well. There was a bunch of stuff about the unbreakable bonds that you'll have to deal with while your guts overflow! Show the results of your everyday training and guts! Show off that splendor and guts to those weaklings without it! To make this tournament the best memory ever! By overcoming all sorts obstacles through trial and hardship and getting up everytime we fall down! OVERCOME EVERYTHING WITH GUTS!!"
+> "There are three things I hate the most: Kids, pets, and women with attitude. So tell me, why do we have all of them packed into our ship!?"
 
-&mdash; [**Sogiita Gunha**](https://myanimelist.net/character.php?q=Sogiita%20Gunha&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
