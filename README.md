@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "... After all, our goal each year should be to increase the NUMBER of goals we set for ourselves!"
+> "I am who I am and there is nothing wrong with that. The days continue like they always have, bringing neither excessive desire nor despair, nothing's changed. Yet I'm overwhelmed by this sense of fulfillment. I'm over here, you're over there. If I'm your savior, then you're mine."
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
