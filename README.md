@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Any event is a personal episode, where only those involved comprehend what's happening."
+> "Anyone may claim that he will act in the direst times, yet only a brave man acts in times great and small."
 
-&mdash; [**Kuro Fukase**](https://myanimelist.net/character.php?q=Kuro%20Fukase&cat=character), [**ib: Instant Bullet**](https://myanimelist.net/search/all?q=ib%3A%20Instant%20Bullet&cat=all)
+&mdash; [**Cloud Strife**](https://myanimelist.net/character.php?q=Cloud%20Strife&cat=character), [**Final Fantasy VII: Advent Children**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Advent%20Children&cat=all)
