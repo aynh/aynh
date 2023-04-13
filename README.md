@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anyone may claim that he will act in the direst times, yet only a brave man acts in times great and small."
+> "Surviving means continuing to shoulder one's burden. When you can't handle that strain, then you'll be the one to die next."
 
-&mdash; [**Cloud Strife**](https://myanimelist.net/character.php?q=Cloud%20Strife&cat=character), [**Final Fantasy VII: Advent Children**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Advent%20Children&cat=all)
+&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
