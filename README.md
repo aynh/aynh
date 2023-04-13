@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm okay with anything as long as it doesn't harm me."
+> "Unnecessary thoughts will only interfere with your plays."
 
-&mdash; [**Kyoya Ootori**](https://myanimelist.net/character.php?q=Kyoya%20Ootori&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Gouenji Shuuya**](https://myanimelist.net/character.php?q=Gouenji%20Shuuya&cat=character), [**Inazuma Eleven**](https://myanimelist.net/search/all?q=Inazuma%20Eleven&cat=all)
