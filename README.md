@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've never considered finding that notebook and gaining that power a misfortune."
+> "You give up your future, lose your dream, are stained with despair... yet at the same time, you shake off you past, fight reality, and never lose your nobility."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
