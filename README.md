@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Inuyasha* I quite miss you as well, little brother."
+> "But I suppose it’s not so bad that an old friend is the same as ever."
 
-&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
