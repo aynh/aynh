@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My grandfather's deck has no pathetic cards, Kaiba. But it does contain... the unstoppable Exodia!"
+> "In every time, in every world, the strong polish their fangs while the weak polish their wisdom."
 
-&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
