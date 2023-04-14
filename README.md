@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't share someone's pain. You can never understand them."
+> "My grandfather's deck has no pathetic cards, Kaiba. But it does contain... the unstoppable Exodia!"
 
-&mdash; [**Nagato**](https://myanimelist.net/character.php?q=Nagato&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
