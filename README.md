@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If... If you have such good deductive skills, you should have been able to see through my sister's disguise easily... But... but... WHY...!!!"
+> "[Sees Yoruichi in cat form] Yes! It's Yoruichi! You've come back! Ha ha ha!! [Picks her up] Come here you little devil, let me take a look at you! You're my fuzzy little troublemaker, yes you are! Now who's your daddy? Hmm?"
 
-&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
