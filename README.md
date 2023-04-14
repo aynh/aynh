@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Damn it, I really don't want to follow her to hell... Looks like I'll just have to pull her out of it!"
+> "What's wrong isn't me, what's wrong is the world!"
 
-&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
