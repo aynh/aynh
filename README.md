@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But I suppose it’s not so bad that an old friend is the same as ever."
+> "Damn it, I really don't want to follow her to hell... Looks like I'll just have to pull her out of it!"
 
-&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
