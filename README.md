@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People are weak. They have no fangs or claws. All they can do is cry. And yet, how was it that this world came into the possession of humans? That's because...  among all living things... they are... the cruelest!"
+> "I've never considered finding that notebook and gaining that power a misfortune."
 
-&mdash; [**Shinnou**](https://myanimelist.net/character.php?q=Shinnou&cat=character), [**Naruto Shippūden: Kizuna**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden%3A%20Kizuna&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
