@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There will come a time in a man's life, when he must accomplish something at the risk of his life."
+> "Fact is genius's can take all the hard work of the common folk and turn the whole entire thing around, so that it's like it was all for nothing. As one of those with talent, let me apologize. I know it's unfair but... TOUGH SHIT, SUCKER'S!!"
 
-&mdash; [**Suguru Daimon**](https://myanimelist.net/character.php?q=Suguru%20Daimon&cat=character), [**Digimon Savers**](https://myanimelist.net/search/all?q=Digimon%20Savers&cat=all)
+&mdash; [**Takamura Mamoru**](https://myanimelist.net/character.php?q=Takamura%20Mamoru&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
