@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I could sell boredom, I would make a fortune out of it."
+> "There will come a time in a man's life, when he must accomplish something at the risk of his life."
 
-&mdash; [**Izayoi Sakamaki**](https://myanimelist.net/character.php?q=Izayoi%20Sakamaki&cat=character), [**Mondaiji-tachi Ga Isekai Kara Kuru Sou Desu Yo?**](https://myanimelist.net/search/all?q=Mondaiji-tachi%20Ga%20Isekai%20Kara%20Kuru%20Sou%20Desu%20Yo%3F&cat=all)
+&mdash; [**Suguru Daimon**](https://myanimelist.net/character.php?q=Suguru%20Daimon&cat=character), [**Digimon Savers**](https://myanimelist.net/search/all?q=Digimon%20Savers&cat=all)
