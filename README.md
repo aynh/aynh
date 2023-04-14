@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know the origin of the word 'utopia'? The English philosopher, Thomas More, created this word with intense irony in mind. In Greek, it means 'A place that does not exist'."
+> "A person grows up when he's able to overcome hardships. Protection is important, but there are some things that a person must learn on his own."
 
-&mdash; [**Shuntarou Chishiya**](https://myanimelist.net/character.php?q=Shuntarou%20Chishiya&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
+&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
