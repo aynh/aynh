@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was feeling down, but you distracted me by subjecting me to your selfish whims. There are times when selfishness can save a person."
+> "People are weak. They have no fangs or claws. All they can do is cry. And yet, how was it that this world came into the possession of humans? That's because...  among all living things... they are... the cruelest!"
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Shinnou**](https://myanimelist.net/character.php?q=Shinnou&cat=character), [**Naruto Shippūden: Kizuna**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden%3A%20Kizuna&cat=all)
