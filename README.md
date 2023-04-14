@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are three things I hate the most: Kids, pets, and women with attitude. So tell me, why do we have all of them packed into our ship!?"
+> "If... If you have such good deductive skills, you should have been able to see through my sister's disguise easily... But... but... WHY...!!!"
 
-&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
