@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing disappears from the heart."
+> "*to Inuyasha* I quite miss you as well, little brother."
 
-&mdash; [**Tsukasa Amakawa**](https://myanimelist.net/character.php?q=Tsukasa%20Amakawa&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
+&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
