@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen up, you lowlifes who will never amount to anything!"
+> "Pull yourself up after falling and advance with resilience."
 
-&mdash; [**Himari Takakura**](https://myanimelist.net/character.php?q=Himari%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Kamiya Kyousuke**](https://myanimelist.net/character.php?q=Kamiya%20Kyousuke&cat=character), [**Psycho Love Comedy**](https://myanimelist.net/search/all?q=Psycho%20Love%20Comedy&cat=all)
