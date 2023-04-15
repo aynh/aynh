@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Studying is important, but I think love is too. It's the last summer of high school. It's a precious time that won't come again."
+> "I've lived longer than you. And times have been bad. I know the pain of loss. You and I haven't really been fortunate. It's true. But it could be worse. For me, and for you, too... We've found good friends, haven't we? Because of your losses, you should understand."
 
-&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
