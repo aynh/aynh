@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Gin-chan told me to pay people back double for revenge!"
+> "No one dies alone. When someone dies, the part of them that lives inside someone else also dies. You already live inside me."
 
-&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
