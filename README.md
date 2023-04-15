@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not fighting frantically for your life is all right, too. The important thing is… to decide on your own what you should do."
+> "If we were all the way up there, no one here'd look any bigger than a grain of sand."
 
-&mdash; [**Hakuren Oak**](https://myanimelist.net/character.php?q=Hakuren%20Oak&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
