@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Weapons are used by soldiers on the battlefield. If you have never used them yourself, you have no idea what you're selling."
+> "Sometimes people put up walls, not to keep others out, but to see who cares enough to break them down."
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
