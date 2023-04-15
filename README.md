@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Having too many bonds causes one to lose focus, weakening their strongest wish, their greatest desire."
+> "It’s because we help out when they’re in trouble that we can count on them to come running when we need it."
 
-&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
