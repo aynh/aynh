@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I learned that no matter how much you want something, no matter how much you scream for it, sometimes it's out of your reach."
+> "Studying is important, but I think love is too. It's the last summer of high school. It's a precious time that won't come again."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
