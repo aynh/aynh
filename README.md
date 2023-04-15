@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What irony. Such beauty, sprung from such an ugly soil."
+> "When a man faces fear, his soul is tested. What he was born to seek... what he was born to achieve... his true nature will become clear."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
