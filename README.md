@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Children, this is the only gift I can give you right now. A formless gift you call a memory. I don’t have any money and I can’t give you something tangible. But even so, even if it isn’t tangible, a memory is something that will continue to be with you. That is what I believe…"
+> "[To Hitsugaya, after stabbing Hinamori] Aww...You found her. Sorry, I didn't want you to find out this way...No. I should have chopped her into little pieces and hidden them away where you would never find them."
 
-&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
