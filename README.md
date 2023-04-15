@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's always like this. The only things I can ever do for Naruto are the little things anyone could do..."
+> "Listen up, you lowlifes who will never amount to anything!"
 
-&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Himari Takakura**](https://myanimelist.net/character.php?q=Himari%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
