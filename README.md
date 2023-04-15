@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It’s because we help out when they’re in trouble that we can count on them to come running when we need it."
+> "It's always like this. The only things I can ever do for Naruto are the little things anyone could do..."
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
