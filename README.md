@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Hitsugaya, after stabbing Hinamori] Aww...You found her. Sorry, I didn't want you to find out this way...No. I should have chopped her into little pieces and hidden them away where you would never find them."
+> "Ooops....My finger slipped."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
