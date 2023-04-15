@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Forget about revenge. The fate of those who seek revenge is grim. It's tragic, You will end up suffering and hurting yourself even more. Even if you do succeed in getting revenge, the only thing that remains is emptiness."
+> "Weapons are used by soldiers on the battlefield. If you have never used them yourself, you have no idea what you're selling."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
