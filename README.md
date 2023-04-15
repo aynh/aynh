@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes people put up walls, not to keep others out, but to see who cares enough to break them down."
+> "We lost. We got wiped out. We may be finished. Maybe it was all a waste. Like they always said... We're idiots who've wasted our time on something as pointless as games. Game junkies who never leave their houses. Vegetables. But who cares? We knew that all along. We knew it, and we do it anyway. But we love games. We chose this. And sometimes we'll win, and sometimes we'll lose. So what? We've dedicated our lives to it. So it's real!"
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**William Massachusetts**](https://myanimelist.net/character.php?q=William%20Massachusetts&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
