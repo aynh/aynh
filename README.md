@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even crabs have to go on a journey sometime."
+> "Our bodies get bigger, but our hearts get torn up."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Mikoto Suoh**](https://myanimelist.net/character.php?q=Mikoto%20Suoh&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
