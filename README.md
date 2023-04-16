@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Strangely enough, when you get older, the things you didn't understand when you were a child... start to make sense. 'When this happened, I should have done that.' 'When that happened, I should have said this.' Those types of things. You start to understand rather than regret. It may be closer to repentance. So it may be that I do want to repent and erase the ignorant self from my childhood. Maybe that's what they mean when they say adults are selfish."
+> "[After Gin offers to kill some Arrancars] No thanks, for that would be boring."
 
-&mdash; [**Sohma Ayame**](https://myanimelist.net/character.php?q=Sohma%20Ayame&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
