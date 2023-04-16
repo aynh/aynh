@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you get used to the abnormalities, they become mundane."
+> "You cannot restrain me with logic."
 
-&mdash; [**Leonardo Watch**](https://myanimelist.net/character.php?q=Leonardo%20Watch&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
