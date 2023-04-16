@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[After Gin offers to kill some Arrancars] No thanks, for that would be boring."
+> "If I can, I'd like to bring back what she has lost, what she threw away."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
