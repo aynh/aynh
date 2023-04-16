@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the results come true, it's as if there's only one future. If it fails, we can think that other futures exist... I want to believe that in our future there are many possibilities waiting."
+> "Even crabs have to go on a journey sometime."
 
-&mdash; [**Fujibayashi Kyou**](https://myanimelist.net/character.php?q=Fujibayashi%20Kyou&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
