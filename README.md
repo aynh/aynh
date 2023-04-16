@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't just run away, especially from the things you want to forget!"
+> "There are wounds that even magic can't heal, but... even though it was painful to hear you talk about it, it was okay. That part was okay."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Mary**](https://myanimelist.net/character.php?q=Mary&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
