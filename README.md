@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human beings are dangerous. If we're seen, we have to leave. My parents said so."
+> "Strangely enough, when you get older, the things you didn't understand when you were a child... start to make sense. 'When this happened, I should have done that.' 'When that happened, I should have said this.' Those types of things. You start to understand rather than regret. It may be closer to repentance. So it may be that I do want to repent and erase the ignorant self from my childhood. Maybe that's what they mean when they say adults are selfish."
 
-&mdash; [**Arrietty**](https://myanimelist.net/character.php?q=Arrietty&cat=character), [**Karigurashi no Arrietty**](https://myanimelist.net/search/all?q=Karigurashi%20no%20Arrietty&cat=all)
+&mdash; [**Sohma Ayame**](https://myanimelist.net/character.php?q=Sohma%20Ayame&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
