@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're gonna send people after me, bring on the strongest you have."
+> "They say that ill weeds grow apace, but... You know, the nice ones don't live long."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Yatori**](https://myanimelist.net/character.php?q=Yatori&cat=character), [**Kamisama Hajimemashita**](https://myanimelist.net/search/all?q=Kamisama%20Hajimemashita&cat=all)
