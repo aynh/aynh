@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as I exist, I don't care if there's hell, or if only suffering exists there."
+> "If you have the guts to not give up,you can be anything you want to be.We're living creature that don't have wings, but still went to the moon."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Kurogane Ryouma**](https://myanimelist.net/character.php?q=Kurogane%20Ryouma&cat=character), [**Rakudai Kishi no Cavalry**](https://myanimelist.net/search/all?q=Rakudai%20Kishi%20no%20Cavalry&cat=all)
