@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are walls that can't be broken through power alone. But if there is a power that can break through those walls, it is the power of feelings."
+> "42-42-564 whenever you wanna knock on deaths door."
 
-&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
