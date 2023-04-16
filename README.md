@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you have the guts to not give up,you can be anything you want to be.We're living creature that don't have wings, but still went to the moon."
+> "SLEEPING is the only TALENT I have."
 
-&mdash; [**Kurogane Ryouma**](https://myanimelist.net/character.php?q=Kurogane%20Ryouma&cat=character), [**Rakudai Kishi no Cavalry**](https://myanimelist.net/search/all?q=Rakudai%20Kishi%20no%20Cavalry&cat=all)
+&mdash; [**Nagi Sanzenin**](https://myanimelist.net/character.php?q=Nagi%20Sanzenin&cat=character), [**Hayate no Gotoku!**](https://myanimelist.net/search/all?q=Hayate%20no%20Gotoku!&cat=all)
