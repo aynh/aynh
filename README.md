@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Instead of sighing about the past, I'd rather be happy to face the present."
+> "If you're gonna send people after me, bring on the strongest you have."
 
-&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
