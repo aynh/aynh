@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say that ill weeds grow apace, but... You know, the nice ones don't live long."
+> "Human beings are dangerous. If we're seen, we have to leave. My parents said so."
 
-&mdash; [**Yatori**](https://myanimelist.net/character.php?q=Yatori&cat=character), [**Kamisama Hajimemashita**](https://myanimelist.net/search/all?q=Kamisama%20Hajimemashita&cat=all)
+&mdash; [**Arrietty**](https://myanimelist.net/character.php?q=Arrietty&cat=character), [**Karigurashi no Arrietty**](https://myanimelist.net/search/all?q=Karigurashi%20no%20Arrietty&cat=all)
