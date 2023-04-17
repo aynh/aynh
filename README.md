@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've continually fought, and with each battle I've been killing my own heart. And my heart has been completely void of feeling for quite a long time now. Maybe my life doesn't have value anymore, but I have to keep on living."
+> "Zuko's gone crazy! I made a sand sculpture of Suki and he destroyed it! ... Oh, and he's attacking Aang."
 
-&mdash; [**Trowa Barton**](https://myanimelist.net/character.php?q=Trowa%20Barton&cat=character), [**Mobile Suit Gundam Wing**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Wing&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
