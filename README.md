@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry... I really... want to let you savor your moment of glory a little longer. But I really can't be having this. After all is said and done... he is still my man after all."
+> "Real men know when to run like a little bitch."
 
-&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Sunabouzu**](https://myanimelist.net/character.php?q=Sunabouzu&cat=character), [**Sunabouzu**](https://myanimelist.net/search/all?q=Sunabouzu&cat=all)
