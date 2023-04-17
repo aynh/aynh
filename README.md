@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's wrong isn't me, what's wrong is the world!"
+> "Sorry, I've had enough of running away, Sophie. Now I've got something I want to protect. It's you."
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Howl**](https://myanimelist.net/character.php?q=Howl&cat=character), [**Howl's Moving Castle**](https://myanimelist.net/search/all?q=Howl's%20Moving%20Castle&cat=all)
