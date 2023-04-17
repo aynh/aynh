@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry, I've had enough of running away, Sophie. Now I've got something I want to protect. It's you."
+> "For a winner, there is nothing to say to a loser."
 
-&mdash; [**Howl**](https://myanimelist.net/character.php?q=Howl&cat=character), [**Howl's Moving Castle**](https://myanimelist.net/search/all?q=Howl's%20Moving%20Castle&cat=all)
+&mdash; [**Daiki Aomine**](https://myanimelist.net/character.php?q=Daiki%20Aomine&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
