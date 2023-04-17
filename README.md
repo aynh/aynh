@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're either an open pervert or a closet pervert!"
+> "You can't change the world without getting your hands dirty."
 
-&mdash; [**Naotsugu**](https://myanimelist.net/character.php?q=Naotsugu&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
