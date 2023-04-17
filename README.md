@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't know anything. What the hell is up with you? Trying to be the hero? Feel like some all-powerful main character? So annoying! Why? When? Where? What? How will you do and just who will you become? You're just pretending by spouting your ideals! You have nothing! You won't become someone."
+> "You're either an open pervert or a closet pervert!"
 
-&mdash; [**Lawless**](https://myanimelist.net/character.php?q=Lawless&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
+&mdash; [**Naotsugu**](https://myanimelist.net/character.php?q=Naotsugu&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
