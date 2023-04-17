@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's just...a bad dream! Wake up, wake up..."
+> "Choosing your calling based solely on your talents won't always guarantee you happiness."
 
-&mdash; [**Chihiro Ogino**](https://myanimelist.net/character.php?q=Chihiro%20Ogino&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
+&mdash; [**Kaminski Natalia**](https://myanimelist.net/character.php?q=Kaminski%20Natalia&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
