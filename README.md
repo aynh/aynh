@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Zuko's gone crazy! I made a sand sculpture of Suki and he destroyed it! ... Oh, and he's attacking Aang."
+> "What's wrong isn't me, what's wrong is the world!"
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
