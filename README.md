@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Please don’t apologize. If you did, and I forgave you, then it’d be like it was all a lie. I want to hold those memories we had dear. The fun times… The painful times… All of it. So please, don’t apologize."
+> "Meeting you was the best thing that ever happened to me. You made me so happy. I don’t want you to be lost or afraid or anything like that. From here on out, I know things might be hard sometimes. But no matter what may await, please don’t regret meeting me."
 
-&mdash; [**Fujibayashi Ryou**](https://myanimelist.net/character.php?q=Fujibayashi%20Ryou&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
