@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no such thing as fair or unfair in battle. There is only victory or in your case, defeat."
+> "We've got no light of hope in our future! Nothing is going to happen! Our lives will be as dull as rocks! Maybe it's a life of boring happiness! But I don't want to be an adult who pretends to be satisfied with it!"
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
