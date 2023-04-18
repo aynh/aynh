@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone lives with the sins they've committed."
+> "Every day, the words cross my mind.  'If I had done this back then...' but they don't take the sincere form of regret.  The words are just an excuse that come to my mind then disappear."
 
-&mdash; [**Chiyuki**](https://myanimelist.net/character.php?q=Chiyuki&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Satoru Fujinuma**](https://myanimelist.net/character.php?q=Satoru%20Fujinuma&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
