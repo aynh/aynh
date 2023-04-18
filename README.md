@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, nobody is free. Even the flying birds are chained to the sky."
+> "People die when they are killed."
 
-&mdash; [**Yuu Otosaka**](https://myanimelist.net/character.php?q=Yuu%20Otosaka&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
