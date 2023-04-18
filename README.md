@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is truly good about a person can't be expressed in words, that it can not. What matters is the feeling of trust one gets after spending time with him."
+> "People like us aren't qualified to be involved in a dramatic incident such as a suicide. No matter how depressed you are or how much pain you're in, you have to return to your routine, daily life. Even if you don't come back, you'll just end up dying in vain. A dramatic death isn't befitting of us."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Kaoru Yamazaki**](https://myanimelist.net/character.php?q=Kaoru%20Yamazaki&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
