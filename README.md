@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't mind the regret, if I fail in attempt to achieve my dreams. What I don't wanna regret is not chasing those dreams."
+> "In this world, nobody is free. Even the flying birds are chained to the sky."
 
-&mdash; [**Akito Takagi**](https://myanimelist.net/character.php?q=Akito%20Takagi&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Yuu Otosaka**](https://myanimelist.net/character.php?q=Yuu%20Otosaka&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
