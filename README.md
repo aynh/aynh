@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're not the only one who draws power from the moon. (Hama is shocked that Katara managed to resist her bloodbending) My bending Hama, is more powerful than yours. Your technique is useless on me! (draws water from the ground and forms a ring around herself before directing it at Hama)"
+> "It's not possible to save everything. Prioritize your goals."
 
-&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
