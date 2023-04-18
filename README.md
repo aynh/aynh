@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is an incessant series of problems... all difficult, with brutally limited choices... and a time limit."
+> "I don't care if no one likes me. I wasn't created in this world to entertain everyone."
 
-&mdash; [**Chapel the Evergreen**](https://myanimelist.net/character.php?q=Chapel%20the%20Evergreen&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
