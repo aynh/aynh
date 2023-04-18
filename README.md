@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Such shallow emotions evoked by simple and cheerful stories won't solve anything! What people need is a more tangible sense of values with which to resolve the conflicts of everyday life! Even if that causes others to think of you as warped, as long as you can remain true to yourself until the moment you die; that is what I believe true dignity is!"
+> "There’s no such thing as fair or unfair in battle. There is only victory or in your case, defeat."
 
-&mdash; [**Sachi Nanjou**](https://myanimelist.net/character.php?q=Sachi%20Nanjou&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
