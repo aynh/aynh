@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People like us aren't qualified to be involved in a dramatic incident such as a suicide. No matter how depressed you are or how much pain you're in, you have to return to your routine, daily life. Even if you don't come back, you'll just end up dying in vain. A dramatic death isn't befitting of us."
+> "This is DUUUMMMBBB!!!!!!"
 
-&mdash; [**Kaoru Yamazaki**](https://myanimelist.net/character.php?q=Kaoru%20Yamazaki&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
