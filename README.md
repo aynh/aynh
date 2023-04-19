@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But its power goes beyond what is necessary... Does one really need the power to destroy everything?"
+> "If you let the fly live, the spider is going to die. You can't save both without one suffering."
 
-&mdash; [**Fei Fong Wong**](https://myanimelist.net/character.php?q=Fei%20Fong%20Wong&cat=character), [**Xenogears**](https://myanimelist.net/search/all?q=Xenogears&cat=all)
+&mdash; [**Millions Knives**](https://myanimelist.net/character.php?q=Millions%20Knives&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
