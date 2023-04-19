@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To kill the one you love... If someone else will do it anyway, I'd rather do it myself."
+> "People can't live for the future without accepting reality."
 
-&mdash; [**Kurome**](https://myanimelist.net/character.php?q=Kurome&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Kurokawa Mari**](https://myanimelist.net/character.php?q=Kurokawa%20Mari&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
