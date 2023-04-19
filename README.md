@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People can't live for the future without accepting reality."
+> "I make my own decisions, and see them to the very end. I had to find my resolve, so I could remain true to myself."
 
-&mdash; [**Kurokawa Mari**](https://myanimelist.net/character.php?q=Kurokawa%20Mari&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Saya Kisaragi**](https://myanimelist.net/character.php?q=Saya%20Kisaragi&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
