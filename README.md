@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you let the fly live, the spider is going to die. You can't save both without one suffering."
+> "We don't have to know what tomorrow holds! That's why we can live for everything we're worth today!"
 
-&mdash; [**Millions Knives**](https://myanimelist.net/character.php?q=Millions%20Knives&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
