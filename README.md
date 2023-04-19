@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have no idea what just happened, but I'll gladly take credit for it."
+> "The right to use my friends as a weapon, that is the sinful crown I shall adorn."
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Shū Ouma**](https://myanimelist.net/character.php?q=Sh%C5%AB%20Ouma&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
