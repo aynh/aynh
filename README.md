@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s only one certainty in life. A strong man stands above and conquers all!"
+> "The fight to protect life and the fight to protect honor——that's Captain Ukitake's policy. But you know, Kuchiki...I think that in the end, those both end up being the same thing. ...Heart."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
