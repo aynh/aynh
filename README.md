@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The right to use my friends as a weapon, that is the sinful crown I shall adorn."
+> "You don't like being lonely, but you're afraid of people expressing their affection towards you. You pretend not to notice. You run away. You brush it off. You cover up. You reject. You even lie to yourself, convincing yourself that no one has any feelings for you."
 
-&mdash; [**Shū Ouma**](https://myanimelist.net/character.php?q=Sh%C5%AB%20Ouma&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Rika Shiguma**](https://myanimelist.net/character.php?q=Rika%20Shiguma&cat=character), [**Boku wa Tomodachi ga Sukunai**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai&cat=all)
