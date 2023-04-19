@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yuri, I finally understand why you and I were the only ones left in this world. You and I were already lost children, but most children in the world are the same as us. That's why, even once was enough: We both needed someone to tell us 'I love you'."
+> "From a different perspective, an imposing wall is just a large door."
 
-&mdash; [**Keiju Tabuki**](https://myanimelist.net/character.php?q=Keiju%20Tabuki&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
