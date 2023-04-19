@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One more word Shigure and the entire publishing industry will know every embarrassing thing you've done since you were four."
+> "*to Zuko* Why would father want YOU back? Except to lock you up where you can no longer embarrass him!"
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Azula**](https://myanimelist.net/character.php?q=Azula&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
