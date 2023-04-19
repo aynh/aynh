@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Zuko* Why would father want YOU back? Except to lock you up where you can no longer embarrass him!"
+> "I thought I could just apologize tomorrow. But that tomorrow... never came."
 
-&mdash; [**Azula**](https://myanimelist.net/character.php?q=Azula&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Jinta Yadomi**](https://myanimelist.net/character.php?q=Jinta%20Yadomi&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
