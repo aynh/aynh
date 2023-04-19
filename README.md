@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am a scientist, I have to act on my own theory. I can't let my emotions get in the way. But it's impossible to forget everything... because I've known you for longer than we've lived. This is reality. This is the world."
+> "I have no idea what just happened, but I'll gladly take credit for it."
 
-&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
