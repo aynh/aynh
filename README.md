@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The fight to protect life and the fight to protect honor——that's Captain Ukitake's policy. But you know, Kuchiki...I think that in the end, those both end up being the same thing. ...Heart."
+> "People like you will never understand... Although it is true that many humans are stupid, immature, and high school drop outs... But! Humans possess the power of possibilities!"
 
-&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Inferno Cop**](https://myanimelist.net/character.php?q=Inferno%20Cop&cat=character), [**Inferno Cop**](https://myanimelist.net/search/all?q=Inferno%20Cop&cat=all)
