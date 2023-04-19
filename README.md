@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know the truth of the battlefield? Kill a man normally, and it's considered a crime. But kill many on the battlefield and you become a hero!"
+> "I am not Toph! I am Melon Lord! (Toph laughs maniacally)"
 
-&mdash; [**Luciano Bradley**](https://myanimelist.net/character.php?q=Luciano%20Bradley&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
