@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We don't have to know what tomorrow holds! That's why we can live for everything we're worth today!"
+> "One more word Shigure and the entire publishing industry will know every embarrassing thing you've done since you were four."
 
-&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
