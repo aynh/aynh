@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I thought I could just apologize tomorrow. But that tomorrow... never came."
+> "I am a scientist, I have to act on my own theory. I can't let my emotions get in the way. But it's impossible to forget everything... because I've known you for longer than we've lived. This is reality. This is the world."
 
-&mdash; [**Jinta Yadomi**](https://myanimelist.net/character.php?q=Jinta%20Yadomi&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
+&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
