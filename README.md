@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "From a different perspective, an imposing wall is just a large door."
+> "To kill the one you love... If someone else will do it anyway, I'd rather do it myself."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Kurome**](https://myanimelist.net/character.php?q=Kurome&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
