@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Accept me for what I am today, don't reject me because of what I was yesterday."
+> "He, who knows how to do something, is the servant of he, who knows why that thing must be done."
 
-&mdash; [**Russia**](https://myanimelist.net/character.php?q=Russia&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
