@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pain isn't something you have to feel, it's something you have to express."
+> "What are you talking about? We LET you corner us."
 
-&mdash; [**Mikiya Kokutō**](https://myanimelist.net/character.php?q=Mikiya%20Kokut%C5%8D&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
