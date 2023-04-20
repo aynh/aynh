@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, it's funny. Every crook I meet wants to tell me how much I'm just like them. But there's a big difference between you and me and the burdens we bear."
+> "When we were together, my heart felt tight, too tight to even drink water. If that's called love, then it was really just me who was in love. Just me."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
