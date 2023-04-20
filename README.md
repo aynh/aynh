@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(using a rental Pikachu doll) Thundershock, Thunderbolt, Thunder. I've been defeated so many times by Pikachu's attacks, I know them all by heart! Ahahahahahaha!"
+> "(after Goku moves a huge boulder all by himself) Krillin wants everybody to know he's speechless right now."
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
