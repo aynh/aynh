@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to spend a lot more time with you! But I don’t want you to think I’m annoying, so I’m holding myself back. When you’re away, I always wonder what you’re doing and thinking."
+> "I don't have much power and I'm trying to get stronger. But I'm not afraid of sharing my heart..."
 
-&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
