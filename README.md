@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't think anyone is born knowing the reason why they're here. It's just something you have to find as you go along."
+> "I want to spend a lot more time with you! But I don’t want you to think I’m annoying, so I’m holding myself back. When you’re away, I always wonder what you’re doing and thinking."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
