@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What are you talking about? We LET you corner us."
+> "I don't think anyone is born knowing the reason why they're here. It's just something you have to find as you go along."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
