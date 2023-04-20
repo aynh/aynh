@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(after Goku moves a huge boulder all by himself) Krillin wants everybody to know he's speechless right now."
+> "Pain isn't something you have to feel, it's something you have to express."
 
-&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Mikiya Kokutō**](https://myanimelist.net/character.php?q=Mikiya%20Kokut%C5%8D&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
