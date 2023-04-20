@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'd rather be a pig than a fascist."
+> "It's a bad habit of mine. When I concentrate on one thing, I forget other important things."
 
-&mdash; [**Porco Rosso**](https://myanimelist.net/character.php?q=Porco%20Rosso&cat=character), [**Porco Rosso**](https://myanimelist.net/search/all?q=Porco%20Rosso&cat=all)
+&mdash; [**Tsukushi Makino**](https://myanimelist.net/character.php?q=Tsukushi%20Makino&cat=character), [**Hana Yori Dango**](https://myanimelist.net/search/all?q=Hana%20Yori%20Dango&cat=all)
