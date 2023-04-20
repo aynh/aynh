@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And I thought you were going to buy a stone to evolve yourself."
+> "I'd rather be a pig than a fascist."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Porco Rosso**](https://myanimelist.net/character.php?q=Porco%20Rosso&cat=character), [**Porco Rosso**](https://myanimelist.net/search/all?q=Porco%20Rosso&cat=all)
