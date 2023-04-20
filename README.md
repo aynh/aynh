@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You shouldn't judge people by how they look."
+> "Humans are suspicious and jealous creatures. When they see something perfect, they wanna find a flaw."
 
-&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Hattori Heiji**](https://myanimelist.net/character.php?q=Hattori%20Heiji&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
