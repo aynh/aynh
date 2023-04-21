@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If people had wings... They'd be monsters."
+> "There's no more trusted observer than someone who suspects you."
 
-&mdash; [**Zack Fair**](https://myanimelist.net/character.php?q=Zack%20Fair&cat=character), [**Final Fantasy VII: Advent Children**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Advent%20Children&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
