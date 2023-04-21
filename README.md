@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's a bad habit of mine. When I concentrate on one thing, I forget other important things."
+> "If you ever feel like dying to help the universe, just let me know. I'll be waiting."
 
-&mdash; [**Tsukushi Makino**](https://myanimelist.net/character.php?q=Tsukushi%20Makino&cat=character), [**Hana Yori Dango**](https://myanimelist.net/search/all?q=Hana%20Yori%20Dango&cat=all)
+&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
