@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no more trusted observer than someone who suspects you."
+> "What are you good at, what do you like… You need to show something that makes people understand who you are."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Tatsuya Himuro**](https://myanimelist.net/character.php?q=Tatsuya%20Himuro&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
