@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Kyo] Perhaps if you'd just die you'd be reincarnated as something more pleasant."
+> "The feeling of not wanting to lose, everyone has it. If you find it unfair, you’ll have to work harder yourself."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Shuuko Murao**](https://myanimelist.net/character.php?q=Shuuko%20Murao&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
