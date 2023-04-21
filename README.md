@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Items to invent: Bed, massage chair, humidifier, rubber band, Rube Goldberg Machine, religion... Religions are invented? I've learned something new."
+> "Forgive my rudeness, but to hide your true self and make a vain display... I think that's just running away from reality. To know what you are really like, and acknowledge it... A positive thinking of enjoying yourself... isn't that what true strength is?"
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
