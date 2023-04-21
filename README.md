@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The feeling of not wanting to lose, everyone has it. If you find it unfair, you’ll have to work harder yourself."
+> "Don't call me 'this chick'."
 
-&mdash; [**Shuuko Murao**](https://myanimelist.net/character.php?q=Shuuko%20Murao&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
