@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But our world as we knew it had already been completely destroyed."
+> "War is not heroic. War is not exhilarating. War is full of despair. It's dark. It's dreadful. It's a thing of sorrow and gloom."
 
-&mdash; [**Takashi Komuro**](https://myanimelist.net/character.php?q=Takashi%20Komuro&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Kira Izuru**](https://myanimelist.net/character.php?q=Kira%20Izuru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
