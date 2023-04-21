@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You people, are you satisfied with this kind of world? I'm not."
+> "However rough the waters in the outside world may be, to find your own lighthouse and swim for it is only logical, isn't it?"
 
-&mdash; [**Lockon Stratos**](https://myanimelist.net/character.php?q=Lockon%20Stratos&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Hayabusa Shou**](https://myanimelist.net/character.php?q=Hayabusa%20Shou&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
