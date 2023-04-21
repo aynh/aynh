@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When a person encounters that which they cannot understand, what do they do? Why, they think. But you know, the more you think about something, the further you get from the truth. Yes. Your thoughts get in the way of what your instincts desire. In the way of the real answer."
+> "Ashitaka... can you save the girl you love?"
 
-&mdash; [**Fumito Nanahara**](https://myanimelist.net/character.php?q=Fumito%20Nanahara&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
+&mdash; [**Moro**](https://myanimelist.net/character.php?q=Moro&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
