@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you have any idea how stupid we are? Don't underestimate us!!!"
+> "[To Kyo] Perhaps if you'd just die you'd be reincarnated as something more pleasant."
 
-&mdash; [**Gintama**](https://myanimelist.net/character.php?q=Gintama&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
