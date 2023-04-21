@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What are you good at, what do you like… You need to show something that makes people understand who you are."
+> "Sincere feelings transcend time and connect hearts."
 
-&mdash; [**Tatsuya Himuro**](https://myanimelist.net/character.php?q=Tatsuya%20Himuro&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Fairy Tail**](https://myanimelist.net/character.php?q=Fairy%20Tail&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
