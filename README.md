@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someday, I just want to marry a regular girl who isn't too ugly and not too pretty. Have two children, first a girl, then a boy. Retire after my daughter is married and my son becomes a successful ninja, and spend the rest of my life playing shōgi or Go. Then die of old age before my wife."
+> "The power of one man doesn't amount to much. But, however little strength I'm capable of, I'll do everything humanly possible to protect the people I love, and in turn they will protect the ones they love. It seems like the least we tiny humans can do for each other."
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
