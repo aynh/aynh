@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you ever feel like dying to help the universe, just let me know. I'll be waiting."
+> "You people, are you satisfied with this kind of world? I'm not."
 
-&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Lockon Stratos**](https://myanimelist.net/character.php?q=Lockon%20Stratos&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
