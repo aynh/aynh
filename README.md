@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is short so it will be appreciated. We live to our fullest due to that."
+> "God, my face hurts from forcing smiles all night..."
 
-&mdash; [**Hattori Heiji**](https://myanimelist.net/character.php?q=Hattori%20Heiji&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
