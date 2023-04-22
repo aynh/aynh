@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Missy, could you please lend me your underwear?"
+> "In exchange of being able to get something that normal people can't have... you must let go of what normal people have."
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Aki Ogasawara**](https://myanimelist.net/character.php?q=Aki%20Ogasawara&cat=character), [**Kanojo wa Uso wo Aishisugiteru**](https://myanimelist.net/search/all?q=Kanojo%20wa%20Uso%20wo%20Aishisugiteru&cat=all)
