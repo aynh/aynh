@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time does not exist. Only the illusion of memories exist."
+> "Life is short so it will be appreciated. We live to our fullest due to that."
 
-&mdash; [**Seiichi Kirima**](https://myanimelist.net/character.php?q=Seiichi%20Kirima&cat=character), [**Boogiepop Phantom**](https://myanimelist.net/search/all?q=Boogiepop%20Phantom&cat=all)
+&mdash; [**Hattori Heiji**](https://myanimelist.net/character.php?q=Hattori%20Heiji&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
