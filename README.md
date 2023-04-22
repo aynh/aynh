@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All this time, I've lived in hope of telling you how sorry I am, I've fought armies, just to have this chance, but now, there's nothing I can say.. That's good enough."
+> "Missy, could you please lend me your underwear?"
 
-&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
