@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "God, my face hurts from forcing smiles all night..."
+> "Who wouldn't want their friends to be happy? That's just normal, man. It's nothing amazing."
 
-&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Makoto Sunakawa**](https://myanimelist.net/character.php?q=Makoto%20Sunakawa&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
