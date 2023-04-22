@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Most non-NEET people in the world don't realize that human nature isn't scalar, but vectorial."
+> "Sometimes opportunity comes in sacrifice."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Akane Ryūzōji**](https://myanimelist.net/character.php?q=Akane%20Ry%C5%ABz%C5%8Dji&cat=character), [**Walkure Romanze**](https://myanimelist.net/search/all?q=Walkure%20Romanze&cat=all)
