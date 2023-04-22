@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A past will chase you if you try to escape from it, but once you confront it, it's just an old memory inside you."
+> "[to Arrancar Gantenbainne Mosqueda] It seems that my power is more akin to yours than that of a Shinigami or a Quincy."
 
-&mdash; [**Saiyuki**](https://myanimelist.net/character.php?q=Saiyuki&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
