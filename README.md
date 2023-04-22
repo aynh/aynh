@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn’t matter how much we see each other, but how much we think of each other."
+> "Only hope can give rise to the emotion we call despair. But it is nearly impossible for a man to try to live without hope, so I guess that leaves Man no choice but to walk around with despair as his companion."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**Kingdom Hearts**](https://myanimelist.net/search/all?q=Kingdom%20Hearts&cat=all)
+&mdash; [**Kagetoki Kariya**](https://myanimelist.net/character.php?q=Kagetoki%20Kariya&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
