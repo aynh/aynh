@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who wouldn't want their friends to be happy? That's just normal, man. It's nothing amazing."
+> "I always say what exactly what I'm feeling, and if they don't like me, that's fine! It doesn't change the fact that I was close to their hearts."
 
-&mdash; [**Makoto Sunakawa**](https://myanimelist.net/character.php?q=Makoto%20Sunakawa&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
+&mdash; [**Konno Yuuki**](https://myanimelist.net/character.php?q=Konno%20Yuuki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
