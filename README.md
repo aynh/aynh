@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes opportunity comes in sacrifice."
+> "I devour the five lands and drain the three seas, yet only the sky is impossible to reach. With this body lacking wings, hands, or legs. I am the World Serpent. My name is Jormungand."
 
-&mdash; [**Akane Ryūzōji**](https://myanimelist.net/character.php?q=Akane%20Ry%C5%ABz%C5%8Dji&cat=character), [**Walkure Romanze**](https://myanimelist.net/search/all?q=Walkure%20Romanze&cat=all)
+&mdash; [**Jormungand**](https://myanimelist.net/character.php?q=Jormungand&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
