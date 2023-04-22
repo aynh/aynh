@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People must continue to fight for their fate. Unless they fight for the future they wish for, they will never know whether or not they can attain it."
+> "A past will chase you if you try to escape from it, but once you confront it, it's just an old memory inside you."
 
-&mdash; [**Annelotte Kreuz**](https://myanimelist.net/character.php?q=Annelotte%20Kreuz&cat=character), [**Queen's Blade: Rebellion**](https://myanimelist.net/search/all?q=Queen's%20Blade%3A%20Rebellion&cat=all)
+&mdash; [**Saiyuki**](https://myanimelist.net/character.php?q=Saiyuki&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
