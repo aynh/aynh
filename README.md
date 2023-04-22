@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just want to keep looking at her."
+> "Brush my teeth and go to sleep at night. Wake up and eat breakfast in the morning. People do those everywhere. When I realized that everyone did all these things on a daily basis, everything started to feel so boring."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
