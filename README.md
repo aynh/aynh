@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Brush my teeth and go to sleep at night. Wake up and eat breakfast in the morning. People do those everywhere. When I realized that everyone did all these things on a daily basis, everything started to feel so boring."
+> "All this time, I've lived in hope of telling you how sorry I am, I've fought armies, just to have this chance, but now, there's nothing I can say.. That's good enough."
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
