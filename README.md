@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Arrancar Gantenbainne Mosqueda] It seems that my power is more akin to yours than that of a Shinigami or a Quincy."
+> "I was just dreaming a little. About my old world. It's strange. In the dream, I wondered if everything here, in Aincard, if everything that had happened with you, was only a dream. I was really scared. I'm happy this wasn't a dream."
 
-&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
