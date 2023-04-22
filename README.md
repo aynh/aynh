@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The chains of fear are easily broken with the blade of courage."
+> "Hey, yo, check this out! It's a moonwalk, it's a moonwalk! Head spin!"
 
-&mdash; [**Goltas**](https://myanimelist.net/character.php?q=Goltas&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
