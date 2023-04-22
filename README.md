@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life has no weight in itself; it’s a concept created by the observer that does not have a definite form. Essentially, life does not entail multiple instances but is just one massive wobbly lump. However, we tend to refer to the bodies that were formed out of that giant lump as “lives”. The essence of life is in all of us and can’t be “stolen” or “born.” As long as the essence of life exists, life does not decrease or increase, and it certainly won’t disappear."
+> "People must continue to fight for their fate. Unless they fight for the future they wish for, they will never know whether or not they can attain it."
 
-&mdash; [**Hoshino Kazuki**](https://myanimelist.net/character.php?q=Hoshino%20Kazuki&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Annelotte Kreuz**](https://myanimelist.net/character.php?q=Annelotte%20Kreuz&cat=character), [**Queen's Blade: Rebellion**](https://myanimelist.net/search/all?q=Queen's%20Blade%3A%20Rebellion&cat=all)
