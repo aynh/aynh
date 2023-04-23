@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even though there is life, no one here is living it. Life is overflowing and they are merely drinking their fill. But Dio and all the people I've met on my journey aren't like that... they're.. they're more... they were blazing with fire. They were torches burning with life."
+> "That's all I wanted to say. There is nothing at the end of helping people. It is a false life that can save neither yourself nor others."
 
-&mdash; [**Casshern**](https://myanimelist.net/character.php?q=Casshern&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
