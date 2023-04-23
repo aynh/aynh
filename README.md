@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's all I wanted to say. There is nothing at the end of helping people. It is a false life that can save neither yourself nor others."
+> "Choosing your calling based solely on your talents won't always guarantee you happiness."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Kaminski Natalia**](https://myanimelist.net/character.php?q=Kaminski%20Natalia&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
