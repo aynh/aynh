@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is like a pencil that will surely run out, but will leave the beautiful writing of life."
+> "No fair, sky. I'm the one who feels like crying."
 
-&mdash; [**Nami**](https://myanimelist.net/character.php?q=Nami&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
