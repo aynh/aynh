@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You should cry while you still can. When you get bigger, sometimes, you can't cry even if you have something you wanna cry about."
+> "You shouldn’t stop like that. If you can move forward, then you should."
 
-&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
