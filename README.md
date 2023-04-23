@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You shouldn’t stop like that. If you can move forward, then you should."
+> "I hate waiting, but if waiting means being able to be with you I'll wait for as long as forever."
 
-&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
