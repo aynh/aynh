@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Among thousands of comrades and ten thousand enemies, only you... only you made me forget my dream. I see it!"
+> "I see...since I am no longer going to be Lord Orochimaru's vessel, my duty is to protect the vessel."
 
-&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
