@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only hope can give rise to the emotion we call despair. But it is nearly impossible for a man to try to live without hope, so I guess that leaves Man no choice but to walk around with despair as his companion."
+> "Even at a time like this there's not a single word of rescue from the one you worship. You see? That is the truth of this world. He doesn't watch anything and doesn't save anyone."
 
-&mdash; [**Kagetoki Kariya**](https://myanimelist.net/character.php?q=Kagetoki%20Kariya&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Aion**](https://myanimelist.net/character.php?q=Aion&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
