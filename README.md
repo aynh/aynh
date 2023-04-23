@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll do what I can, because I'm desperate."
+> "Isn’t it okay to consider sad or hard times as the seasoning that lets you enjoy life? You can change them inside yourself so that you can enjoy anything. It truly is a wonderful thing, living each day."
 
-&mdash; [**Kai Miyagusuku**](https://myanimelist.net/character.php?q=Kai%20Miyagusuku&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
+&mdash; [**Grandma Akino**](https://myanimelist.net/character.php?q=Grandma%20Akino&cat=character), [**Aria the Animation**](https://myanimelist.net/search/all?q=Aria%20the%20Animation&cat=all)
