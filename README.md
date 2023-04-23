@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No fair, sky. I'm the one who feels like crying."
+> "Even though there is life, no one here is living it. Life is overflowing and they are merely drinking their fill. But Dio and all the people I've met on my journey aren't like that... they're.. they're more... they were blazing with fire. They were torches burning with life."
 
-&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Casshern**](https://myanimelist.net/character.php?q=Casshern&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
