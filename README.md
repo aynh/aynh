@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just as water can overfill a container. Madness is all the same."
+> "*To the twins* We've had enough of this! You're both to blame for this fight! Hika-chan and Kao-chan, I want you to make up and go halfsies on this cake, okay? But, I want to have a piece too, so I guess we're gonna have to go thirdsies. We're not going to be able to split the strawberry on top though. What should we do? Maybe I should just take it. After all, strawberries are my favorite. Oh, I forgot to ask, Hika-chan, Kao-chan, do you like strawberries?"
 
-&mdash; [**Ryōhei Arisu**](https://myanimelist.net/character.php?q=Ry%C5%8Dhei%20Arisu&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
+&mdash; [**Mitsukuni Haninozuka**](https://myanimelist.net/character.php?q=Mitsukuni%20Haninozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
