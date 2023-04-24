@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To the twins* We've had enough of this! You're both to blame for this fight! Hika-chan and Kao-chan, I want you to make up and go halfsies on this cake, okay? But, I want to have a piece too, so I guess we're gonna have to go thirdsies. We're not going to be able to split the strawberry on top though. What should we do? Maybe I should just take it. After all, strawberries are my favorite. Oh, I forgot to ask, Hika-chan, Kao-chan, do you like strawberries?"
+> "Humans have always spent a lot of time on love. I’m not too interested in karuta, but I’m willing to work hard for love."
 
-&mdash; [**Mitsukuni Haninozuka**](https://myanimelist.net/character.php?q=Mitsukuni%20Haninozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Sumire Hanano**](https://myanimelist.net/character.php?q=Sumire%20Hanano&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
