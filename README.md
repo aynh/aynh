@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If someone you care for is ever in the eyes of danger, don't hesitate to save himher."
+> "It is simply the duty of the elite to protect the ignorant masses."
 
-&mdash; [**Aoi Toori**](https://myanimelist.net/character.php?q=Aoi%20Toori&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
+&mdash; [**Souryuu Asuka Langley**](https://myanimelist.net/character.php?q=Souryuu%20Asuka%20Langley&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
