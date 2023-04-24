@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can't do something, then don't. Focus on what you can do."
+> "Impossible, right? Compared to the enemy we're facing, you and I are the same, no more than dots! What's the point in comparing our heights? That is what makes this exciting! The smallest, the weakest - it doesn't matter! I should still wish to go and take over the world, with nothing more than my tiny dot of a body! Within my chest, beats the heart of the King of Conquerors!"
 
-&mdash; [**Shiroe**](https://myanimelist.net/character.php?q=Shiroe&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
