@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But our world as we knew it had already been completely destroyed."
+> "When something impossible happens, there are only two possibilities. Either your assumptions are wrong, or you have gone crazy."
 
-&mdash; [**Takashi Komuro**](https://myanimelist.net/character.php?q=Takashi%20Komuro&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Kougami Shinya**](https://myanimelist.net/character.php?q=Kougami%20Shinya&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
