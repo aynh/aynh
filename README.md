@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "However, even if it is reckless... I don't think someone who is making their best effort to try and break through the current situation is foolish."
+> "You yourself have to change first, or nothing will change for you!"
 
-&mdash; [**Su-won**](https://myanimelist.net/character.php?q=Su-won&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
