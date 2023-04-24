@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Impossible, right? Compared to the enemy we're facing, you and I are the same, no more than dots! What's the point in comparing our heights? That is what makes this exciting! The smallest, the weakest - it doesn't matter! I should still wish to go and take over the world, with nothing more than my tiny dot of a body! Within my chest, beats the heart of the King of Conquerors!"
+> "Fine. I'll correct myself. I have no experience. I'm a virgin. More to the point, the only kind of girl who'd talk to an unappealing virgin like you are late-bloomer virgins like me!"
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
