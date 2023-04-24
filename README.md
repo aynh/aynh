@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I love you. When did I start to love you so much?"
+> "Freedom can be found at the bottom of your heart."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Rob**](https://myanimelist.net/character.php?q=Rob&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
