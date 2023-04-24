@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans have always spent a lot of time on love. I’m not too interested in karuta, but I’m willing to work hard for love."
+> "But our world as we knew it had already been completely destroyed."
 
-&mdash; [**Sumire Hanano**](https://myanimelist.net/character.php?q=Sumire%20Hanano&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Takashi Komuro**](https://myanimelist.net/character.php?q=Takashi%20Komuro&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
