@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I yearn for true gender equality. I have no patience for one who talks about female privilege when it suits them, and then complains about someone 'not being a man' when it's convenient."
+> "Once I'm dead, I won't even be able to remember you. So I'll win, no matter what. I'll live, no matter what!"
 
-&mdash; [**Kazuma Satou**](https://myanimelist.net/character.php?q=Kazuma%20Satou&cat=character), [**Kono Subarashii Sekai ni Shukufuku wo!**](https://myanimelist.net/search/all?q=Kono%20Subarashii%20Sekai%20ni%20Shukufuku%20wo!&cat=all)
+&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
