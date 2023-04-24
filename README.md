@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is simply the duty of the elite to protect the ignorant masses."
+> "Just as water can overfill a container. Madness is all the same."
 
-&mdash; [**Souryuu Asuka Langley**](https://myanimelist.net/character.php?q=Souryuu%20Asuka%20Langley&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Ryōhei Arisu**](https://myanimelist.net/character.php?q=Ry%C5%8Dhei%20Arisu&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
