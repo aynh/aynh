@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once I'm dead, I won't even be able to remember you. So I'll win, no matter what. I'll live, no matter what!"
+> "The shadow of your former self won't vanish."
 
-&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
