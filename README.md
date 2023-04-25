@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*after Misa-chan says that she can't imagine a world without Light* Hmmm... Yes, it would be dark!"
+> "Gohan, let it go. It is not a sin to fight for the right cause. There are those who words alone will not reach."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Android 16**](https://myanimelist.net/character.php?q=Android%2016&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
