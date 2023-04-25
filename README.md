@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Gohan, let it go. It is not a sin to fight for the right cause. There are those who words alone will not reach."
+> "In life, it's better to assume that bad things will happen to you rather than good things. You can't look at someone else's success and assume that it will happen to you. There are a lot of people in the world, so it makes sense that one or two of them are going to be fortunate. But there's only one of you. Assuming that good fortune will come to you is no different than pointing a finger at a random person and predicting the same for them. But do you think that prediction would come true?"
 
-&mdash; [**Android 16**](https://myanimelist.net/character.php?q=Android%2016&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
