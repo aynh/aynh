@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Normal people don't become authors to begin with, Hermes."
+> "We could drive them off the entire earth if we had your strength, Gintoki!"
 
-&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
+&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
