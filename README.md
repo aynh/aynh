@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you give me wings, I will soar for you even if this whole land sinks down to the water. If you give me a sword, I will fight for you even if this whole sky shoots through with your light."
+> "This is my darkness. Nothing anyone says can console me."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Mato Kuroi**](https://myanimelist.net/character.php?q=Mato%20Kuroi&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
