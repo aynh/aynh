@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't like sparklers all that much. It burns so beautifully for just a little while and when it's done, only black cinders remain. It's like a misbegotten life and it makes me feel lonely for no good reason."
+> "You think you're special? You're not. Everyone lies, everyone hides things... Nobody makes it through this life being completely honest."
 
-&mdash; [**Matsushima Michiru**](https://myanimelist.net/character.php?q=Matsushima%20Michiru&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
