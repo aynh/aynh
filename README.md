@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Teresa had plenty of chances to kill Priscilla. The reason she didn't was that after being with you, Teresa's heart lost the toughness of a warrior. The Teresa I knew would have dispatched Priscilla without hesitation at their first encounter. After she met you, she was no longer fit for battle. That's why she died. That's the truth. But I think Teresa was happy."
+> "We cannot go back to the past, no matter how hard we try. No matter how wonderful it was. The past is nothing but the past."
 
-&mdash; [**Irene**](https://myanimelist.net/character.php?q=Irene&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Eikichi Onizuka**](https://myanimelist.net/character.php?q=Eikichi%20Onizuka&cat=character), [**Great Teacher Onizuka**](https://myanimelist.net/search/all?q=Great%20Teacher%20Onizuka&cat=all)
