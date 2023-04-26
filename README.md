@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[during Tosen, Gin Ichimaru and Sosuke Aizen's escape from Soul Society] Get down here, Tosen! Why did you become a Shingami? Was it not for your deceased friend? Was it not to carry out justice!? Where is your justice now!?"
+> "In their own way, fights are also a valid form of communication."
 
-&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tsukihi Araragi**](https://myanimelist.net/character.php?q=Tsukihi%20Araragi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
