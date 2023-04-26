@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's Me with a capital M! I'm the only one big enough to capitalize Me!"
+> "As time passes, the day will come when everything will fade to memories. But, those miraculous days, when you and I along with everyone else, searched together for just one thing... will continue revolving forever. Somewhere deep in my heart as my bittersweet memory."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
