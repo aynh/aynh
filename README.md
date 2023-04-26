@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ore-sama no bigi ni yoi na!"
+> "Y-you actually used your head??? You're going to get a fever!"
 
-&mdash; [**Keigo Atobe**](https://myanimelist.net/character.php?q=Keigo%20Atobe&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Tobio Kageyama**](https://myanimelist.net/character.php?q=Tobio%20Kageyama&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
