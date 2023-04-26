@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As time passes, the day will come when everything will fade to memories. But, those miraculous days, when you and I along with everyone else, searched together for just one thing... will continue revolving forever. Somewhere deep in my heart as my bittersweet memory."
+> "There are people out there who would say there's nothing more important than love. But is love really that great? There are women, who because of love, get chased around by men. And there are men, who because of love, get killed by women. To put it down, for love to be so great, there's gotta be something else behind it that's even greater."
 
-&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Dante**](https://myanimelist.net/character.php?q=Dante&cat=character), [**Devil May Cry**](https://myanimelist.net/search/all?q=Devil%20May%20Cry&cat=all)
