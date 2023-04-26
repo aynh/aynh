@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someone that really can't kill others, has no reason. It is unnatural when you are able to find a reason why you can't kill, and can tell others smoothly."
+> "Friends are a good thing, even if they tread a different path."
 
-&mdash; [**Otonashi Maria**](https://myanimelist.net/character.php?q=Otonashi%20Maria&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
