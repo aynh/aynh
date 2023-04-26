@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's always room for free food."
+> "Someone that really can't kill others, has no reason. It is unnatural when you are able to find a reason why you can't kill, and can tell others smoothly."
 
-&mdash; [**Kasumi Fuu**](https://myanimelist.net/character.php?q=Kasumi%20Fuu&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Otonashi Maria**](https://myanimelist.net/character.php?q=Otonashi%20Maria&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
