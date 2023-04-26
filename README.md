@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Friends are a good thing, even if they tread a different path."
+> "You are too young to worry about failure. In a pinch, just muddle through. The outcome won't change, so that's best."
 
-&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Bang**](https://myanimelist.net/character.php?q=Bang&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
