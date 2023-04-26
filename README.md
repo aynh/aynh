@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hurt me with the truth. But never comfort me with a lie."
+> "Because we can’t understand each other, it makes us want to make things clear even more."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
