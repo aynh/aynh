@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things that cannot be taken back. But the world will keep on spinning whether you laugh or you cry. High school life will eventually end too."
+> "Teresa had plenty of chances to kill Priscilla. The reason she didn't was that after being with you, Teresa's heart lost the toughness of a warrior. The Teresa I knew would have dispatched Priscilla without hesitation at their first encounter. After she met you, she was no longer fit for battle. That's why she died. That's the truth. But I think Teresa was happy."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Irene**](https://myanimelist.net/character.php?q=Irene&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
