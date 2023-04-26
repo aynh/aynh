@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because we can’t understand each other, it makes us want to make things clear even more."
+> "It's Me with a capital M! I'm the only one big enough to capitalize Me!"
 
-&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
