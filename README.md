@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You think you're special? You're not. Everyone lies, everyone hides things... Nobody makes it through this life being completely honest."
+> "Even if I DO sacrifice my own life, I will only do it to save my friends."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Lenalee Lee**](https://myanimelist.net/character.php?q=Lenalee%20Lee&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
