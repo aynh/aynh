@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are too young to worry about failure. In a pinch, just muddle through. The outcome won't change, so that's best."
+> "Our lives become a reality through the most meticulous calculations. Doing our best to continue living is a resolution ingrained in all of us. And this shapes the right future for us. You could say it is life’s greatest mystery. I want to observe the destination reached by the many lives that are created."
 
-&mdash; [**Bang**](https://myanimelist.net/character.php?q=Bang&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Akari**](https://myanimelist.net/character.php?q=Akari&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
