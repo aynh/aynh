@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A garden retains its beauty as long as it is tended to and cared for. Life in general, is the same. Once it becomes pretty, it mustn't go back to being the primitive mess it started out as."
+> "If you're going to dig, dig to pierce the heavens. Even if it's my grave I'm digging, I'll keep going! When I break through, that means I've WON! Who the hell do you think I am? I'm Simon. I'm not my bro, Kamina. I'm ME! Simon the Digger!"
 
-&mdash; [**Kotori Kanbe**](https://myanimelist.net/character.php?q=Kotori%20Kanbe&cat=character), [**Rewrite**](https://myanimelist.net/search/all?q=Rewrite&cat=all)
+&mdash; [**Simon**](https://myanimelist.net/character.php?q=Simon&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
