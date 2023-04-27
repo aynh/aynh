@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you do evil out of a hatred for evil, that rage and hate will merely birth new conflict."
+> "Matt... I never thought you'd be killed... I'm sorry."
 
-&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
