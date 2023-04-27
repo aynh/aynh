@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We do have a lot in common. The same earth, the same air, the same sky. Maybe if we started looking at what's the same, instead of always looking at what is different... well, who knows?"
+> "Every week, when it is time, they stick to the TV. They watch my actions in the comfort of their families after dinner. Children watch my actions and their hearts leap. They see me stand up to evil spirits and... they know what courage is! Do you understand, boy? With them watching, I can't run away from the enemy"
 
-&mdash; [**Nyarth**](https://myanimelist.net/character.php?q=Nyarth&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Don Kanonji**](https://myanimelist.net/character.php?q=Don%20Kanonji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
