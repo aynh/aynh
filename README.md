@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Doing this and that for your country is surely not your job, but the kings. But taking action for your country and her people - your parentage has no bearing on that. It is a most noble thing."
+> "Someone who can be deceived by others will be deceived again and again."
 
-&mdash; [**Etoile**](https://myanimelist.net/character.php?q=Etoile&cat=character), [**Arslan Senki**](https://myanimelist.net/search/all?q=Arslan%20Senki&cat=all)
+&mdash; [**Lelei la Lelena**](https://myanimelist.net/character.php?q=Lelei%20la%20Lelena&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
