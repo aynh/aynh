@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans cannot reject temptation. When they are plunged into the depths of despair, likened to hell, they will hold on to anything that may help them escape from the situation they are in, even if it's merely a spider's thread, no matter what sort of humans they are."
+> "You don’t waste your time following someone around unless you like him. Stalking is a sign of love."
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Aoi Yamada**](https://myanimelist.net/character.php?q=Aoi%20Yamada&cat=character), [**Working!!**](https://myanimelist.net/search/all?q=Working!!&cat=all)
