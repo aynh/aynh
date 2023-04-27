@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What we need now is not the diary of the past, but instead the calendar of the future."
+> "I wouldn't learn German just to apologize, that would be too much work."
 
-&mdash; [**Dusty Attenborough**](https://myanimelist.net/character.php?q=Dusty%20Attenborough&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Asaba Yuki**](https://myanimelist.net/character.php?q=Asaba%20Yuki&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
