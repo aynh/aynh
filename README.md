@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A person can only murder another once. The act of murder is giving up the humanity that is within oneself. What is left is just emptiness. You can not lose humanity if it is already lost. The act of murder turns into the act of slaughter. They are two different things."
+> "You destroyed those Menos Grandes. That's enough for me! I have decided to fight by your side! I won't accept no as an answer, masked ones!"
 
-&mdash; [**Ryougi Shiki**](https://myanimelist.net/character.php?q=Ryougi%20Shiki&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
