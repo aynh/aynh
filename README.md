@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As a musician, in the process of learning from a teacher, your differences breed a sense of discomfort which you should cherish. It's because of those differences that we have individuality."
+> "What we need now is not the diary of the past, but instead the calendar of the future."
 
-&mdash; [**Hiroko Seto**](https://myanimelist.net/character.php?q=Hiroko%20Seto&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Dusty Attenborough**](https://myanimelist.net/character.php?q=Dusty%20Attenborough&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
