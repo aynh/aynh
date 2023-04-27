@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don’t waste your time following someone around unless you like him. Stalking is a sign of love."
+> "A person can only murder another once. The act of murder is giving up the humanity that is within oneself. What is left is just emptiness. You can not lose humanity if it is already lost. The act of murder turns into the act of slaughter. They are two different things."
 
-&mdash; [**Aoi Yamada**](https://myanimelist.net/character.php?q=Aoi%20Yamada&cat=character), [**Working!!**](https://myanimelist.net/search/all?q=Working!!&cat=all)
+&mdash; [**Ryougi Shiki**](https://myanimelist.net/character.php?q=Ryougi%20Shiki&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
