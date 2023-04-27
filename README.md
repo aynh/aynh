@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wouldn't learn German just to apologize, that would be too much work."
+> "Quotes were invented in Korea, you know!"
 
-&mdash; [**Asaba Yuki**](https://myanimelist.net/character.php?q=Asaba%20Yuki&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
+&mdash; [**South Korea**](https://myanimelist.net/character.php?q=South%20Korea&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
