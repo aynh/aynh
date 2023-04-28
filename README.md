@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So, yeah. Strong animals don’t gather in herds or anything like that. Do they not know the expression “a lone wolf”? Cats are cute and wolves are cool. In other words, loners are cute and cool."
+> "Who falls for who depends completely on the person. If there are a hundred people, there are a hundred ways to love... There never is one absolute form of love."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Nenji Kashiwazaki**](https://myanimelist.net/character.php?q=Nenji%20Kashiwazaki&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
