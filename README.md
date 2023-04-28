@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who falls for who depends completely on the person. If there are a hundred people, there are a hundred ways to love... There never is one absolute form of love."
+> "Hey! Hold on, come back! I'll tell you what! I can lower those 1,000 provisions down to 800, just as long as you take part in the five hour story telling party."
 
-&mdash; [**Nenji Kashiwazaki**](https://myanimelist.net/character.php?q=Nenji%20Kashiwazaki&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
