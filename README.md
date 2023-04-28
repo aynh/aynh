@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It takes more courage to speak the truth than it does to wield a sword."
+> "[aiming at a small prey animal] You're awfully cute, but unfortunately for you, you're made of meat."
 
-&mdash; [**Sehara**](https://myanimelist.net/character.php?q=Sehara&cat=character), [**One thousand and one nights**](https://myanimelist.net/search/all?q=One%20thousand%20and%20one%20nights&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
