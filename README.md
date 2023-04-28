@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I do not deny evil, nor do I believe that any human is completely free of malice. Everything must be in balance. As long as evil and good maintain an equilibrium in this world, there is no problem. Perfect balance is the key to everything."
+> "All truth is meaningless. In the end, 'meaning' comes from the mind of each individual human. Even when there is a single truth, it can mean different things to different individuals. The truth has no meaning in itself!"
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Furudo Erika**](https://myanimelist.net/character.php?q=Furudo%20Erika&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
