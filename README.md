@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Miracles are illusions caused by insufficient observation and understanding. They're just... glorious misunderstandings."
+> "What you see isn't necessarily reality. Everyone has secrets, things they feel that they can't tell anyone. There's no such thing as a normal person."
 
-&mdash; [**Tanya Degurechaff**](https://myanimelist.net/character.php?q=Tanya%20Degurechaff&cat=character), [**Youjo Senki**](https://myanimelist.net/search/all?q=Youjo%20Senki&cat=all)
+&mdash; [**Celty Sturluson**](https://myanimelist.net/character.php?q=Celty%20Sturluson&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
