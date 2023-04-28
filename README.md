@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was able to become strong because I still believe those words. That a man can't become strong for revenge's sake. He becomes strong because he believes in something."
+> "While I’m here wasting time, how hard is Kakarot training?"
 
-&mdash; [**Adlet Mayer**](https://myanimelist.net/character.php?q=Adlet%20Mayer&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
