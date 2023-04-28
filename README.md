@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "While I’m here wasting time, how hard is Kakarot training?"
+> "So, yeah. Strong animals don’t gather in herds or anything like that. Do they not know the expression “a lone wolf”? Cats are cute and wolves are cool. In other words, loners are cute and cool."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
