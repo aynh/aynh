@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't believe in anyone, nor do I believe in God. I just believe in myself."
+> "Just apologize, even if you don't mean it. *to some kid, about Inuyasha*"
 
-&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
