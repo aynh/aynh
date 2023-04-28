@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People cry, not because they're weak. Its because they've been strong for too long."
+> "[to Ichigo] Don't forget my name, Soul Reaper, and you better pray that you never hear it again! Grimmjow Jaegerjaquez...because the next time you hear my name, you'll be a dead man...I promise."
 
-&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
