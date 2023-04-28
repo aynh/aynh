@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "STOP IMAGINING ME!"
+> "It's only natural for a man to protect the girl he likes."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Saito Hiraga**](https://myanimelist.net/character.php?q=Saito%20Hiraga&cat=character), [**Zero no Tsukaima: Princess no Rondo**](https://myanimelist.net/search/all?q=Zero%20no%20Tsukaima%3A%20Princess%20no%20Rondo&cat=all)
