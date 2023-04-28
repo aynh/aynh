@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Katara] Come... closer... closer... Will you go penguin sledding with me?"
+> "Our contribution will never come into light, but the failure will be noticed immediately."
 
-&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Hidemi Hondou**](https://myanimelist.net/character.php?q=Hidemi%20Hondou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
