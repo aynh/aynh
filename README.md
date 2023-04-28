@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you keep bad-mouthing someone, you might feel like as if you are on a higher position than that person. But in actual fact, its completely wrong to do that!"
+> "[to Katara] Come... closer... closer... Will you go penguin sledding with me?"
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
