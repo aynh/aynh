@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just apologize, even if you don't mean it. *to some kid, about Inuyasha*"
+> "It takes more courage to speak the truth than it does to wield a sword."
 
-&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Sehara**](https://myanimelist.net/character.php?q=Sehara&cat=character), [**One thousand and one nights**](https://myanimelist.net/search/all?q=One%20thousand%20and%20one%20nights&cat=all)
