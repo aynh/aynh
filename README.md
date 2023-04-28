@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[aiming at a small prey animal] You're awfully cute, but unfortunately for you, you're made of meat."
+> "Your grievance shall be avenged."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
