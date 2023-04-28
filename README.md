@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our contribution will never come into light, but the failure will be noticed immediately."
+> "Sometimes the blood rushes to my head and I feel like, if I run I'll lose something important."
 
-&mdash; [**Hidemi Hondou**](https://myanimelist.net/character.php?q=Hidemi%20Hondou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
