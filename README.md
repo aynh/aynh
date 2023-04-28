@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's only natural for a man to protect the girl he likes."
+> "Miracles are illusions caused by insufficient observation and understanding. They're just... glorious misunderstandings."
 
-&mdash; [**Saito Hiraga**](https://myanimelist.net/character.php?q=Saito%20Hiraga&cat=character), [**Zero no Tsukaima: Princess no Rondo**](https://myanimelist.net/search/all?q=Zero%20no%20Tsukaima%3A%20Princess%20no%20Rondo&cat=all)
+&mdash; [**Tanya Degurechaff**](https://myanimelist.net/character.php?q=Tanya%20Degurechaff&cat=character), [**Youjo Senki**](https://myanimelist.net/search/all?q=Youjo%20Senki&cat=all)
