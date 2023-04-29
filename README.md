@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "True power is forged from the desire smoldering in the heart, it fans into a flame and begins to burn with an intensity one scarcely imagines to be possible..."
+> "Love is simply an electrical bug in the human neural circuit."
 
-&mdash; [**Orochimaru**](https://myanimelist.net/character.php?q=Orochimaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Akasaka Ryuunosuke**](https://myanimelist.net/character.php?q=Akasaka%20Ryuunosuke&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
