@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Though possessing two eyes, most creatures can see but a single thing at a time."
+> "You gotta love humans. When everything sticks to the script, they can put on a great act. But as soon as something unexpected happens, they react completely true to their nature."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
