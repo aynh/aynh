@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There will be some who give up because they are dissatisfied... But some feel unsettled and are lonely. So if... one day we could all laugh freely together... We, who are all in the same circumstances, can help each other... I think that will be more comforting than anything else and will also chase away loneliness."
+> "I... don't know why I'm alive. I have no reason to live. I have no interest in others. Living without concern for others... That's the way to live. Working a job that earns me just enough to eat... A life like that was enough..."
 
-&mdash; [**Yuu Tobita**](https://myanimelist.net/character.php?q=Yuu%20Tobita&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
+&mdash; [**Yuzuru Otonashi**](https://myanimelist.net/character.php?q=Yuzuru%20Otonashi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
