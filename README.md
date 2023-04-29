@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you ready now, to witness a power not seen for thousands of years?"
+> "When people are faced with a situation they don't understand, it's easy for fear to take hold."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
