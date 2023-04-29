@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This young girl, whose small body is only half the size of mine, has taught me that tears can flow from these silver eyes."
+> "I thought I just heard someone say 'We're blasting off again' but we copyrighted that!"
 
-&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
