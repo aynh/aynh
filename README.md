@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more you want something, the harder it is to wait for it."
+> "You have to fool your own people before you try to bluff the enemy."
 
-&mdash; [**Kabuto Yakushi**](https://myanimelist.net/character.php?q=Kabuto%20Yakushi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
