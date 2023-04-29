@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To live is to die, to die is to live. Pure is unpure, unpure is pure."
+> "This young girl, whose small body is only half the size of mine, has taught me that tears can flow from these silver eyes."
 
-&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
