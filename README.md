@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is right? What is wrong? In this mixed up world, deciding what is right and wrong is not easy. You can't just go by somebody else's rules. If you let yourself be controlled like that, you'll just become a puppet that can't make decisions on it's own. You have to live by your rules."
+> "If you don't take risks, you can't create a future."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
