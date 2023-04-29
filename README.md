@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes the truth can hurt others more than a lie."
+> "Maten Scripture binding force of power where light is darkness and darkness is light I call upon your power to cast my enemy back Into OBLIVION!"
 
-&mdash; [**Nonomiya**](https://myanimelist.net/character.php?q=Nonomiya&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
