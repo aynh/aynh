@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I thought I just heard someone say 'We're blasting off again' but we copyrighted that!"
+> "Don't judge me if you don't stand in my position."
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Satsuki Shishio**](https://myanimelist.net/character.php?q=Satsuki%20Shishio&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
