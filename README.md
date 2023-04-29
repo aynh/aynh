@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no such thing as being born into the world to be alone."
+> "There will be some who give up because they are dissatisfied... But some feel unsettled and are lonely. So if... one day we could all laugh freely together... We, who are all in the same circumstances, can help each other... I think that will be more comforting than anything else and will also chase away loneliness."
 
-&mdash; [**Saul Jaguar D**](https://myanimelist.net/character.php?q=Saul%20Jaguar%20D&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Yuu Tobita**](https://myanimelist.net/character.php?q=Yuu%20Tobita&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
