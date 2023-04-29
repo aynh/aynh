@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you telling me to go back and put a corpse on trial?"
+> "No matter what we learn, no matter what we obtain, nothing ever changes! People are amazing that way! They become envious, hate each other, and destroy each other! If that's what they truly desire, why don't they simply exterminate each other!?"
 
-&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
