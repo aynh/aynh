@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You gotta love humans. When everything sticks to the script, they can put on a great act. But as soon as something unexpected happens, they react completely true to their nature."
+> "I am not a hero. I can't make anyone happy with any result. I can only do what I deem right with me not hating my choice at a later point."
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Osamu Mikumo**](https://myanimelist.net/character.php?q=Osamu%20Mikumo&cat=character), [**World Trigger**](https://myanimelist.net/search/all?q=World%20Trigger&cat=all)
