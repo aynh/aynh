@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No... this is wrong! Didn't I fall into hell? This can't be hell! Surrendering my body to the devil, I should have become a wrinkled hag! My hair should be full of hateful snakes, my skin should be the color of a vile frog's! And my blood should be burning with the jet black flames of my grudge..! A lie. This form, it's a lie! I've been tricked! I wanted to become a terrifying woman, one that just a look from, would send anyone running. I have to be such a woman! I don't want to forget my anger and hate!"
+> "Evil is when you use the weak for your own gain and crush them under your foot."
 
-&mdash; [**Jeanne**](https://myanimelist.net/character.php?q=Jeanne&cat=character), [**Kanashimi no Belladonna**](https://myanimelist.net/search/all?q=Kanashimi%20no%20Belladonna&cat=all)
+&mdash; [**Jotaro Kujo**](https://myanimelist.net/character.php?q=Jotaro%20Kujo&cat=character), [**JoJo's Bizarre Adventure: Stardust Crusaders**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Stardust%20Crusaders&cat=all)
