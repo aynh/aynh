@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A king must live a life more vivid than any other and be figure for all to admire! The king is the one who collects the envy of all his heroes and stands as their guide! Therefore, the king is not alone! For his will equals that of all his followers combined!"
+> "Not one wish ever gets granted in this world."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Tobi**](https://myanimelist.net/character.php?q=Tobi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
