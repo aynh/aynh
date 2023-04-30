@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't keep something without fighting for it."
+> "I don't care if you're the son of the president or what. That just shows the success of your father. It doesn't mean you are excellent too."
 
-&mdash; [**Hajime Kanzaki**](https://myanimelist.net/character.php?q=Hajime%20Kanzaki&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
+&mdash; [**Mikoto Kujou**](https://myanimelist.net/character.php?q=Mikoto%20Kujou&cat=character), [**Last Game**](https://myanimelist.net/search/all?q=Last%20Game&cat=all)
