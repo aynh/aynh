@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Keeping all the wealth for yourself may make your rich, but it won’t make you prosperous. You give people money, and they spend it. True prosperity comes from a free flow of wealth and goods."
+> "Anyone can say that he likes himself best. When you say that you like someone, you just end up liking yourself in the moment of being with that person, right?"
 
-&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
+&mdash; [**Yuusuke Kanda**](https://myanimelist.net/character.php?q=Yuusuke%20Kanda&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
