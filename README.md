@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why did he smile? Why? Did he know he would be saved? No. In that instant, he must have understood that his life was going to end. Death. He accepted it. He was fully prepared for it and smiled."
+> "Your grievance shall be avenged."
 
-&mdash; [**Smoker**](https://myanimelist.net/character.php?q=Smoker&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
