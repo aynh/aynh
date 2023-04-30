@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who'd want to date girls that talk smack about your friends?"
+> "[to Ichigo] You're a Soul Reaper and I'm a Hollow. Whichever side loses will be massacred! It's been that way for over a thousand years! Who needs any more reason than that?! Now bring it! The last man standing gets to go home alive! That's all there is to it!"
 
-&mdash; [**Makoto Sunakawa**](https://myanimelist.net/character.php?q=Makoto%20Sunakawa&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
+&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
