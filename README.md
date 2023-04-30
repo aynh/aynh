@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop pitying yourself. Pity yourself, and life becomes an endless nightmare."
+> "Before my eyes, it blocks my path. A high, high wall. What sort of scene is on the other side? What will I be able to see there? “The view from the top”. A scenery I will never be able to see on my own. But if I’m not alone, then... I might be able to see it."
 
-&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
+&mdash; [**Shōyō Hinata**](https://myanimelist.net/character.php?q=Sh%C5%8Dy%C5%8D%20Hinata&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
