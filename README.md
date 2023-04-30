@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Evil is when you use the weak for your own gain and crush them under your foot."
+> "Why did he smile? Why? Did he know he would be saved? No. In that instant, he must have understood that his life was going to end. Death. He accepted it. He was fully prepared for it and smiled."
 
-&mdash; [**Jotaro Kujo**](https://myanimelist.net/character.php?q=Jotaro%20Kujo&cat=character), [**JoJo's Bizarre Adventure: Stardust Crusaders**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Stardust%20Crusaders&cat=all)
+&mdash; [**Smoker**](https://myanimelist.net/character.php?q=Smoker&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
