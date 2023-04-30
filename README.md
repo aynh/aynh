@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anyone can say that he likes himself best. When you say that you like someone, you just end up liking yourself in the moment of being with that person, right?"
+> "My existence was nothing more to her than a stone by the side of the road. I wasn't enough to fill her belly. Or perhaps I didn't even get reflected in her eyes. I couldn't even hate the beast that killed Teresa. It was me, overcome by fear, that I could not forgive."
 
-&mdash; [**Yuusuke Kanda**](https://myanimelist.net/character.php?q=Yuusuke%20Kanda&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Clare**](https://myanimelist.net/character.php?q=Clare&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
