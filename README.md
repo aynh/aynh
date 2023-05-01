@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world...what a glorious place! Seek freedom, and it will lie stretched out before your eyes. If the endless dream guides your restless spirit, seize it! Raise your flag, and stand tall!"
+> "Everyone here is the same. They don't notice anything. They don't say anything. And they don't think anything. They are merely a shell of their former selves and soon they will disappear like the melting snow. This epidemic leads innocent people to their deaths, and yet, its pathogen will never be eradicated. This is a disease called serenity - a form of death that people have wished for."
 
-&mdash; [**Gol D. Roger**](https://myanimelist.net/character.php?q=Gol%20D.%20Roger&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Oryou Rikako**](https://myanimelist.net/character.php?q=Oryou%20Rikako&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
