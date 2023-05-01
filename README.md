@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am Elliot Nightray and I will not let you take that away from me!!"
+> "I will do anything it takes to be the man she loves. I will survive this war. And when I return home, I will swallow every horrible thing I've done here, and I will smile when I'm with her. I swear on my life."
 
-&mdash; [**Elliot Nightray**](https://myanimelist.net/character.php?q=Elliot%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist: Brotherhood OAV**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood%20OAV&cat=all)
