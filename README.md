@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Rely on impulse and not even your thoughts can betray you."
+> "That is why I will keep running for now. If I aim for the distance, there should come a day when I would be able to reach out to what I have been aiming for."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
