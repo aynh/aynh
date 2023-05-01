@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A four-poster coffin. Bloody hell."
+> "Sometimes, the questions are complicated - and the answers are simple."
 
-&mdash; [**Seras Victoria**](https://myanimelist.net/character.php?q=Seras%20Victoria&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
