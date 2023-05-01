@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To me, nothing is painful. There is no such thing as anguish. Even if some things seem like they hurt, deep down, everyone is a nice person. We can understand each other, or so I thought; or so I liked to think. I didn't want to wallow in misery. I didn't want to become spiteful. I just didn't want to be hurt. I didn't want to be hated."
+> "A four-poster coffin. Bloody hell."
 
-&mdash; [**Mato Kuroi**](https://myanimelist.net/character.php?q=Mato%20Kuroi&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
+&mdash; [**Seras Victoria**](https://myanimelist.net/character.php?q=Seras%20Victoria&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
