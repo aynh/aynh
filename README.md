@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how severe the situation is, if you continue to stay there, you'll accept everything as a everyday life."
+> "To me, nothing is painful. There is no such thing as anguish. Even if some things seem like they hurt, deep down, everyone is a nice person. We can understand each other, or so I thought; or so I liked to think. I didn't want to wallow in misery. I didn't want to become spiteful. I just didn't want to be hurt. I didn't want to be hated."
 
-&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Mato Kuroi**](https://myanimelist.net/character.php?q=Mato%20Kuroi&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
