@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What do you know of death?!! Have you ever died?!! You think death will preserve your cause forever?!! Ridiculous!! Death leaves nothing behind!! Once a person passes on, nothing remains but dead bones!! If there is one thing I can’t stand, it is a person with no respect for life!!"
+> "Water is the greatest enemy of games."
 
-&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
