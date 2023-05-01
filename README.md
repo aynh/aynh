@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "On the one hand, humans seek out new stimuli with insatiable desire. On the other, they're also odd creatures that value old and very rare things."
+> "Rather than not doing anything and regretting it, we should do something and regret it."
 
-&mdash; [**Victorique de Blois**](https://myanimelist.net/character.php?q=Victorique%20de%20Blois&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
+&mdash; [**Yakumo Tsukamoto**](https://myanimelist.net/character.php?q=Yakumo%20Tsukamoto&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
