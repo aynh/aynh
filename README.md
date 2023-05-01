@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stealing someone's name is never all right. It means you're unwilling to recognize them as human."
+> "Rely on impulse and not even your thoughts can betray you."
 
-&mdash; [**Shiroe**](https://myanimelist.net/character.php?q=Shiroe&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
