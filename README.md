@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm Black Star. I'm on a whole different level than you. I'm a big man! I beat death! Who else can say that?!"
+> "I realized why I was lost. It's not because I didn't have a map... It was because I didn't have a destination."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
