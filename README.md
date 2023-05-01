@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will do anything it takes to be the man she loves. I will survive this war. And when I return home, I will swallow every horrible thing I've done here, and I will smile when I'm with her. I swear on my life."
+> "Rather than leaving someone to die, I'd much rather die together with them."
 
-&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist: Brotherhood OAV**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood%20OAV&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
