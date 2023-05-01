@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Rather than leaving someone to die, I'd much rather die together with them."
+> "No matter how severe the situation is, if you continue to stay there, you'll accept everything as a everyday life."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
