@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even though there's such a thing as an impossible game, there's no such thing as an impossible reality."
+> "In order to accomplish anything, sacrifices must be made."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
