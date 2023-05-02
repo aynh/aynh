@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Broadly speaking, there are two reasons a person feels the desire to teach something: Either he wants to pass on his successes or he wants to pass on his failures."
+> "I understand the pain of losing a comrade. I've experienced it, too. Please do not forget the pain. You will move forward while holding on to that pain. Please treasure the comrades you have now. Once they are gone, they will not return. Usually, you don't realize this until afterwards."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Shinohara**](https://myanimelist.net/character.php?q=Shinohara&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
