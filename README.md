@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you've forgotten death... then you've forgotten what it truly means to be alive."
+> "That dog is neither man nor monster. Only a man can truly hope to kill a monster."
 
-&mdash; [**Casshern**](https://myanimelist.net/character.php?q=Casshern&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
