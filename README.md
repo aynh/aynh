@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Forcing their interest on someone else, that's a legitimate previlege of an otaku."
+> "Kurama, do not make me come over there and remove that precious thing you call a voice box."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
