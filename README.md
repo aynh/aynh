@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You guys are a team, you have to work together if you want to do anything! One person can't make a decision without the other, you decide together and you fight together!"
+> "Say your prayers, wretches. Filth like you is even lower than Yoma. I'm going to kill... every last one of you."
 
-&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
