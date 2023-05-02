@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not defined by my abilities alone."
+> "What you learn at your school is more important than where you go to school."
 
-&mdash; [**Kira Yamato**](https://myanimelist.net/character.php?q=Kira%20Yamato&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
