@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What you learn at your school is more important than where you go to school."
+> "Oh! My little scythey boy!"
 
-&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Blair**](https://myanimelist.net/character.php?q=Blair&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
