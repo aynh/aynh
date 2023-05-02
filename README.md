@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That dog is neither man nor monster. Only a man can truly hope to kill a monster."
+> "It most certainly isn't pleasant being called a 'traitor' by creatures you've never met."
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
