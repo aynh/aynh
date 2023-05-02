@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All day, I've had to sit in the stench of cigarettes and alcohol. Every single person I met today was drinking and smoking. If they weren't, they were doing drugs. Well, except for Wayne. I've... had enough of it."
+> "You know, it'd really be embarrassing to get eaten by something that came out of an egg this tiny."
 
-&mdash; [**Annie Leonhardt**](https://myanimelist.net/character.php?q=Annie%20Leonhardt&cat=character), [**Shingeki no Kyojin: Lost Girls**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Lost%20Girls&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
