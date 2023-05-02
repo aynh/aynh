@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Say your prayers, wretches. Filth like you is even lower than Yoma. I'm going to kill... every last one of you."
+> "Forcing their interest on someone else, that's a legitimate previlege of an otaku."
 
-&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
