@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...Have I... Stumbled upon a brand new shitty game again...?"
+> "*to Kaiba* Yugi may have lost one lousy Duel Monsters game, but at least he hasn't lost his heart! Not like you - you've spent so much time with your machines, you've forgotten what being human is about! Yugi has a heart, Kaiba. Yugi has us. And what about you, Seto Kaiba? What do you have at the end of the day? Tell me. Tell me!"
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Tea Gardner**](https://myanimelist.net/character.php?q=Tea%20Gardner&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
