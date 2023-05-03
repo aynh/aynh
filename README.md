@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have no fear of death. It just means dreaming in silence. A dream that lasts for eternity"
+> "If you can tell me what you want to say, tell me then. I want to hear it... Because no matter what you say, my feelings won't change."
 
-&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Shouta Kazehaya**](https://myanimelist.net/character.php?q=Shouta%20Kazehaya&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
