@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The coin is appreciated...but not as much as your smile."
+> "Luck of the draw isn’t about luck. Luck doesn’t decide a match!"
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Hidehiro Harada**](https://myanimelist.net/character.php?q=Hidehiro%20Harada&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
