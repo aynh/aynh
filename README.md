@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you leave, I'll probably be sad. However, if there's somewhere else you'd rather be, you should admit it. Don't lose sight of what you really want."
+> "Ladies and gentlemen, THE FLAMEO'S!"
 
-&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
