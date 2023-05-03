@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We'd love to get up, Ash...unfortunately, you're STANDING on us."
+> "If we love someone, we need to tell them about it. That way, we'll feel relieved and a lot stronger."
 
-&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
