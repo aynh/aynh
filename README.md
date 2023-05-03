@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You yourself have to change first, or nothing will change for you."
+> "The closest thing to being cared for is to care for someone else."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kotori Itsuka**](https://myanimelist.net/character.php?q=Kotori%20Itsuka&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
