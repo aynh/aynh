@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans will wither away if they're always alone. The only remedy would be to seek out other people."
+> "We'd love to get up, Ash...unfortunately, you're STANDING on us."
 
-&mdash; [**Misawa Kyouko**](https://myanimelist.net/character.php?q=Misawa%20Kyouko&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
