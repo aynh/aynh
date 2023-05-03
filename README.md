@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Kaiba* Yugi may have lost one lousy Duel Monsters game, but at least he hasn't lost his heart! Not like you - you've spent so much time with your machines, you've forgotten what being human is about! Yugi has a heart, Kaiba. Yugi has us. And what about you, Seto Kaiba? What do you have at the end of the day? Tell me. Tell me!"
+> "Do you know what the most primitive emotion people have is? It’s fear."
 
-&mdash; [**Tea Gardner**](https://myanimelist.net/character.php?q=Tea%20Gardner&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Nona**](https://myanimelist.net/character.php?q=Nona&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
