@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ladies and gentlemen, THE FLAMEO'S!"
+> "You keep working HARD in order to win and you get better little by little. To IMMERSE yourself in something you like, that's what it means to enjoy something fully."
 
-&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
