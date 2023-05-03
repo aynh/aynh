@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we love someone, we need to tell them about it. That way, we'll feel relieved and a lot stronger."
+> "The coin is appreciated...but not as much as your smile."
 
-&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
