@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can tell me what you want to say, tell me then. I want to hear it... Because no matter what you say, my feelings won't change."
+> "[Talking about Hueco Mundo] There isn't even water! Huh? Then how'd we have tea earlier?"
 
-&mdash; [**Shouta Kazehaya**](https://myanimelist.net/character.php?q=Shouta%20Kazehaya&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
