@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh! My little scythey boy!"
+> "ou know you're a real wise ass, you know that?! (to Yuki)"
 
-&mdash; [**Blair**](https://myanimelist.net/character.php?q=Blair&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
