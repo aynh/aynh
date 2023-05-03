@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You keep working HARD in order to win and you get better little by little. To IMMERSE yourself in something you like, that's what it means to enjoy something fully."
+> "You yourself have to change first, or nothing will change for you."
 
-&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
