@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The closest thing to being cared for is to care for someone else."
+> "[In his Resurrección form] I can see! I can see! I can see!!! So this is the sky!! So this is blood!! So this is the world!! ...So this is what you look like. Komamura. You are uglier... than I thought."
 
-&mdash; [**Kotori Itsuka**](https://myanimelist.net/character.php?q=Kotori%20Itsuka&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
