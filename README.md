@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Talking about Hueco Mundo] There isn't even water! Huh? Then how'd we have tea earlier?"
+> "I want to possess her...to make her belong to me, and only me. (about Rin)"
 
-&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
