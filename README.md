@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tell you what… I’ll carve you up until you find yourselves cursing the fact that you have such resilient bodies."
+> "If you pick a fight with a god of death, I can't guarantee your soul's safety."
 
-&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
