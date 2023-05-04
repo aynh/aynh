@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My role is to darken souls, even pure ones, until they become pitch black. By doing so, you can stay beautiful and shine bright, Mother. I do everything because of my love for you."
+> "What about when you reciprocate someone else’s emotions? Is that still coming from you… or is the air connecting you to one another?"
 
-&mdash; [**Sakuya Tougane**](https://myanimelist.net/character.php?q=Sakuya%20Tougane&cat=character), [**Psycho-Pass 2**](https://myanimelist.net/search/all?q=Psycho-Pass%202&cat=all)
+&mdash; [**Jinno Yuu**](https://myanimelist.net/character.php?q=Jinno%20Yuu&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
