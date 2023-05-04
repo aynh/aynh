@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I give my best and am told that I’m useless, then that’s my own fault. But being considered useless, without having even tried, is something I can’t allow."
+> "You know, Nana... Even now, sometimes on street corners... when I meet someone, I see your shadow. I'm sure that even now, you're still wearing that man's cologne... so you can sleep, even alone..."
 
-&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Nana Osaki**](https://myanimelist.net/character.php?q=Nana%20Osaki&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
