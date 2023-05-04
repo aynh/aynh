@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, Nana... Even now, sometimes on street corners... when I meet someone, I see your shadow. I'm sure that even now, you're still wearing that man's cologne... so you can sleep, even alone..."
+> "Poetry over philosophy. Embroidery rather than cooking. Dance instead of chess. Be an unknowing angel. Every girl born in the country of roses is raised by these three words."
 
-&mdash; [**Nana Osaki**](https://myanimelist.net/character.php?q=Nana%20Osaki&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Elizabeth Midford**](https://myanimelist.net/character.php?q=Elizabeth%20Midford&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
