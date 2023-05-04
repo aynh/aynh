@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If what you lost was too big and you can’t replace it with something else, you don’t have to replace it with just one thing, right? If you get ten small things or a hundred small things, all together it will be enough of a reason for you to keep going!"
+> "You stole this world and it's people. You're a king of thieves, alone upon a stolen throne!"
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
