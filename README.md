@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Poetry over philosophy. Embroidery rather than cooking. Dance instead of chess. Be an unknowing angel. Every girl born in the country of roses is raised by these three words."
+> "Don't look away, Rose! You need to see what happens when you try to bring a human to life, when you cross into God's territory or whatever the hell it is! Is this what you want?! Look!!"
 
-&mdash; [**Elizabeth Midford**](https://myanimelist.net/character.php?q=Elizabeth%20Midford&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
