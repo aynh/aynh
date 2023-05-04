@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The difference between your decision and ours is experience. But you don't have to rely on that. CHOOSE... Believe in yourself, or believe in the survey corps and me. I don't know... I never have. I can believe in my own abilities or the choices of the companions I trust. But no one ever knows how it will turn out. So choose for yourself, whichever decision you will regret the least."
+> "The hungrier one is, the more satisfying one's dinner."
 
-&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Black Butler: Book of Circus**](https://myanimelist.net/search/all?q=Black%20Butler%3A%20Book%20of%20Circus&cat=all)
