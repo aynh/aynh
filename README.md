@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You stole this world and it's people. You're a king of thieves, alone upon a stolen throne!"
+> "My role is to darken souls, even pure ones, until they become pitch black. By doing so, you can stay beautiful and shine bright, Mother. I do everything because of my love for you."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Sakuya Tougane**](https://myanimelist.net/character.php?q=Sakuya%20Tougane&cat=character), [**Psycho-Pass 2**](https://myanimelist.net/search/all?q=Psycho-Pass%202&cat=all)
