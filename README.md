@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The hungrier one is, the more satisfying one's dinner."
+> "Treecko! Use your Tail Slap attack!"
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Black Butler: Book of Circus**](https://myanimelist.net/search/all?q=Black%20Butler%3A%20Book%20of%20Circus&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
