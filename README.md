@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen. Right now, you're trying to shoulder someone else's life. That might be the right thing to do, but that act requires a lot of resolve. It'll become a thorn that can't be removed, and it'll continue to hurt you forever. The briar will continue to grow, but it'll never flower. It'll only hurt, it'll only cause you pain."
+> "If I give my best and am told that I’m useless, then that’s my own fault. But being considered useless, without having even tried, is something I can’t allow."
 
-&mdash; [**Isozaki Itsuki**](https://myanimelist.net/character.php?q=Isozaki%20Itsuki&cat=character), [**Sakurako-san no Ashioto ni wa Shitai ga Umatteiru**](https://myanimelist.net/search/all?q=Sakurako-san%20no%20Ashioto%20ni%20wa%20Shitai%20ga%20Umatteiru&cat=all)
+&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
