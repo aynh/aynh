@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Adlet, I hated you. I hated the fact that I was starting to believe in you. I still hate you. The more I talk to you, the more I hate you. I believe you, even though I decided to never believe anyone again."
+> "Who'd want to date girls that talk smack about your friends?"
 
-&mdash; [**Fremy Speedraw**](https://myanimelist.net/character.php?q=Fremy%20Speedraw&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
+&mdash; [**Makoto Sunakawa**](https://myanimelist.net/character.php?q=Makoto%20Sunakawa&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
