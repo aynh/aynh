@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pray not for the future. Rely not on the future or the past. Just stay in the Now."
+> "[Kira thinks he has just killed Andrew Waltfeld and cries] It didn't have to end like this."
 
-&mdash; [**Miyamoto Musashi**](https://myanimelist.net/character.php?q=Miyamoto%20Musashi&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
+&mdash; [**Kira Yamato**](https://myanimelist.net/character.php?q=Kira%20Yamato&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
