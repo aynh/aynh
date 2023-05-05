@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you go easy on the ones with just a bit of power, they give you more trouble than anybody else."
+> "Sincere feelings transcend time and connect hearts."
 
-&mdash; [**Madara**](https://myanimelist.net/character.php?q=Madara&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Fairy Tail**](https://myanimelist.net/character.php?q=Fairy%20Tail&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
