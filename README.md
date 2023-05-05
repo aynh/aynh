@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After all.. love is all about timing. If you don't say the right thing at the right moment, no matter how much fate was involved in the relationship, everything will be ruined. Even if you regret it, it'll be too late."
+> "Pray not for the future. Rely not on the future or the past. Just stay in the Now."
 
-&mdash; [**Masafumi Takeuchi**](https://myanimelist.net/character.php?q=Masafumi%20Takeuchi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Miyamoto Musashi**](https://myanimelist.net/character.php?q=Miyamoto%20Musashi&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
