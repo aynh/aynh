@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For me and Mello, L has been the only person we adore, and the only person who deserves our respect."
+> "My problem is probably that I don’t have any confidence about anything I do. Even if the thing I want most is right in front of me, I can’t help but imagine a future where I’m being rejected by it. I’m scared of getting hurt, so I run away from the people I love. What a good-for-nothing loser."
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Shōta Kisa**](https://myanimelist.net/character.php?q=Sh%C5%8Dta%20Kisa&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
