@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's so fun about firing at targets that aren't moving?"
+> "I am sane. It's this world that's crazy."
 
-&mdash; [**Yzak Joule**](https://myanimelist.net/character.php?q=Yzak%20Joule&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Kariya Jin**](https://myanimelist.net/character.php?q=Kariya%20Jin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
