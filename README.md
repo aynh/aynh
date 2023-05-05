@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am sane. It's this world that's crazy."
+> "When you go easy on the ones with just a bit of power, they give you more trouble than anybody else."
 
-&mdash; [**Kariya Jin**](https://myanimelist.net/character.php?q=Kariya%20Jin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Madara**](https://myanimelist.net/character.php?q=Madara&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
