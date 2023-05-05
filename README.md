@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nobody can take anybody's place. There isn't a person in this world that could take your place. It doesn't matter if you were based on me or have the same face."
+> "Don't you think forcing people to help with something pointless is far more cruel?"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Fukase**](https://myanimelist.net/character.php?q=Fukase&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
