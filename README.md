@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you think too hard when you don't have a brain, you're going to hurt your head."
+> "When I saw you, I just wanted to find a way to protect you."
 
-&mdash; [**Tooru Oikawa**](https://myanimelist.net/character.php?q=Tooru%20Oikawa&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Shawn**](https://myanimelist.net/character.php?q=Shawn&cat=character), [**Karigurashi no Arrietty**](https://myanimelist.net/search/all?q=Karigurashi%20no%20Arrietty&cat=all)
