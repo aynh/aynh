@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The best way to tame a mystery is with another mystery."
+> "After all.. love is all about timing. If you don't say the right thing at the right moment, no matter how much fate was involved in the relationship, everything will be ruined. Even if you regret it, it'll be too late."
 
-&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Masafumi Takeuchi**](https://myanimelist.net/character.php?q=Masafumi%20Takeuchi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
