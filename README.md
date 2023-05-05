@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Kira thinks he has just killed Andrew Waltfeld and cries] It didn't have to end like this."
+> "Nobody can take anybody's place. There isn't a person in this world that could take your place. It doesn't matter if you were based on me or have the same face."
 
-&mdash; [**Kira Yamato**](https://myanimelist.net/character.php?q=Kira%20Yamato&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
