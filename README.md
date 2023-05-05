@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you are feeling sad... smile, even if you have to force yourself... If you cry when it gets painful... it will only get more painful."
+> "Don't give alcohol to minors!"
 
-&mdash; [**Chie**](https://myanimelist.net/character.php?q=Chie&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
