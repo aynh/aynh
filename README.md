@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're always away during the important times and all you do is call. There are times when you are finally here, but then you disappear unexpectedly. Every time... every time... always, always, leaving me behind alone. What do you think I am? I love you Shinichi!"
+> "It's alright to feel sad. When you're sad, you should experience that sorrow fully. It's not too late to move on after that."
 
-&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Urutori**](https://myanimelist.net/character.php?q=Urutori&cat=character), [**Utawarerumono**](https://myanimelist.net/search/all?q=Utawarerumono&cat=all)
