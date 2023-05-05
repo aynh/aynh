@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You were chosen as a single fragment with which I will fill up my boredom."
+> "What's so fun about firing at targets that aren't moving?"
 
-&mdash; [**Victorique de Blois**](https://myanimelist.net/character.php?q=Victorique%20de%20Blois&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
+&mdash; [**Yzak Joule**](https://myanimelist.net/character.php?q=Yzak%20Joule&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
