@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Cast aside the illusion that there is a beginning and end to the story. The story has no beginning. And it has no end. All there is, is a performance of people connecting, living, influencing each other, and departing."
+> "There's nothing more boring than a perfect heroine!"
 
-&mdash; [**Gustav St. Germain**](https://myanimelist.net/character.php?q=Gustav%20St.%20Germain&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Drosselmeyer**](https://myanimelist.net/character.php?q=Drosselmeyer&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
