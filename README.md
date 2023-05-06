@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't give alcohol to minors!"
+> "Time never comes back once it’s gone."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
