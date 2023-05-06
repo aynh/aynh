@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let's eat fast so we can eat again!"
+> "If you married someone, that means you love every side of your significant other that you already know. So if you find a new side after to love, doesn't that mean you'll love your partner even more?"
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
