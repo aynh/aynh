@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The real world is scary. It’s pain to deal with other people."
+> "The most precious thing is different for every human. They resist and kill each other because of their difference. It has nothing to do with the inability to sense the other's most important thing."
 
-&mdash; [**Shiori Shiomiya**](https://myanimelist.net/character.php?q=Shiori%20Shiomiya&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Shijima Kurookano**](https://myanimelist.net/character.php?q=Shijima%20Kurookano&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
