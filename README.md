@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is the path you have chosen. Take pride in it."
+> "No matter how strong, for a human to fight a monster means he has submerged his humanity and transformed himself into a greater monster."
 
-&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Schierke**](https://myanimelist.net/character.php?q=Schierke&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
