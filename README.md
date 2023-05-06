@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how strong, for a human to fight a monster means he has submerged his humanity and transformed himself into a greater monster."
+> "When you're ten, they call you a prodigy. When you're fifteen, they call you a genius. Once you hit twenty, you're just an ordinary person."
 
-&mdash; [**Schierke**](https://myanimelist.net/character.php?q=Schierke&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Haruka Nanase**](https://myanimelist.net/character.php?q=Haruka%20Nanase&cat=character), [**Free!**](https://myanimelist.net/search/all?q=Free!&cat=all)
