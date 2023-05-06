@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Apples taste so much better indoors."
+> "The real world is scary. It’s pain to deal with other people."
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Shiori Shiomiya**](https://myanimelist.net/character.php?q=Shiori%20Shiomiya&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
