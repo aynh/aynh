@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether I win or lose is up to me."
+> "It's okay to make mistakes. In fact, you should. Making mistakes is how you learn to do it right. Getting a good result isn't the only thing. What matters is that you play your best during the game."
 
-&mdash; [**Akise Aru**](https://myanimelist.net/character.php?q=Akise%20Aru&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Soujuu Matsushita**](https://myanimelist.net/character.php?q=Soujuu%20Matsushita&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
