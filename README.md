@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay to make mistakes. In fact, you should. Making mistakes is how you learn to do it right. Getting a good result isn't the only thing. What matters is that you play your best during the game."
+> "I watch over Gin-san to protect him. Just like a fairy, like Tinkerbell!"
 
-&mdash; [**Soujuu Matsushita**](https://myanimelist.net/character.php?q=Soujuu%20Matsushita&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
+&mdash; [**Sarutobi Ayame**](https://myanimelist.net/character.php?q=Sarutobi%20Ayame&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
