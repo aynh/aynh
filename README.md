@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I actually don't think something like perfection exists. That is I think why we are born able to absorb things... and by comparing ourselves with something else we can finally head in a good direction."
+> "If you plan to continue being a detective and using words to entrap people, inscribe this in your hearts: Words are like knives. When used incorrectly, they turn into foul weapons. You have to understand the opponent’s heart and use them with discretion. No matter who it is you’re dealing with."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
