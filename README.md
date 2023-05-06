@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you married someone, that means you love every side of your significant other that you already know. So if you find a new side after to love, doesn't that mean you'll love your partner even more?"
+> "Whether I win or lose is up to me."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Akise Aru**](https://myanimelist.net/character.php?q=Akise%20Aru&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
