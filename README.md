@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't make a difference whether you have a talent or not. I mean, that isn't the end goal. You have greater freedom than we do. All I have are games. But you can go anywhere and become anything."
+> "You want to kill me? You couldn't even kill my boredom!"
 
-&mdash; [**Chiaki Nanami**](https://myanimelist.net/character.php?q=Chiaki%20Nanami&cat=character), [**Danganronpa 3: The End of Kibougamine Gakuen - Zetsubou-hen**](https://myanimelist.net/search/all?q=Danganronpa%203%3A%20The%20End%20of%20Kibougamine%20Gakuen%20-%20Zetsubou-hen&cat=all)
+&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
