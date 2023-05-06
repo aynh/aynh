@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if all we accomplished were small steps forward... We continued to give our lives if it meant that one day... humanity would be free from this terror."
+> "To hate something that you used to love is such a painful feeling."
 
-&mdash; [**Hange Zoe**](https://myanimelist.net/character.php?q=Hange%20Zoe&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
