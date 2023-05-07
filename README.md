@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...As they played the game...I waited for someone to call 'onigiri'. But no one called. I was very little then. I had almost forgotten about that. But they knew...there would never be room for an onigiri...in a fruits basket."
+> "[about Rau] But are you sure that's me? Oh well. He will be my successor in any case. Why should that woman's child be my heir? Keep a close eye on him and educate him well. Whatever you do, don't make him into another weakling."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
