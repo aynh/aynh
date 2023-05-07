@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our hearts beat in the same rhythm, so why does time flow differently for the two of us?"
+> "Even if you have your reasons and there are things you can't tell me, no matter what, I'm on your side."
 
-&mdash; [**Saya Otonashi**](https://myanimelist.net/character.php?q=Saya%20Otonashi&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
+&mdash; [**Historia Reiss**](https://myanimelist.net/character.php?q=Historia%20Reiss&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
