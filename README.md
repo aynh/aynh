@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no point in having physical strength alone. The real deal needs to have mental strength and will."
+> "Kyo-kun! Kyo-kun! I do love you, Kyo-kun! I love you!!!"
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
