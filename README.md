@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never thought about winning making me cool, or losing making me uncool. But you're right. If anything... Giving up before you even try is kind of uncool. That's why I want to be someone who'll fight as many times as it takes, and never give up. That's got to be way more cooler."
+> "People derive their happiness in a variety of ways, even though it might seem cruel."
 
-&mdash; [**Tachibana Hotaru**](https://myanimelist.net/character.php?q=Tachibana%20Hotaru&cat=character), [**Aoharu x Kikanjuu**](https://myanimelist.net/search/all?q=Aoharu%20x%20Kikanjuu&cat=all)
+&mdash; [**Adashino**](https://myanimelist.net/character.php?q=Adashino&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
