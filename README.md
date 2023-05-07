@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am the white void, I am the cold steel, I am the just sword, with blade in hand shall I reap the sins of this world, and cleanse them in the fires of destruction! I am Hakumen! The end has come."
+> "Go ahead! I'll just turn you into the police for assaulting a minor! (To Kyo)"
 
-&mdash; [**Hakumen**](https://myanimelist.net/character.php?q=Hakumen&cat=character), [**BlazBlue: Alter Memory**](https://myanimelist.net/search/all?q=BlazBlue%3A%20Alter%20Memory&cat=all)
+&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
