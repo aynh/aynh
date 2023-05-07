@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Go ahead! I'll just turn you into the police for assaulting a minor! (To Kyo)"
+> "Humans are things that don't know the true value of something precious until they lose it...and if somehow, they get that precious thing back, they'll forget its value again."
 
-&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Midou Ban**](https://myanimelist.net/character.php?q=Midou%20Ban&cat=character), [**Getbackers**](https://myanimelist.net/search/all?q=Getbackers&cat=all)
