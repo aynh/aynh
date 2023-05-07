@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you have your reasons and there are things you can't tell me, no matter what, I'm on your side."
+> "Worrying about rejection may be the same as rejecting yourself."
 
-&mdash; [**Historia Reiss**](https://myanimelist.net/character.php?q=Historia%20Reiss&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
