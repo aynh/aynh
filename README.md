@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Then let me ask you, if your God would allow my madness to flourish across the globe, then wouldn't it seem to you that any god like that would be just as mad as I?"
+> "The only ones that can miss a kick draw match are those who have enough courage to kick it."
 
-&mdash; [**Montana Max**](https://myanimelist.net/character.php?q=Montana%20Max&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
