@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't just quietly follow orders when it looks like all we're trying to do is wipe out every last Natural alive."
+> "I'm sorry! I'm sorry, Takashi! I won't forget to brush my teeth again! I won't forget!..."
 
-&mdash; [**Dearka Elsman**](https://myanimelist.net/character.php?q=Dearka%20Elsman&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Mitsukuni Haninozuka**](https://myanimelist.net/character.php?q=Mitsukuni%20Haninozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
