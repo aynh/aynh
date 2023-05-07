@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The only ones that can miss a kick draw match are those who have enough courage to kick it."
+> "...As they played the game...I waited for someone to call 'onigiri'. But no one called. I was very little then. I had almost forgotten about that. But they knew...there would never be room for an onigiri...in a fruits basket."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
