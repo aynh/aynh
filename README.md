@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I watch over Gin-san to protect him. Just like a fairy, like Tinkerbell!"
+> "I can't just quietly follow orders when it looks like all we're trying to do is wipe out every last Natural alive."
 
-&mdash; [**Sarutobi Ayame**](https://myanimelist.net/character.php?q=Sarutobi%20Ayame&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Dearka Elsman**](https://myanimelist.net/character.php?q=Dearka%20Elsman&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
