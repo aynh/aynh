@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People derive their happiness in a variety of ways, even though it might seem cruel."
+> "Our hearts beat in the same rhythm, so why does time flow differently for the two of us?"
 
-&mdash; [**Adashino**](https://myanimelist.net/character.php?q=Adashino&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Saya Otonashi**](https://myanimelist.net/character.php?q=Saya%20Otonashi&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
