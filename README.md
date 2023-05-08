@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Forget about me, and starting tomorrow live your own life. Don't keep dragging the dead into your life, otherwise your life would get screwed up and you won't be happy in the future, okay?"
+> "Papa was only 18 years old when I was born. He used to read a lot of books to me back then."
 
-&mdash; [**Misa Kurobane**](https://myanimelist.net/character.php?q=Misa%20Kurobane&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
