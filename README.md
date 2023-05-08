@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not many can do the “right thing” when it counts."
+> "[To Yammy] They're all trash...kill them all."
 
-&mdash; [**Kuroh Yatogami**](https://myanimelist.net/character.php?q=Kuroh%20Yatogami&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
