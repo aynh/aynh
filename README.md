@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is very boring. Everyone tries to live like a normal person without a second thought."
+> "The briefest glimpse of your smile is far more dazzling than any fireworks display."
 
-&mdash; [**Dongtae**](https://myanimelist.net/character.php?q=Dongtae&cat=character), [**Dice: The Cube That Changes Everything**](https://myanimelist.net/search/all?q=Dice%3A%20The%20Cube%20That%20Changes%20Everything&cat=all)
+&mdash; [**Io Otonashi**](https://myanimelist.net/character.php?q=Io%20Otonashi&cat=character), [**Acchi Kocchi**](https://myanimelist.net/search/all?q=Acchi%20Kocchi&cat=all)
