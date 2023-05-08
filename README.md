@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why you ask? That's the stupidest question I've ever heard.  The answer is obvious.  Because I want to! *to Misaki Takahashi*"
+> "Life is all about challenges, There's no point in living if there's no one strong to play with, It's better if I can't win."
 
-&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
