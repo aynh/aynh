@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death is not the end of life, it's the completion of life."
+> "The words of your past are fundamentally unrelated to who you are now."
 
-&mdash; [**Irina**](https://myanimelist.net/character.php?q=Irina&cat=character), [**Akuma no Riddle**](https://myanimelist.net/search/all?q=Akuma%20no%20Riddle&cat=all)
+&mdash; [**Ryuunosuke Akutagawa**](https://myanimelist.net/character.php?q=Ryuunosuke%20Akutagawa&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
