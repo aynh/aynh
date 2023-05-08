@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Poetry over philosophy. Embroidery rather than cooking. Dance instead of chess. Be an unknowing angel. Every girl born in the country of roses is raised by these three words."
+> "Even if other people think it’s meaningless, it’s disgusting for me to quit, even when the possibility is 0. Therefore, I will never... Give up !"
 
-&mdash; [**Elizabeth Midford**](https://myanimelist.net/character.php?q=Elizabeth%20Midford&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
