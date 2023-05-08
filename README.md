@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The briefest glimpse of your smile is far more dazzling than any fireworks display."
+> "Pray not for the future. Rely not on the future or the past. Just stay in the Now."
 
-&mdash; [**Io Otonashi**](https://myanimelist.net/character.php?q=Io%20Otonashi&cat=character), [**Acchi Kocchi**](https://myanimelist.net/search/all?q=Acchi%20Kocchi&cat=all)
+&mdash; [**Miyamoto Musashi**](https://myanimelist.net/character.php?q=Miyamoto%20Musashi&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
