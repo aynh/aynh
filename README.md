@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is all about challenges, There's no point in living if there's no one strong to play with, It's better if I can't win."
+> "People don't vanish from this world the moment they die. Their true death is when they are forgotten by the living."
 
-&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Tokou Nanami**](https://myanimelist.net/character.php?q=Tokou%20Nanami&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
