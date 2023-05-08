@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oddities are the world itself. They're linked to the world, unlike living beings. Science alone cannot shed light upon them, as there will always be people who'll be afraid of vampires. Although all forms of darkness could be lit up, darkness will never cease to exist."
+> "Family? Let me tell you what kind of link I have with them. They are just lumps of meat linked by hatred and murderous intent!"
 
-&mdash; [**Bakemonogatari**](https://myanimelist.net/character.php?q=Bakemonogatari&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
