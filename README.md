@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People don't vanish from this world the moment they die. Their true death is when they are forgotten by the living."
+> "Not many can do the “right thing” when it counts."
 
-&mdash; [**Tokou Nanami**](https://myanimelist.net/character.php?q=Tokou%20Nanami&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Kuroh Yatogami**](https://myanimelist.net/character.php?q=Kuroh%20Yatogami&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
