@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They are two types of people. Those who let go and those who are let go. How many times have I watched people leave up until now? I may have been able to reach them if I'd reached out, but I was afraid of being pushed away, so I simply watched them disappear into the distance."
+> "Poetry over philosophy. Embroidery rather than cooking. Dance instead of chess. Be an unknowing angel. Every girl born in the country of roses is raised by these three words."
 
-&mdash; [**Matsuoka Masamune**](https://myanimelist.net/character.php?q=Matsuoka%20Masamune&cat=character), [**Aoharu x Kikanjuu**](https://myanimelist.net/search/all?q=Aoharu%20x%20Kikanjuu&cat=all)
+&mdash; [**Elizabeth Midford**](https://myanimelist.net/character.php?q=Elizabeth%20Midford&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
