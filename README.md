@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don’t need something from someone else. What you need is to make your heart stronger. If you act naturally, people will naturally like you. And I’d like you more that way too."
+> "Oddities are the world itself. They're linked to the world, unlike living beings. Science alone cannot shed light upon them, as there will always be people who'll be afraid of vampires. Although all forms of darkness could be lit up, darkness will never cease to exist."
 
-&mdash; [**Yokodera Youto**](https://myanimelist.net/character.php?q=Yokodera%20Youto&cat=character), [**Hentai Ouji To Warawanai Neko**](https://myanimelist.net/search/all?q=Hentai%20Ouji%20To%20Warawanai%20Neko&cat=all)
+&mdash; [**Bakemonogatari**](https://myanimelist.net/character.php?q=Bakemonogatari&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
