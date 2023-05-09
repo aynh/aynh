@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have no fear of death. It just means dreaming in silence. A dream that lasts for eternity"
+> "Kurosaki Ichigo, those are the words of someone who does not know true despair. So I will show you. This is what true despair looks like."
 
-&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
