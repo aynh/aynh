@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You should keep your distance from me if you want to live. My place is in the shadows, yours in the light. We walk opposite paths, Aberline. It's best that you remember that."
+> "Forgetting is like a wound. The wound may heal but it has already left a scar."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
