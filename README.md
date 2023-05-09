@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We as humans have the power to do such, but whether we grab on to the thread or not is a choice we make."
+> "Everyone's fighting for their own kind of freedom. It seems small; but in their hearts, nothing is more important. With such hopes, I won't have enough time for revenge or fear, right?"
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Nagi Kengamine**](https://myanimelist.net/character.php?q=Nagi%20Kengamine&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
