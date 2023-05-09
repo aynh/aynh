@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Family is other people. No matter how close your blood relationship is... no matter what your relationship may be... anyone other than you is not you! And so you have to think it over and decide for yourself! Take away other people's wants and needs, and decide if this is something that is necessary for you! It may cause hardships to others, but you want it. That's your free will right there! But you ignore that and decide based on someone else's advice, because decency demands it, because people say it's awful, you will fail and quit. No one could succeed that way! You don't understand what you're trying to do. With that as your background, how do you expect to make a promise to yourself? But the opposite way... there are risks there too, of course. If you decide to take the action that best suits you, there will be people who won't understand. People will be saddened by your actions."
+> "And that's precisely why it's so convenient, don't you think?"
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
