@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don’t need to believe in God to believe in myself."
+> "*after seeing Grevil's unicorn hairstyle for the first time* I've never seen such a creative hairstyle!"
 
-&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Kazuya Kujō**](https://myanimelist.net/character.php?q=Kazuya%20Kuj%C5%8D&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
