@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want fear for a future, that may not even come, to stop me from acting today."
+> "You should keep your distance from me if you want to live. My place is in the shadows, yours in the light. We walk opposite paths, Aberline. It's best that you remember that."
 
-&mdash; [**Simon**](https://myanimelist.net/character.php?q=Simon&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
