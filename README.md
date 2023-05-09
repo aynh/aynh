@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The words of your past are fundamentally unrelated to who you are now."
+> "I believe you have the potential to bloom into something even more beautiful than the cosmos."
 
-&mdash; [**Ryuunosuke Akutagawa**](https://myanimelist.net/character.php?q=Ryuunosuke%20Akutagawa&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
+&mdash; [**Ino Yamanaka**](https://myanimelist.net/character.php?q=Ino%20Yamanaka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
