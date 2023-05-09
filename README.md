@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Forgetting is like a wound. The wound may heal but it has already left a scar."
+> "We have walked through the darkness of this world, that’s why we are able to see even a sliver of light."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
