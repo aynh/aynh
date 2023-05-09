@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "None of you will ever escape the curse, as I could not. Residents of the boxes like you could never gain anything. You will all simply disappear without leaving anything behind in this world. You won't even leave a fleck of dust behind - you will never be happy!"
+> "I don't want fear for a future, that may not even come, to stop me from acting today."
 
-&mdash; [**Sanetoshi Watase**](https://myanimelist.net/character.php?q=Sanetoshi%20Watase&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Simon**](https://myanimelist.net/character.php?q=Simon&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
