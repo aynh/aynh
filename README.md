@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A left... and then a right. Or is it a right and then a left? Hmm... maybe the postcard's upside-down."
+> "Those who wallow in power are destroyed by it."
 
-&mdash; [**Hikari**](https://myanimelist.net/character.php?q=Hikari&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Leon Sōryū**](https://myanimelist.net/character.php?q=Leon%20S%C5%8Dry%C5%AB&cat=character), [**Cardfight!! Vanguard**](https://myanimelist.net/search/all?q=Cardfight!!%20Vanguard&cat=all)
