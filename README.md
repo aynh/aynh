@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone's fighting for their own kind of freedom. It seems small; but in their hearts, nothing is more important. With such hopes, I won't have enough time for revenge or fear, right?"
+> "It's called a miracle because it doesn't happen."
 
-&mdash; [**Nagi Kengamine**](https://myanimelist.net/character.php?q=Nagi%20Kengamine&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Shiori Misaka**](https://myanimelist.net/character.php?q=Shiori%20Misaka&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
