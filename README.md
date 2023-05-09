@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe you have the potential to bloom into something even more beautiful than the cosmos."
+> "*to Ichigo* I thought you were interesting before, but now you're just a creepy kid."
 
-&mdash; [**Ino Yamanaka**](https://myanimelist.net/character.php?q=Ino%20Yamanaka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
