@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We have walked through the darkness of this world, that’s why we are able to see even a sliver of light."
+> "I have no fear of death. It just means dreaming in silence. A dream that lasts for eternity"
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
