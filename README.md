@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*after seeing Grevil's unicorn hairstyle for the first time* I've never seen such a creative hairstyle!"
+> "A left... and then a right. Or is it a right and then a left? Hmm... maybe the postcard's upside-down."
 
-&mdash; [**Kazuya Kujō**](https://myanimelist.net/character.php?q=Kazuya%20Kuj%C5%8D&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
+&mdash; [**Hikari**](https://myanimelist.net/character.php?q=Hikari&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
