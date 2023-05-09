@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How many people you killed, or how many you let live, it doesn't matter to me. You people incurred my wrath... That's reason enough, for you to meet your demise."
+> "You can believe in anything. But it's your heart...That ultimately decides."
 
-&mdash; [**Tatsuya Shiba**](https://myanimelist.net/character.php?q=Tatsuya%20Shiba&cat=character), [**Mahouka Koukou no Rettousei**](https://myanimelist.net/search/all?q=Mahouka%20Koukou%20no%20Rettousei&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
