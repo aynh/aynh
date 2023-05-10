@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Eternity is wasted upon the likes of you. Try as you might, immortality slips away. And you remain with only your shame."
+> "The curtain that falls at the end...shall be pulled down by the blade of my sword."
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
