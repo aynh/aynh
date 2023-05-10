@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I follow my dream and it shatters - I can accept having to regret that. But I don't want to regret not pursuing it in the first place."
+> "You’re wrong! None of that makes any sense! Grief and suffering isn’t something that can be taken away by dying in a fight! You have to resolve your problems by talking and explaining your points of view. Relying on others for it is wrong!"
 
-&mdash; [**Akito Takagi**](https://myanimelist.net/character.php?q=Akito%20Takagi&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Mato Kuroi**](https://myanimelist.net/character.php?q=Mato%20Kuroi&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
