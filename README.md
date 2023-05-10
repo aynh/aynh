@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Without you, all my plans are suddenly possible. I have a vision for the future, Roku."
+> "I'll give it a try. Anything that man can do, I'm sure I can do just as well."
 
-&mdash; [**Sozin**](https://myanimelist.net/character.php?q=Sozin&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
