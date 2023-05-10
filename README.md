@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fighting without hope is no way to live. It's just a way to die."
+> "Even though it's painful sometimes, if you keep on living then good things can happen."
 
-&mdash; [**Éclair Farron**](https://myanimelist.net/character.php?q=%C3%89clair%20Farron&cat=character), [**Final Fantasy XIII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20XIII&cat=all)
+&mdash; [**Nana Komatsu**](https://myanimelist.net/character.php?q=Nana%20Komatsu&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
