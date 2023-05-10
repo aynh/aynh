@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Ritsu Sohma] Sometimes living can be hard, but it's only because we're alive that we can make each other laugh, cry...be happy! [thinking] If that's not the reason for being born in this world...I don't know what is!"
+> "Matsu, you said that people and fireworks bloom like beautiful flowers for an instant and then fade away. That may be true, but Matsu, even if it's only for a moment, I want you to bloom by my side and when you fade away... do so at my side. In return, I will... make beautiful flowers bloom by your side again and again."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Matsu's Husband**](https://myanimelist.net/character.php?q=Matsu's%20Husband&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
