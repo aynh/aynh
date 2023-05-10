@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Damn piece of Earth trash!"
+> "I don't believe that an absolute power really exists in any world. Power is unstable. It changes constantly. Small differences will always appear, as one has between you and I. So the one who widens that gap will be the winner!"
 
-&mdash; [**Miguel Aiman**](https://myanimelist.net/character.php?q=Miguel%20Aiman&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
