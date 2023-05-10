@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Identity? What? The people who yap about identities all the time are usually the ones with no identity. Like something that changes so easily could really be an 'identity', anyway."
+> "Don't look away, Rose! You need to see what happens when you try to bring a human to life, when you cross into God's territory or whatever the hell it is! Is this what you want?! Look!!"
 
-&mdash; [**Komachi Hikigaya**](https://myanimelist.net/character.php?q=Komachi%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
