@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Matsu, you said that people and fireworks bloom like beautiful flowers for an instant and then fade away. That may be true, but Matsu, even if it's only for a moment, I want you to bloom by my side and when you fade away... do so at my side. In return, I will... make beautiful flowers bloom by your side again and again."
+> "If I follow my dream and it shatters - I can accept having to regret that. But I don't want to regret not pursuing it in the first place."
 
-&mdash; [**Matsu's Husband**](https://myanimelist.net/character.php?q=Matsu's%20Husband&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Akito Takagi**](https://myanimelist.net/character.php?q=Akito%20Takagi&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
