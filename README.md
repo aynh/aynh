@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Rumors, at times, can be more severe than the truth."
+> "Eternity is wasted upon the likes of you. Try as you might, immortality slips away. And you remain with only your shame."
 
-&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
