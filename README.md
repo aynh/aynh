@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's too late to regret. Reality is just cruelly moving forward."
+> "Rumors, at times, can be more severe than the truth."
 
-&mdash; [**Tobi**](https://myanimelist.net/character.php?q=Tobi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
