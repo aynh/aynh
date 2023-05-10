@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't look away, Rose! You need to see what happens when you try to bring a human to life, when you cross into God's territory or whatever the hell it is! Is this what you want?! Look!!"
+> "I'm as normal as they come and this is a contest of freaks! What do you want me to do, shoot my slingshot at him?"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
