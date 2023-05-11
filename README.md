@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's true that you're lacking in ability. That's because you don't work at it. However, you have a natural potential. That's why I chose you."
+> "I don't want that kind of twisted love."
 
-&mdash; [**Koichiro Oota**](https://myanimelist.net/character.php?q=Koichiro%20Oota&cat=character), [**Gunbuster**](https://myanimelist.net/search/all?q=Gunbuster&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
