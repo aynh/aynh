@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Y-you actually used your head??? You're going to get a fever!"
+> "You think I'm making demons simply as weapons, but demons are created by the human soul."
 
-&mdash; [**Tobio Kageyama**](https://myanimelist.net/character.php?q=Tobio%20Kageyama&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Millenium Earl**](https://myanimelist.net/character.php?q=Millenium%20Earl&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
