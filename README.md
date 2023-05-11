@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "History books are rewritten with the changing of times. At any rate, classroom lectures are worlds apart from the battlefield."
+> "You combined animals, the most depraved kind of alchemy there is."
 
-&mdash; [**Zess**](https://myanimelist.net/character.php?q=Zess&cat=character), [**Broken Blade**](https://myanimelist.net/search/all?q=Broken%20Blade&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
