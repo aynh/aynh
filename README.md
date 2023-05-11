@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The Philosopher's Stone: those who possess it, no longer bound by the laws of equivalent exchange in alchemy, can gain without sacrifice...create without equal exchange. We searched for it... and we found it."
+> "Meeting you was the best thing that ever happened to me. You made me so happy. I don’t want you to be lost or afraid or anything like that. From here on out, I know things might be hard sometimes. But no matter what may await, please don’t regret meeting me."
 
-&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
