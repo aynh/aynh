@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can come after me as many times as you want. I'll cut you down every time."
+> "No matter the journey, when you come to a fork in the road, you must decide in an instant which path to take."
 
-&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
