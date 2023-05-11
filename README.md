@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I particularly dislike this emotion you call ANGER. It makes me lose sight of myself, you know. Just thinking of what happens to me if I'm not MYSELF. Disgusts me to no end."
+> "The Philosopher's Stone: those who possess it, no longer bound by the laws of equivalent exchange in alchemy, can gain without sacrifice...create without equal exchange. We searched for it... and we found it."
 
-&mdash; [**Mard Geer**](https://myanimelist.net/character.php?q=Mard%20Geer&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
