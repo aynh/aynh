@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're either incompetent or you're spineless cowards. How pathetic. You can just sit here and suck on your fingers. Yeah, do that."
+> "It's true that you're lacking in ability. That's because you don't work at it. However, you have a natural potential. That's why I chose you."
 
-&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Koichiro Oota**](https://myanimelist.net/character.php?q=Koichiro%20Oota&cat=character), [**Gunbuster**](https://myanimelist.net/search/all?q=Gunbuster&cat=all)
