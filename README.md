@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop it! How dare you disrespect an opponent that fought you with all he had!?"
+> "You can come after me as many times as you want. I'll cut you down every time."
 
-&mdash; [**Rock Lee**](https://myanimelist.net/character.php?q=Rock%20Lee&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
