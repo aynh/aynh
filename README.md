@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know, someone like me can't just go out and change the world on a whim."
+> "If you want to get to know someone, find out what makes them angry."
 
-&mdash; [**Akatsuki Kojou**](https://myanimelist.net/character.php?q=Akatsuki%20Kojou&cat=character), [**Strike the Blood**](https://myanimelist.net/search/all?q=Strike%20the%20Blood&cat=all)
+&mdash; [**Gon Freecss**](https://myanimelist.net/character.php?q=Gon%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
