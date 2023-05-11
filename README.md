@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Justice is a weapon. It can be used to cause harm, but it cannot protect or save others."
+> "You're either incompetent or you're spineless cowards. How pathetic. You can just sit here and suck on your fingers. Yeah, do that."
 
-&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
+&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
