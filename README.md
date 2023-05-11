@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to get to know someone, find out what makes them angry."
+> "People’s feelings sometimes go astray and lead to irreversible consequences."
 
-&mdash; [**Gon Freecss**](https://myanimelist.net/character.php?q=Gon%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
