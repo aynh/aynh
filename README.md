@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People’s feelings sometimes go astray and lead to irreversible consequences."
+> "History books are rewritten with the changing of times. At any rate, classroom lectures are worlds apart from the battlefield."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Zess**](https://myanimelist.net/character.php?q=Zess&cat=character), [**Broken Blade**](https://myanimelist.net/search/all?q=Broken%20Blade&cat=all)
