@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's quite educational, seeing the thought process of someone in charge."
+> "Stop it! How dare you disrespect an opponent that fought you with all he had!?"
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Rock Lee**](https://myanimelist.net/character.php?q=Rock%20Lee&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
