@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The time is almost here. Go and lay the groundwork. A world where only true pirates can survive will soon be upon us. Those without power, flee while you can. The tide will bring those of unmatched power and the New Era will begin!"
+> "Comrade isn't simply a word. Comrades are about heart. It's the unconditional trust in your partners. Please, feel free to lean on me.... And I, too, will lean on you as well."
 
-&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
