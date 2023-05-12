@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment you say a word of parting, you've already parted. So long as you and I are both somewhere in this world, we haven’t parted. So long as you don’t say it, you haven’t parted."
+> "Whether here or in the real world, you can cry when it hurts. There's no rule that you can't show feelings just because it's a game."
 
-&mdash; [**Satone Shichimiya**](https://myanimelist.net/character.php?q=Satone%20Shichimiya&cat=character), [**Chuunibyou Demo Koi Ga Shitai!**](https://myanimelist.net/search/all?q=Chuunibyou%20Demo%20Koi%20Ga%20Shitai!&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
