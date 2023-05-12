@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Arrogance can plant a seed of sin. And loneliness can serve as its nursery."
+> "Those painful memories are what help us make it to tomorrow and become stronger."
 
-&mdash; [**Shinsekai Yori**](https://myanimelist.net/character.php?q=Shinsekai%20Yori&cat=character), [**Shinsekai Yori**](https://myanimelist.net/search/all?q=Shinsekai%20Yori&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
