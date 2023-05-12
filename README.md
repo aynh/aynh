@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, no matter what kind of effort you put in, it just doesn't really pay off."
+> "As long as we are under the same sky, we shouldn't be sad when we part ways."
 
-&mdash; [**Coach Kamogawa**](https://myanimelist.net/character.php?q=Coach%20Kamogawa&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
+&mdash; [**Wolfgang Grimmer**](https://myanimelist.net/character.php?q=Wolfgang%20Grimmer&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
