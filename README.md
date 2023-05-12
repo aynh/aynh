@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether here or in the real world, you can cry when it hurts. There's no rule that you can't show feelings just because it's a game."
+> "Profit could warm his coin purse, but never his back."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
