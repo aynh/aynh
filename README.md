@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Some of us showed a strength we didn't expect. Some of us went ballistic like we thought they would, some got all fired up for next time and some irresponsible- lookin' types turned out to be crazy serious. The guy we thought was just a little runt turned out to be a genius assassin, and a guy we thought was a genius was secretly workin' hard all along. With all these different skillsets...we just might be able to handle any challenge that comes our way."
+> "Arrogance can plant a seed of sin. And loneliness can serve as its nursery."
 
-&mdash; [**Ryōma Terasaka**](https://myanimelist.net/character.php?q=Ry%C5%8Dma%20Terasaka&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Shinsekai Yori**](https://myanimelist.net/character.php?q=Shinsekai%20Yori&cat=character), [**Shinsekai Yori**](https://myanimelist.net/search/all?q=Shinsekai%20Yori&cat=all)
