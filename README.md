@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Comrade isn't simply a word. Comrades are about heart. It's the unconditional trust in your partners. Please, feel free to lean on me.... And I, too, will lean on you as well."
+> "Sometimes the truth can hurt others more than a lie."
 
-&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Nonomiya**](https://myanimelist.net/character.php?q=Nonomiya&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
