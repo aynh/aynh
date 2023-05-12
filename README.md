@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is nothing more than a cultural idea attached to our pre-existing genetic needs to reproduce and gain recognition from our peers."
+> "I don't let anyone in my sight get away, and my bullets never miss their mark. Especially if it's the heart of a beautiful lady... BANG."
 
-&mdash; [**Akane Senri**](https://myanimelist.net/character.php?q=Akane%20Senri&cat=character), [**Rewrite**](https://myanimelist.net/search/all?q=Rewrite&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
