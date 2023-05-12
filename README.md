@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's a thin line between recklessness and courage."
+> "Love is nothing more than a cultural idea attached to our pre-existing genetic needs to reproduce and gain recognition from our peers."
 
-&mdash; [**Lisa Eostre**](https://myanimelist.net/character.php?q=Lisa%20Eostre&cat=character), [**Walkure Romanze**](https://myanimelist.net/search/all?q=Walkure%20Romanze&cat=all)
+&mdash; [**Akane Senri**](https://myanimelist.net/character.php?q=Akane%20Senri&cat=character), [**Rewrite**](https://myanimelist.net/search/all?q=Rewrite&cat=all)
