@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't let anyone in my sight get away, and my bullets never miss their mark. Especially if it's the heart of a beautiful lady... BANG."
+> "I don't even know the real names of the two... no, three that I killed back then. I just close my eyes, put my hands over my ears and tried to forget it all."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
