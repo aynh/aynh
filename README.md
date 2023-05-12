@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are so many weapons scattered across my path that it makes me wonder if this world is made of little more than lead and gunpowder."
+> "There's a thin line between recklessness and courage."
 
-&mdash; [**Jonathan Mar**](https://myanimelist.net/character.php?q=Jonathan%20Mar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Lisa Eostre**](https://myanimelist.net/character.php?q=Lisa%20Eostre&cat=character), [**Walkure Romanze**](https://myanimelist.net/search/all?q=Walkure%20Romanze&cat=all)
