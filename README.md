@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I pushed him away and hurt him yet he still stood by my side.  It's not a sane relationship. To be saved by seeing his hurt expression."
+> "There are so many weapons scattered across my path that it makes me wonder if this world is made of little more than lead and gunpowder."
 
-&mdash; [**Rika Harada**](https://myanimelist.net/character.php?q=Rika%20Harada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Jonathan Mar**](https://myanimelist.net/character.php?q=Jonathan%20Mar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
