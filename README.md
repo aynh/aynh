@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Gooood morning earth-bending student!"
+> "When you're in a town like this, all covered with smoke - you forget that there's a world outside. Nothing amazing happens here. And you get used to that. Used to a world where everything is ordinary. Every day we spend here is like a whole lifetime of dying slowly. But now Haruko is here. That's how I know there really is a world outside."
 
-&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Naota Nandaba**](https://myanimelist.net/character.php?q=Naota%20Nandaba&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
