@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those painful memories are what help us make it to tomorrow and become stronger."
+> "I pushed him away and hurt him yet he still stood by my side.  It's not a sane relationship. To be saved by seeing his hurt expression."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Rika Harada**](https://myanimelist.net/character.php?q=Rika%20Harada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
