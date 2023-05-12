@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say when you fall, it's best to fall straight to the bottom, and the farther you have to crawl back up, the stronger and greater you'll be as a result."
+> "Sometimes, no matter what kind of effort you put in, it just doesn't really pay off."
 
-&mdash; [**Hiyono Yuizaki**](https://myanimelist.net/character.php?q=Hiyono%20Yuizaki&cat=character), [**Spiral**](https://myanimelist.net/search/all?q=Spiral&cat=all)
+&mdash; [**Coach Kamogawa**](https://myanimelist.net/character.php?q=Coach%20Kamogawa&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
