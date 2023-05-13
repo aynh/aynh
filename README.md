@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am the Defender of the pride of New Hell...!!"
+> "For me, apples are like cigarettes and liquor for humans. If I'm deprived, I go into withdrawals."
 
-&mdash; [**Hakua Du Lot Herminium**](https://myanimelist.net/character.php?q=Hakua%20Du%20Lot%20Herminium&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
