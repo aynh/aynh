@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you live after giving up on the things you want to do and the world around you doesn't sparkle, it's the same thing as being dead. If you don't give up, even if it's short, it'll be a fantastic life!"
+> "Welcome home. Thank you for your great efforts."
 
-&mdash; [**Marga**](https://myanimelist.net/character.php?q=Marga&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
+&mdash; [**Komui Lee**](https://myanimelist.net/character.php?q=Komui%20Lee&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
