@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there are no heroes, become one yourself."
+> "I'm not a genuine idiot like you! I'm an idiot who accepts the fact that he's an idiot!"
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Aoba Kouyou**](https://myanimelist.net/character.php?q=Aoba%20Kouyou&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
