@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So what if the government collapses or the country is ruined? I'm not civic-minded! All I want to do is stand tall and live on until the day I collapse and die!"
+> "Ever since I was little, I've always been curious. Why doesn't the witch, who can use her magic to transform a shabby girl into someone lovely, cast a spell on herself? If she used her magic on herself, she could become lovely too. The witch does not use her magic on herself because she knows the emptiness that follows when the spell breaks."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
