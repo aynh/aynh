@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're so gullible! Don't you have any standards? So if I told you to spin around, you'd do it? If they told you to jump off a cliff, would you do that, too? I can't stand people who have no individuality!! (To Tohru)"
+> "There are those people who are born aloof and prefer to stay away from groups. In such a case, others should just leave those people alone. It's not a matter of sympathy."
 
-&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Shin Meguro**](https://myanimelist.net/character.php?q=Shin%20Meguro&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
