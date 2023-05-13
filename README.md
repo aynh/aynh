@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I shall now express my utter disgust and anger with you through the piano."
+> "But that's enough. If there is overwhelming power and speed, there is no room for technique. Techniques are something humans invented to compensate for their weaknesses."
 
-&mdash; [**Austria**](https://myanimelist.net/character.php?q=Austria&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
