@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're either an open pervert or a closet pervert!"
+> "Everybody can fight. It's just a choice of whether you should."
 
-&mdash; [**Naotsugu**](https://myanimelist.net/character.php?q=Naotsugu&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
