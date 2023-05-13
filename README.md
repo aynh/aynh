@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do they love you, or the mask you put every day?"
+> "If you have a wish, don't go back to the past and redo everything. If you want to change yourself, don't change the past, but change who you are now!"
 
-&mdash; [**Shido Itsuka**](https://myanimelist.net/character.php?q=Shido%20Itsuka&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
