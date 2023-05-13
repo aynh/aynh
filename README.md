@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not a genuine idiot like you! I'm an idiot who accepts the fact that he's an idiot!"
+> "*to Ohana* You can't do everything by yourself!... But I can't do it by myself, either. I need your help."
 
-&mdash; [**Aoba Kouyou**](https://myanimelist.net/character.php?q=Aoba%20Kouyou&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Minko Tsurugi**](https://myanimelist.net/character.php?q=Minko%20Tsurugi&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
