@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everybody can fight. It's just a choice of whether you should."
+> "I shall now express my utter disgust and anger with you through the piano."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Austria**](https://myanimelist.net/character.php?q=Austria&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
