@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Welcome home. Thank you for your great efforts."
+> "Humans must think about living on. And, must also understand death. Most important, we must learn to understand the truth."
 
-&mdash; [**Komui Lee**](https://myanimelist.net/character.php?q=Komui%20Lee&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
