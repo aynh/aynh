@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen. Right now, you're trying to shoulder someone else's life. That might be the right thing to do, but that act requires a lot of resolve. It'll become a thorn that can't be removed, and it'll continue to hurt you forever. The briar will continue to grow, but it'll never flower. It'll only hurt, it'll only cause you pain."
+> "Do they love you, or the mask you put every day?"
 
-&mdash; [**Isozaki Itsuki**](https://myanimelist.net/character.php?q=Isozaki%20Itsuki&cat=character), [**Sakurako-san no Ashioto ni wa Shitai ga Umatteiru**](https://myanimelist.net/search/all?q=Sakurako-san%20no%20Ashioto%20ni%20wa%20Shitai%20ga%20Umatteiru&cat=all)
+&mdash; [**Shido Itsuka**](https://myanimelist.net/character.php?q=Shido%20Itsuka&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
