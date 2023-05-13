@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ever since I was little, I've always been curious. Why doesn't the witch, who can use her magic to transform a shabby girl into someone lovely, cast a spell on herself? If she used her magic on herself, she could become lovely too. The witch does not use her magic on herself because she knows the emptiness that follows when the spell breaks."
+> "In order to measure a person’s worth, you must do more than push them. The real way to test their worth is to give them power. When they gain the freedom to act outside the boundaries of law and ethics, you can sometimes see their souls. When the weak become strong... When good citizens become free to engage in violence... I'm interested to see what is the outcome of that."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
