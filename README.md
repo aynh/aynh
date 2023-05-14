@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't believe in history... Just believe in the world you see with your own eyes."
+> "Today might be the chance to grasp the chance to let your talent bloom. Maybe tomorrow, the day after, or next year... Maybe even when you're thirty. I'm not sure if physique has anything to do with it, but if you think that it will never come, it probably never will."
 
-&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Tooru Oikawa**](https://myanimelist.net/character.php?q=Tooru%20Oikawa&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
