@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As far as relationships with other people go, they don't just end because one person decides that it's over."
+> "*talking about King Bumi* This isn't about finding a teacher. This is about finding my friend."
 
-&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
