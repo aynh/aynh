@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll never show you my tears. These are the tears of those who died with regrets. If there's a way to take away these regrets, I'll make sure I'll find it. If it's fear that you speak of, then I'll stand and face it. I'll never give up. The only time I lose is when I die!"
+> "Whenever humans encounter the unknown, they tend to lose perspective."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Knov**](https://myanimelist.net/character.php?q=Knov&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
