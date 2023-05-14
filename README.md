@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fail to strike the enemy once you know their location, and it'll be too late to even regret having missed the chance."
+> "If you don't believe in history... Just believe in the world you see with your own eyes."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
