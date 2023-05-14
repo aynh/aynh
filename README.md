@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whenever humans encounter the unknown, they tend to lose perspective."
+> "True kindness isn't something we're born with. It's something we had to work on... (to Tohru)"
 
-&mdash; [**Knov**](https://myanimelist.net/character.php?q=Knov&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
