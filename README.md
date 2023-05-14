@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What you say may be correct, that there is a war going on outside our world. But we don't agree with it! We dislike war! And that is why we chose to be here, in neutral territory!"
+> "Is there a different sorry for simple and complicated situations? Whether it's a simple or complicated problem, if you think you've done something wrong, then in the end you'd say sorry either way."
 
-&mdash; [**Kira Yamato**](https://myanimelist.net/character.php?q=Kira%20Yamato&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Tadashi Karino**](https://myanimelist.net/character.php?q=Tadashi%20Karino&cat=character), [**Special A**](https://myanimelist.net/search/all?q=Special%20A&cat=all)
