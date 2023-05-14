@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is there a different sorry for simple and complicated situations? Whether it's a simple or complicated problem, if you think you've done something wrong, then in the end you'd say sorry either way."
+> "Yoshii Akihisa-kun, when a person with ability, but is unfairly treated, tries to get back the position he deserves, will you step in to interfere?"
 
-&mdash; [**Tadashi Karino**](https://myanimelist.net/character.php?q=Tadashi%20Karino&cat=character), [**Special A**](https://myanimelist.net/search/all?q=Special%20A&cat=all)
+&mdash; [**Takashiro Masaharu**](https://myanimelist.net/character.php?q=Takashiro%20Masaharu&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
