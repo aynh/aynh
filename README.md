@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will acknowledge you as my enemy and destroy you."
+> "Fail to strike the enemy once you know their location, and it'll be too late to even regret having missed the chance."
 
-&mdash; [**Acnologia**](https://myanimelist.net/character.php?q=Acnologia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
