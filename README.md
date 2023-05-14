@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Today might be the chance to grasp the chance to let your talent bloom. Maybe tomorrow, the day after, or next year... Maybe even when you're thirty. I'm not sure if physique has anything to do with it, but if you think that it will never come, it probably never will."
+> "What is education? Isn't education meant to create a person that conforms to society? What kind of education must be administrated to create a human being that meets the society's demands? Education is an experiment."
 
-&mdash; [**Tooru Oikawa**](https://myanimelist.net/character.php?q=Tooru%20Oikawa&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
+&mdash; [**Mikhail Petrov**](https://myanimelist.net/character.php?q=Mikhail%20Petrov&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
