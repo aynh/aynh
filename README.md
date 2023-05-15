@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The stars sure are beautiful tonight. [angrily] Too bad you can't see them, Toph!"
+> "Normally I hate people who whine all the time, but in your case... it would be okay to complain, be selfish and say what you want once in a while. It's okay to let yourself be sad."
 
-&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
