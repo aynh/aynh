@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Without you, all my plans are suddenly possible. I have a vision for the future, Roku."
+> "Risks are just an unavoidable part of life. Even if you realize the danger, nothing's gonna come from always running away. That way, even when you die, you can be content that you gave it your all."
 
-&mdash; [**Sozin**](https://myanimelist.net/character.php?q=Sozin&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Sachi Nanjou**](https://myanimelist.net/character.php?q=Sachi%20Nanjou&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
