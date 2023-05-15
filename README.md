@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All that for a memory and a dead mortal girl. If I've known that this is all it took to make you fight, I would have killed her sooner. (to Inuyasha)"
+> "Without you, all my plans are suddenly possible. I have a vision for the future, Roku."
 
-&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Sozin**](https://myanimelist.net/character.php?q=Sozin&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
