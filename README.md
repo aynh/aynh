@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Normally I hate people who whine all the time, but in your case... it would be okay to complain, be selfish and say what you want once in a while. It's okay to let yourself be sad."
+> "A woman's happiness is in throwing everything away to live for love."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Daisuke Yamamoto**](https://myanimelist.net/character.php?q=Daisuke%20Yamamoto&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
