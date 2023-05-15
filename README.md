@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Men always seem to think about their past before they die, as though they were frantically searching for proof that they truly lived."
+> "I despise myself... because others are too kind to me..."
 
-&mdash; [**Jet Black**](https://myanimelist.net/character.php?q=Jet%20Black&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Yuichi Onodera**](https://myanimelist.net/character.php?q=Yuichi%20Onodera&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
