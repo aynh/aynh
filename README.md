@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Risks are just an unavoidable part of life. Even if you realize the danger, nothing's gonna come from always running away. That way, even when you die, you can be content that you gave it your all."
+> "[About Omashu] There really is no fathoming the depths of my hatred for this place."
 
-&mdash; [**Sachi Nanjou**](https://myanimelist.net/character.php?q=Sachi%20Nanjou&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Mai**](https://myanimelist.net/character.php?q=Mai&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
