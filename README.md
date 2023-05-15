@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The zipper is a window to society."
+> "The stars sure are beautiful tonight. [angrily] Too bad you can't see them, Toph!"
 
-&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
