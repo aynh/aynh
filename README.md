@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as you laugh at people's suffering, your goal will always be out of reach. If you never want to be defeated, you must first learn your own weakness, and always be kind."
+> "It's impossible for humans to forget their emotions."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Wolfgang Grimmer**](https://myanimelist.net/character.php?q=Wolfgang%20Grimmer&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
