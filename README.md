@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In a way, the supernatural is what's behind the curtain. Normally, you only need to see what's happening on stage. That's how reality works. If you don't know, it's best that you don't. Actually, learning about the supernatural only increases the number of things you don't know."
+> "Once you get everything back, you'll be down to having nothing but loads of fun left."
 
-&mdash; [**Mayoi Hachikuji**](https://myanimelist.net/character.php?q=Mayoi%20Hachikuji&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Aoi Toori**](https://myanimelist.net/character.php?q=Aoi%20Toori&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
