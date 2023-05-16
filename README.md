@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Gilbert, I know everything about you... because we are connected by an extremely deep bond. No matter how far apart we are, we will surely return to the same place. Because that is our fate!"
+> "Someone get this creature off meeeeeee!"
 
-&mdash; [**Vincent Nightray**](https://myanimelist.net/character.php?q=Vincent%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Kusajishi Yachiru**](https://myanimelist.net/character.php?q=Kusajishi%20Yachiru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
