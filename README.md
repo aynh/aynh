@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's right. It's not like I ever felt superior to anyone else because I could see ghosts. And I never planned to take it up as a profession. Hell, I never even felt the need to use my ability to help others. All I ever wanted was the normal life I couldn't have. I've finally achieved what I always wanted."
+> "As long as you laugh at people's suffering, your goal will always be out of reach. If you never want to be defeated, you must first learn your own weakness, and always be kind."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
