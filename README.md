@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "First it was that sewer-face and now I'm up against a superhero."
+> "When you do something for the man you love, instead of for the world, it's easier to decide what must be done. Ultimately, it's better to do things for someone rather than something."
 
-&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Hakaze Kusaribe**](https://myanimelist.net/character.php?q=Hakaze%20Kusaribe&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
