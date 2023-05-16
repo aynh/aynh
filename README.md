@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, there are things you have to protect even if your hands get stained with blood."
+> "First it was that sewer-face and now I'm up against a superhero."
 
-&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
