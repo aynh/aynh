@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if everyone in the whole world dies, I won't care, as long as my beloved survives."
+> "It's not because I'm lazy, it's just because I don't care."
 
-&mdash; [**Shinra Kishitani**](https://myanimelist.net/character.php?q=Shinra%20Kishitani&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
