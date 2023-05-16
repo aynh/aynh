@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If that treetop is school, and the ground is this place here... we all found our strength down on the ground. While looking up... and getting looked down on... we learned plenty about how scary heights were before we started climbing. That's why we can go our own way now. Still... Somewhere along the way we forgot our fear of heights, so we do still fall to the ground every now and then. So learn here. You can go on to school once you have a game plan. That's my secret lesson, from me to you."
+> "I led me by the hand, as if to fill the niches in the memories in my oozing brain fluid. Without even a destination, we kept walking. Disgusting clouds were floating in the sky. I already know what will happen to me the next time I wake up."
 
-&mdash; [**Nagisa Shiota**](https://myanimelist.net/character.php?q=Nagisa%20Shiota&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
