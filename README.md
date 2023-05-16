@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hatred will never be erased! The only thing you can do... is erase the ones you hate!"
+> "There are worthless things, but there are no meaningless things."
 
-&mdash; [**Ren Hakuryuu**](https://myanimelist.net/character.php?q=Ren%20Hakuryuu&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
+&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
