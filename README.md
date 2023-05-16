@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not knowing everything in this world is fun."
+> "In a way, the supernatural is what's behind the curtain. Normally, you only need to see what's happening on stage. That's how reality works. If you don't know, it's best that you don't. Actually, learning about the supernatural only increases the number of things you don't know."
 
-&mdash; [**Akise Aru**](https://myanimelist.net/character.php?q=Akise%20Aru&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Mayoi Hachikuji**](https://myanimelist.net/character.php?q=Mayoi%20Hachikuji&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
