@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you do something for the man you love, instead of for the world, it's easier to decide what must be done. Ultimately, it's better to do things for someone rather than something."
+> "You might be able to do it if you try. But if you don't try, you definitely can't."
 
-&mdash; [**Hakaze Kusaribe**](https://myanimelist.net/character.php?q=Hakaze%20Kusaribe&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Inori Yuzuriha**](https://myanimelist.net/character.php?q=Inori%20Yuzuriha&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
