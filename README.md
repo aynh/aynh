@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You might be able to do it if you try. But if you don't try, you definitely can't."
+> "A castle that vanishes at the first gust of wind is worthless. A skyscraper within your mind will never fall down."
 
-&mdash; [**Inori Yuzuriha**](https://myanimelist.net/character.php?q=Inori%20Yuzuriha&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Satsuki Kiryuuin**](https://myanimelist.net/character.php?q=Satsuki%20Kiryuuin&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
