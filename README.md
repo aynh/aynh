@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm telling you, it's just that it's soooooo lolilolilolied that it smokes. Come on, girls. One of you loan me your whistle. I'll lolly it up!"
+> "Being strong isn't just about having power or move, it about one's spirit"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
