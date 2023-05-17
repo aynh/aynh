@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Idiot... There's no win or lose in this, no higher or lower... There is always...only ONE truth."
+> "Survival of the fittest is the law of nature. We deceive or we are deceived. Thus, we flourish or perish. Nothing good ever happened to me when I trusted others. That is the lesson."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Faye Valentine**](https://myanimelist.net/character.php?q=Faye%20Valentine&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
