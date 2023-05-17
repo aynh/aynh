@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think that education will prove the most powerful force in this world."
+> "[After Hatori asks what snow becomes when it melts]Ah...um, well...hmm. It becomes spring! No matter how cold it is now, spring will come again! Without fail. It's strange isn't it? But it's true."
 
-&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
