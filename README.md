@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All those who wander in the darkness seek the light, but when they reach the light, they turn away their eyes from the blinding glare."
+> "There is no meaning to victory, if you win alone."
 
-&mdash; [**Kazkis Hauer**](https://myanimelist.net/character.php?q=Kazkis%20Hauer&cat=character), [**Ergo Proxy**](https://myanimelist.net/search/all?q=Ergo%20Proxy&cat=all)
+&mdash; [**Kuroko No Basket**](https://myanimelist.net/character.php?q=Kuroko%20No%20Basket&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
