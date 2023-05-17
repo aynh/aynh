@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah I lied; so what is the truth? Underneath the band-aid?"
+> "Girls who are pretty and pure only exist in fantasies."
 
-&mdash; [**Haruko Haruhara**](https://myanimelist.net/character.php?q=Haruko%20Haruhara&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Rentarou Kurahashi**](https://myanimelist.net/character.php?q=Rentarou%20Kurahashi&cat=character), [**Love Lab**](https://myanimelist.net/search/all?q=Love%20Lab&cat=all)
