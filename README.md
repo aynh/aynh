@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I do not fear this new challenge, rather like a true warrior I will rise to meet it."
+> "Instead of humans who lie and cheat each other to get richer, I prefer animals who hunt to survive."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
