@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Instead of humans who lie and cheat each other to get richer, I prefer animals who hunt to survive."
+> "There are two types of lies: Lies that hurt, and lies that don't hurt."
 
-&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Itaru Hashida**](https://myanimelist.net/character.php?q=Itaru%20Hashida&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
