@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Actually, if you're smart, you can eat sweets without gaining weight."
+> "I do not fear this new challenge, rather like a true warrior I will rise to meet it."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
