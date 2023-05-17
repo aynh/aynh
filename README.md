@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I do not want to wake from my dream and discover that I am all alone. I am tired of being alone! I do not want to be cold! I do not want to be lonely!"
+> "It's amazing how every time you open your mouth, you manage to prove you're an idiot."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
