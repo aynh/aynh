@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one can draw a clear line between sane and insane. You move that line as you see fit for yourself. No one else can. You'll understand soon... that the one that's insane is this world."
+> "Those who are bound, are bound wherever they go. And those who are free, are always free. Whoever you serve and wherever you live, if they are your own choices, you are free."
 
-&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Sanada Yukimura**](https://myanimelist.net/character.php?q=Sanada%20Yukimura&cat=character), [**Brave 10**](https://myanimelist.net/search/all?q=Brave%2010&cat=all)
