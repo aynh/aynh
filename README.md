@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He who is blessed with strength should become the guide. That is all."
+> "His soul was as pure as snow."
 
-&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Zabuza Momochi**](https://myanimelist.net/character.php?q=Zabuza%20Momochi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
