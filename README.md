@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Watch it, or I'll take your soul!"
+> "(after Pikachu accidentally zaps her bike to a crisp) My bike's been barbecued!!"
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Haruka**](https://myanimelist.net/character.php?q=Haruka&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
