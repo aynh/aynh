@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(after Pikachu accidentally zaps her bike to a crisp) My bike's been barbecued!!"
+> "Justice cannot save the world. It is useless."
 
-&mdash; [**Haruka**](https://myanimelist.net/character.php?q=Haruka&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
