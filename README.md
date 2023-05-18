@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not that I hate the person in front of me. If I had met him under different circumstances, this never would have happened. But I did meet him that day, and now there is no turning back. I must distinguish the difference between past and present. Everything must be left behind, and the man in front of me is the wall; the wall that I must break through. There is only one direction for me to go. I have to move forward. That's what I'm thinking..."
+> "A heaven that only watches has no meaning."
 
-&mdash; [**Kanami Yuta**](https://myanimelist.net/character.php?q=Kanami%20Yuta&cat=character), [**Scryed**](https://myanimelist.net/search/all?q=Scryed&cat=all)
+&mdash; [**Su-won**](https://myanimelist.net/character.php?q=Su-won&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
