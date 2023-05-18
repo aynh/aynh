@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ichigo...I know this is shameful, but I'm begging you -- Rukia...Please save Rukia!!"
+> "Strong emotions are what connect people. If you truly want to understand each other, don’t stop thinking about them."
 
-&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sumeragi Lee Noriega**](https://myanimelist.net/character.php?q=Sumeragi%20Lee%20Noriega&cat=character), [**Mobile Suit Gundam 00: A Wakening of the Trailblazer**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000%3A%20A%20Wakening%20of%20the%20Trailblazer&cat=all)
