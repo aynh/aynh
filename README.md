@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Strong emotions are what connect people. If you truly want to understand each other, don’t stop thinking about them."
+> "Don’t make decisions on your own without saying what’s important."
 
-&mdash; [**Sumeragi Lee Noriega**](https://myanimelist.net/character.php?q=Sumeragi%20Lee%20Noriega&cat=character), [**Mobile Suit Gundam 00: A Wakening of the Trailblazer**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000%3A%20A%20Wakening%20of%20the%20Trailblazer&cat=all)
+&mdash; [**Juugo Yama**](https://myanimelist.net/character.php?q=Juugo%20Yama&cat=character), [**Ryuugajou Nanana No Maizoukin**](https://myanimelist.net/search/all?q=Ryuugajou%20Nanana%20No%20Maizoukin&cat=all)
