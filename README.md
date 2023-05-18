@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe in ghosts, even though I've never seen one before and get this. I don't believe in anyone of the people that have said they seen one before. It's kind of like how I think about the concept of love. Like I believe one day I'll fall in love, get married and live happily ever after, even though I've never actually fallen in love with anyone yet. You see what I'm saying? For some people falling in love is like second nature, but I can't even relate to that. So if I've never fallen in love before is it real? And that makes me wonder if ghost are real. I haven't seen one yet so maybe they're not."
+> "It's absurd to think your life won't have a meaning unless you leave some work behind. Just living is enough."
 
-&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Shinobu Morita**](https://myanimelist.net/character.php?q=Shinobu%20Morita&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
