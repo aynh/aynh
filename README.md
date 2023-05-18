@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All they saw in me was another little ghetto rat with no power and no God. What's left for a poor little Chinese bitch to rely on? It's money of course. And guns. Fuckin' A, with these two things, the world is a great place."
+> "Nothing can remain the same forever, because if you don't change you can't improve... Facing this inescapable ''reality'' if you don't grow... You'll be crushed... For everyone to ascend and accomplish their dreams. They must grow."
 
-&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
+&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
