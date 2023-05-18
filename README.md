@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "His soul was as pure as snow."
+> "Watch it, or I'll take your soul!"
 
-&mdash; [**Zabuza Momochi**](https://myanimelist.net/character.php?q=Zabuza%20Momochi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
