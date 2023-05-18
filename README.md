@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing can remain the same forever, because if you don't change you can't improve... Facing this inescapable ''reality'' if you don't grow... You'll be crushed... For everyone to ascend and accomplish their dreams. They must grow."
+> "It's not that I hate the person in front of me. If I had met him under different circumstances, this never would have happened. But I did meet him that day, and now there is no turning back. I must distinguish the difference between past and present. Everything must be left behind, and the man in front of me is the wall; the wall that I must break through. There is only one direction for me to go. I have to move forward. That's what I'm thinking..."
 
-&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Kanami Yuta**](https://myanimelist.net/character.php?q=Kanami%20Yuta&cat=character), [**Scryed**](https://myanimelist.net/search/all?q=Scryed&cat=all)
