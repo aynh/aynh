@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You and I, our levels are as distant as the earth from the heavens. Must I spell it out for you? I have discarded my left arm, discarded my left leg, and yet even then I have not nearly lowered myself to your level."
+> "There are things you can only share with someone by fighting. For instance, how serious you are."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Konno Yuuki**](https://myanimelist.net/character.php?q=Konno%20Yuuki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
