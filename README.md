@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say time and a people’s heart are inversely proportional. The more it passes, the more they grow apart. It seems there are some rare exceptions though."
+> "You can come after me as many times as you want. I'll cut you down every time."
 
-&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
