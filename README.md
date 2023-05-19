@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can come after me as many times as you want. I'll cut you down every time."
+> "Opportunities and success come only to those who do not fear to stand in the batter's box. Who want to hit the ball more than anything, and swing with all their might!"
 
-&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
