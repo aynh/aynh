@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Get your ass moving Kid!"
+> "The key is to be like the leaf, flow... with the movement of the gates. Airbending is all about spiral movements. When you meet resistance, you must be able to switch directions at a moments notice."
 
-&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Tenzin**](https://myanimelist.net/character.php?q=Tenzin&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
