@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The key is to be like the leaf, flow... with the movement of the gates. Airbending is all about spiral movements. When you meet resistance, you must be able to switch directions at a moments notice."
+> "Love requires no reason. That is what makes it love!"
 
-&mdash; [**Tenzin**](https://myanimelist.net/character.php?q=Tenzin&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
+&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
