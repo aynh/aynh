@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe that some truths should never be known."
+> "Being strong on your own is meaningless. To have power you need other people, and they need a world where they can be at their best."
 
-&mdash; [**Konoha Inoue**](https://myanimelist.net/character.php?q=Konoha%20Inoue&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
+&mdash; [**Shiroe**](https://myanimelist.net/character.php?q=Shiroe&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
