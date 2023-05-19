@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The future has shown us with its glorious brilliance the time to seize our destiny and conquer all our fear is now! In ancient times, man rubbed sticks together and created fire, then they slaughtered the whales and battled one another for oil. After that, came the atomic age. In every chapter of our history, we've danced with danger. But now, for the first time in existence, we will be delivered from fear. Finally, we will escape the prison of our illusions and the beautiful night will embrace us all. It's already too late! I will live by this and I will die by this!"
+> "It doesn't matter what you achieve in life. It's how you live that really matters. Countless men have lost their lives in war without fulfilling their life's ambitions. Shiba stood by his convictions, no matter how lonely he got. So I think that in the end, he must've been happier than anyone."
 
-&mdash; [**Dr. Franken Von Vogler**](https://myanimelist.net/character.php?q=Dr.%20Franken%20Von%20Vogler&cat=character), [**Giant Robo**](https://myanimelist.net/search/all?q=Giant%20Robo&cat=all)
+&mdash; [**Deerhound**](https://myanimelist.net/character.php?q=Deerhound&cat=character), [**Rave Master**](https://myanimelist.net/search/all?q=Rave%20Master&cat=all)
