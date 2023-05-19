@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Have faith in your inspiration. Feel the imagination!"
+> "Have you ever wondered, Master, what it feels like to be hunted?"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
