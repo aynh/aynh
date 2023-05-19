@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being strong on your own is meaningless. To have power you need other people, and they need a world where they can be at their best."
+> "They say time and a people’s heart are inversely proportional. The more it passes, the more they grow apart. It seems there are some rare exceptions though."
 
-&mdash; [**Shiroe**](https://myanimelist.net/character.php?q=Shiroe&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
