@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I guess, as long as I have life, all I can do is fight with all my might."
+> "Have faith in your inspiration. Feel the imagination!"
 
-&mdash; [**Subaru Natsuki**](https://myanimelist.net/character.php?q=Subaru%20Natsuki&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
