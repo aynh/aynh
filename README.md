@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I haven't lived all that long yet, but there is something I firmly believe in. The people who have the ability to change something in this world, all without exception, have the guts to abandon things important to them if they have to. They are those who can abandon even their humanity."
+> "So now we know her past. So what? It doesn't have anything to do with us. We have to be nice to her just because she's had a rough past? You've got to be kidding."
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Ranta**](https://myanimelist.net/character.php?q=Ranta&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
