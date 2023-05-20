@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not like we lost anything when there was nothing between us to start with. We could never really be equals. I've always been alone."
+> "You're not God, nor are you a sister. But it's because I feel that you're much closer to me than God, I'm much more afraid of being hated by you."
 
-&mdash; [**Izumiko Suzuhara**](https://myanimelist.net/character.php?q=Izumiko%20Suzuhara&cat=character), [**RDG: Red Data Girl**](https://myanimelist.net/search/all?q=RDG%3A%20Red%20Data%20Girl&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
