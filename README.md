@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're not God, nor are you a sister. But it's because I feel that you're much closer to me than God, I'm much more afraid of being hated by you."
+> "You guys are so small..."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Hao Asakura**](https://myanimelist.net/character.php?q=Hao%20Asakura&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
