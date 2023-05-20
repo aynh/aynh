@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You shy, little boy."
+> "A detective who corners a culprit with their reasoning and drives them to suicide in front of himself - is no different than a murderer."
 
-&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
