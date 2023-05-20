@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "By experiencing both, victory and defeat, running away and shedding tears, a man will become a man."
+> "They want to believe that's true and when someone wants to believe something is true, they usually will."
 
-&mdash; [**Shanks**](https://myanimelist.net/character.php?q=Shanks&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Henrietta**](https://myanimelist.net/character.php?q=Henrietta&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
