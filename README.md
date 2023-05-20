@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm tired if trying, sick of crying, I know I've been smiling, but inside I'm dying."
+> "By experiencing both, victory and defeat, running away and shedding tears, a man will become a man."
 
-&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
+&mdash; [**Shanks**](https://myanimelist.net/character.php?q=Shanks&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
