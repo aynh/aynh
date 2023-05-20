@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The impostor is an impostor because it can't be distinguished from the real thing. The proof of its falsity is in its resemblance to the real thing."
+> "There's no need to rush. Sometimes even pointless conversations can teach you a thing or two."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Ryou Haruna**](https://myanimelist.net/character.php?q=Ryou%20Haruna&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
