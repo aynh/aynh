@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fool! Next time you see the sun at night, know it's your last!"
+> "Can you do me a favor? Could you kill me with your fangs? Can you still not forgive me? Am I still a traitor?"
 
-&mdash; [**Yashiro Hoshimiya**](https://myanimelist.net/character.php?q=Yashiro%20Hoshimiya&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
+&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
