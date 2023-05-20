@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to reply with a long message, but if it's too long, that might be kind of revolting. But if it's too short, then I might come off as cold instead. Feeling apprehensive of what to do, I decided to reply back with a similar word count instead. This was what they called 'mirroring' in psychology. By emulating the actions of the other party, your affection levels would increase!"
+> "Humans who would dare to play God must pay a steep price for their arrogance, that is Truth."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Father**](https://myanimelist.net/character.php?q=Father&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
