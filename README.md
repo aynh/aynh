@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans who would dare to play God must pay a steep price for their arrogance, that is Truth."
+> "A man's weight consists nothing but what he burdens himself with."
 
-&mdash; [**Father**](https://myanimelist.net/character.php?q=Father&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Mondo Oowada**](https://myanimelist.net/character.php?q=Mondo%20Oowada&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
