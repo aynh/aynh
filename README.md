@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Can you do me a favor? Could you kill me with your fangs? Can you still not forgive me? Am I still a traitor?"
+> "It doesn't do any good to pretend you can't see what's going on."
 
-&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Yuuya Mochizuki**](https://myanimelist.net/character.php?q=Yuuya%20Mochizuki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
