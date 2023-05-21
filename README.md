@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Seeing nature and thinking it's beautiful is what's unnatural. That means the life you lead is an unclean one. If you can cut yourself off from mother nature and still survive, doesn't it mean you have enough inner beauty to allow you to do that?"
+> "Is a reason nesessary? I don't know why you would kill someone. But as for saving someone... A logical mind isn't needed, right?"
 
-&mdash; [**Souhei Saikawa**](https://myanimelist.net/character.php?q=Souhei%20Saikawa&cat=character), [**Subete ga F ni Naru**](https://myanimelist.net/search/all?q=Subete%20ga%20F%20ni%20Naru&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
