@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment I came out of that hole was the moment your luck ran out!"
+> "I've already made up my mind, to the statement: 'The most important thing in life is money'. I answered 'No'."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
