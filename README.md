@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So how long will it be, then? How long before you're no longer cursed to walk the earth...?"
+> "...As they played the game...I waited for someone to call 'onigiri'. But no one called. I was very little then. I had almost forgotten about that. But they knew...there would never be room for an onigiri...in a fruits basket."
 
-&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
