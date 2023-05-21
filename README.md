@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The strength of life lies in the possibility of dying."
+> "Tohru, you must always be yourself and do things at your own pace. Someday... you'll catch up."
 
-&mdash; [**Kouichi Aizawa**](https://myanimelist.net/character.php?q=Kouichi%20Aizawa&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
