@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My name is VASH THE STAMPEDE!! Forgive the lack of warning, but it's time for my daily massacre! If you do not believe I am the real thing, take a good look at me and start freaking out!!"
+> "For you I will go deeper than mountains, and higher than sea."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Apachai**](https://myanimelist.net/character.php?q=Apachai&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
