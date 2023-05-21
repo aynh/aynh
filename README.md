@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you give up, your dreams and everything else, they're gone."
+> "I thought growing older would turn me into an adult. I believed I'd find work, get married, and become an adult. But none of those things have happened. Even though I've grown older, I feel like nothing's changed."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kimi To Boku.**](https://myanimelist.net/character.php?q=Kimi%20To%20Boku.&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
