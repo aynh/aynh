@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regret is a powerful poison. The more you harbor those thoughts, the harder it is to move on."
+> "So she knows how to smile."
 
-&mdash; [**Sakurako Amamiya**](https://myanimelist.net/character.php?q=Sakurako%20Amamiya&cat=character), [**Psyren**](https://myanimelist.net/search/all?q=Psyren&cat=all)
+&mdash; [**Kento Miura**](https://myanimelist.net/character.php?q=Kento%20Miura&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
