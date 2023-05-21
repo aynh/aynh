@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've already made up my mind, to the statement: 'The most important thing in life is money'. I answered 'No'."
+> "It is simply the duty of the elite to protect the ignorant masses."
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Souryuu Asuka Langley**](https://myanimelist.net/character.php?q=Souryuu%20Asuka%20Langley&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
