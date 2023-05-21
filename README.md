@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am strong. Stronger than all of you. Extremely strong. I can kill all the titans out there. Even if I am alone."
+> "So how long will it be, then? How long before you're no longer cursed to walk the earth...?"
 
-&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
