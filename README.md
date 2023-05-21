@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tohru, you must always be yourself and do things at your own pace. Someday... you'll catch up."
+> "My name is VASH THE STAMPEDE!! Forgive the lack of warning, but it's time for my daily massacre! If you do not believe I am the real thing, take a good look at me and start freaking out!!"
 
-&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
