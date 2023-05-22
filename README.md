@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No... this is wrong! Didn't I fall into hell? This can't be hell! Surrendering my body to the devil, I should have become a wrinkled hag! My hair should be full of hateful snakes, my skin should be the color of a vile frog's! And my blood should be burning with the jet black flames of my grudge..! A lie. This form, it's a lie! I've been tricked! I wanted to become a terrifying woman, one that just a look from, would send anyone running. I have to be such a woman! I don't want to forget my anger and hate!"
+> "Don't make it sound so easy! Don't you realize how hard I had to study? I worked hard... I worked so hard!"
 
-&mdash; [**Jeanne**](https://myanimelist.net/character.php?q=Jeanne&cat=character), [**Kanashimi no Belladonna**](https://myanimelist.net/search/all?q=Kanashimi%20no%20Belladonna&cat=all)
+&mdash; [**Hakua Du Lot Herminium**](https://myanimelist.net/character.php?q=Hakua%20Du%20Lot%20Herminium&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
