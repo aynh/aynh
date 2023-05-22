@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry, but I hate people who act innocent but are actually opportunists."
+> "Every story has an ending. One day, we won’t be able to stay together."
 
-&mdash; [**Nai**](https://myanimelist.net/character.php?q=Nai&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
+&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
