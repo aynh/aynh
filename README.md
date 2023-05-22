@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is beautiful. Even if you're full of tears and sadness, open your eyes. Do what you want to do. Be what you want to be. Find friends. Don't be in a hurry to grow up. Take your time."
+> "If this is all it takes to tear us apart, then maybe we weren't all that close to begin with."
 
-&mdash; [**CLANNAD**](https://myanimelist.net/character.php?q=CLANNAD&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Yukino Yukinoshita**](https://myanimelist.net/character.php?q=Yukino%20Yukinoshita&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
