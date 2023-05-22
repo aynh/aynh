@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My abusive language is alchemized through 40 kg copper, 25 kg of zinc, 15 kg of nickel, 5 kg of ice that keeps my cool, and 97 kg of spite."
+> "My goal isn't your death. I will just torture you, make you awaken and then make you my friends!"
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
