@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Killing others is never justice, no matter what kind of noble cause one upholds."
+> "The moment you find the courage to give up your life for someone... Would be the moment you understand love."
 
-&mdash; [**Seishin Muroi**](https://myanimelist.net/character.php?q=Seishin%20Muroi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
