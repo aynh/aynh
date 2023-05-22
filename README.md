@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you just submit yourself to fate, then that's the end of it."
+> "If we give up before we try, then nothing is going to happen."
 
-&mdash; [**Maebara Keiichi**](https://myanimelist.net/character.php?q=Maebara%20Keiichi&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
+&mdash; [**Eli Ayase**](https://myanimelist.net/character.php?q=Eli%20Ayase&cat=character), [**Love Live! School idol project**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project&cat=all)
