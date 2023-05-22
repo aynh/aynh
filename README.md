@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment you find the courage to give up your life for someone... Would be the moment you understand love."
+> "No... this is wrong! Didn't I fall into hell? This can't be hell! Surrendering my body to the devil, I should have become a wrinkled hag! My hair should be full of hateful snakes, my skin should be the color of a vile frog's! And my blood should be burning with the jet black flames of my grudge..! A lie. This form, it's a lie! I've been tricked! I wanted to become a terrifying woman, one that just a look from, would send anyone running. I have to be such a woman! I don't want to forget my anger and hate!"
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Jeanne**](https://myanimelist.net/character.php?q=Jeanne&cat=character), [**Kanashimi no Belladonna**](https://myanimelist.net/search/all?q=Kanashimi%20no%20Belladonna&cat=all)
