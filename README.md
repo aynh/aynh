@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have my own method of bending spoons. (bends the spoon with his hands) Ha! Muscle over mind!"
+> "I don't know which is more pathetic; the fool, or those who follow him."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Jirobou**](https://myanimelist.net/character.php?q=Jirobou&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
