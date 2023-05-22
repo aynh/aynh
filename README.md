@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How long are you gonna sit in front of me sobbing your little eyes out?! It's depressing! (To Tohru)"
+> "For murderers, there is no good or evil. I know that."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
