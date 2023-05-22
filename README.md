@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who know how painful it can be to be alive, are fascinating."
+> "Sorry, but I hate people who act innocent but are actually opportunists."
 
-&mdash; [**Soichiro Arima**](https://myanimelist.net/character.php?q=Soichiro%20Arima&cat=character), [**His and Her Circumstances**](https://myanimelist.net/search/all?q=His%20and%20Her%20Circumstances&cat=all)
+&mdash; [**Nai**](https://myanimelist.net/character.php?q=Nai&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
