@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't know which is more pathetic; the fool, or those who follow him."
+> "How long are you gonna sit in front of me sobbing your little eyes out?! It's depressing! (To Tohru)"
 
-&mdash; [**Jirobou**](https://myanimelist.net/character.php?q=Jirobou&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
