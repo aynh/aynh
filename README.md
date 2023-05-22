@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't make it sound so easy! Don't you realize how hard I had to study? I worked hard... I worked so hard!"
+> "An angel? So Whis is an angel? But he’s got no wings, and his butt’s not hanging out."
 
-&mdash; [**Hakua Du Lot Herminium**](https://myanimelist.net/character.php?q=Hakua%20Du%20Lot%20Herminium&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Goku**](https://myanimelist.net/character.php?q=Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
