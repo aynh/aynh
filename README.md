@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I don't have to do it, I won't. If I have to do it, I'll make it quick."
+> "Your happiness is your own business. Its a promise you make to yourself. It is a reward you give yourself for accomplishing what you set out to do, for achieving what you strive for. But if you fail to reward yourself for what you have accomplished, then you are essentially breaking a promise to yourself. Its like a breach of contract, compensation must always be made. You must pay all of the debts that you made, even to yourself."
 
-&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
