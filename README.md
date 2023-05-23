@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't you ever worry about it? Wonder if there's something wrong with you? When you're always alone... you start comparing yourself with others. You want to make sure you're normal. But... when you're around lots of people, you don't compare yourself with them. You want to be yourself. It's okay to be weird... You want to be special. That's how it balances out."
+> "No one would intentionally set an easily accessible place as their goal. It's a challenge, because it's difficult. It is a dream because it can't be achieved easily."
 
-&mdash; [**Miyaichi Rio**](https://myanimelist.net/character.php?q=Miyaichi%20Rio&cat=character), [**Ana Satsujin**](https://myanimelist.net/search/all?q=Ana%20Satsujin&cat=all)
+&mdash; [**Isashiki Jun**](https://myanimelist.net/character.php?q=Isashiki%20Jun&cat=character), [**Diamond No Ace**](https://myanimelist.net/search/all?q=Diamond%20No%20Ace&cat=all)
