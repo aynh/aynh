@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not because I'm lazy, it's just because I don't care."
+> "If I don't have to do it, I won't. If I have to do it, I'll make it quick."
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
