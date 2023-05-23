@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ha ha ha ha! Promise me something, if you're gonna sue, go after the spirit first, okay?"
+> "I guess we won't be living together forever as gods. But still... This is forever, too."
 
-&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ikusaba Marco**](https://myanimelist.net/character.php?q=Ikusaba%20Marco&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
