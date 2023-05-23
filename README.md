@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I guess we won't be living together forever as gods. But still... This is forever, too."
+> "It's not because I'm lazy, it's just because I don't care."
 
-&mdash; [**Ikusaba Marco**](https://myanimelist.net/character.php?q=Ikusaba%20Marco&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
