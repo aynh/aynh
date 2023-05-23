@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no despair that can’t be overcome by everyday life."
+> "There is no guarantee that your dreams are just good ones."
 
-&mdash; [**Otonashi Maria**](https://myanimelist.net/character.php?q=Otonashi%20Maria&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Haji**](https://myanimelist.net/character.php?q=Haji&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
