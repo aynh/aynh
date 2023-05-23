@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone smiles, when they are with you. Please... from now on, go and help people in my place. Share your happiness with them."
+> "'I long to see someone who died', 'I want to be rich', 'I want women', 'I want to protect the world'... They're all desires. In other words, wishes. If you ask me, there's neither 'right' or 'wrong' when it comes to greed. You humans go around ranking certain types of greed in order from good to bad, which makes you so hard to understand."
 
-&mdash; [**Yui**](https://myanimelist.net/character.php?q=Yui&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
