@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe it would be just like in the mangas. I'd tell him I love him and then we cut to the happy ending."
+> "You wont be laughing once you taste our power of friendship!"
 
-&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
