@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We ran through our school that was filled with noises, screams, life and death."
+> "I can't just leave a crying girl alone and go home. I'm too wimpy to carry you, but I can lend you a shoulder, and get you down the stairs."
 
-&mdash; [**Takashi Komuro**](https://myanimelist.net/character.php?q=Takashi%20Komuro&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Ooga Kazuomi**](https://myanimelist.net/character.php?q=Ooga%20Kazuomi&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
