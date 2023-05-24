@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no way someone who can't even protect himself can protect anyone else, is there?"
+> "Being able to work hard is the best talent of all."
 
-&mdash; [**Touka Kirishima**](https://myanimelist.net/character.php?q=Touka%20Kirishima&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Hiroshi Kido**](https://myanimelist.net/character.php?q=Hiroshi%20Kido&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
