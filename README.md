@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Living your life to the fullest 'til the moment of your death, this is the rule to live by in any world."
+> "Even if mistaken, even if cruel, even if stupid, if many people acknowledge it, I found out that it can become the right thing. I found out that righteousness was able to be infinitely mass-produced. I found out that righteousness was established by the number of people. I found out that maneuvering for a majority was everything."
 
-&mdash; [**Crusty**](https://myanimelist.net/character.php?q=Crusty&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Owarimonogatari**](https://myanimelist.net/search/all?q=Owarimonogatari&cat=all)
