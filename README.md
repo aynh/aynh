@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being able to work hard is the best talent of all."
+> "I wasn't always fighting for love and justice. I was fighting for my friends and loved ones."
 
-&mdash; [**Hiroshi Kido**](https://myanimelist.net/character.php?q=Hiroshi%20Kido&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
+&mdash; [**Usagi Tsukino**](https://myanimelist.net/character.php?q=Usagi%20Tsukino&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
