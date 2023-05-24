@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don’t make decisions on your own without saying what’s important."
+> "Always trying to make myself seem strong... So I locked my own heart in a suit of armor."
 
-&mdash; [**Juugo Yama**](https://myanimelist.net/character.php?q=Juugo%20Yama&cat=character), [**Ryuugajou Nanana No Maizoukin**](https://myanimelist.net/search/all?q=Ryuugajou%20Nanana%20No%20Maizoukin&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
