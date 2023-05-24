@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't understand you! You said you don't love me, but you act like you do! Then you tell me to stay away. Do I have a chance or not?!"
+> "Living your life to the fullest 'til the moment of your death, this is the rule to live by in any world."
 
-&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Crusty**](https://myanimelist.net/character.php?q=Crusty&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
