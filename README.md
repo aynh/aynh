@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not fighting because I want to win. I'm fighting because I have to win."
+> "I was only able to get back to being a real doctor by saving your life! I realized that human lives have equal value by saving you! Nobody has the right to take another's life! I've been living as a doctor with that engraved upon my heart for years!"
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kenzo Tenma**](https://myanimelist.net/character.php?q=Kenzo%20Tenma&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
