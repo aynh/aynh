@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wasn't always fighting for love and justice. I was fighting for my friends and loved ones."
+> "Don't be so quick to throw away your life. No matter how disgraceful or embarrassing it may be, you need to keep struggling to find your way out until the very end."
 
-&mdash; [**Usagi Tsukino**](https://myanimelist.net/character.php?q=Usagi%20Tsukino&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
+&mdash; [**Clare**](https://myanimelist.net/character.php?q=Clare&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
