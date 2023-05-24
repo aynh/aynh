@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not that you can fall in love with someone new because you forgot the old. It's because you fall in love with someone new, that you're able to forget about the old. Only love can heal a heart that was hurt by love."
+> "There's no way someone who can't even protect himself can protect anyone else, is there?"
 
-&mdash; [**Bokura ga Ita**](https://myanimelist.net/character.php?q=Bokura%20ga%20Ita&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Touka Kirishima**](https://myanimelist.net/character.php?q=Touka%20Kirishima&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
