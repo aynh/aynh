@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was only able to get back to being a real doctor by saving your life! I realized that human lives have equal value by saving you! Nobody has the right to take another's life! I've been living as a doctor with that engraved upon my heart for years!"
+> "Don’t make decisions on your own without saying what’s important."
 
-&mdash; [**Kenzo Tenma**](https://myanimelist.net/character.php?q=Kenzo%20Tenma&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Juugo Yama**](https://myanimelist.net/character.php?q=Juugo%20Yama&cat=character), [**Ryuugajou Nanana No Maizoukin**](https://myanimelist.net/search/all?q=Ryuugajou%20Nanana%20No%20Maizoukin&cat=all)
