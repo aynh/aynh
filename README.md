@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you think it's natural for people to sacrifice their own lives to save others, surely you understand that sometimes a single death can save many lives."
+> "Some of us showed a strength we didn't expect. Some of us went ballistic like we thought they would, some got all fired up for next time and some irresponsible- lookin' types turned out to be crazy serious. The guy we thought was just a little runt turned out to be a genius assassin, and a guy we thought was a genius was secretly workin' hard all along. With all these different skillsets...we just might be able to handle any challenge that comes our way."
 
-&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Ryōma Terasaka**](https://myanimelist.net/character.php?q=Ry%C5%8Dma%20Terasaka&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
