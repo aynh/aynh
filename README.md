@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As far as relationships with other people go, they don't just end because one person decides that it's over."
+> "Yeah I lied; so what is the truth? Underneath the band-aid?"
 
-&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Haruko Haruhara**](https://myanimelist.net/character.php?q=Haruko%20Haruhara&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
