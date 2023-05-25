@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are fighting out of obligation, not out of hatred. You will never reach me like that. Battle without hatred is like a bird without wings. You’ll never defeat anyone like that. You powerless friends are just weights that will break your legs."
+> "Is being silent and suppressing  your own feelings really being thoughtful of the other person?"
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tsukushi Makino**](https://myanimelist.net/character.php?q=Tsukushi%20Makino&cat=character), [**Boys Over Flowers**](https://myanimelist.net/search/all?q=Boys%20Over%20Flowers&cat=all)
