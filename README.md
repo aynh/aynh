@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hmm... never noticed those before *after accidently groping Momiji's chest*."
+> "Sometimes when I'd go to visit her in the hospital...she would purposely avoid me. Then I didn't know what she was thinking about anymore... (to Yuki, about Rin)"
 
-&mdash; [**Mamoru Kusanagi**](https://myanimelist.net/character.php?q=Mamoru%20Kusanagi&cat=character), [**Blue Seed**](https://myanimelist.net/search/all?q=Blue%20Seed&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
