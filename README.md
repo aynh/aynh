@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ken-Chan!"
+> "[To Orihime, when she refuses to eat] Shall I force it down your throat? Or would you rather be strapped down and given IV's?"
 
-&mdash; [**Kusajishi Yachiru**](https://myanimelist.net/character.php?q=Kusajishi%20Yachiru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
