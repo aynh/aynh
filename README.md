@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is being silent and suppressing  your own feelings really being thoughtful of the other person?"
+> "When 'colors' mix, they become muddy and messy. But when they all blend together, the final result is the color that wins against all others... Black."
 
-&mdash; [**Tsukushi Makino**](https://myanimelist.net/character.php?q=Tsukushi%20Makino&cat=character), [**Boys Over Flowers**](https://myanimelist.net/search/all?q=Boys%20Over%20Flowers&cat=all)
+&mdash; [**Ittetsu Takeda**](https://myanimelist.net/character.php?q=Ittetsu%20Takeda&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
