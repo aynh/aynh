@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Envy] Now I see. You're Jealous. You're jealous of humans, aren't you? According to you, humans are supposed to be a lot weaker than Homunculi. And yet, even if they get discouraged after being beaten, and even if they get close to falling down after losing their paths, they continue to get up and fight. Everyone around them helps them get back up. And you're envious of that."
+> "You've set fire to my frozen heart, I shall engrave this anger and sadness that's running through my blood onto you."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Alexander Nikolaevich Hell**](https://myanimelist.net/character.php?q=Alexander%20Nikolaevich%20Hell&cat=character), [**Seikon no Qwaser**](https://myanimelist.net/search/all?q=Seikon%20no%20Qwaser&cat=all)
