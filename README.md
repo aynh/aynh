@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, the weak are the sustenance of the strong. The strong live, the weak die."
+> "Those who use cheating as their weapon, will be strangled by cheating in the end."
 
-&mdash; [**Makoto Shishio**](https://myanimelist.net/character.php?q=Makoto%20Shishio&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
