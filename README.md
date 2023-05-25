@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing good ever comes from a man interfering with women's problems."
+> "My role is to darken souls, even pure ones, until they become pitch black. By doing so, you can stay beautiful and shine bright, Mother. I do everything because of my love for you."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Sakuya Tougane**](https://myanimelist.net/character.php?q=Sakuya%20Tougane&cat=character), [**Psycho-Pass 2**](https://myanimelist.net/search/all?q=Psycho-Pass%202&cat=all)
