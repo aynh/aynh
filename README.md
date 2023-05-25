@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What are you, some tantrum throwing brat who forgot to buy his Jump? Having no money is like having a sinus infection. You just have to ignore it and not pick at it, and it'll go away."
+> "What a punchline, no... that was just a punch."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Arisawa Tatsuki**](https://myanimelist.net/character.php?q=Arisawa%20Tatsuki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
