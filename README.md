@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Symmetry is what makes the world beautiful."
+> "Do you think I can shoulder everyone's lives and not feel any weight? I don't want to be indifferent. I want to be worthy of everyone's feelings."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
