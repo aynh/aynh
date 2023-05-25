@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay, no need to thank me or say anything else. I will always be there for you, I will make you fall for me over and over again."
+> "You are fighting out of obligation, not out of hatred. You will never reach me like that. Battle without hatred is like a bird without wings. You’ll never defeat anyone like that. You powerless friends are just weights that will break your legs."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
