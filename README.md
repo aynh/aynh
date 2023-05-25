@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you think I can shoulder everyone's lives and not feel any weight? I don't want to be indifferent. I want to be worthy of everyone's feelings."
+> "We found ourselves in conflict with each other many times. There were hard times when we wanted to run away or give up. But it was only because that rain fell, that the seeds of our emotions could sprout. And the flowers of deeper friendship could bloom."
 
-&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Misaki Kamiigusa**](https://myanimelist.net/character.php?q=Misaki%20Kamiigusa&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
