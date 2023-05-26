@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you are down, how do you pick yourself up? People fall into two categories... depending on how they pick themselves up. The first one sees somebody who is worse off and thinks, 'Hey! I am better off than that guy.' And the second kind of guy sees a challenge and tries to raise himself to it."
+> "It seems like we spent a long time together, but it wasn't. It was actually pretty short. Too short. So I kind of know, but I kind of don't know what I want to say. He was friendly, easy to talk to, and smart. He could do anything and was reliable. I thought he was perfect. But maybe I just didn't realize what his faults were. He might have been hiding his flaws."
 
-&mdash; [**Gintama**](https://myanimelist.net/character.php?q=Gintama&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
