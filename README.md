@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Uh, sorry... I forgot I'm supposed to airsit, I mean babybend, I-i mean babysit the kids."
+> "For living creatures, Victory if Life, and Defeat means Death."
 
-&mdash; [**Korra**](https://myanimelist.net/character.php?q=Korra&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
+&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
