@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I follow my dream and it shatters - I can accept having to regret that. But I don't want to regret not pursuing it in the first place."
+> "Words alone, can make an entire army withdraw."
 
-&mdash; [**Akito Takagi**](https://myanimelist.net/character.php?q=Akito%20Takagi&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Yuusha**](https://myanimelist.net/character.php?q=Yuusha&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
