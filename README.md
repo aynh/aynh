@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen, an idol's job isn't to show people their smiles, it is to make people smile. Never forget that!"
+> "You're lucky Al. Since your body's huge."
 
-&mdash; [**Nico Yazawa**](https://myanimelist.net/character.php?q=Nico%20Yazawa&cat=character), [**Love Live! School idol project**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
