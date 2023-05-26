@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life sometimes deals you a bad hand and you make a lot of mistakes along the way, but as long as you believe in yourself and walk along your chosen path with a smile, everything will be alright."
+> "If I follow my dream and it shatters - I can accept having to regret that. But I don't want to regret not pursuing it in the first place."
 
-&mdash; [**Narumi Anjo**](https://myanimelist.net/character.php?q=Narumi%20Anjo&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
+&mdash; [**Akito Takagi**](https://myanimelist.net/character.php?q=Akito%20Takagi&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
