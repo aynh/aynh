@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What a punchline, no... that was just a punch."
+> "You can't bring back what you've lost, think about what you have now!"
 
-&mdash; [**Arisawa Tatsuki**](https://myanimelist.net/character.php?q=Arisawa%20Tatsuki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Jinbei**](https://myanimelist.net/character.php?q=Jinbei&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
