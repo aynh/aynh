@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Friendship might begin with getting picked, but I don't think that you can stop picking for yourself either. But in order to choose, there are things you need to know. And in order to get picked, you need them to know certain things."
+> "Love is like a mirror that reflects your bad side. Especially when it’s unrequited, you get envious, jealous, prejudiced, and resentful. You have to face all sorts of emotions, but there’s no reason to find that shameful. It shows how serious you are. Oh yeah, do you want me to tell you how to break that mirror? It’s not anything hard, understand the other person. That’s all. Don’t make any quick judgment and let them do the same."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Margery Daw**](https://myanimelist.net/character.php?q=Margery%20Daw&cat=character), [**Shakugan no Shana**](https://myanimelist.net/search/all?q=Shakugan%20no%20Shana&cat=all)
