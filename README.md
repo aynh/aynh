@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ancient creatures died and left naught but fossil fuels, like coal and petroleum. Without that sacrifice, our present energy civilization would not exist. That sort of sacrifice is what is always demanded."
+> "Shut up. Quit shouting like you're king of the figgin' world. You're making my ears bleed you bastard. Now I've got some common sense for you... If I wore a tie, it wouldn't change who I am. If I had no piercings, it wouldn't mean I'm nice and if my hair wasn't black, it wouldn't stop me from kicking your ass! Who do you think you are anyway? You think you're God huh?! What's the matter?! Run out of things to say? No more advice?! You're not so hot anymore right now are you?! (Black Haru yelling at student council president for shouting at Momiji)"
 
-&mdash; [**Souji Mikage**](https://myanimelist.net/character.php?q=Souji%20Mikage&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
