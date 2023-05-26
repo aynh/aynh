@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It seems like we spent a long time together, but it wasn't. It was actually pretty short. Too short. So I kind of know, but I kind of don't know what I want to say. He was friendly, easy to talk to, and smart. He could do anything and was reliable. I thought he was perfect. But maybe I just didn't realize what his faults were. He might have been hiding his flaws."
+> "[to Aang, who is playing around] Stop! Stop it right now! What's wrong with you? We don't have time for fun and games with the war going on."
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
