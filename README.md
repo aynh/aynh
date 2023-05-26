@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I can do it tomorrow, I won't do it today!"
+> "Life sometimes deals you a bad hand and you make a lot of mistakes along the way, but as long as you believe in yourself and walk along your chosen path with a smile, everything will be alright."
 
-&mdash; [**KyÅko ToshinÅ**](https://myanimelist.net/character.php?q=Ky%C3%85%C2%8Dko%20Toshin%C3%85%C2%8D&cat=character), [**Yuri Yuri**](https://myanimelist.net/search/all?q=Yuri%20Yuri&cat=all)
+&mdash; [**Narumi Anjo**](https://myanimelist.net/character.php?q=Narumi%20Anjo&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
