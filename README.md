@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In order to learn you may have to risk your life... no, even your soul."
+> "People who are confident in themselves never talk about expectations. 'Expectation' is a word rooted in giving up. It leaves you with no other choice. It makes it obvious that you're powerless."
 
-&mdash; [**Chun-Woo Han**](https://myanimelist.net/character.php?q=Chun-Woo%20Han&cat=character), [**The Breaker**](https://myanimelist.net/search/all?q=The%20Breaker&cat=all)
+&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
