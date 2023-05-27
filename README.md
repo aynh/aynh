@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Never beg and earn by winning or else you won't get anything."
+> "If you don't like your destiny, don't accept it. Instead, have the courage to change it the way you want it to be!"
 
-&mdash; [**Renton Thurston**](https://myanimelist.net/character.php?q=Renton%20Thurston&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
