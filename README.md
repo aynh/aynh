@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want fear for a future, that may not even come, to stop me from acting today."
+> "Don't just accept loss or defeat! Accept it after you're dead. If you lose without dying... it means that luck is on your side. If that happens - focus on surviving! Survive and Kill the one who couldn't kill YOU!"
 
-&mdash; [**Simon**](https://myanimelist.net/character.php?q=Simon&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
+&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
