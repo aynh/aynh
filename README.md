@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let's calm down. The enemy is shooting at us."
+> "There are only so many lives I can value. And...I decided who those people were six years ago. So...You shouldn't try to ask for my pity. Because right now, I don't have...Time to spare or room in my heart."
 
-&mdash; [**Itsuki Koizumi**](https://myanimelist.net/character.php?q=Itsuki%20Koizumi&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
