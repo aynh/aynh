@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world isn't as bad as you think."
+> "Love is not necessary, power is the only true necessity."
 
-&mdash; [**Celty Sturluson**](https://myanimelist.net/character.php?q=Celty%20Sturluson&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
