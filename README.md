@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Orihime, after she had being taken from Ichigo once again] A girl like you should smile more often. Overcast skies blot out the sun, and that always brings people's spirits down. So why not let the sun shine...For just a while longer?"
+> "I was reckless when I was young. I educated myself by cursing the heartlessness of the world. The world was cruel - so I made myself more heartless and used that as a weapon, trying to follow through on my ideals."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
