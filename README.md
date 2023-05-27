@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I only have one chance to have my life, and it's right here. It's the only life I have. This is my life. I can't give it to anyone else, It can't be stolen, I can't force it on anyone, or forget it, or make it disappear, or trample on it, or laugh it away, or beautify it. I have no choice but to accept this one cruel, meaningless life! That's why I will fight, and why I will continue fighting."
+> "Rumors, at times, can be more severe than the truth."
 
-&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
