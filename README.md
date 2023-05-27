@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What would you ask a grave, which can never reply? What do you pray for? Saying anything after someone's death is far too late."
+> "I'd rather trust and regret, than doubt and regret."
 
-&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
