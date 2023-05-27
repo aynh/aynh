@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "---Well said. Then you can die first."
+> "If you keep bad-mouthing someone, you might feel like as if you are on a higher position than that person. But in actual fact, its completely wrong to do that!"
 
-&mdash; [**Lancer**](https://myanimelist.net/character.php?q=Lancer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
