@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "While many can pursue their dreams in solitude, other dreams are like great storms blowing hundreds, even thousands of dreams apart in their wake. Dreams breathe life into men and can cage them in suffering. Men live and die by their dreams. But long after they have been abandoned they still smolder deep in men's hearts. Some see nothing more than life and death. They are dead, for they have no dreams."
+> "If you can't remember something, it is merely because it was not worth remembering."
 
-&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Riō Satomi**](https://myanimelist.net/character.php?q=Ri%C5%8D%20Satomi&cat=character), [**Hakkenden: Eight Dogs of the East TV 2**](https://myanimelist.net/search/all?q=Hakkenden%3A%20Eight%20Dogs%20of%20the%20East%20TV%202&cat=all)
