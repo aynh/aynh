@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are only so many lives I can value. And...I decided who those people were six years ago. So...You shouldn't try to ask for my pity. Because right now, I don't have...Time to spare or room in my heart."
+> "I only have one chance to have my life, and it's right here. It's the only life I have. This is my life. I can't give it to anyone else, It can't be stolen, I can't force it on anyone, or forget it, or make it disappear, or trample on it, or laugh it away, or beautify it. I have no choice but to accept this one cruel, meaningless life! That's why I will fight, and why I will continue fighting."
 
-&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
