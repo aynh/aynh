@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No I can't go on like this! I should die! How could this happen? Did I really forget to fold the tip of the toilet paper into a triangle?"
+> "[To Orihime, after she had being taken from Ichigo once again] A girl like you should smile more often. Overcast skies blot out the sun, and that always brings people's spirits down. So why not let the sun shine...For just a while longer?"
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
