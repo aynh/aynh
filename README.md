@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can't remember something, it is merely because it was not worth remembering."
+> "You see everyone wants everything, that's the way the world is. But I just might actually get it."
 
-&mdash; [**Riō Satomi**](https://myanimelist.net/character.php?q=Ri%C5%8D%20Satomi&cat=character), [**Hakkenden: Eight Dogs of the East TV 2**](https://myanimelist.net/search/all?q=Hakkenden%3A%20Eight%20Dogs%20of%20the%20East%20TV%202&cat=all)
+&mdash; [**Jigo**](https://myanimelist.net/character.php?q=Jigo&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
