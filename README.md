@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't just accept loss or defeat! Accept it after you're dead. If you lose without dying... it means that luck is on your side. If that happens - focus on surviving! Survive and Kill the one who couldn't kill YOU!"
+> "The world isn't as bad as you think."
 
-&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Celty Sturluson**](https://myanimelist.net/character.php?q=Celty%20Sturluson&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
