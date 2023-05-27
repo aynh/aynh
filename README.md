@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You see everyone wants everything, that's the way the world is. But I just might actually get it."
+> "They often say that humans can't live alone. But you can live pretty long by yourself. Instead of feeling alone in a group, it's better to be alone in your solitude."
 
-&mdash; [**Jigo**](https://myanimelist.net/character.php?q=Jigo&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Faye Valentine**](https://myanimelist.net/character.php?q=Faye%20Valentine&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
