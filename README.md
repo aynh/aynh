@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ignorance is bliss, isn't it?"
+> "Destiny. Fate. Dreams. These unstoppable ideas are held deep in the heart of man. As long as there people who seek freedom in this life, These things shall not vanish from the Earth."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Gol D. Roger**](https://myanimelist.net/character.php?q=Gol%20D.%20Roger&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
