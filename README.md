@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The scenery is so peaceful, you'd never think that wars were happening and people were dying around the world. If only this scenery could continue forever. But even if a time should come when I can no longer enjoy this scenery, as long as everyone is with me, I'll be fine. That's what I think today."
+> "No matter what lies you tell, you can't fool your own heart."
 
-&mdash; [**Meiko Inoue**](https://myanimelist.net/character.php?q=Meiko%20Inoue&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Meliodas**](https://myanimelist.net/character.php?q=Meliodas&cat=character), [**Nanatsu no Taizai**](https://myanimelist.net/search/all?q=Nanatsu%20no%20Taizai&cat=all)
