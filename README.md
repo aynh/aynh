@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not only allowing my comrade to continue to their deaths but I will also follow her footsteps. It's clearly a show of irresponsibility... But those that did not even intend to take the responsibility in the first place can only be called cowardly and despicable."
+> "Bonds are what they are because they can be cut."
 
-&mdash; [**Izayoi Sakamaki**](https://myanimelist.net/character.php?q=Izayoi%20Sakamaki&cat=character), [**Mondaiji-tachi Ga Isekai Kara Kuru Sou Desu Yo?**](https://myanimelist.net/search/all?q=Mondaiji-tachi%20Ga%20Isekai%20Kara%20Kuru%20Sou%20Desu%20Yo%3F&cat=all)
+&mdash; [**Miyaichi Rio**](https://myanimelist.net/character.php?q=Miyaichi%20Rio&cat=character), [**Ana Satsujin**](https://myanimelist.net/search/all?q=Ana%20Satsujin&cat=all)
