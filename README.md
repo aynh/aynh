@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why do people have to work? I just want to eat and sleep. I should have born as a panda at the zoo."
+> "Protect the one thing you want to protect until the very end."
 
-&mdash; [**Kazuya Hiramaru**](https://myanimelist.net/character.php?q=Kazuya%20Hiramaru&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
