@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't like your destiny, don't accept it. Instead, have the courage to change it the way you want it to be!"
+> "Why do people have to work? I just want to eat and sleep. I should have born as a panda at the zoo."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kazuya Hiramaru**](https://myanimelist.net/character.php?q=Kazuya%20Hiramaru&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
