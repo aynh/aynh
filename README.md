@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bonds are what they are because they can be cut."
+> "The probability of success was zero percent. But I've learned that probabilities are meaningless when it comes to you guys."
 
-&mdash; [**Miyaichi Rio**](https://myanimelist.net/character.php?q=Miyaichi%20Rio&cat=character), [**Ana Satsujin**](https://myanimelist.net/search/all?q=Ana%20Satsujin&cat=all)
+&mdash; [**Lordgenome**](https://myanimelist.net/character.php?q=Lordgenome&cat=character), [**Tengen Toppa Gurren Laggan**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Laggan&cat=all)
