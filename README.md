@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The Killer instinct is not perceived by words, but by look"
+> "Listen, girls like guys who are strong and can protect them. So if you keep working hard and get stronger, she just might like you back."
 
-&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
+&mdash; [**Eina Tulle**](https://myanimelist.net/character.php?q=Eina%20Tulle&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
