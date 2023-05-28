@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what lies you tell, you can't fool your own heart."
+> "The Killer instinct is not perceived by words, but by look"
 
-&mdash; [**Meliodas**](https://myanimelist.net/character.php?q=Meliodas&cat=character), [**Nanatsu no Taizai**](https://myanimelist.net/search/all?q=Nanatsu%20no%20Taizai&cat=all)
+&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
