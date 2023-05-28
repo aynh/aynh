@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "While I was with you guys, I became more human. I didn't like that. I even have a family and started to like living on earth."
+> "Your back is your one big blind spot."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Yoko Littner**](https://myanimelist.net/character.php?q=Yoko%20Littner&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
