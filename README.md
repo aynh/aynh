@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The only one who can beat me, is me!"
+> "While I was with you guys, I became more human. I didn't like that. I even have a family and started to like living on earth."
 
-&mdash; [**Daiki Aomine**](https://myanimelist.net/character.php?q=Daiki%20Aomine&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
