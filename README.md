@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The probability of success was zero percent. But I've learned that probabilities are meaningless when it comes to you guys."
+> "We are perfect for each other! She's strong, I'm strong. She's fun, I'm fun. She's beautiful... I'm GORGEOUS!"
 
-&mdash; [**Lordgenome**](https://myanimelist.net/character.php?q=Lordgenome&cat=character), [**Tengen Toppa Gurren Laggan**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Laggan&cat=all)
+&mdash; [**Bolin**](https://myanimelist.net/character.php?q=Bolin&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
