@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now that the rainy season has started, it rains quite a lot. I don't like the rainy season. As the humidity rises, so does the misery. And recently, more things that contribute to my misery have sprung up around me..."
+> "Can't you tell, Aizen? You no longer have a place to run away to."
 
-&mdash; [**Kaname Tsukahara**](https://myanimelist.net/character.php?q=Kaname%20Tsukahara&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
+&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
