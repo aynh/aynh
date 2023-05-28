@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Talent is a key factor, of course, but without some luck on your side you're likely to fail."
+> "Now that the rainy season has started, it rains quite a lot. I don't like the rainy season. As the humidity rises, so does the misery. And recently, more things that contribute to my misery have sprung up around me..."
 
-&mdash; [**Reiko Mikami**](https://myanimelist.net/character.php?q=Reiko%20Mikami&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
+&mdash; [**Kaname Tsukahara**](https://myanimelist.net/character.php?q=Kaname%20Tsukahara&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
