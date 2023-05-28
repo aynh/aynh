@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen, girls like guys who are strong and can protect them. So if you keep working hard and get stronger, she just might like you back."
+> "Ignorance is bliss, isn't it?"
 
-&mdash; [**Eina Tulle**](https://myanimelist.net/character.php?q=Eina%20Tulle&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
