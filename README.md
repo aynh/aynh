@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There isn't a chain in this world for a person to chain down another."
+> "Apparently Goku hasn't eaten in 500 years, his body's making up for lost time."
 
-&mdash; [**Moroha Haimura**](https://myanimelist.net/character.php?q=Moroha%20Haimura&cat=character), [**Seiken Tsukai no World Break**](https://myanimelist.net/search/all?q=Seiken%20Tsukai%20no%20World%20Break&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
