@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay if you don't understand, just stay with me, watch me, and slowly come to understand."
+> "Sad memories are a part of what makes me who I am."
 
-&mdash; [**Agata Katsuhira**](https://myanimelist.net/character.php?q=Agata%20Katsuhira&cat=character), [**Kiznaiver**](https://myanimelist.net/search/all?q=Kiznaiver&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
