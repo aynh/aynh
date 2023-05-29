@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You probably weren't wrong, but you went about it the wrong way."
+> "There isn't a chain in this world for a person to chain down another."
 
-&mdash; [**Akatsuki Kojou**](https://myanimelist.net/character.php?q=Akatsuki%20Kojou&cat=character), [**Strike the Blood**](https://myanimelist.net/search/all?q=Strike%20the%20Blood&cat=all)
+&mdash; [**Moroha Haimura**](https://myanimelist.net/character.php?q=Moroha%20Haimura&cat=character), [**Seiken Tsukai no World Break**](https://myanimelist.net/search/all?q=Seiken%20Tsukai%20no%20World%20Break&cat=all)
