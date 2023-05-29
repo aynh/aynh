@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Russia* You were such a cute country when you were born and now your all grown up..."
+> "Well, I don't see what's so funny. I'm honest, I speak my mind, and I don't hold back. It's sneaky people like Kaoru who are the troublemakers."
 
-&mdash; [**France**](https://myanimelist.net/character.php?q=France&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
