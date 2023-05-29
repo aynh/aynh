@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you dislike that someone you once knew has become someone new without your knowing?"
+> "It's okay if you don't understand, just stay with me, watch me, and slowly come to understand."
 
-&mdash; [**Minato**](https://myanimelist.net/character.php?q=Minato&cat=character), [**Houkago no Pleiades**](https://myanimelist.net/search/all?q=Houkago%20no%20Pleiades&cat=all)
+&mdash; [**Agata Katsuhira**](https://myanimelist.net/character.php?q=Agata%20Katsuhira&cat=character), [**Kiznaiver**](https://myanimelist.net/search/all?q=Kiznaiver&cat=all)
