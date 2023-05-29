@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sad memories are a part of what makes me who I am."
+> "There is no way to train your heart to be invulnerable."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Lubbock**](https://myanimelist.net/character.php?q=Lubbock&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
