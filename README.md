@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Conspiracy's evil influence is much closer than you think, and is always ready to deceive you!"
+> "Do you dislike that someone you once knew has become someone new without your knowing?"
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Minato**](https://myanimelist.net/character.php?q=Minato&cat=character), [**Houkago no Pleiades**](https://myanimelist.net/search/all?q=Houkago%20no%20Pleiades&cat=all)
