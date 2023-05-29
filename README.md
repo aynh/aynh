@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who call others stupid are usually more stupid. But I'm stupid, so I'll say it anyways...YOU'RE STUPID!"
+> "There is only one truth."
 
-&mdash; [**Shizuo Heiwajima**](https://myanimelist.net/character.php?q=Shizuo%20Heiwajima&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
