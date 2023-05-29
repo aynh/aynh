@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no way to train your heart to be invulnerable."
+> "I think running a restaurant would fit you better than being an assassin."
 
-&mdash; [**Lubbock**](https://myanimelist.net/character.php?q=Lubbock&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
