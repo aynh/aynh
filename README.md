@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you afraid of other people? I know that by keeping others at a distance you avoid a betrayal of your trust, but you must endure the loneliness. Man can never completely erase this sadness, because all men are fundamentally alone. Pain is something man must carry in his heart, and since the heart feels pain so easily, some believe that life is pain."
+> "Oh? What are you surprised about!? Do you think that I'm someone who would give up after being rejected just once!? Hospitalized or not, I shall continue to polish myself and become even moooore of a spectacular lady, and return to you!!"
 
-&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
