@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are days when nothing goes right. There are days when you stumble and fall. There are days when you just want to cry. To cry a lot. To sleep a lot. Or even eat a lot. It's alright, as long as you pick yourself up again."
+> "Well, if they're dead, then that's the end of it. Crying about it gets you nothing but an empty stomach"
 
-&mdash; [**Yuki Takeya**](https://myanimelist.net/character.php?q=Yuki%20Takeya&cat=character), [**Gakkou Gurashi!**](https://myanimelist.net/search/all?q=Gakkou%20Gurashi!&cat=all)
+&mdash; [**Ylva**](https://myanimelist.net/character.php?q=Ylva&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
