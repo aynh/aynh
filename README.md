@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh? What are you surprised about!? Do you think that I'm someone who would give up after being rejected just once!? Hospitalized or not, I shall continue to polish myself and become even moooore of a spectacular lady, and return to you!!"
+> "*To Russia* You were such a cute country when you were born and now your all grown up..."
 
-&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**France**](https://myanimelist.net/character.php?q=France&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
