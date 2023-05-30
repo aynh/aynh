@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we give up before we try, then nothing is going to happen."
+> "Accepting one's own strength, and the strength of others, is an important quality of a swordsman."
 
-&mdash; [**Eli Ayase**](https://myanimelist.net/character.php?q=Eli%20Ayase&cat=character), [**Love Live! School idol project**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
