@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes one must lose the battle in order to win the war."
+> "The weaker you are the louder you bark."
 
-&mdash; [**Sylphy**](https://myanimelist.net/character.php?q=Sylphy&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
+&mdash; [**Tenten**](https://myanimelist.net/character.php?q=Tenten&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
