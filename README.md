@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wanted to see your homework from the other day. And I got to see your face while you were sleeping... so don't sweat it."
+> "Being too rigid makes you fragile. You'll end up breaking yourself and those around you."
 
-&mdash; [**Konata Izumi**](https://myanimelist.net/character.php?q=Konata%20Izumi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
+&mdash; [**Yukina Himeragi**](https://myanimelist.net/character.php?q=Yukina%20Himeragi&cat=character), [**Strike the Blood**](https://myanimelist.net/search/all?q=Strike%20the%20Blood&cat=all)
