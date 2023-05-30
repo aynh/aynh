@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why are you acting like you're the only one hurting when you pushed him away?"
+> "I am Justice! I protect the innocent and those who fear evil. I'm the one that will become the god of a new world that every one desires!"
 
-&mdash; [**Yukimura Tooru**](https://myanimelist.net/character.php?q=Yukimura%20Tooru&cat=character), [**Aoharu x Kikanjuu**](https://myanimelist.net/search/all?q=Aoharu%20x%20Kikanjuu&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
