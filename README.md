@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My grandfather's deck has no pathetic cards, Kaiba. But it does contain... the unstoppable Exodia!"
+> "Six innocent peasants down, hundreds of thousand more to go."
 
-&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
