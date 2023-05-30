@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, well. No matter what path they take, people without guts have nothing ahead of them."
+> "[after stabbing some fishes] That's it! This is love! Little fishies, does it hurt? I'll teach you. This is love, you know! I have to eat lots and grow big! And this time, I'll teach everyone what love is. Everyone! Everyone!"
 
-&mdash; [**Hiruma Youichi**](https://myanimelist.net/character.php?q=Hiruma%20Youichi&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
+&mdash; [**Chaos**](https://myanimelist.net/character.php?q=Chaos&cat=character), [**Sora no Otoshimono: Forte**](https://myanimelist.net/search/all?q=Sora%20no%20Otoshimono%3A%20Forte&cat=all)
