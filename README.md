@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Souls are so yummy."
+> "[To Barragan, before he was recruited by Aizen] Isn't it ironic, king of Hueco Mundo? Dressed in black and poised to attack, you look just like a shinigami."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
