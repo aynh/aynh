@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When receiving an illogical favor from others, one should do the same to return the illogical favor."
+> "Whenever we pray for someone's happiness, someone else must be cursed in exchange."
 
-&mdash; [**Frontier Setter**](https://myanimelist.net/character.php?q=Frontier%20Setter&cat=character), [**Rakuen Tsuihō - Expelled from Paradise**](https://myanimelist.net/search/all?q=Rakuen%20Tsuih%C5%8D%20-%20Expelled%20from%20Paradise&cat=all)
+&mdash; [**Sayaka Miki**](https://myanimelist.net/character.php?q=Sayaka%20Miki&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
