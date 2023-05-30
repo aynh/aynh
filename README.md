@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As a musician, in the process of learning from a teacher, your differences breed a sense of discomfort which you should cherish. It's because of those differences that we have individuality."
+> "Sometimes one must lose the battle in order to win the war."
 
-&mdash; [**Hiroko Seto**](https://myanimelist.net/character.php?q=Hiroko%20Seto&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Sylphy**](https://myanimelist.net/character.php?q=Sylphy&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
