@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether here or in the real world, you can cry when it hurts. There's no rule that you can't show feelings just because it's a game."
+> "Oh, well. No matter what path they take, people without guts have nothing ahead of them."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Hiruma Youichi**](https://myanimelist.net/character.php?q=Hiruma%20Youichi&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
