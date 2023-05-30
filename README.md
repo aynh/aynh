@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All men are NOT created equal! Some are born smarter, or more beautiful, or with parents of greater status. Some, by contrast, are born of weak body or mind, or with few, if any, talents. All men are different! Yes, the very existence of man is discriminatory! That's why there is war, violence and unrest."
+> "I wanted to see your homework from the other day. And I got to see your face while you were sleeping... so don't sweat it."
 
-&mdash; [**Charles Zi Britannia**](https://myanimelist.net/character.php?q=Charles%20Zi%20Britannia&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Konata Izumi**](https://myanimelist.net/character.php?q=Konata%20Izumi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
