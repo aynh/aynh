@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Accepting one's own strength, and the strength of others, is an important quality of a swordsman."
+> "...and even if you were to hate yourself as much as you want, you have no choice but to live with yourself forever. Other people just go by. Eventually what's left to you at the end is only yourself. Even if you can't seem to like yourself, shouldn't you at least compromise?"
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Choi Yool**](https://myanimelist.net/character.php?q=Choi%20Yool&cat=character), [**Gaussian Blur**](https://myanimelist.net/search/all?q=Gaussian%20Blur&cat=all)
