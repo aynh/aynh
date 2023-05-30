@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The weaker you are the louder you bark."
+> "When receiving an illogical favor from others, one should do the same to return the illogical favor."
 
-&mdash; [**Tenten**](https://myanimelist.net/character.php?q=Tenten&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Frontier Setter**](https://myanimelist.net/character.php?q=Frontier%20Setter&cat=character), [**Rakuen Tsuihō - Expelled from Paradise**](https://myanimelist.net/search/all?q=Rakuen%20Tsuih%C5%8D%20-%20Expelled%20from%20Paradise&cat=all)
