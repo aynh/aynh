@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Farewell, warrior of the sky. I pray... you don't forgive me."
+> "Even if I found happiness, my weakness can't be discarded. But, even so, I'm sure that we took the right path to move forward."
 
-&mdash; [**Kira Izuru**](https://myanimelist.net/character.php?q=Kira%20Izuru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Adolf Reinhardt**](https://myanimelist.net/character.php?q=Adolf%20Reinhardt&cat=character), [**Terraformars**](https://myanimelist.net/search/all?q=Terraformars&cat=all)
