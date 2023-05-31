@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Irony abounds in warfare."
+> "I could go one step farther if I wanted to."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
