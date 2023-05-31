@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Opportunities and success come only to those who do not fear to stand in the batter's box. Who want to hit the ball more than anything, and swing with all their might!"
+> "Listen up, you lowlifes who will never amount to anything!"
 
-&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Himari Takakura**](https://myanimelist.net/character.php?q=Himari%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
