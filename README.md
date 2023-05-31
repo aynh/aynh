@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I found happiness, my weakness can't be discarded. But, even so, I'm sure that we took the right path to move forward."
+> "Everybody loves somebody. In time, everybody falls in love with somebody. Just as I found you."
 
-&mdash; [**Adolf Reinhardt**](https://myanimelist.net/character.php?q=Adolf%20Reinhardt&cat=character), [**Terraformars**](https://myanimelist.net/search/all?q=Terraformars&cat=all)
+&mdash; [**Dera Mochimazzi**](https://myanimelist.net/character.php?q=Dera%20Mochimazzi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
