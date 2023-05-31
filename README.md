@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What do you think about your world? Is it fun? Is it easy to live in?"
+> "It's not because the game was so interesting, that everyone's trying to ask sensei about it. But it's because sensei's interesting, so the students are talking about the game with him."
 
-&mdash; [**Tet**](https://myanimelist.net/character.php?q=Tet&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Minako Kanou**](https://myanimelist.net/character.php?q=Minako%20Kanou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
