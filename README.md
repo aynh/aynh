@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Haven't you already lifted your foot, preparing to step forward? Then you only have one option! Finish taking that step!"
+> "War brings death. And wounds and pain to both sides. There's nothing harder to accept, than the deaths of those you love. So you believe they could never die. Especially those who haven't known war."
 
-&mdash; [**Sumire Kanō**](https://myanimelist.net/character.php?q=Sumire%20Kan%C5%8D&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Nagato**](https://myanimelist.net/character.php?q=Nagato&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
