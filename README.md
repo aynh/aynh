@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being too rigid makes you fragile. You'll end up breaking yourself and those around you."
+> "What do you think about your world? Is it fun? Is it easy to live in?"
 
-&mdash; [**Yukina Himeragi**](https://myanimelist.net/character.php?q=Yukina%20Himeragi&cat=character), [**Strike the Blood**](https://myanimelist.net/search/all?q=Strike%20the%20Blood&cat=all)
+&mdash; [**Tet**](https://myanimelist.net/character.php?q=Tet&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
