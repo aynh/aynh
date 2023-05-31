@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I could go one step farther if I wanted to."
+> "I'm the one who is grateful. That's because you're all willing to be my friends. For that, I'm grateful."
 
-&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Manato**](https://myanimelist.net/character.php?q=Manato&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
