@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This epidemic leads innocent people to their deaths, and yet it's pathogen will never be eradicated. This is a disease called serenity, a form of death that people have wished for."
+> "The King lives to the fullest! He needs to live more fully than anyone else. He is a figure of admiration to his people!"
 
-&mdash; [**Rikako Oryo**](https://myanimelist.net/character.php?q=Rikako%20Oryo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
