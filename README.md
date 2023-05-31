@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm the one who is grateful. That's because you're all willing to be my friends. For that, I'm grateful."
+> "What is education? Isn't education meant to create a person that conforms to society? What kind of education must be administrated to create a human being that meets the society's demands? Education is an experiment."
 
-&mdash; [**Manato**](https://myanimelist.net/character.php?q=Manato&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Mikhail Petrov**](https://myanimelist.net/character.php?q=Mikhail%20Petrov&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
