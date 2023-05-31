@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because it has powers that surpass everything, a king must cut off his own desires and never use it."
+> "The right thing is… to have faith in life, until you’re sure of death. That’s what makes a great detective."
 
-&mdash; [**Durandal Tobari Kumohira**](https://myanimelist.net/character.php?q=Durandal%20Tobari%20Kumohira&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
