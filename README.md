@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everybody loves somebody. In time, everybody falls in love with somebody. Just as I found you."
+> "This epidemic leads innocent people to their deaths, and yet it's pathogen will never be eradicated. This is a disease called serenity, a form of death that people have wished for."
 
-&mdash; [**Dera Mochimazzi**](https://myanimelist.net/character.php?q=Dera%20Mochimazzi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
+&mdash; [**Rikako Oryo**](https://myanimelist.net/character.php?q=Rikako%20Oryo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
