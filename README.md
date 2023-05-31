@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The King lives to the fullest! He needs to live more fully than anyone else. He is a figure of admiration to his people!"
+> "One victory greedily demands the next set of victories from the victor, until his death."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Legend of the Galactic Heroes**](https://myanimelist.net/character.php?q=Legend%20of%20the%20Galactic%20Heroes&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
