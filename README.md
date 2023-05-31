@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Wasted effort is one of the privileges of the youth."
+> "Farewell, warrior of the sky. I pray... you don't forgive me."
 
-&mdash; [**Undertaker**](https://myanimelist.net/character.php?q=Undertaker&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Kira Izuru**](https://myanimelist.net/character.php?q=Kira%20Izuru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
