@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People say love can be developed, but in the end the only person they love is themselves, that's why you choose to love someone who can please you the most."
+> "Irony abounds in warfare."
 
-&mdash; [**Takumi Ichinose**](https://myanimelist.net/character.php?q=Takumi%20Ichinose&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
