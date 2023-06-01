@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Eventually, someday, whatever! If it will break, and we'll be free then that's good enough for me! (To Tohru)"
+> "The heart may be weak and sometimes it may even give in, but I've learned that deep down, there's a light that never goes out!"
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**Kingdom Hearts**](https://myanimelist.net/search/all?q=Kingdom%20Hearts&cat=all)
