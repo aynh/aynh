@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I dunno, getting rid of stuff that doesn't even exist... it's basically just counselling, isn't it?"
+> "Oh well, I guess all those who are in love do crazy things."
 
-&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Sanosuke Sagara**](https://myanimelist.net/character.php?q=Sanosuke%20Sagara&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
