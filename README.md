@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sebastian, you know what to do."
+> "Don't do something wasteful as to wash your frustrations with tears. Your frustration is motivation that you can use to make yourself better. Hold it inside like it's an important thing!"
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Maria Momoe**](https://myanimelist.net/character.php?q=Maria%20Momoe&cat=character), [**Big Windup!**](https://myanimelist.net/search/all?q=Big%20Windup!&cat=all)
