@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am Horo the Wise Wolf, and I am a very proud wolf."
+> "Eventually, someday, whatever! If it will break, and we'll be free then that's good enough for me! (To Tohru)"
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
