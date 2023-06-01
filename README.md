@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Here, my armies once rode across the land. The place all the heroes who stood with me, through joy and sorrow, will never forget. I can make this world real because it still exists within our hearts! Behold my endless armies! Their bodies destroyed, and their souls offered to the world as Heroic Spirits. And still, these legendary heroes pledge their loyalty to me! My bond with them is my greatest treasure, my path of kingship! The ultimate Noble Phantasm that I, Iskandar, possess. Ionian Hetairoi!"
+> "It is fine to assume that the Master's role is to support the battle from the back. But there are always exceptions. There are Masters who can only fight head on."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Souichirou Kuzuki**](https://myanimelist.net/character.php?q=Souichirou%20Kuzuki&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
