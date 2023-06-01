@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "An island from a dream within a dream? I could never pass up a great adventure like this!"
+> "There is a difference in the look of the ordinary vagabond and that of a determined man."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
