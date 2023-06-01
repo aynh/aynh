@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are some people who possess certain things that money cannot buy... as if it as as natural as breathing..."
+> "Sometimes, it's necessary to look back at the past in order to move on to the future."
 
-&mdash; [**Ryūichirō Isaka**](https://myanimelist.net/character.php?q=Ry%C5%ABichir%C5%8D%20Isaka&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
