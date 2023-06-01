@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you are down, how do you pick yourself up? People fall into two categories... depending on how they pick themselves up. The first one sees somebody who is worse off and thinks, 'Hey! I am better off than that guy.' And the second kind of guy sees a challenge and tries to raise himself to it."
+> "Know what makes Ganta so amazing? He always gets up again."
 
-&mdash; [**Gintama**](https://myanimelist.net/character.php?q=Gintama&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Shiro**](https://myanimelist.net/character.php?q=Shiro&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
