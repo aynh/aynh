@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No, order exists to protect the people. We must not aim our guns at the wrong people. What we should eliminate are our doubting hearts and minds."
+> "Sebastian, you know what to do."
 
-&mdash; [**Yomogawa Ayame**](https://myanimelist.net/character.php?q=Yomogawa%20Ayame&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
