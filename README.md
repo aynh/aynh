@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah I lied; so what is the truth? Underneath the band-aid?"
+> "I dunno, getting rid of stuff that doesn't even exist... it's basically just counselling, isn't it?"
 
-&mdash; [**Haruko Haruhara**](https://myanimelist.net/character.php?q=Haruko%20Haruhara&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
