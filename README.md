@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The heart may be weak and sometimes it may even give in, but I've learned that deep down, there's a light that never goes out!"
+> "Even a piece of garbage has its pride."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**Kingdom Hearts**](https://myanimelist.net/search/all?q=Kingdom%20Hearts&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
