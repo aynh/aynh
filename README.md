@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't do something wasteful as to wash your frustrations with tears. Your frustration is motivation that you can use to make yourself better. Hold it inside like it's an important thing!"
+> "There are some people who possess certain things that money cannot buy... as if it as as natural as breathing..."
 
-&mdash; [**Maria Momoe**](https://myanimelist.net/character.php?q=Maria%20Momoe&cat=character), [**Big Windup!**](https://myanimelist.net/search/all?q=Big%20Windup!&cat=all)
+&mdash; [**Ryūichirō Isaka**](https://myanimelist.net/character.php?q=Ry%C5%ABichir%C5%8D%20Isaka&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
