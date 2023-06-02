@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Control'... you say? When you stand before me... that word holds no meaning. Bankai. Senbonzakura Kageyoshi."
+> "Help can come from unexpected corners."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kokoro Yome**](https://myanimelist.net/character.php?q=Kokoro%20Yome&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
