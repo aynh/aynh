@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Help can come from unexpected corners."
+> "The bird fights it's way out of the egg. The egg is the world. Who would be born, must first destroy a world."
 
-&mdash; [**Kokoro Yome**](https://myanimelist.net/character.php?q=Kokoro%20Yome&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
+&mdash; [**Tokyo Ghoul**](https://myanimelist.net/character.php?q=Tokyo%20Ghoul&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
