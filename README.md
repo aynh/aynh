@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even innocent foolish children will grow up in the face of pain, until their thoughts and beliefs are the same as their doubts."
+> "There are no convenient miracles, and there is logic that should be inviolable."
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
+&mdash; [**Hakaze Kusaribe**](https://myanimelist.net/character.php?q=Hakaze%20Kusaribe&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
