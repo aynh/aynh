@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Any harm that comes to me because of you is harm that I need. I want to share your pain. So I want you to let me fight. With you."
+> "The world doesn't get to decide whether my life is boring, fun, or ordinary, because that's my decision to make. As long as I have the will, nothing is impossible!"
 
-&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
