@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am Justice! I protect the innocent and those who fear evil. I'm the one that will become the god of a new world that every one desires!"
+> "I sunk again. *after sinking in the desert*"
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
