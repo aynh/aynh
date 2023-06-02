@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The amount of money one owns ultimately decides the victor. This doesn't stop within the walls of a casino, or it's cash flow. It's a rule that forms the basis for a capitalist society!"
+> "It is love that can make us strong, but it is also love that can make us weak."
 
-&mdash; [**Jabami Yumeko**](https://myanimelist.net/character.php?q=Jabami%20Yumeko&cat=character), [**Kakegurui**](https://myanimelist.net/search/all?q=Kakegurui&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
