@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The bird fights it's way out of the egg. The egg is the world. Who would be born, must first destroy a world."
+> "The world... is a very small place, but... for those who know it, it is very, very large. And the world... when it is viewed by those who know... is far larger than just one world can hold."
 
-&mdash; [**Tokyo Ghoul**](https://myanimelist.net/character.php?q=Tokyo%20Ghoul&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
