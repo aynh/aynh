@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is love that can make us strong, but it is also love that can make us weak."
+> "That kid's good point is that he feels he doesn't have much skill. It's this kind of person that will keep on improving."
 
-&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Mizuno Tatsuya**](https://myanimelist.net/character.php?q=Mizuno%20Tatsuya&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
