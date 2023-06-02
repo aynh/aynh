@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human memories are too vague. Thinking something has color when it doesn't, making things more dramatic than they really are, glorifying things... It gives new greater meaning than was actually there. That's why I don't believe any of this talk about 'beautiful memories'."
+> "The amount of money one owns ultimately decides the victor. This doesn't stop within the walls of a casino, or it's cash flow. It's a rule that forms the basis for a capitalist society!"
 
-&mdash; [**Motoharu Yano**](https://myanimelist.net/character.php?q=Motoharu%20Yano&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Jabami Yumeko**](https://myanimelist.net/character.php?q=Jabami%20Yumeko&cat=character), [**Kakegurui**](https://myanimelist.net/search/all?q=Kakegurui&cat=all)
