@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The brighter they shine, the darker the shadow grows."
+> "The year may end, but some things never do. You may not see them with your eyes, but when you look with your heart, you can."
 
-&mdash; [**Makino Fumito**](https://myanimelist.net/character.php?q=Makino%20Fumito&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
+&mdash; [**Dera Mochimazzi**](https://myanimelist.net/character.php?q=Dera%20Mochimazzi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
