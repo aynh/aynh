@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[clenches Fist] No matter how intelligent or how strong they are still nothing but vampire trash."
+> "Yo...time to pay the piper rat boy...I'm here to collect"
 
-&mdash; [**Integra Hellsing**](https://myanimelist.net/character.php?q=Integra%20Hellsing&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
