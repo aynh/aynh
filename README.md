@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Soul! Soul! Are you okay?! You are going to be alright - Black Star is here for you now!! Open your eyes! One look at my big handsome face and you'll be cured for sure!"
+> "I don't want other people to mention my 'self'. Besides, if I can be changed with a few words, then that wouldn't be my 'self', would it?"
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
