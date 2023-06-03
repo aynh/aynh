@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've learned that from a war ignited by revenge, nothing can be born, but sorrow."
+> "Do you know the truth of the battlefield? Kill a man normally, and it's considered a crime. But kill many on the battlefield and you become a hero!"
 
-&mdash; [**Aladdin**](https://myanimelist.net/character.php?q=Aladdin&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
+&mdash; [**Luciano Bradley**](https://myanimelist.net/character.php?q=Luciano%20Bradley&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
