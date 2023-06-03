@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want other people to mention my 'self'. Besides, if I can be changed with a few words, then that wouldn't be my 'self', would it?"
+> "Our hearts beat in the same rhythm, so why does time flow differently for the two of us?"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Saya Otonashi**](https://myanimelist.net/character.php?q=Saya%20Otonashi&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
