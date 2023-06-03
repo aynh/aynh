@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Water is the greatest enemy of games."
+> "If you force me to pick one… It’d be black. It covers up the things inside of me that I don’t want to be known about. Well, for the same reason… Black is the color I hate too."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Subaru Okiya**](https://myanimelist.net/character.php?q=Subaru%20Okiya&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
