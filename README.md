@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to a dying Elliot* I really liked you. It was only thanks to you that Gil managed to live in that house without forgetting how to smile."
+> "Perhaps this is what it means to be bound by sin. To spin in the same circle, looking for where the sin lies, and at some point losing sight of the way out."
 
-&mdash; [**Vincent Nightray**](https://myanimelist.net/character.php?q=Vincent%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Renmei Communicator**](https://myanimelist.net/character.php?q=Renmei%20Communicator&cat=character), [**Haibane Renmei**](https://myanimelist.net/search/all?q=Haibane%20Renmei&cat=all)
