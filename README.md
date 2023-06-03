@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you force me to pick one… It’d be black. It covers up the things inside of me that I don’t want to be known about. Well, for the same reason… Black is the color I hate too."
+> "Does she understand what she's doing, this stupid woman?"
 
-&mdash; [**Subaru Okiya**](https://myanimelist.net/character.php?q=Subaru%20Okiya&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
