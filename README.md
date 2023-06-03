@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Miracles aren't free. When you wish for hope, it creates an equivalent despair. That's how the balance of this world is preserved."
+> "When I fall it will be silent and tragic."
 
-&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
