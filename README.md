@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why do you have to pay money to eat?! Can't we all just share?! Where is freedom in the world?! All are slaves to labor!! The rich grow fat... While the poor die!!"
+> "I've learned that from a war ignited by revenge, nothing can be born, but sorrow."
 
-&mdash; [**Hammerhead**](https://myanimelist.net/character.php?q=Hammerhead&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Aladdin**](https://myanimelist.net/character.php?q=Aladdin&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
