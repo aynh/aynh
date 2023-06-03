@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Does she understand what she's doing, this stupid woman?"
+> "Humans constantly feel pain in their hearts. Because the heart is so sensitive to pain, humans also feel that to live is to suffer."
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
