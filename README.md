@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The final door is about to open! And I am the one opening it! Then the world that we know of will come to an end! This world of insatiable desires will end!"
+> "Sunday, May 14th at 14:15:30--the moment I got Senjōgahara's phone number."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
