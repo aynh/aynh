@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A light comes out of the darkness. A heart that makes a flower bloom in the wilderness journeys through the sky. Music changes the world."
+> "Miracles aren't free. When you wish for hope, it creates an equivalent despair. That's how the balance of this world is preserved."
 
-&mdash; [**Haruka Nanami**](https://myanimelist.net/character.php?q=Haruka%20Nanami&cat=character), [**Uta no Prince-sama**](https://myanimelist.net/search/all?q=Uta%20no%20Prince-sama&cat=all)
+&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
