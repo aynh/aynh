@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Row, row, row your boat, gently down the stream. Merrily, merrily, merrily, merrily, life is but a dream."
+> "Life is all about 'selection'. There's no such thing as a life of being pushed around by circumstances or a life of doing as one is told.  It is you who selected to be 'swept along'"
 
-&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Gin Kurobe**](https://myanimelist.net/character.php?q=Gin%20Kurobe&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
