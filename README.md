@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Toboe] I wanted to take you to paradise."
+> "Human hearts are complicated mysteries."
 
-&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Haqua du Lot Herminium**](https://myanimelist.net/character.php?q=Haqua%20du%20Lot%20Herminium&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
