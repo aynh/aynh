@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world...God's divine creation...Is so brimming with love...Yet there is no love in the hearts of men."
+> "I dreamed that you were a dog. And the dog was my husband. Anyway, it was the worst dream ever."
 
-&mdash; [**Canute**](https://myanimelist.net/character.php?q=Canute&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
