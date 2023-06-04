@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mere scores do not measure a person’s worth."
+> "It seems I have overestimated you quite a bit. Your evolution did not even satisfy my expectations. This is the end."
 
-&mdash; [**Aoi Yamada**](https://myanimelist.net/character.php?q=Aoi%20Yamada&cat=character), [**Working!!**](https://myanimelist.net/search/all?q=Working!!&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
