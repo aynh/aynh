@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(Her dad) He'd always tell me that family isn't about being related by blood. Living under the same roof and caring for each other is what family is all about."
+> "I don't know what this boy means to you, Gai, but I shouldn't have to tell you that we never bring our personal feelings into play. I didn't think you were capable of it."
 
-&mdash; [**Charunee Kusakabe**](https://myanimelist.net/character.php?q=Charunee%20Kusakabe&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
