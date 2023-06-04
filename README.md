@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't retreat, Tetsuzaemon. No matter what. You stand firm right behind me!"
+> "Mere scores do not measure a person’s worth."
 
-&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Aoi Yamada**](https://myanimelist.net/character.php?q=Aoi%20Yamada&cat=character), [**Working!!**](https://myanimelist.net/search/all?q=Working!!&cat=all)
