@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, some people born are like keys that move the world and exist having no connection to the social hierarchy established by man."
+> "Don't retreat, Tetsuzaemon. No matter what. You stand firm right behind me!"
 
-&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
