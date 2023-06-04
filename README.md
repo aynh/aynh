@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is all about 'selection'. There's no such thing as a life of being pushed around by circumstances or a life of doing as one is told.  It is you who selected to be 'swept along'"
+> "I came to believe that a world where people can understand each other isn't impossible. That's why even if the world rejects me... even if the world blames me... I'll keep on fighting."
 
-&mdash; [**Gin Kurobe**](https://myanimelist.net/character.php?q=Gin%20Kurobe&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
+&mdash; [**Lockon Stratos**](https://myanimelist.net/character.php?q=Lockon%20Stratos&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
