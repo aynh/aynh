@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I dreamed that you were a dog. And the dog was my husband. Anyway, it was the worst dream ever."
+> "It is only through the eyes of others that our lives have any meaning."
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
