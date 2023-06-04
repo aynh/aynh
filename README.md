@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My name is Krad. But you do not have to remember it, because here you will die."
+> "[when Rukia asks why she is in the Gotei 13] What the hell?! That's so obvious! To 'fight' and to 'protect'!"
 
-&mdash; [**Krad**](https://myanimelist.net/character.php?q=Krad&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
