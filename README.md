@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is good. It changes people, for better or for worse. You could look at it as a chance for you to change. The best kind of love helps you grow up."
+> "In this world, some people born are like keys that move the world and exist having no connection to the social hierarchy established by man."
 
-&mdash; [**Misawa Mitsuyoshi**](https://myanimelist.net/character.php?q=Misawa%20Mitsuyoshi&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
