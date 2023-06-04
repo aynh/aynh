@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[when Rukia asks why she is in the Gotei 13] What the hell?! That's so obvious! To 'fight' and to 'protect'!"
+> "(Her dad) He'd always tell me that family isn't about being related by blood. Living under the same roof and caring for each other is what family is all about."
 
-&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Charunee Kusakabe**](https://myanimelist.net/character.php?q=Charunee%20Kusakabe&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
