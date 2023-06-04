@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is only through the eyes of others that our lives have any meaning."
+> "[to Toboe] I wanted to take you to paradise."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
