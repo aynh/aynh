@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once my stomach settles down... You better be prepared, 'cause we'll really give you something to cry about in the mat... ugh... ch... uughh..."
+> "If I show people how weak I am, they won't need me anymore."
 
-&mdash; [**Shōyō Hinata**](https://myanimelist.net/character.php?q=Sh%C5%8Dy%C5%8D%20Hinata&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Himeko Inaba**](https://myanimelist.net/character.php?q=Himeko%20Inaba&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
