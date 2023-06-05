@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I do...want to be with you...I want to be with you...! (To Tohru and Arisa)"
+> "A sin, once committed, is never forgotten. It haunts you for all eternity."
 
-&mdash; [**Saki Hanajima**](https://myanimelist.net/character.php?q=Saki%20Hanajima&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Shinobu Nunotaba**](https://myanimelist.net/character.php?q=Shinobu%20Nunotaba&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
