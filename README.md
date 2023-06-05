@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "YAAAAAAHHHHHHHOOOOOOOOOOOOOOOO!"
+> "If you believe in it, it is real. If you do not - it is fiction."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
