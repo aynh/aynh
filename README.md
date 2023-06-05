@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans cannot create anything out of nothingness. Humans cannot accomplish anything without holding onto something. After all, humans are not gods."
+> "Some lies are necessary for giving children dreams."
 
-&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Shimura Tae**](https://myanimelist.net/character.php?q=Shimura%20Tae&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
