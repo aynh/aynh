@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The best way to remove your lies is to make them come true."
+> "YAAAAAAHHHHHHHOOOOOOOOOOOOOOOO!"
 
-&mdash; [**Suzaku Kururugi**](https://myanimelist.net/character.php?q=Suzaku%20Kururugi&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
