@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one's going to give you a map. You've got to walk your own path."
+> "I do...want to be with you...I want to be with you...! (To Tohru and Arisa)"
 
-&mdash; [**Hilda**](https://myanimelist.net/character.php?q=Hilda&cat=character), [**Outlaw Star**](https://myanimelist.net/search/all?q=Outlaw%20Star&cat=all)
+&mdash; [**Saki Hanajima**](https://myanimelist.net/character.php?q=Saki%20Hanajima&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
