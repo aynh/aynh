@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Some lies are necessary for giving children dreams."
+> "Hey bitch, get off me! I'm supposed to be on top!"
 
-&mdash; [**Shimura Tae**](https://myanimelist.net/character.php?q=Shimura%20Tae&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Jan Valentine**](https://myanimelist.net/character.php?q=Jan%20Valentine&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
