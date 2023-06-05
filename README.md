@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you believe in it, it is real. If you do not - it is fiction."
+> "Oh, you know what I'm talking about. That stupid line that all you Quincies keep saying up until the moment you die. By the honor of the Quincy I cannot do this, by the honor of the Quincy I won't allow that. Quincy this, Quincy that! Every last one of you! It's so annoying!"
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
