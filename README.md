@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A sin, once committed, is never forgotten. It haunts you for all eternity."
+> "No matter how strong, for a human to fight a monster means he has submerged his humanity and transformed himself into a greater monster."
 
-&mdash; [**Shinobu Nunotaba**](https://myanimelist.net/character.php?q=Shinobu%20Nunotaba&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Schierke**](https://myanimelist.net/character.php?q=Schierke&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
