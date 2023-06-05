@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how strong, for a human to fight a monster means he has submerged his humanity and transformed himself into a greater monster."
+> "[to Iroh, while he's bathing] Enough. we need to leave now! Get out of the water."
 
-&mdash; [**Schierke**](https://myanimelist.net/character.php?q=Schierke&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
