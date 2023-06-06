@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Please no eat me, please no eat, no!"
+> "We can only live while we lose."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Renji Yomo**](https://myanimelist.net/character.php?q=Renji%20Yomo&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
