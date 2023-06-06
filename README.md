@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We can only live while we lose."
+> "Even innocent foolish children will grow up in the face of pain, until their thoughts and beliefs are the same as their doubts."
 
-&mdash; [**Renji Yomo**](https://myanimelist.net/character.php?q=Renji%20Yomo&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
