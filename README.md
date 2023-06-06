@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do all of you really want... to win that badly? You all want the Grail that desperately?! You'd crush the only wish I have in my heart... do none of you feel any shame at all?! I won't forgive you... I? won't forgive ANY of you for this! All of you monsters who'd disregard a knight's honor for personal gain... let my blood taint your dreams! Let the Grail be cursed! Let the wish it grants bring disaster! And when you fall into the pits of hell... remember the rage of Diarmuid!"
+> "The most important thing when fighting and running away is to defend. It is not about beating the enemy in front of them, but to retreat while buying time for their comrades to retreat."
 
-&mdash; [**Lancer**](https://myanimelist.net/character.php?q=Lancer&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
