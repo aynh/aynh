@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, you know what I'm talking about. That stupid line that all you Quincies keep saying up until the moment you die. By the honor of the Quincy I cannot do this, by the honor of the Quincy I won't allow that. Quincy this, Quincy that! Every last one of you! It's so annoying!"
+> "If you're in a position to save people, you should never even joke like that. My father...The doctor...Would never abandon anyone. He'd never give up on a person's life, even if they tried to throw it away."
 
-&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Hiyori Iki**](https://myanimelist.net/character.php?q=Hiyori%20Iki&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
