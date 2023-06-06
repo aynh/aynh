@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Forget all that formal crap 'bout comin' at me one at a time. I'll take all you bitches on!"
+> "At times the life of a single man is worth more than that of a million, I thought that'd be common sense to a soldier."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Diethard Ried**](https://myanimelist.net/character.php?q=Diethard%20Ried&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
