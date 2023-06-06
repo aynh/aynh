@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is dying that scary to you?"
+> "When you lose something, you gotta find something to take its place. I guess it's just time... for me to move forward for once."
 
-&mdash; [**Minato Arisato**](https://myanimelist.net/character.php?q=Minato%20Arisato&cat=character), [**Persona 3 The Movie #1 Spring of Birth**](https://myanimelist.net/search/all?q=Persona%203%20The%20Movie%20%231%20Spring%20of%20Birth&cat=all)
+&mdash; [**Kato Kenichi**](https://myanimelist.net/character.php?q=Kato%20Kenichi&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
