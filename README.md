@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At times the life of a single man is worth more than that of a million, I thought that'd be common sense to a soldier."
+> "Nothing beats a cup of herbal tea in the morning."
 
-&mdash; [**Diethard Ried**](https://myanimelist.net/character.php?q=Diethard%20Ried&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
