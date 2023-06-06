@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you lose something, you gotta find something to take its place. I guess it's just time... for me to move forward for once."
+> "You can't change anything unless you can discard part of yourself too. To surpass monsters, you must be willing to abandon your humanity."
 
-&mdash; [**Kato Kenichi**](https://myanimelist.net/character.php?q=Kato%20Kenichi&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
