@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The real world is scary. It’s pain to deal with other people."
+> "It's dangerous here. If you stare at the stars long enough, you start thinking you could grab one, and you get this feeling like all your dreams will come true."
 
-&mdash; [**Shiori Shiomiya**](https://myanimelist.net/character.php?q=Shiori%20Shiomiya&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Shinichi Okazaki**](https://myanimelist.net/character.php?q=Shinichi%20Okazaki&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
