@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Have faith in your inspiration. Feel the imagination!"
+> "There is no sense in worrying about something you cannot control, so why bother?"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Yoh Asakura**](https://myanimelist.net/character.php?q=Yoh%20Asakura&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
