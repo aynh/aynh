@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is nothing shameful about running away. Some things are just out of people's hands. If you think you're gonna die, just run."
+> "Why have I come to have this conscience? If it’s this agonizing, I shouldn’t have had it. Just what am I?"
 
-&mdash; [**Broken Blade**](https://myanimelist.net/character.php?q=Broken%20Blade&cat=character), [**Broken Blade**](https://myanimelist.net/search/all?q=Broken%20Blade&cat=all)
+&mdash; [**Alcor**](https://myanimelist.net/character.php?q=Alcor&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
