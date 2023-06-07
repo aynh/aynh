@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is this God's punishemt for falling in love with an angel? As the gossamer floats ever eluding my grasp, it weighs heavily upon my heart."
+> "You'll only realize that you truly love someone if they already caused you enormous pain. Your enemies can never hurt you the way your loved ones can. It's the people close to your heart that can give you the most piercing wound. Love is a double-edged sword, it can heal the wound faster or it can sink the blade even deeper."
 
-&mdash; [**Talho Yuuki**](https://myanimelist.net/character.php?q=Talho%20Yuuki&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
