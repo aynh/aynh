@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For as long as human history goes on, the past will continue to accumulate. History isn’t just records of the past. It’s also proof that civilization has continued to advance to the present. Our present civilization is the result of our past."
+> "The only one who should decide which path to follow is yourself."
 
-&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Zen Wistalia**](https://myanimelist.net/character.php?q=Zen%20Wistalia&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
