@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We're all lost... That's why we're sad."
+> "There is nothing shameful about running away. Some things are just out of people's hands. If you think you're gonna die, just run."
 
-&mdash; [**Van Hohenheim**](https://myanimelist.net/character.php?q=Van%20Hohenheim&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Broken Blade**](https://myanimelist.net/character.php?q=Broken%20Blade&cat=character), [**Broken Blade**](https://myanimelist.net/search/all?q=Broken%20Blade&cat=all)
