@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "WHO ARE YOU CALLING A MOUSY LITTLE PIPSQUEAK?!"
+> "A mission's one thing, but I can't put them in danger for personal reasons. The only life I can do that to is my own."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Itami Youji**](https://myanimelist.net/character.php?q=Itami%20Youji&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
