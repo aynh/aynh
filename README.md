@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I haven't said anything about letting them commit murder...yet."
+> "WHO ARE YOU CALLING A MOUSY LITTLE PIPSQUEAK?!"
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
