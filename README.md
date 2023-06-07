@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pain tends to heal as time passes, but personally, I don't want time to heal my wounds. You may think you've escaped the pain and forgotten it, but that's nothing more than stagnation. You can't move forward without the pain."
+> "It's no use. It's akin to love. Akin to the first kiss. It only works once."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Himari Takakura**](https://myanimelist.net/character.php?q=Himari%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
