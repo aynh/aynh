@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's no use. It's akin to love. Akin to the first kiss. It only works once."
+> "For as long as human history goes on, the past will continue to accumulate. History isn’t just records of the past. It’s also proof that civilization has continued to advance to the present. Our present civilization is the result of our past."
 
-&mdash; [**Himari Takakura**](https://myanimelist.net/character.php?q=Himari%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
