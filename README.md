@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is something my master used to say. 'Kids who are too obedient and never think of themselves are the hardest to watch.'"
+> "Have faith in your inspiration. Feel the imagination!"
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
