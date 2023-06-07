@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[talking to Kiba, who is being held in a cage] Man, you really screwed up. I mean, I've seen one of us get hurt before, but never this badly. And you're caught, too."
+> "Don't ever forget that with each step a person is able to take on their own, they have become that much stronger."
 
-&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Tamahome**](https://myanimelist.net/character.php?q=Tamahome&cat=character), [**Fushigi Yugi**](https://myanimelist.net/search/all?q=Fushigi%20Yugi&cat=all)
