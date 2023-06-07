@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You'll only realize that you truly love someone if they already caused you enormous pain. Your enemies can never hurt you the way your loved ones can. It's the people close to your heart that can give you the most piercing wound. Love is a double-edged sword, it can heal the wound faster or it can sink the blade even deeper."
+> "We're all lost... That's why we're sad."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Van Hohenheim**](https://myanimelist.net/character.php?q=Van%20Hohenheim&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
