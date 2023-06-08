@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is one thing that makes a human a human... and that is their will."
+> "Starting today... I'll be with you! I'll always be by your side! (to a young Kyo)"
 
-&mdash; [**Montana Max**](https://myanimelist.net/character.php?q=Montana%20Max&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
