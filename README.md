@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't wanna live a thousand years. If I just live through today, that'll be enough."
+> "You won't survive if you just let your boiling blood dictate your actions."
 
-&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Bulat**](https://myanimelist.net/character.php?q=Bulat&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
