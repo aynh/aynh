@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not every result can be the one desired. Trust your own judgments and actions. That is enough."
+> "There is one thing that makes a human a human... and that is their will."
 
-&mdash; [**Cadis Etrama Di Raizel**](https://myanimelist.net/character.php?q=Cadis%20Etrama%20Di%20Raizel&cat=character), [**Noblesse**](https://myanimelist.net/search/all?q=Noblesse&cat=all)
+&mdash; [**Montana Max**](https://myanimelist.net/character.php?q=Montana%20Max&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
