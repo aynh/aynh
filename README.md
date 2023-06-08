@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Singing to Yammy] Aizen-sama will get maaaad at youuuu!"
+> "The strong one doesn't win. The one who wins is strong."
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
