@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you see a guy ignore the light in order to cross the street, you just can't stand still."
+> "Life is short so it will be appreciated. We live to our fullest due to that."
 
-&mdash; [**Kato Kenichi**](https://myanimelist.net/character.php?q=Kato%20Kenichi&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Hattori Heiji**](https://myanimelist.net/character.php?q=Hattori%20Heiji&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
