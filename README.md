@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A guy with only a cat for a friend won't look attractive by playing cool."
+> "The heart may be weak and sometimes it may even give in, but I've learned that deep down, there's a light that never goes out!"
 
-&mdash; [**Saya Minatsuki**](https://myanimelist.net/character.php?q=Saya%20Minatsuki&cat=character), [**Black Cat**](https://myanimelist.net/search/all?q=Black%20Cat&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**Kingdom Hearts**](https://myanimelist.net/search/all?q=Kingdom%20Hearts&cat=all)
