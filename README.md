@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Excavating won't always get you what you want. Maybe after digging, nothing will come out at all. That's why I love it. Because if we don't try, we would never find anything."
+> "To stop or to keep going? The one who decides is yourself."
 
-&mdash; [**Noriyasu Seta**](https://myanimelist.net/character.php?q=Noriyasu%20Seta&cat=character), [**Love Hina**](https://myanimelist.net/search/all?q=Love%20Hina&cat=all)
+&mdash; [**Shōkichi Naruko**](https://myanimelist.net/character.php?q=Sh%C5%8Dkichi%20Naruko&cat=character), [**Yowamushi Pedal**](https://myanimelist.net/search/all?q=Yowamushi%20Pedal&cat=all)
