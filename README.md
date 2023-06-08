@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All of the connections we encounter in this world serve as teachers who nurture us."
+> "Excavating won't always get you what you want. Maybe after digging, nothing will come out at all. That's why I love it. Because if we don't try, we would never find anything."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Noriyasu Seta**](https://myanimelist.net/character.php?q=Noriyasu%20Seta&cat=character), [**Love Hina**](https://myanimelist.net/search/all?q=Love%20Hina&cat=all)
