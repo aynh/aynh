@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(thinking) I want Haru. I want all of him."
+> "[Singing to Yammy] Aizen-sama will get maaaad at youuuu!"
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
