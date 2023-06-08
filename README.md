@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All day, I've had to sit in the stench of cigarettes and alcohol. Every single person I met today was drinking and smoking. If they weren't, they were doing drugs. Well, except for Wayne. I've... had enough of it."
+> "Once you see a guy ignore the light in order to cross the street, you just can't stand still."
 
-&mdash; [**Annie Leonhardt**](https://myanimelist.net/character.php?q=Annie%20Leonhardt&cat=character), [**Shingeki no Kyojin: Lost Girls**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Lost%20Girls&cat=all)
+&mdash; [**Kato Kenichi**](https://myanimelist.net/character.php?q=Kato%20Kenichi&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
