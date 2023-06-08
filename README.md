@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is short so it will be appreciated. We live to our fullest due to that."
+> "Not every result can be the one desired. Trust your own judgments and actions. That is enough."
 
-&mdash; [**Hattori Heiji**](https://myanimelist.net/character.php?q=Hattori%20Heiji&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Cadis Etrama Di Raizel**](https://myanimelist.net/character.php?q=Cadis%20Etrama%20Di%20Raizel&cat=character), [**Noblesse**](https://myanimelist.net/search/all?q=Noblesse&cat=all)
