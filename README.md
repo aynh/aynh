@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's the sky...that allows the clouds to move about freely."
+> "Sometimes, your future is already set, and there's nothing you can do about it. There are some things you just can't change, no matter how hard you work. Unfair, don't you think? It isn't an easy fact to accept, and I'm not telling you to, but that's just how life is. Unfair."
 
-&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Kazuki Fujisawa**](https://myanimelist.net/character.php?q=Kazuki%20Fujisawa&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
