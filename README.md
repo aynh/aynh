@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To stop or to keep going? The one who decides is yourself."
+> "Time for action, Weezing!"
 
-&mdash; [**Shōkichi Naruko**](https://myanimelist.net/character.php?q=Sh%C5%8Dkichi%20Naruko&cat=character), [**Yowamushi Pedal**](https://myanimelist.net/search/all?q=Yowamushi%20Pedal&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
