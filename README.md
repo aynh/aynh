@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Starting today... I'll be with you! I'll always be by your side! (to a young Kyo)"
+> "Anything edible is acceptable. Extravagance is our enemy."
 
-&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
