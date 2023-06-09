@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Thanks for the real vote of confidence. You two should be cheerleaders, you'd look cute in skirts!"
+> "Only a foolish human would attempt to rationalize emotion."
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Makina**](https://myanimelist.net/character.php?q=Makina&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
