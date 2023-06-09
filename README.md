@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you keep trying to reason with yourself instead of listening to your feelings, you'll never be able to feel true happiness."
+> "'Trust'. The act is without a doubt a very noble one. But you know, what many people call 'trust' is actually giving up on trying to understand others. And that has nothing to do with 'trust', but is rather apathy."
 
-&mdash; [**Hiroomi Nase**](https://myanimelist.net/character.php?q=Hiroomi%20Nase&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
