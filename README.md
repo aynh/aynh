@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So, who should we hold responsible? Compensation. Punishment. If you didn't want any problems you shouldn't have taken risks."
+> "Thanks for the real vote of confidence. You two should be cheerleaders, you'd look cute in skirts!"
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
