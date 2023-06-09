@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They want to believe that's true and when someone wants to believe something is true, they usually will."
+> "Are you, what they call, a heart?"
 
-&mdash; [**Henrietta**](https://myanimelist.net/character.php?q=Henrietta&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Argentine**](https://myanimelist.net/character.php?q=Argentine&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
