@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who knew that floating on a piece of drift wood for three weeks with no food or water... and sea volchers waiting to pluck out your liver could make one so tense."
+> "If you keep trying to reason with yourself instead of listening to your feelings, you'll never be able to feel true happiness."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Hiroomi Nase**](https://myanimelist.net/character.php?q=Hiroomi%20Nase&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
