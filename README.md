@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’m a very lucky person. I was able to meet people I love."
+> "Have you ever realized how insignificant your existence is on the planet?"
 
-&mdash; [**Noumi Kudoryafuka**](https://myanimelist.net/character.php?q=Noumi%20Kudoryafuka&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
