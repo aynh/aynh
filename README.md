@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only a foolish human would attempt to rationalize emotion."
+> "They want to believe that's true and when someone wants to believe something is true, they usually will."
 
-&mdash; [**Makina**](https://myanimelist.net/character.php?q=Makina&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Henrietta**](https://myanimelist.net/character.php?q=Henrietta&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
