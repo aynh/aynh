@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Educating a heterosexual person about anime, is a joy for an otaku."
+> "Excalibur! Excalibur! From the United K! I'm looking for heaven! I'm going to California!"
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
