@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Trust'. The act is without a doubt a very noble one. But you know, what many people call 'trust' is actually giving up on trying to understand others. And that has nothing to do with 'trust', but is rather apathy."
+> "I’m a very lucky person. I was able to meet people I love."
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Noumi Kudoryafuka**](https://myanimelist.net/character.php?q=Noumi%20Kudoryafuka&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
