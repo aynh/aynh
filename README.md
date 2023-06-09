@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People like you disgust me. You can't even face your own weakness."
+> "Who knew that floating on a piece of drift wood for three weeks with no food or water... and sea volchers waiting to pluck out your liver could make one so tense."
 
-&mdash; [**Murasaki**](https://myanimelist.net/character.php?q=Murasaki&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
