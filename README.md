@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I force myself to smile. It seems I'm the type of person who ends up being hated."
+> "What repulsive creature makes my eardrums bleed?"
 
-&mdash; [**Sai**](https://myanimelist.net/character.php?q=Sai&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
