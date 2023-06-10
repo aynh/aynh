@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everything has a beginning and an end. Life is just a cycle of starts and stops. There are ends we don't desire, but they're inevitable. We have to face them. It's what being human is all about."
+> "There's a lot of products that you can buy with money...but my love is the only limited product that only you can have."
 
-&mdash; [**Jet Black**](https://myanimelist.net/character.php?q=Jet%20Black&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
