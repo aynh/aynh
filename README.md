@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What repulsive creature makes my eardrums bleed?"
+> "I don't have any wishes that won't come true or that are impossible. Because if it's a dream I can't reach by myself, I won't even dream it in the first place."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
