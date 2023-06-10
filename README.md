@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm going to evaporate every molecule this scumbag is made out of!"
+> "It's better for a man to be slow than fast."
 
-&mdash; [**Kaze no Stigma**](https://myanimelist.net/character.php?q=Kaze%20no%20Stigma&cat=character), [**Kaze no Stigma**](https://myanimelist.net/search/all?q=Kaze%20no%20Stigma&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
