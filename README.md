@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's a lot of products that you can buy with money...but my love is the only limited product that only you can have."
+> "There're too many people who worry about the things I don't worry about."
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Takeshi Nanase**](https://myanimelist.net/character.php?q=Takeshi%20Nanase&cat=character), [**Magical Warfare**](https://myanimelist.net/search/all?q=Magical%20Warfare&cat=all)
