@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't just wait. You need to make things happen yourself."
+> "He's just...he's still a child. There are still a lot of things he can't give up. There's no rush. (To Ayame about Yuki)"
 
-&mdash; [**Tokie**](https://myanimelist.net/character.php?q=Tokie&cat=character), [**Sakamichi no Apollon**](https://myanimelist.net/search/all?q=Sakamichi%20no%20Apollon&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
