@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I were to lose a friend...then I couldn't die in peace!"
+> "The world as it is, the human nature as always, it is impossible to eliminate battles. In the end, killing is necessarily evil. If so, it is best to end them in the maximum efficiency and at the least cost, least time. If you want to slander that as foul and demean that as nasty, then do as you wish. Justice can not save the world. I have no interest with things like that."
 
-&mdash; [**Tsunayoshi Sawada**](https://myanimelist.net/character.php?q=Tsunayoshi%20Sawada&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
