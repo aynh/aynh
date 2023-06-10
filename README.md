@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There were a lot of people who were kind to begin with. No, they were probably good people but, I don't want to see the disappointment in their eyes anymore. I don't really want to meet kind of people anymore."
+> "You can't just wait. You need to make things happen yourself."
 
-&mdash; [**Natsume Takeshi**](https://myanimelist.net/character.php?q=Natsume%20Takeshi&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Tokie**](https://myanimelist.net/character.php?q=Tokie&cat=character), [**Sakamichi no Apollon**](https://myanimelist.net/search/all?q=Sakamichi%20no%20Apollon&cat=all)
