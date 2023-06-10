@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, singing, or music... I think by nature it was always meant to convey something. So if there's something you want to say, don't you think you should try singing it?"
+> "I'm going to evaporate every molecule this scumbag is made out of!"
 
-&mdash; [**Sakagami Takumi**](https://myanimelist.net/character.php?q=Sakagami%20Takumi&cat=character), [**Kokoro ga Sakebitagatterunda.**](https://myanimelist.net/search/all?q=Kokoro%20ga%20Sakebitagatterunda.&cat=all)
+&mdash; [**Kaze no Stigma**](https://myanimelist.net/character.php?q=Kaze%20no%20Stigma&cat=character), [**Kaze no Stigma**](https://myanimelist.net/search/all?q=Kaze%20no%20Stigma&cat=all)
