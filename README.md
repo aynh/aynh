@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the world outside is void of hope, and if despair is contagious, then I'll just have to infect everyone with my hope. Living in despair really isn't living at all."
+> "If I were to lose a friend...then I couldn't die in peace!"
 
-&mdash; [**Makoto Naegi**](https://myanimelist.net/character.php?q=Makoto%20Naegi&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Tsunayoshi Sawada**](https://myanimelist.net/character.php?q=Tsunayoshi%20Sawada&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
