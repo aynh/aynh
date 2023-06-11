@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop rushing me. I want to take my time falling in love with you."
+> "Can you not be something unless you're already somebody else's something?"
 
-&mdash; [**Koizumi George**](https://myanimelist.net/character.php?q=Koizumi%20George&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
+&mdash; [**Ross**](https://myanimelist.net/character.php?q=Ross&cat=character), [**Senyuu. 2**](https://myanimelist.net/search/all?q=Senyuu.%202&cat=all)
