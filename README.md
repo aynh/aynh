@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you get all worked up yourself, you’ll always get someone who’ll rebel. Being too eager brings negative results."
+> "A victory won through dishonesty means it's no victory at all."
 
-&mdash; [**Sagara Misae**](https://myanimelist.net/character.php?q=Sagara%20Misae&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Suzaku Kururugi**](https://myanimelist.net/character.php?q=Suzaku%20Kururugi&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
