@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One who does something he hates just because he's told to.. is called an errand boy."
+> "No, she's hiding something. But what could it be? Snacks? Guitar? Wait, maybe ton-chan."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Sawako Yamanaka**](https://myanimelist.net/character.php?q=Sawako%20Yamanaka&cat=character), [**K-ON!**](https://myanimelist.net/search/all?q=K-ON!&cat=all)
