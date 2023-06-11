@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No, she's hiding something. But what could it be? Snacks? Guitar? Wait, maybe ton-chan."
+> "Examined from another angle, your faults and weaknesses can be weapons."
 
-&mdash; [**Sawako Yamanaka**](https://myanimelist.net/character.php?q=Sawako%20Yamanaka&cat=character), [**K-ON!**](https://myanimelist.net/search/all?q=K-ON!&cat=all)
+&mdash; [**Nagisa Shiota**](https://myanimelist.net/character.php?q=Nagisa%20Shiota&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
