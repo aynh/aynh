@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I still can't control my wish to see her. I never thought of how important she was to me. (about Rin)"
+> "The spring of my heart surges upon the sight of your fresh smile, my love."
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
