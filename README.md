@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "While I was with you guys, I became more human. I didn't like that. I even have a family and started to like living on earth."
+> "Reflecting upon death, one appreciates life. If that’s the case, does it take a mistake for people to choose the right path? Behold the brilliance of the heavens burdened with sin."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Mobile Suit Gundam 00**](https://myanimelist.net/character.php?q=Mobile%20Suit%20Gundam%2000&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
