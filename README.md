@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Words are shallow. Just talking doesn't bring world peace."
+> "If you get all worked up yourself, you’ll always get someone who’ll rebel. Being too eager brings negative results."
 
-&mdash; [**Daichi Muroto**](https://myanimelist.net/character.php?q=Daichi%20Muroto&cat=character), [**Kotoura-san**](https://myanimelist.net/search/all?q=Kotoura-san&cat=all)
+&mdash; [**Sagara Misae**](https://myanimelist.net/character.php?q=Sagara%20Misae&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
