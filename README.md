@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey, mutt! I need exercise, so I'll play with you!"
+> "To rule time is to rule the world."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Suzuha Amane**](https://myanimelist.net/character.php?q=Suzuha%20Amane&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
