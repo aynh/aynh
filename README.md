@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Rei Miyamoto* I'd be an actor if I could look happy right now."
+> "I don't have time to worry if it's right or wrong, you can't hope for a horror story with a happy ending!"
 
-&mdash; [**Takashi Komuro**](https://myanimelist.net/character.php?q=Takashi%20Komuro&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
