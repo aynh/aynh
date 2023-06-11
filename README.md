@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't have time to worry if it's right or wrong, you can't hope for a horror story with a happy ending!"
+> "Stop rushing me. I want to take my time falling in love with you."
 
-&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Koizumi George**](https://myanimelist.net/character.php?q=Koizumi%20George&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
