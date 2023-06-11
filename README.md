@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The brain is a microcosm, creating its own stories. People then live out these stories."
+> "One who does something he hates just because he's told to.. is called an errand boy."
 
-&mdash; [**Seiichi Kirima**](https://myanimelist.net/character.php?q=Seiichi%20Kirima&cat=character), [**Boogiepop Phantom**](https://myanimelist.net/search/all?q=Boogiepop%20Phantom&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
