@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Reflecting upon death, one appreciates life. If that’s the case, does it take a mistake for people to choose the right path? Behold the brilliance of the heavens burdened with sin."
+> "Like, wow, don't I make like the COOLEST girl?"
 
-&mdash; [**Mobile Suit Gundam 00**](https://myanimelist.net/character.php?q=Mobile%20Suit%20Gundam%2000&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
