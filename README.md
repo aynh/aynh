@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When people truly get serious about something, all you can do is stay quiet and watch."
+> "The brain is a microcosm, creating its own stories. People then live out these stories."
 
-&mdash; [**Ai Kotani**](https://myanimelist.net/character.php?q=Ai%20Kotani&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Seiichi Kirima**](https://myanimelist.net/character.php?q=Seiichi%20Kirima&cat=character), [**Boogiepop Phantom**](https://myanimelist.net/search/all?q=Boogiepop%20Phantom&cat=all)
