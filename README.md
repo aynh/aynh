@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Can you not be something unless you're already somebody else's something?"
+> "Words are shallow. Just talking doesn't bring world peace."
 
-&mdash; [**Ross**](https://myanimelist.net/character.php?q=Ross&cat=character), [**Senyuu. 2**](https://myanimelist.net/search/all?q=Senyuu.%202&cat=all)
+&mdash; [**Daichi Muroto**](https://myanimelist.net/character.php?q=Daichi%20Muroto&cat=character), [**Kotoura-san**](https://myanimelist.net/search/all?q=Kotoura-san&cat=all)
