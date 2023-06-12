@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll rip that mouth of yours apart, so you can never again utter such spells!"
+> "Someone that really can't kill others, has no reason. It is unnatural when you are able to find a reason why you can't kill, and can tell others smoothly."
 
-&mdash; [**Reiji Shiratori**](https://myanimelist.net/character.php?q=Reiji%20Shiratori&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Otonashi Maria**](https://myanimelist.net/character.php?q=Otonashi%20Maria&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
