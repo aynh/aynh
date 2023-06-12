@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm sure it's not wrong for people to want to understand each other. And even if it is, I want us to understand each other."
+> "Come with me. Overwhelming madness and power await."
 
-&mdash; [**Chiyuki**](https://myanimelist.net/character.php?q=Chiyuki&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Little Demon**](https://myanimelist.net/character.php?q=Little%20Demon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
