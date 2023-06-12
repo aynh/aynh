@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I do not fear this new challenge, rather like a true warrior I will rise to meet it."
+> "I'm sure it's not wrong for people to want to understand each other. And even if it is, I want us to understand each other."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Chiyuki**](https://myanimelist.net/character.php?q=Chiyuki&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
