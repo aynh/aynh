@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not like we lost anything when there was nothing between us to start with. We could never really be equals. I've always been alone."
+> "True kindness isn't something we're born with. It's something we had to work on... (to Tohru)"
 
-&mdash; [**Izumiko Suzuhara**](https://myanimelist.net/character.php?q=Izumiko%20Suzuhara&cat=character), [**RDG: Red Data Girl**](https://myanimelist.net/search/all?q=RDG%3A%20Red%20Data%20Girl&cat=all)
+&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
