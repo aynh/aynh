@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who close their eyes to the past, become blind to the future."
+> "Men select women based on emotion. Even if there's a reason, it's only secondary. However, women select men based on reason. Either by something like his class ranking or his standing in society."
 
-&mdash; [**Juzo Okita**](https://myanimelist.net/character.php?q=Juzo%20Okita&cat=character), [**Space Battleship Yamato**](https://myanimelist.net/search/all?q=Space%20Battleship%20Yamato&cat=all)
+&mdash; [**Makina**](https://myanimelist.net/character.php?q=Makina&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
