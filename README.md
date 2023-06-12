@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Looks like most of what you say immediately vanishes from your head once you say it. I really envy you for a brain with such a lively metabolism."
+> "I do not fear this new challenge, rather like a true warrior I will rise to meet it."
 
-&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
