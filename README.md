@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you lose something, just build it again. And this time, with a greater care."
+> "I think I finally understand... As long as there's someone who'll grieve, it's wrong to want to die."
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Hidehito Nomura**](https://myanimelist.net/character.php?q=Hidehito%20Nomura&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
