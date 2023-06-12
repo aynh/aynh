@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you run into a wall and pretend it doesn't exist, you'll never make progress. The wall will never change, so you're the one who has to change."
+> "I won't give up, I will fight til the bitter end, cause there's no way I will back down after what you did to my friends. They are what made me the person I am today, that's why I'll keep fighting... For my friends!"
 
-&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
