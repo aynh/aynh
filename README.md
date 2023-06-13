@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know what a scientist fears most in this world above all else? It's oblivion, my friend. A scientist measures our lives in the ways we develop and expand our knowledge through myriad variations. Nothing can take its place. It's our very soul. I have done the worst thing one scientist can do to another: I have altered your thought process. When my drug takes effect, you will find your mind has lost the ability to think."
+> "The right to use my friends as a weapon, that is the sinful crown I shall adorn."
 
-&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Shū Ouma**](https://myanimelist.net/character.php?q=Sh%C5%AB%20Ouma&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
