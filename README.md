@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "True freedom can't lean on anything. It's transient, lonely, and arduous."
+> "I don’t want to waste a single second or meter. From your first step and second of the day, I want to be with you."
 
-&mdash; [**Yoshii Kazuho**](https://myanimelist.net/character.php?q=Yoshii%20Kazuho&cat=character), [**Texhnolyze**](https://myanimelist.net/search/all?q=Texhnolyze&cat=all)
+&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
