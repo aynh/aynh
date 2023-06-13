@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The strong use their strength as their weapon. The weak use their weakness as their weapon."
+> "It's where all parallel lines meet. Where conflicting ideas are reconciled. It is... above the horizon."
 
-&mdash; [**Mizufa Trudy**](https://myanimelist.net/character.php?q=Mizufa%20Trudy&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Horizon Ariadust**](https://myanimelist.net/character.php?q=Horizon%20Ariadust&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
