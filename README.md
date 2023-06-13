@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's where all parallel lines meet. Where conflicting ideas are reconciled. It is... above the horizon."
+> "You do them one favor and they think you're their best friend. This is why I could care less if their entire species was swallowed up."
 
-&mdash; [**Horizon Ariadust**](https://myanimelist.net/character.php?q=Horizon%20Ariadust&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
