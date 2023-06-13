@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll die smiling! Because if you ever think of me in the future, I want you to remember me smiling."
+> "I want to see the splendor of people's souls."
 
-&mdash; [**Donquixote Rosinante**](https://myanimelist.net/character.php?q=Donquixote%20Rosinante&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
