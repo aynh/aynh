@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I won't be defeated because I know how awful it feels to lose after doing my very best!"
+> "Even if all the confidence and pride you've built over the years is blown to pieces by a major failure, even if you've had a soul-crushing experience, you still have to open the shop the next day. That's who chefs are."
 
-&mdash; [**Shō Kazamatsuri**](https://myanimelist.net/character.php?q=Sh%C5%8D%20Kazamatsuri&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
+&mdash; [**Sōma Yukihira**](https://myanimelist.net/character.php?q=S%C5%8Dma%20Yukihira&cat=character), [**Shokugeki no Sōma: Ni no Sara**](https://myanimelist.net/search/all?q=Shokugeki%20no%20S%C5%8Dma%3A%20Ni%20no%20Sara&cat=all)
