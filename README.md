@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "From the moment I first saw you, you’ve looked so sad. Your face shows so much pain. Your eyes were like mine. They looked so sad, so hurt, so lonely… as if you couldn’t stand it."
+> "True freedom can't lean on anything. It's transient, lonely, and arduous."
 
-&mdash; [**Claymore**](https://myanimelist.net/character.php?q=Claymore&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Yoshii Kazuho**](https://myanimelist.net/character.php?q=Yoshii%20Kazuho&cat=character), [**Texhnolyze**](https://myanimelist.net/search/all?q=Texhnolyze&cat=all)
