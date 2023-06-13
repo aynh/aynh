@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someone the exact opposite of Inuyasha.  That's the perfect guy for me."
+> "I won't be defeated because I know how awful it feels to lose after doing my very best!"
 
-&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Shō Kazamatsuri**](https://myanimelist.net/character.php?q=Sh%C5%8D%20Kazamatsuri&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
