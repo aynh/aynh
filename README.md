@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have no idea what you really want, what you're really thinking, or what the right thing to do really is. But I'm your friend. Let me stay."
+> "Perhaps the distant part of the sky always seems clearest, so that we will always strive to reach it."
 
-&mdash; [**Takeo Gouda**](https://myanimelist.net/character.php?q=Takeo%20Gouda&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
