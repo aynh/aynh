@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don’t want to waste a single second or meter. From your first step and second of the day, I want to be with you."
+> "If there are people you would call naturals, because they were gifted with talent, and if my two rivals (Florence Alicia and Glory Athena) are such naturals, then I just need to have a talent that exceeds theirs, through hard work. Yes, I just have to become a prodigy."
 
-&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Ferrari Akira E.**](https://myanimelist.net/character.php?q=Ferrari%20Akira%20E.&cat=character), [**Aria the Origination**](https://myanimelist.net/search/all?q=Aria%20the%20Origination&cat=all)
