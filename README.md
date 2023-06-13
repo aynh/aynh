@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there are no heroes, become one yourself."
+> "There are all sorts of mysteries in this world, like snacks and candy and sweets falling from the sky!"
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Komari Kamikita**](https://myanimelist.net/character.php?q=Komari%20Kamikita&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
