@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Excalibur! Excalibur! From the United K! I'm looking for heaven! I'm going to California!"
+> "Okay. I will protect all of you. I will never let another friend die."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Mary**](https://myanimelist.net/character.php?q=Mary&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
