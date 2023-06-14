@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm the one who is grateful. That's because you're all willing to be my friends. For that, I'm grateful."
+> "Watch it, or I'll take your soul!"
 
-&mdash; [**Manato**](https://myanimelist.net/character.php?q=Manato&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
