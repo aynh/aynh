@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A flower can't choose the place where it blooms and a child can't choose the parents he's born to."
+> "There comes a time when we can no longer tell the invaders from the invaded. That is what we call “War”."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
