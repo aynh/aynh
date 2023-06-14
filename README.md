@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A wandering soul in isolation, has no need for a place to belong."
+> "Your home is the place where you can be yourself."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Wataru Kurozuma**](https://myanimelist.net/character.php?q=Wataru%20Kurozuma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
