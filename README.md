@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You should know better than to corner an animal like a fox... We have a tendency to show our teeth."
+> "Mom, you're embarrassing me! In front of all these people? Don't you know I'm a big kid now?"
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
