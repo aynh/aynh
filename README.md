@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is a shame for a knight to have one's trust in him withdrawn halfway."
+> "You should know better than to corner an animal like a fox... We have a tendency to show our teeth."
 
-&mdash; [**Gray Co Aldo**](https://myanimelist.net/character.php?q=Gray%20Co%20Aldo&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
