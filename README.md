@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your home is the place where you can be yourself."
+> "Excalibur! Excalibur! From the United K! I'm looking for heaven! I'm going to California!"
 
-&mdash; [**Wataru Kurozuma**](https://myanimelist.net/character.php?q=Wataru%20Kurozuma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
