@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mom, you're embarrassing me! In front of all these people? Don't you know I'm a big kid now?"
+> "I'm the one who is grateful. That's because you're all willing to be my friends. For that, I'm grateful."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Manato**](https://myanimelist.net/character.php?q=Manato&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
