@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Watch it, or I'll take your soul!"
+> "To hell with living a life of revenge, I'm me! I live for myself! You're not my sworn enemy or anything else. You're nothing but a putrid demon!"
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Favaro Leone**](https://myanimelist.net/character.php?q=Favaro%20Leone&cat=character), [**Shingeki no Bahamut: Genesis**](https://myanimelist.net/search/all?q=Shingeki%20no%20Bahamut%3A%20Genesis&cat=all)
