@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There comes a time when we can no longer tell the invaders from the invaded. That is what we call “War”."
+> "But I think it’s natural that not everything you try will go well, right? So, I’m gonna start again from scratch."
 
-&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
+&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
