@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Perhaps the distant part of the sky always seems clearest, so that we will always strive to reach it."
+> "It is a shame for a knight to have one's trust in him withdrawn halfway."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Gray Co Aldo**](https://myanimelist.net/character.php?q=Gray%20Co%20Aldo&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
