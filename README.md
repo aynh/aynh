@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what troubles you shoulder, remember that in time, things will change. You shouldn't blame yourself when things don't go your way."
+> "Even if you have your reasons and there are things you can't tell me, no matter what, I'm on your side."
 
-&mdash; [**Mitsuki Sarue**](https://myanimelist.net/character.php?q=Mitsuki%20Sarue&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
+&mdash; [**Historia Reiss**](https://myanimelist.net/character.php?q=Historia%20Reiss&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
