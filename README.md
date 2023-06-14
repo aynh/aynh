@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To hell with living a life of revenge, I'm me! I live for myself! You're not my sworn enemy or anything else. You're nothing but a putrid demon!"
+> "No matter what troubles you shoulder, remember that in time, things will change. You shouldn't blame yourself when things don't go your way."
 
-&mdash; [**Favaro Leone**](https://myanimelist.net/character.php?q=Favaro%20Leone&cat=character), [**Shingeki no Bahamut: Genesis**](https://myanimelist.net/search/all?q=Shingeki%20no%20Bahamut%3A%20Genesis&cat=all)
+&mdash; [**Mitsuki Sarue**](https://myanimelist.net/character.php?q=Mitsuki%20Sarue&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
