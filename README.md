@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Okay. I will protect all of you. I will never let another friend die."
+> "A flower can't choose the place where it blooms and a child can't choose the parents he's born to."
 
-&mdash; [**Mary**](https://myanimelist.net/character.php?q=Mary&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
