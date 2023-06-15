@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Goodbye, vice captain. Why don't you suck on some mayonnaise in the afterlife? [he shoots, blowing up the whole wall]"
+> "If you meet Budha - kill him, If you meet the father - kill him. Never be captivated by anyone, just live for yourself."
 
-&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
