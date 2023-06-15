@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The only people who say that money doesn't matter in this world are the ones with lots of it."
+> "Wishes shouldn't be granted. They're better off not coming true. When their wishes aren't granted, people actually put in effort. It's because they don't come true that people make progress. But if all their wishes come true, people won't be able to move forward anymore, you know?"
 
-&mdash; [**Takasugi Shinsuke**](https://myanimelist.net/character.php?q=Takasugi%20Shinsuke&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Alis Color**](https://myanimelist.net/character.php?q=Alis%20Color&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
