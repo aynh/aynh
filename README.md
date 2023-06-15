@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Wishes shouldn't be granted. They're better off not coming true. When their wishes aren't granted, people actually put in effort. It's because they don't come true that people make progress. But if all their wishes come true, people won't be able to move forward anymore, you know?"
+> "[to Katara] You rise with the moon. I rise with the sun."
 
-&mdash; [**Alis Color**](https://myanimelist.net/character.php?q=Alis%20Color&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
+&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
