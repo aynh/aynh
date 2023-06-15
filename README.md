@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone's fighting for their own kind of freedom. It seems small; but in their hearts, nothing is more important. With such hopes, I won't have enough time for revenge or fear, right?"
+> "Sometimes you have to fight for the things that are worth fighting for."
 
-&mdash; [**Nagi Kengamine**](https://myanimelist.net/character.php?q=Nagi%20Kengamine&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Arrietty**](https://myanimelist.net/character.php?q=Arrietty&cat=character), [**Karigurashi no Arrietty**](https://myanimelist.net/search/all?q=Karigurashi%20no%20Arrietty&cat=all)
