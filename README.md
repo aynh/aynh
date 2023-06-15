@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[when Rukia asks why she is in the Gotei 13] What the hell?! That's so obvious! To 'fight' and to 'protect'!"
+> "The only people who say that money doesn't matter in this world are the ones with lots of it."
 
-&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Takasugi Shinsuke**](https://myanimelist.net/character.php?q=Takasugi%20Shinsuke&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
