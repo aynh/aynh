@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Azula always lies, Azula always lies."
+> "Love in real life isn’t as smooth as in manga..."
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Shōta Kisa**](https://myanimelist.net/character.php?q=Sh%C5%8Dta%20Kisa&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
