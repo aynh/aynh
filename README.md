@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You mongrels. By our next meeting see that you've culled your numbers. Only a true hero is worthy to look upon my glorious presence."
+> "Panicking leads to an early grave."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Esdeath**](https://myanimelist.net/character.php?q=Esdeath&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
