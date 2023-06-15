@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, isn't it said that life has its ups and downs? It's fun because downs come after ups, but if life was full of downs, wouldn't it get boring?"
+> "People change. And as the years go by, so do our environments. I think it’s alright for there not to be a 'proper' way of living. But I do believe that instead of trying to be satisfied on just one answer and blocking out the rest, searching for more answers, despite the pain they may bring, is a much more honest way of living."
 
-&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Harumi Shuntarou**](https://myanimelist.net/character.php?q=Harumi%20Shuntarou&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
