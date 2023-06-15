@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Katara] You rise with the moon. I rise with the sun."
+> "You mongrels. By our next meeting see that you've culled your numbers. Only a true hero is worthy to look upon my glorious presence."
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
