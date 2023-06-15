@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dying means to be gone. And what goes, is not your pain, but your existence itself. But in your mind, you think that you’d have a sense of “nothing” after you die. How can you call that “nothing”? In other words, you don't even have an idea of what death is really like."
+> "Sake sure is nice. You can forget your troubles if only for a moment. You'll have to remember them tomorrow though, and they'll be even more painful than they were the night before. You can't run away from things like this. Especially from things you really want to forget."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
