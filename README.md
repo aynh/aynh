@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you meet Budha - kill him, If you meet the father - kill him. Never be captivated by anyone, just live for yourself."
+> "Time gives us happiness, but it can also take everything away from us."
 
-&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Conrad Weller**](https://myanimelist.net/character.php?q=Conrad%20Weller&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
