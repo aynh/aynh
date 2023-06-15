@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nine-Tails, you are merely a momentary life, a temporary existence of coalesced energy... energy that once was a single, ultimate form! An unstable force, lacking in intelligence or sapience, you require a guide to show you purpose. That guide is the Uchiha! The tailed beasts are but slaves to those with blessed eyes. Obey!"
+> "It’s natural to want to stay in the game world and hope the game will never end. However, I’ve learned one thing from playing all those online games. There’s nothing lonelier or sadder than the end of a game with no ending. More and more players get bored and move on to other games... And one day, even NPC's like your favorite blacksmith or landlady disappear forever as they smile. I've experienced that moment and cried many, many times. That isn't how games should end. It definitely isn't!"
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Haruyuki Arita**](https://myanimelist.net/character.php?q=Haruyuki%20Arita&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
