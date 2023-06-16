@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you point a sword at someone, either you kill them or they kill you, there ain't no in between. So quit talkin' like a fuckin' pussy. Anyone who can't handle that should just SHUT THE FUCK UP and GET OVER IT!"
+> "It's not like people only look for help by saying 'please help me.' In similiar vein, it's not like you're only in love with someone if you say 'I love you.' Everyone has things they can't say on impulse."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Nekomonogatari: Kuro**](https://myanimelist.net/search/all?q=Nekomonogatari%3A%20Kuro&cat=all)
