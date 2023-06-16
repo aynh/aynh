@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to live... I want to hold something in my hands and feel its warmth."
+> "Don't try to be a hero, stupid cat. (to Kyo)"
 
-&mdash; [**Dune**](https://myanimelist.net/character.php?q=Dune&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
