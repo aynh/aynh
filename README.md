@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes good people make bad choices. It doesn't mean they are bad people. It means they're human."
+> "I'm not a hero because I want your approval. I do it because I want to!"
 
-&mdash; [**Kishou Arima**](https://myanimelist.net/character.php?q=Kishou%20Arima&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
