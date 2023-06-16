@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They are your words! This is your heart! Our desire to help our friends belongs to us!"
+> "Everyone makes mistakes. What's important is how to make up for it."
 
-&mdash; [**Happy**](https://myanimelist.net/character.php?q=Happy&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
