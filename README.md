@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm scared. Or should I borrow your words and say this is exciting?"
+> "I have a confession. I love special things."
 
-&mdash; [**Waver Velvet**](https://myanimelist.net/character.php?q=Waver%20Velvet&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Azaka Kokutō**](https://myanimelist.net/character.php?q=Azaka%20Kokut%C5%8D&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
