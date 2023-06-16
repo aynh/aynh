@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't try to be a hero, stupid cat. (to Kyo)"
+> "If things were to change, do you think you could ever fall in love with me? Or fulfill a dream for which I long? The world is about to change. That's why I'm here now. I've come and this will mean a new beginning for my life."
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Morgan Le Fay**](https://myanimelist.net/character.php?q=Morgan%20Le%20Fay&cat=character), [**Ah! My Goddess: The Movie**](https://myanimelist.net/search/all?q=Ah!%20My%20Goddess%3A%20The%20Movie&cat=all)
