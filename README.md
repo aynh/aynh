@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Hisagi] Open my eyes? You? Open my eyes? You never change."
+> "True beauty lies in things that last forever, never rotting or fading."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sasori**](https://myanimelist.net/character.php?q=Sasori&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
