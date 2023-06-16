@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The King lives to the fullest! He needs to live more fully than anyone else. He is a figure of admiration to his people!"
+> "La lang natamad na ako."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Gian Carlo**](https://myanimelist.net/character.php?q=Gian%20Carlo&cat=character), [**Lucky Dog**](https://myanimelist.net/search/all?q=Lucky%20Dog&cat=all)
