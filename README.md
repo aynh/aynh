@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love in real life isn’t as smooth as in manga..."
+> "I have no desire to kill you. In fact, you're not worth killing. Killing you, would only tarnish my blade."
 
-&mdash; [**Shōta Kisa**](https://myanimelist.net/character.php?q=Sh%C5%8Dta%20Kisa&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Jin**](https://myanimelist.net/character.php?q=Jin&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
