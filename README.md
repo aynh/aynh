@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The only one who can beat me, is me!"
+> "In a business like this, there are times when you need to change as the situation demands. I switch my personality depending on how I view things."
 
-&mdash; [**Daiki Aomine**](https://myanimelist.net/character.php?q=Daiki%20Aomine&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
