@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not a hero because I want your approval. I do it because I want to!"
+> "They are your words! This is your heart! Our desire to help our friends belongs to us!"
 
-&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Happy**](https://myanimelist.net/character.php?q=Happy&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
