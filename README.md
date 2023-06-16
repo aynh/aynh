@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Violence, greed, slaughter, corruption, defeat, failure, immorality, humiliation… These are everywhere. As long as you live, you will face them."
+> "Time does not exist. Only the illusion of memories exist."
 
-&mdash; [**Hampnie Hambart**](https://myanimelist.net/character.php?q=Hampnie%20Hambart&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
+&mdash; [**Seiichi Kirima**](https://myanimelist.net/character.php?q=Seiichi%20Kirima&cat=character), [**Boogiepop Phantom**](https://myanimelist.net/search/all?q=Boogiepop%20Phantom&cat=all)
