@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have no desire to kill you. In fact, you're not worth killing. Killing you, would only tarnish my blade."
+> "Don't forget, our existence is a fragile and uncertain one, knowing that any one of us could die at any moment. In this short time that we have, we all have one or two wishes that we'd like to fulfill. Losing the most important wish... is like losing your reason for living."
 
-&mdash; [**Jin**](https://myanimelist.net/character.php?q=Jin&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Wakabayashi Hatsuna**](https://myanimelist.net/character.php?q=Wakabayashi%20Hatsuna&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
