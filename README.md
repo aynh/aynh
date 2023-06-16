@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In a business like this, there are times when you need to change as the situation demands. I switch my personality depending on how I view things."
+> "The King lives to the fullest! He needs to live more fully than anyone else. He is a figure of admiration to his people!"
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
