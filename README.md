@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time does not exist. Only the illusion of memories exist."
+> "I'm scared. Or should I borrow your words and say this is exciting?"
 
-&mdash; [**Seiichi Kirima**](https://myanimelist.net/character.php?q=Seiichi%20Kirima&cat=character), [**Boogiepop Phantom**](https://myanimelist.net/search/all?q=Boogiepop%20Phantom&cat=all)
+&mdash; [**Waver Velvet**](https://myanimelist.net/character.php?q=Waver%20Velvet&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
