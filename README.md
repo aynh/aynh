@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You should keep your distance from me if you want to live. My place is in the shadows, yours in the light. We walk opposite paths, Aberline. It's best that you remember that."
+> "The stars sure are beautiful tonight. [angrily] Too bad you can't see them, Toph!"
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
