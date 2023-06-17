@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want others to hear the words that I've been waiting anxiously for... I want to be the only one to hear them."
+> "When people immerse themselves in their own world and other people around them start doing something, they can’t help but feel very lonely."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Enomoto Takane**](https://myanimelist.net/character.php?q=Enomoto%20Takane&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
