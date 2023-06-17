@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When people immerse themselves in their own world and other people around them start doing something, they can’t help but feel very lonely."
+> "Are we friends? Or are we foes? That kind of thing you decide for yourselves!"
 
-&mdash; [**Enomoto Takane**](https://myanimelist.net/character.php?q=Enomoto%20Takane&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
