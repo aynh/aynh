@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I consider everything that happened to be precious moments of my life. The pain. The suffering. The fun… And I am here right now, because everyone was there for me. I couldn't have accomplished anything by standing still, without anybody's help. I treasure every moment I have spent here. Unlucky? I feel pretty lucky. This is my resolve."
+> "You should keep your distance from me if you want to live. My place is in the shadows, yours in the light. We walk opposite paths, Aberline. It's best that you remember that."
 
-&mdash; [**Tsunayoshi Sawada**](https://myanimelist.net/character.php?q=Tsunayoshi%20Sawada&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
