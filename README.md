@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as I exist, I don't care if there's hell, or if only suffering exists there."
+> "Hmm... Itachi... it would be annoying if he moved around a lot. Perhaps we should cut off a leg or two?"
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Kisame Hoshigaki**](https://myanimelist.net/character.php?q=Kisame%20Hoshigaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
