@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're gonna have great happiness, it requires great effort in exchange, that's called compensation. For the good things in life, there are the bad. For the bad things in life, there are always the good. In order for you to be happy, you must be willing to accept a burden of a equal amount of unhappiness in exchange as your payment. The more you achieve, the greater the demands will be placed upon you in return."
+> "Children, this is the only gift I can give you right now. A formless gift you call a memory. I don’t have any money and I can’t give you something tangible. But even so, even if it isn’t tangible, a memory is something that will continue to be with you. That is what I believe…"
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
