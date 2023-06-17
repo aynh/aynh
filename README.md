@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you afraid of other people? I know that by keeping others at a distance you avoid a betrayal of your trust, but you must endure the loneliness. Man can never completely erase this sadness, because all men are fundamentally alone. Pain is something man must carry in his heart, and since the heart feels pain so easily, some believe that life is pain."
+> "If you're gonna have great happiness, it requires great effort in exchange, that's called compensation. For the good things in life, there are the bad. For the bad things in life, there are always the good. In order for you to be happy, you must be willing to accept a burden of a equal amount of unhappiness in exchange as your payment. The more you achieve, the greater the demands will be placed upon you in return."
 
-&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
