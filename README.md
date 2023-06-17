@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You play like you're jacking off. [about Ryuu playing piano]"
+> "I consider everything that happened to be precious moments of my life. The pain. The suffering. The fun… And I am here right now, because everyone was there for me. I couldn't have accomplished anything by standing still, without anybody's help. I treasure every moment I have spent here. Unlucky? I feel pretty lucky. This is my resolve."
 
-&mdash; [**Noda Megumi**](https://myanimelist.net/character.php?q=Noda%20Megumi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
+&mdash; [**Tsunayoshi Sawada**](https://myanimelist.net/character.php?q=Tsunayoshi%20Sawada&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
