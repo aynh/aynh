@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Last words] All right then, I'll put you out of your misery. [Her hands are sliced off] Eh?"
+> "No guy is worth your tears. When you find one that is, he won't make you cry."
 
-&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
