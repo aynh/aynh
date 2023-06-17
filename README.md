@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No guy is worth your tears. When you find one that is, he won't make you cry."
+> "I don't want others to hear the words that I've been waiting anxiously for... I want to be the only one to hear them."
 
-&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
