@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If things were to change, do you think you could ever fall in love with me? Or fulfill a dream for which I long? The world is about to change. That's why I'm here now. I've come and this will mean a new beginning for my life."
+> "Family is the society that you came into contact with first; The people who influence you first. But if that first society banishes you, there will be another society that accepts you."
 
-&mdash; [**Morgan Le Fay**](https://myanimelist.net/character.php?q=Morgan%20Le%20Fay&cat=character), [**Ah! My Goddess: The Movie**](https://myanimelist.net/search/all?q=Ah!%20My%20Goddess%3A%20The%20Movie&cat=all)
+&mdash; [**Reisi Munakata**](https://myanimelist.net/character.php?q=Reisi%20Munakata&cat=character), [**Project K: Days Of Blue**](https://myanimelist.net/search/all?q=Project%20K%3A%20Days%20Of%20Blue&cat=all)
