@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Manga endings might always end the same. However, if it comes to life. Neither you or I are mere readers. We are writers. We can change the ending."
+> "They say that fools learn from their experiences, while the wise learn from history. I hope you're not a fool."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
