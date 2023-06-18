@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's all it is: information. Even a simulated experience or a dream; simultaneous reality and fantasy. Any way you look at it, all the information that a person accumulates in a lifetime is just a drop in the bucket."
+> "Those who are granted great power lose all self-restraint when among the weak. Oranges don't start out rotten. It's the container that makes them rot."
 
-&mdash; [**Batou**](https://myanimelist.net/character.php?q=Batou&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Onodera**](https://myanimelist.net/character.php?q=Onodera&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
