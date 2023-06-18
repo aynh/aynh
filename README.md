@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People change. And as the years go by, so do our environments. I think it’s alright for there not to be a 'proper' way of living. But I do believe that instead of trying to be satisfied on just one answer and blocking out the rest, searching for more answers, despite the pain they may bring, is a much more honest way of living."
+> "A dream? That's right. Because there was the past, there is now the present. And because there is the present, we can believe in tomorrow and pursue our dreams."
 
-&mdash; [**Harumi Shuntarou**](https://myanimelist.net/character.php?q=Harumi%20Shuntarou&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Rio Kazumiya**](https://myanimelist.net/character.php?q=Rio%20Kazumiya&cat=character), [**So Ra No Wo To**](https://myanimelist.net/search/all?q=So%20Ra%20No%20Wo%20To&cat=all)
