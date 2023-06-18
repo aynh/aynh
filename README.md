@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who are granted great power lose all self-restraint when among the weak. Oranges don't start out rotten. It's the container that makes them rot."
+> "In that case, you have nothing to fear. Mistakes aren’t made by locking your feelings away and holding back… They’re made while wearing your heart on your sleeve."
 
-&mdash; [**Onodera**](https://myanimelist.net/character.php?q=Onodera&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
