@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hmm... Itachi... it would be annoying if he moved around a lot. Perhaps we should cut off a leg or two?"
+> "Real men know when to run like a little bitch."
 
-&mdash; [**Kisame Hoshigaki**](https://myanimelist.net/character.php?q=Kisame%20Hoshigaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sunabouzu**](https://myanimelist.net/character.php?q=Sunabouzu&cat=character), [**Sunabouzu**](https://myanimelist.net/search/all?q=Sunabouzu&cat=all)
