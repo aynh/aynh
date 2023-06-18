@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our battle will be concluded, and I will begin my reign from the summit of victory!"
+> "Manga endings might always end the same. However, if it comes to life. Neither you or I are mere readers. We are writers. We can change the ending."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
