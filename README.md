@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There can be no happiness in a world where the undesirables are thrown away."
+> "I'm telling you, it's just that it's soooooo lolilolilolied that it smokes. Come on, girls. One of you loan me your whistle. I'll lolly it up!"
 
-&mdash; [**Monkey D. Dragon**](https://myanimelist.net/character.php?q=Monkey%20D.%20Dragon&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
