@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I could say I'm not sad, but I'd be lying. The problem is the world won't let me stay a kid forever, so I can't lie around crying about it either."
+> "A small mistake can make a huge difference."
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
