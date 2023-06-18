@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Soul! Soul! Are you okay?! You are going to be alright - Black Star is here for you now!! Open your eyes! One look at my big handsome face and you'll be cured for sure!"
+> "The difference in judgement between you and me, originates from different rules derived from past experience."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
