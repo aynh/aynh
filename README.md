@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There were sad days, and painful ones and there may be more. Even so they're treasured days that I'll never forget."
+> "I am a god with a heart, but there’s one thing I cannot tolerate… people who don’t pay their proper respect to others."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
