@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I prefer to be a humble dreamer, with visions to be realized, rather than the ruler of people with no dreams or desires."
+> "Gin-chan told me to pay people back double for revenge!"
 
-&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
