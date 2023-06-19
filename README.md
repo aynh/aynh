@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Flattery will get you everywhere."
+> "At last, the sea lion has crossed the ocean and is heading up the hill! Attention soldiers of the Millennium battalion, this is a message from your commander! Friends, let's bring them Hell."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Montana Max**](https://myanimelist.net/character.php?q=Montana%20Max&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
