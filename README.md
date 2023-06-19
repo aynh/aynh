@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At last, the sea lion has crossed the ocean and is heading up the hill! Attention soldiers of the Millennium battalion, this is a message from your commander! Friends, let's bring them Hell."
+> "I prefer to be a humble dreamer, with visions to be realized, rather than the ruler of people with no dreams or desires."
 
-&mdash; [**Montana Max**](https://myanimelist.net/character.php?q=Montana%20Max&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
