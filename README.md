@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'd rather give up my eye, than give up his sword. Maybe I'm not so worthless after all."
+> "Flattery will get you everywhere."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
