@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am a god with a heart, but there’s one thing I cannot tolerate… people who don’t pay their proper respect to others."
+> "Humans lose focus of the big picture when they’re drunken in the midst of their feelings."
 
-&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Tojuro Hattori**](https://myanimelist.net/character.php?q=Tojuro%20Hattori&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
