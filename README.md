@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one knows when they will die. Neither you nor I may be able to live that long. But no life is so little as to give up, to think 'I don't care when I die.'"
+> "I'd rather give up my eye, than give up his sword. Maybe I'm not so worthless after all."
 
-&mdash; [**Seishin Muroi**](https://myanimelist.net/character.php?q=Seishin%20Muroi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
