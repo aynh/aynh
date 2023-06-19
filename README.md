@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was glad you did not pretend to be a saint and claim to love the world despite everything. That is why I decided that I would be your true friend. I would accept your sorrow. And I would share my joy. If you strayed I would reprimand you. If you made mistakes, I would forgive you. And when you found yourself in trouble, I would be there for you. So that you who learn to hate the world, would come to love it once more."
+> "No one knows when they will die. Neither you nor I may be able to live that long. But no life is so little as to give up, to think 'I don't care when I die.'"
 
-&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Seishin Muroi**](https://myanimelist.net/character.php?q=Seishin%20Muroi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
