@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The reason the Yamadas get along fine is because all three adults are nuts. If one of you were normal it would unbalance the rest."
+> "As a cool guy, I'm used to seeing naked women."
 
-&mdash; [**Noboru Yamada**](https://myanimelist.net/character.php?q=Noboru%20Yamada&cat=character), [**My Neighbors the Yamadas**](https://myanimelist.net/search/all?q=My%20Neighbors%20the%20Yamadas&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
