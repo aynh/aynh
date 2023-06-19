@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't beg for it, earn it. Do it, and you'll be rewarded."
+> "They're part of who I am. No matter how much they hurt, they're important to me."
 
-&mdash; [**Renton Thurston**](https://myanimelist.net/character.php?q=Renton%20Thurston&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
