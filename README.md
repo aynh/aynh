@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We found ourselves in conflict with each other many times. There were hard times when we wanted to run away or give up. But it was only because that rain fell, that the seeds of our emotions could sprout. And the flowers of deeper friendship could bloom."
+> "If we only believe when the odds are with us, then that's not believing at all."
 
-&mdash; [**Misaki Kamiigusa**](https://myanimelist.net/character.php?q=Misaki%20Kamiigusa&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Ousawa Akatsuki**](https://myanimelist.net/character.php?q=Ousawa%20Akatsuki&cat=character), [**Hagure Yuusha No Estetica**](https://myanimelist.net/search/all?q=Hagure%20Yuusha%20No%20Estetica&cat=all)
