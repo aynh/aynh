@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As a cool guy, I'm used to seeing naked women."
+> "The moment you put it into words and tell someone, it starts to diverge from your feelings. Words are nothing but lies and nothing but cheats. No matter what the truth, the moment it is told, it becomes dramatized."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
