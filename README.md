@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'To enjoy what one loves to do'. Those words come easily from the mouth. But it's another thing to help them grow."
+> "Don't beg for it, earn it. Do it, and you'll be rewarded."
 
-&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Renton Thurston**](https://myanimelist.net/character.php?q=Renton%20Thurston&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
