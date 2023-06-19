@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know how they have parameters in games? Like, you're good at magic, but your combat skills blow, or you're a great fighter, but you lack in the brains department."
+> "I was glad you did not pretend to be a saint and claim to love the world despite everything. That is why I decided that I would be your true friend. I would accept your sorrow. And I would share my joy. If you strayed I would reprimand you. If you made mistakes, I would forgive you. And when you found yourself in trouble, I would be there for you. So that you who learn to hate the world, would come to love it once more."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!×2 Shou**](https://myanimelist.net/search/all?q=Durarara!!%C3%972%20Shou&cat=all)
+&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
