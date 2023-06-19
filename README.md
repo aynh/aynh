@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am not so grand, not as a god. I am Horo, and Horo is all that I am."
+> "You know how they have parameters in games? Like, you're good at magic, but your combat skills blow, or you're a great fighter, but you lack in the brains department."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!×2 Shou**](https://myanimelist.net/search/all?q=Durarara!!%C3%972%20Shou&cat=all)
