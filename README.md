@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we only believe when the odds are with us, then that's not believing at all."
+> "I am not so grand, not as a god. I am Horo, and Horo is all that I am."
 
-&mdash; [**Ousawa Akatsuki**](https://myanimelist.net/character.php?q=Ousawa%20Akatsuki&cat=character), [**Hagure Yuusha No Estetica**](https://myanimelist.net/search/all?q=Hagure%20Yuusha%20No%20Estetica&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
