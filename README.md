@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unfortunately... being a hero is a limited-time thing. When you grow up, it becomes harder to call yourself one. I wish it hadn't taken me so long to realize that."
+> "Repeat. I'll repeat it for however many times I have to. Until I find the only way out."
 
-&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/stay night: Unlimited Blade Works**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night%3A%20Unlimited%20Blade%20Works&cat=all)
+&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
