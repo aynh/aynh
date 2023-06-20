@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh? I thought I severed your body from the waist-down, but...It seems the cut was too shallow."
+> "A heaven that only watches has no meaning."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Su-won**](https://myanimelist.net/character.php?q=Su-won&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
