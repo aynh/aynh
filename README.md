@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For a man to stand up again, he needs one thing... 'To make excuses'."
+> "Despair to the ones who become swelled with pride."
 
-&mdash; [**Takamura Mamoru**](https://myanimelist.net/character.php?q=Takamura%20Mamoru&cat=character), [**Hajime no Ippo - Champion Road**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo%20-%20Champion%20Road&cat=all)
+&mdash; [**Truth**](https://myanimelist.net/character.php?q=Truth&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
