@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Despair to the ones who become swelled with pride."
+> "Even if I did win, it was boring. How can it be interesting unless you win in an interesting way?"
 
-&mdash; [**Truth**](https://myanimelist.net/character.php?q=Truth&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
