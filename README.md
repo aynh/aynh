@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I was at the brink of life and death, I used all of my will to survive. I drew upon a different power than that of self-sacrifice and mastered an ultimate technique. The will to live is stronger than anything else. That was the ray of light that my master risked his life to show me. As Hitokiri Battousai, I have committed so many crimes that I cannot possibly repent for them. That is why I had secretly believed that it didn't matter when I died or was killed. However, now... even if I am formally punished or restrained. I will never lose the will to live."
+> "...A human's belief can make the impossible possible."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Kouta Tsuchiya**](https://myanimelist.net/character.php?q=Kouta%20Tsuchiya&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
