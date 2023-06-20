@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I did win, it was boring. How can it be interesting unless you win in an interesting way?"
+> "[On first seeing Kyo] The ceiling... Is he hurt...? Wh-who... Well, hello, orange-head..."
 
-&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
