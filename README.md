@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because we can’t understand each other, it makes us want to make things clear even more."
+> "There's no such thing as a limit on being the best. You can always go for more. That's what it means to be human. No... That's what it means to be me."
 
-&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Claire Stanfield**](https://myanimelist.net/character.php?q=Claire%20Stanfield&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
