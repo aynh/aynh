@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*referring to his curse* Look, everyone! This is what hatred looks like! This is what it does when it catches hold of you! It's eating me alive, and very soon now it will kill me! Fear and anger only make it grow faster!"
+> "Have you ever thought about why you're so good and your parents are so bad? If you'd so kindly let me give away the answer; it's because even if you're cheating on someone or you're being cheated on, everyone laughs at bad jokes and eats over-sweet boiled vegetables."
 
-&mdash; [**Prince Ashitaka**](https://myanimelist.net/character.php?q=Prince%20Ashitaka&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
