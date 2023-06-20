@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...A human's belief can make the impossible possible."
+> "If you don't see her, you won't fall in love. If you don't fall in love, you won't get hurt."
 
-&mdash; [**Kouta Tsuchiya**](https://myanimelist.net/character.php?q=Kouta%20Tsuchiya&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Satou Tatsuhiro**](https://myanimelist.net/character.php?q=Satou%20Tatsuhiro&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
