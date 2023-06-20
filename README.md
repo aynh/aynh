@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There ain't a single coward who'd turn tail and run from just that! Not among the men of the Shiba clan!"
+> "It would be nice to live in a kind world without any fear, without any troubles, without hurting anybody, without ever being hurt; only doing the right thing. I wish I could reach this kind world by the shortest path possible."
 
-&mdash; [**Ganju Shiba**](https://myanimelist.net/character.php?q=Ganju%20Shiba&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Akito Sohma**](https://myanimelist.net/character.php?q=Akito%20Sohma&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
