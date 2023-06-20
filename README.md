@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't see her, you won't fall in love. If you don't fall in love, you won't get hurt."
+> "Oh? I thought I severed your body from the waist-down, but...It seems the cut was too shallow."
 
-&mdash; [**Satou Tatsuhiro**](https://myanimelist.net/character.php?q=Satou%20Tatsuhiro&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
