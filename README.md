@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This town is overflowing with people, and each has their own worries, big or small... How many of them can truly say that they're happy?"
+> "Unfortunately... being a hero is a limited-time thing. When you grow up, it becomes harder to call yourself one. I wish it hadn't taken me so long to realize that."
 
-&mdash; [**Ai Kotani**](https://myanimelist.net/character.php?q=Ai%20Kotani&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/stay night: Unlimited Blade Works**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night%3A%20Unlimited%20Blade%20Works&cat=all)
