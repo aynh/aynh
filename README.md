@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[On first seeing Kyo] The ceiling... Is he hurt...? Wh-who... Well, hello, orange-head..."
+> "Everyone has a sword within their hearts; the purer the heart, the sharper the sword."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Gankutsuou**](https://myanimelist.net/character.php?q=Gankutsuou&cat=character), [**Gankutsuou**](https://myanimelist.net/search/all?q=Gankutsuou&cat=all)
