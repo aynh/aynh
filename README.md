@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are too young to worry about failure. In a pinch, just muddle through. The outcome won't change, so that's best."
+> "For a man to stand up again, he needs one thing... 'To make excuses'."
 
-&mdash; [**Bang**](https://myanimelist.net/character.php?q=Bang&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Takamura Mamoru**](https://myanimelist.net/character.php?q=Takamura%20Mamoru&cat=character), [**Hajime no Ippo - Champion Road**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo%20-%20Champion%20Road&cat=all)
