@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "God, if this world, this story, is moving ahead according to the system you created... then I first need to destroy that illusion!"
+> "I thought I just heard someone say 'We're blasting off again' but we copyrighted that!"
 
-&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
