@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Ichigo* I thought you were interesting before, but now you're just a creepy kid."
+> "You can't sit around envying other peoples worlds. You have to go out and change your own."
 
-&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Chiaki Shinichi**](https://myanimelist.net/character.php?q=Chiaki%20Shinichi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
