@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do exactly as you like. That is the true meaning of pleasure. Pleasure leads to joy and joy leads to happiness. Your path is now clear, Kirei. So clear there is no longer any need to hesitate."
+> "No one can justify life by linking happy moments into a rosary."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Shinji Ikari**](https://myanimelist.net/character.php?q=Shinji%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
