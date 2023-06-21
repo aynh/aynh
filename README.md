@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Vegeta's last thought before he dies fighting Majin Buu] Bulma, Trunks. This is for you."
+> "Life itself is a frightening image for every human being... being strong in life isn't easy."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
