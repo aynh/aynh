@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the words are of rage and hate, I must accept them. I've run for so long but I can never forget."
+> "I am the God placed here to save the weak and create a perfect world."
 
-&mdash; [**Yobiko**](https://myanimelist.net/character.php?q=Yobiko&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
