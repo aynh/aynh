@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Repeat. I'll repeat it for however many times I have to. Until I find the only way out."
+> "It's a battle of life and death, and I'm still alive! So I'm not going to give up, and I'll keep living. I'll keep living until I die."
 
-&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
