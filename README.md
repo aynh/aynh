@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "An illusion is darkness. Those who cannot see the darkness cannot resist its sweet temptation and are stained black. Eventually the darkness envelops the light controlling everything."
+> "I partnered with these two specifically so something like this wouldn't happen. I need symmetry! Maybe I should have listened to my father. He tried to pick out a good weapon for me, but I refused to listen to him! Stubborn! All I cared about, all I wanted was symmetry! Two symmetrical weapons! Was that so much to ask for?! And now all my efforts have been completely and utterly wasted! Damn it!"
 
-&mdash; [**Luka Crosszeria**](https://myanimelist.net/character.php?q=Luka%20Crosszeria&cat=character), [**Uragiri Wa Boku No Namae Wo Shitteiru**](https://myanimelist.net/search/all?q=Uragiri%20Wa%20Boku%20No%20Namae%20Wo%20Shitteiru&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
