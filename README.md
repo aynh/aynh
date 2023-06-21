@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You, who've taken on his name, have managed – well, nothing."
+> "Mom... Mom in heaven.... Does love come suddenly like this"
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
