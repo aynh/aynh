@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am the God placed here to save the weak and create a perfect world."
+> "[Vegeta's last thought before he dies fighting Majin Buu] Bulma, Trunks. This is for you."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
