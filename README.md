@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A problem is not a problem as long as nobody sees it as one."
+> "If the words are of rage and hate, I must accept them. I've run for so long but I can never forget."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Yobiko**](https://myanimelist.net/character.php?q=Yobiko&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
