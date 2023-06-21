@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one can justify life by linking happy moments into a rosary."
+> "[to Athrun] What is it you believe in? What is it you're fighting for now? Is it for that medal you received? Or your father's orders?"
 
-&mdash; [**Shinji Ikari**](https://myanimelist.net/character.php?q=Shinji%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
