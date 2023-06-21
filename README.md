@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Athrun] What is it you believe in? What is it you're fighting for now? Is it for that medal you received? Or your father's orders?"
+> "An illusion is darkness. Those who cannot see the darkness cannot resist its sweet temptation and are stained black. Eventually the darkness envelops the light controlling everything."
 
-&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Luka Crosszeria**](https://myanimelist.net/character.php?q=Luka%20Crosszeria&cat=character), [**Uragiri Wa Boku No Namae Wo Shitteiru**](https://myanimelist.net/search/all?q=Uragiri%20Wa%20Boku%20No%20Namae%20Wo%20Shitteiru&cat=all)
