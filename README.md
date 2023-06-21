@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mom... Mom in heaven.... Does love come suddenly like this"
+> "When I realized, I was already on the roof of a building. ...I had come to hate everything. I was sick of sitting in my room holding my knees too. If nobody was going to notice or care if I died then... what's the point in living?"
 
-&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Moeka Kiryū**](https://myanimelist.net/character.php?q=Moeka%20Kiry%C5%AB&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
