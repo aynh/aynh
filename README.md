@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Never give up without even trying. Do what you can, no matter how small the effect it may have!"
+> "*guilty voice* Because of my carelessness Araragi-kun realized that his brain is slower than others."
 
-&mdash; [**Ōnoki**](https://myanimelist.net/character.php?q=%C5%8Cnoki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
