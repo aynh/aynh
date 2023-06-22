@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What are you smoking? Don't you see how cool I am? You think I'm going to settle for a flat chested girl like her?"
+> "I wanted to see your homework from the other day. And I got to see your face while you were sleeping... so don't sweat it."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Konata Izumi**](https://myanimelist.net/character.php?q=Konata%20Izumi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
