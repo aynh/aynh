@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You shouldn’t stop like that. If you can move forward, then you should."
+> "If you want to be free from your suffering, make up your mind. If you give up on your dream, you will suffer more."
 
-&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Might Guy**](https://myanimelist.net/character.php?q=Might%20Guy&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
