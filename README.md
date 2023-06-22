@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Perfection is a fairly nonexistent thing. If you couldn’t do it, it was probably impossible for anybody else, too."
+> "Laws exist only for those who cannot live without clinging to them."
 
-&mdash; [**Reinhard von Lohengramm**](https://myanimelist.net/character.php?q=Reinhard%20von%20Lohengramm&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
