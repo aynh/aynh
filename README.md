@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wanted to see your homework from the other day. And I got to see your face while you were sleeping... so don't sweat it."
+> "I don't think it's completely such a bad thing to cling to one single person, but you have any number of people all around you. People are always connected to one another. You see? Just reach out your hand, and there's someone right here. It's when people realize how lonely it is being on their own, that they start to become kind."
 
-&mdash; [**Konata Izumi**](https://myanimelist.net/character.php?q=Konata%20Izumi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
+&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
