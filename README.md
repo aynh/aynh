@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*guilty voice* Because of my carelessness Araragi-kun realized that his brain is slower than others."
+> "You shouldn’t stop like that. If you can move forward, then you should."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
