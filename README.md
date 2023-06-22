@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The real evil is the power to kill people. Someone who finds himself with that power is cursed. No matter how you use it, anything obtained by killing people can never bring true happiness."
+> "Perfection is a fairly nonexistent thing. If you couldn’t do it, it was probably impossible for anybody else, too."
 
-&mdash; [**Soichiro Yagami**](https://myanimelist.net/character.php?q=Soichiro%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Reinhard von Lohengramm**](https://myanimelist.net/character.php?q=Reinhard%20von%20Lohengramm&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
