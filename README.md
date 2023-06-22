@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to be free from your suffering, make up your mind. If you give up on your dream, you will suffer more."
+> "Have you ever wondered, Master, what it feels like to be hunted?"
 
-&mdash; [**Might Guy**](https://myanimelist.net/character.php?q=Might%20Guy&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
