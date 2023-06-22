@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wanted to save you because you're you. I didn't want you to leave, because you're you. I can't find another reason. I don't need another reason to save you."
+> "People must continue to fight for their fate. Unless they fight for the future they wish for, they will never know whether or not they can attain it."
 
-&mdash; [**Bell Cranel**](https://myanimelist.net/character.php?q=Bell%20Cranel&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
+&mdash; [**Annelotte Kreuz**](https://myanimelist.net/character.php?q=Annelotte%20Kreuz&cat=character), [**Queen's Blade: Rebellion**](https://myanimelist.net/search/all?q=Queen's%20Blade%3A%20Rebellion&cat=all)
