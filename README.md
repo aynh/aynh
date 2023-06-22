@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People must continue to fight for their fate. Unless they fight for the future they wish for, they will never know whether or not they can attain it."
+> "Night is good. Appearances lose their meaning and get swallowed up by the darkness."
 
-&mdash; [**Annelotte Kreuz**](https://myanimelist.net/character.php?q=Annelotte%20Kreuz&cat=character), [**Queen's Blade: Rebellion**](https://myanimelist.net/search/all?q=Queen's%20Blade%3A%20Rebellion&cat=all)
+&mdash; [**Yoite**](https://myanimelist.net/character.php?q=Yoite&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
