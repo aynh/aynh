@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you notice an insect on the ground, do you stop to consider it a fool? The life of an insect is so beneath you that it would be a waste of your time to even consider judging it. That would be an accurate summation of my feelings towards you, humans."
+> "If you can tell me what you want to say, tell me then. I want to hear it... Because no matter what you say, my feelings won't change."
 
-&mdash; [**Father**](https://myanimelist.net/character.php?q=Father&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Shouta Kazehaya**](https://myanimelist.net/character.php?q=Shouta%20Kazehaya&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
