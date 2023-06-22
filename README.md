@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Youth is fleeting. Young people can't even wait for a spoonful of sugar to dissolve and bitter regret is proof of that. But by bit, you get a taste for it."
+> "Never give up without even trying. Do what you can, no matter how small the effect it may have!"
 
-&mdash; [**Tamako Love Story**](https://myanimelist.net/character.php?q=Tamako%20Love%20Story&cat=character), [**Tamako Love Story**](https://myanimelist.net/search/all?q=Tamako%20Love%20Story&cat=all)
+&mdash; [**Ōnoki**](https://myanimelist.net/character.php?q=%C5%8Cnoki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
