@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even innocent foolish children will grow up in the face of pain, until their thoughts and beliefs are the same as their doubts."
+> "Youth is fleeting. Young people can't even wait for a spoonful of sugar to dissolve and bitter regret is proof of that. But by bit, you get a taste for it."
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
+&mdash; [**Tamako Love Story**](https://myanimelist.net/character.php?q=Tamako%20Love%20Story&cat=character), [**Tamako Love Story**](https://myanimelist.net/search/all?q=Tamako%20Love%20Story&cat=all)
