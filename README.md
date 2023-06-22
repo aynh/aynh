@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Laws exist only for those who cannot live without clinging to them."
+> "*after Zuko defeats Zhao* So this is how the great Commander Zhao acts in defeat? Disgraceful. Even in exile, my nephew is more honorable than you. Thanks again for the tea. It was delicious. [Iroh and Zuko leaves]"
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
