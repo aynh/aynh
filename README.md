@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've been around longer than you have, kid. And I've seen my share of troubles. You're not the only one who knows what it's like to lose somebody. It looks like neither of us has led a charming life, have we? Still, it's not that bad. At least you and I have been lucky enough to find new comrades to help fill the void."
+> "You're going to be all right. You just stumbled over a stone in the road. It means nothing. Your goal lies far beyond this. Doesn't it? I'm sure you'll overcome this. You'll walk again... soon."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
