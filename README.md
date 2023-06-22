@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't think it's completely such a bad thing to cling to one single person, but you have any number of people all around you. People are always connected to one another. You see? Just reach out your hand, and there's someone right here. It's when people realize how lonely it is being on their own, that they start to become kind."
+> "Power is necessary, because conflicts continue to exist."
 
-&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Gilbert Dullindal**](https://myanimelist.net/character.php?q=Gilbert%20Dullindal&cat=character), [**Mobile Suit Gundam Seed Destiny**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed%20Destiny&cat=all)
