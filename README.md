@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To fulfill your dream, you need to have a dream first. You can have an image, a desire, or a wish of what you want to become. Don't forget about it, and keep wishing for it. That's the first step to fulfilling your dream."
+> "Someday, I just want to marry a regular girl who isn't too ugly and not too pretty. Have two children, first a girl, then a boy. Retire after my daughter is married and my son becomes a successful ninja, and spend the rest of my life playing shōgi or Go. Then die of old age before my wife."
 
-&mdash; [**Kuze Shuuichi**](https://myanimelist.net/character.php?q=Kuze%20Shuuichi&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
