@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you look back after a long life, you'll realize there's nothing that's really worth risking your life for."
+> "The three pleasures of life are 'eating', 'bathing' and 'sleeping'!!"
 
-&mdash; [**Mackenzie Glen**](https://myanimelist.net/character.php?q=Mackenzie%20Glen&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Girl**](https://myanimelist.net/character.php?q=Girl&cat=character), [**Tabi ni Deyou Horobiyuku Sekai no Hate Made**](https://myanimelist.net/search/all?q=Tabi%20ni%20Deyou%20Horobiyuku%20Sekai%20no%20Hate%20Made&cat=all)
