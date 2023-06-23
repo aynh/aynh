@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fear deals a crippling blow to soldiers. Be it a single man or a million soldiers, it makes no difference. Man can deny neither hunger nor fear."
+> "To fulfill your dream, you need to have a dream first. You can have an image, a desire, or a wish of what you want to become. Don't forget about it, and keep wishing for it. That's the first step to fulfilling your dream."
 
-&mdash; [**Borcuse**](https://myanimelist.net/character.php?q=Borcuse&cat=character), [**Broken Blade**](https://myanimelist.net/search/all?q=Broken%20Blade&cat=all)
+&mdash; [**Kuze Shuuichi**](https://myanimelist.net/character.php?q=Kuze%20Shuuichi&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
