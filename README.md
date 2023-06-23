@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My mornings begin with a cup of coffee with cream at the cafe. My afternoon begins with hot tea with two lumps of sugar. And my evenings... In the evening I change into my pajamas."
+> "Only humans, with their short lifespan, are driven to solve every problem they encounter. It is how they live."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Lelei la Lelena**](https://myanimelist.net/character.php?q=Lelei%20la%20Lelena&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
