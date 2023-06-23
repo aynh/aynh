@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't think anyone is born knowing the reason why they're here. It's just something you have to find as you go along."
+> "That's people for you. Trusting one another, helping one another- it's all a fantasy. Humans are creatures that will always betray."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Yokoya Norihiko**](https://myanimelist.net/character.php?q=Yokoya%20Norihiko&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
