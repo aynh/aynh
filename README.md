@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Gin Ichimaru] If you make Hinamori shed even one drop of blood, I'll kill you."
+> "Well, I won't be disappointed, no matter what you do."
 
-&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
