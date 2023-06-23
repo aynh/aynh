@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The three pleasures of life are 'eating', 'bathing' and 'sleeping'!!"
+> "Who cares about snow? Snow can't touch me, I could be naked out here and it wouldn't bother me at all."
 
-&mdash; [**Girl**](https://myanimelist.net/character.php?q=Girl&cat=character), [**Tabi ni Deyou Horobiyuku Sekai no Hate Made**](https://myanimelist.net/search/all?q=Tabi%20ni%20Deyou%20Horobiyuku%20Sekai%20no%20Hate%20Made&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
