@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even when times are at their hardest, don't let it show on your face. If the captain is shaken, the team will waver."
+> "This is a case of personal feelings: there's no way to force someone into saying that he or she loves someone. Besides, only the person knows whether the love truly exists. Even if it's said out with false feelings, it'll just cause damage on both sides."
 
-&mdash; [**Tetsuya Yūki**](https://myanimelist.net/character.php?q=Tetsuya%20Y%C5%ABki&cat=character), [**Diamond No Ace**](https://myanimelist.net/search/all?q=Diamond%20No%20Ace&cat=all)
+&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
