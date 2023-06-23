@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world won't always go the way you want it to. Better not take it to seriously."
+> "Just your touch... gets me excited. It makes me so happy. But those feelings will all turn into pain. The happier I am now, the more it'll hurt. I know how cruel this is... but no matter how hard I try, I can't rid myself of this. Nejima-kun... I... don't know... what love is."
 
-&mdash; [**Kubard**](https://myanimelist.net/character.php?q=Kubard&cat=character), [**The Heroic Legend of Arslan**](https://myanimelist.net/search/all?q=The%20Heroic%20Legend%20of%20Arslan&cat=all)
+&mdash; [**Takasaki Misaki**](https://myanimelist.net/character.php?q=Takasaki%20Misaki&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
