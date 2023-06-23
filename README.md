@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's people for you. Trusting one another, helping one another- it's all a fantasy. Humans are creatures that will always betray."
+> "Even when times are at their hardest, don't let it show on your face. If the captain is shaken, the team will waver."
 
-&mdash; [**Yokoya Norihiko**](https://myanimelist.net/character.php?q=Yokoya%20Norihiko&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Tetsuya Yūki**](https://myanimelist.net/character.php?q=Tetsuya%20Y%C5%ABki&cat=character), [**Diamond No Ace**](https://myanimelist.net/search/all?q=Diamond%20No%20Ace&cat=all)
