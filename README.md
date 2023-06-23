@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yes, we have no destiny. Only those swallowed up by ignorance and fear who take false steps, shall plunge us into the waters called “destiny”."
+> "My mornings begin with a cup of coffee with cream at the cafe. My afternoon begins with hot tea with two lumps of sugar. And my evenings... In the evening I change into my pajamas."
 
-&mdash; [**Kisuke Urahara**](https://myanimelist.net/character.php?q=Kisuke%20Urahara&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
