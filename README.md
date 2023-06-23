@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Take advantage of what you have, while you have it."
+> "Yes, we have no destiny. Only those swallowed up by ignorance and fear who take false steps, shall plunge us into the waters called “destiny”."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Kisuke Urahara**](https://myanimelist.net/character.php?q=Kisuke%20Urahara&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
