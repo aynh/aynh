@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We don't die for our friends, we live for them."
+> "[to Gin Ichimaru] If you make Hinamori shed even one drop of blood, I'll kill you."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
