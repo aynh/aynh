@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is an incessant series of problems... all difficult, with brutally limited choices... and a time limit."
+> "The world won't always go the way you want it to. Better not take it to seriously."
 
-&mdash; [**Chapel the Evergreen**](https://myanimelist.net/character.php?q=Chapel%20the%20Evergreen&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Kubard**](https://myanimelist.net/character.php?q=Kubard&cat=character), [**The Heroic Legend of Arslan**](https://myanimelist.net/search/all?q=The%20Heroic%20Legend%20of%20Arslan&cat=all)
