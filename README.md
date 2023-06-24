@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every society places the world in order, by the concept of opposites: inside and outside, religious and secular, celestial and worldly. The opposing concepts organize the world as it is today, but none of those can be distinctly separated. There is always a grey area where it is ambiguous."
+> "We aren't flying away from everyone to leave them, but rather so we might see them again someday."
 
-&mdash; [**Tohno Kyouko**](https://myanimelist.net/character.php?q=Tohno%20Kyouko&cat=character), [**.hack//Liminality**](https://myanimelist.net/search/all?q=.hack%2F%2FLiminality&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
