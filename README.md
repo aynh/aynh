@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I understand now. The world is not cut from the same cloth. It is because it is overflowing with inexplicable, unidentifiable things that the world is so beautiful."
+> "To kill is an action which overflows in everyday life. In actuality the more you try to be accepted, the more you kill your unrestrained self."
 
-&mdash; [**Satsuki Kiryuuin**](https://myanimelist.net/character.php?q=Satsuki%20Kiryuuin&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
