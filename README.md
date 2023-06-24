@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Real GAY will not be swayed no matter how cute a girl is. Please remember this: out of a hundred men... five are GAY."
+> "Every society places the world in order, by the concept of opposites: inside and outside, religious and secular, celestial and worldly. The opposing concepts organize the world as it is today, but none of those can be distinctly separated. There is always a grey area where it is ambiguous."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Tohno Kyouko**](https://myanimelist.net/character.php?q=Tohno%20Kyouko&cat=character), [**.hack//Liminality**](https://myanimelist.net/search/all?q=.hack%2F%2FLiminality&cat=all)
