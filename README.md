@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you wanna climb a mountain, you obviously aim for the top, but you gotta enjoy the scenery too."
+> "In the end the shape and form don't matter at all, it's only the soul that matters, right? Nothing else."
 
-&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Soul Eater**](https://myanimelist.net/character.php?q=Soul%20Eater&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
