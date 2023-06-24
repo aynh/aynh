@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We really are weak creatures, but that's why we can strive to become stronger. Even if you feel it's useless, each step we take leads to something great. That's why I'm sure we'll be able to change. Because we're weak... and because death is inevitable. Humans try their best to live and end up becoming stronger."
+> "Only fools wage war."
 
-&mdash; [**Trisha Elric**](https://myanimelist.net/character.php?q=Trisha%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Charles Zi Britannia**](https://myanimelist.net/character.php?q=Charles%20Zi%20Britannia&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
