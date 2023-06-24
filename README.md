@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who cares about snow? Snow can't touch me, I could be naked out here and it wouldn't bother me at all."
+> "I understand now. The world is not cut from the same cloth. It is because it is overflowing with inexplicable, unidentifiable things that the world is so beautiful."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Satsuki Kiryuuin**](https://myanimelist.net/character.php?q=Satsuki%20Kiryuuin&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
