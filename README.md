@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate, hate, HATE everyone. But that’s okay. I can use my screams to blow them all away. I’m sure dead people are a lot easier to deal with."
+> "If you wanna climb a mountain, you obviously aim for the top, but you gotta enjoy the scenery too."
 
-&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
