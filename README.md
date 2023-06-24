@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone’s gonna die. It’s a natural part of life. But if life has no purpose, you’re dead already."
+> "I hate, hate, HATE everyone. But that’s okay. I can use my screams to blow them all away. I’m sure dead people are a lot easier to deal with."
 
-&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf’s Rain**](https://myanimelist.net/search/all?q=Wolf%E2%80%99s%20Rain&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
