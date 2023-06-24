@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is nothing less amusing than destroying those who have no will to live."
+> "Having the love of your life break up with you and say 'we can still be friends', is like your dog dying and your mom saying 'you can still keep it'."
 
-&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
