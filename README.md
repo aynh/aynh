@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A gatekeeper ain't supposed to open gates."
+> "Real GAY will not be swayed no matter how cute a girl is. Please remember this: out of a hundred men... five are GAY."
 
-&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
