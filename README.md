@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We aren't flying away from everyone to leave them, but rather so we might see them again someday."
+> "If people could become friends simply by sharing bread and salt, life would be simpler."
 
-&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Peppo**](https://myanimelist.net/character.php?q=Peppo&cat=character), [**Gankutsuou**](https://myanimelist.net/search/all?q=Gankutsuou&cat=all)
