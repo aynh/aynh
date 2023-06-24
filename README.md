@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My smile is nothing more than a pose, I can give it to anyone, anytime, anywhere..."
+> "Screw you, future me!"
 
-&mdash; [**Kojima Mizuiro**](https://myanimelist.net/character.php?q=Kojima%20Mizuiro&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
