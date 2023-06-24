@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just as there isn't a problem that can't be solved by being right, there isn't a problem that can't be solved by money."
+> "The longer you keep a secret, the harder it becomes to say it."
 
-&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Taishi Ichimiya**](https://myanimelist.net/character.php?q=Taishi%20Ichimiya&cat=character), [**Servant X Service**](https://myanimelist.net/search/all?q=Servant%20X%20Service&cat=all)
