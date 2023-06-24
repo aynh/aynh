@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now all that is left is the destruction of earth, but I think it would be a waste to destroy it. The food of this planet is very delicious."
+> "Everyone’s gonna die. It’s a natural part of life. But if life has no purpose, you’re dead already."
 
-&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf’s Rain**](https://myanimelist.net/search/all?q=Wolf%E2%80%99s%20Rain&cat=all)
