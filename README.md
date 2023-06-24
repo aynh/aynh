@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The longer you keep a secret, the harder it becomes to say it."
+> "He won't play up to anyone. He won't be led astray by anything. He simply places himself in a clear space."
 
-&mdash; [**Taishi Ichimiya**](https://myanimelist.net/character.php?q=Taishi%20Ichimiya&cat=character), [**Servant X Service**](https://myanimelist.net/search/all?q=Servant%20X%20Service&cat=all)
+&mdash; [**Yu Kanda**](https://myanimelist.net/character.php?q=Yu%20Kanda&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
