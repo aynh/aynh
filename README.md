@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Peace under an illusion is not true peace. It's only meaningful if the real world manages to accomplish it."
+> "Just as there isn't a problem that can't be solved by being right, there isn't a problem that can't be solved by money."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
