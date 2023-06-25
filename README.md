@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nobody thinks they're cuter than others unless they're conceited."
+> "The vampires don't really care about humanity in general. It's only specific humans like you that concern them... The kind of humans who will stop at nothing to acquire more power."
 
-&mdash; [**Maki Nishikino**](https://myanimelist.net/character.php?q=Maki%20Nishikino&cat=character), [**Love Live! School idol project TV 2/2014**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project%20TV%202%2F2014&cat=all)
+&mdash; [**Mikaela Hyakuya**](https://myanimelist.net/character.php?q=Mikaela%20Hyakuya&cat=character), [**Owari no Seraph**](https://myanimelist.net/search/all?q=Owari%20no%20Seraph&cat=all)
