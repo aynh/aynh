@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how painful it might be... I'll do everything in my might! So please, you too, act according to what you believe in!"
+> "If you’ve got time to point fingers, then how about using your head to figure out what you want to do about it?"
 
-&mdash; [**Syaoran Li**](https://myanimelist.net/character.php?q=Syaoran%20Li&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Karma Akabane**](https://myanimelist.net/character.php?q=Karma%20Akabane&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
