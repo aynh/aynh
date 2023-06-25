@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You must look within yourself to save yourself from your other self. Only then will your true self reveal itself."
+> "[To Envy] Now I see. You're Jealous. You're jealous of humans, aren't you? According to you, humans are supposed to be a lot weaker than Homunculi. And yet, even if they get discouraged after being beaten, and even if they get close to falling down after losing their paths, they continue to get up and fight. Everyone around them helps them get back up. And you're envious of that."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
