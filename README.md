@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there are people you would call naturals, because they were gifted with talent, and if my two rivals (Florence Alicia and Glory Athena) are such naturals, then I just need to have a talent that exceeds theirs, through hard work. Yes, I just have to become a prodigy."
+> "Living things are restrained by Chains: The laws of nature, the flow of time, the vessel known as your “body”, and the existence called your mind. There's only one chain that people can wield: WORDS."
 
-&mdash; [**Ferrari Akira E.**](https://myanimelist.net/character.php?q=Ferrari%20Akira%20E.&cat=character), [**Aria the Origination**](https://myanimelist.net/search/all?q=Aria%20the%20Origination&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
