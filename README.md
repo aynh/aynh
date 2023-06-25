@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When in doubt, don't worry about what's right. You'll run out of time. Don't use your head, you'll find the answer lower. Your heart knows what's right. Choose the answer that will be fun."
+> "If there's any possibility that I might visit this city again...Then I challenge you to a duel.  I wish to speak with you head-on, to within an inch of my life...To actually experience the joy of existing in this world...that is my desire."
 
-&mdash; [**Sharon Kaneko**](https://myanimelist.net/character.php?q=Sharon%20Kaneko&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Vorona**](https://myanimelist.net/character.php?q=Vorona&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
