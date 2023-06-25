@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry. Our world isn't as nice a place as yours. When it comes to war and killing, we have far more expertise than you do."
+> "That's ridiculous. People usually have a stereotypical idea, or an assumption like that and that's what creates a blind spot"
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
