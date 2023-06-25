@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s only one difference between heroes and mad men. It’s whether they win or lose."
+> "Sorry. Our world isn't as nice a place as yours. When it comes to war and killing, we have far more expertise than you do."
 
-&mdash; [**Lambdadelta**](https://myanimelist.net/character.php?q=Lambdadelta&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
