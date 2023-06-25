@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The actors on stage cannot ignore their scripts and do as they wish. If they make a beautiful exit, I feel they fulfill their role."
+> "No matter how painful it might be... I'll do everything in my might! So please, you too, act according to what you believe in!"
 
-&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Syaoran Li**](https://myanimelist.net/character.php?q=Syaoran%20Li&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
