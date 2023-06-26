@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A guy who likes someone else shouldn't be taking care of the girl he just dumped."
+> "Humans are nothing but the thread from which the dream of life is woven."
 
-&mdash; [**Takumi Nomiya**](https://myanimelist.net/character.php?q=Takumi%20Nomiya&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Kim**](https://myanimelist.net/character.php?q=Kim&cat=character), [**Ghost in the Shell 2: Innocence**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell%202%3A%20Innocence&cat=all)
