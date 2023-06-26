@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "99% of perception that normal humans have are closed off. Those who don't think of themselves are quite foolish beings."
+> "I thought that without you, everything would be so boring. The idea of someone else touching you... was just not okay. I only realized this recently. But I think... I've loved you for a long time, too."
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Ooga Kazuomi**](https://myanimelist.net/character.php?q=Ooga%20Kazuomi&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
