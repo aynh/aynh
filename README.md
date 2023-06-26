@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are nothing but the thread from which the dream of life is woven."
+> "Someone get this creature off meeeeeee!"
 
-&mdash; [**Kim**](https://myanimelist.net/character.php?q=Kim&cat=character), [**Ghost in the Shell 2: Innocence**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell%202%3A%20Innocence&cat=all)
+&mdash; [**Kusajishi Yachiru**](https://myanimelist.net/character.php?q=Kusajishi%20Yachiru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
