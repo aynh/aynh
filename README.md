@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll marry you! No matter what kind of sickness you have! Even if you can't walk or stand, or even when you can't have kids! I'll still marry you! No matter where or how I meet you, I'll fall in love with you. If I can meet you again, against the 6 billion to 1 odds, and even if your body can't move, I'll marry you."
+> "There are only two paths you can choose. You can sit quietly and be selected out of this world, or you can adapt and change."
 
-&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
