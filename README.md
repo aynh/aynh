@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I thought that without you, everything would be so boring. The idea of someone else touching you... was just not okay. I only realized this recently. But I think... I've loved you for a long time, too."
+> "[tsume bites into his neck] Let's meet up again in Paradise."
 
-&mdash; [**Ooga Kazuomi**](https://myanimelist.net/character.php?q=Ooga%20Kazuomi&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
