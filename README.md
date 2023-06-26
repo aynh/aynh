@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Madoka. My only friend... If... If it's for your sake... I don't mind being locked in this eternal maze!"
+> "Leave it at that. Even though she was raised by gorillas, she's still a woman."
 
-&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
