@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The human heart will always sway. And only then do we know that it is truly a human heart."
+> "You can't keep something without fighting for it."
 
-&mdash; [**Sister Libelle**](https://myanimelist.net/character.php?q=Sister%20Libelle&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Hajime Kanzaki**](https://myanimelist.net/character.php?q=Hajime%20Kanzaki&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
