@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know I haven't always made the right decisions up to now... Whether I was right, or whether I was wrong, may not even matter in the first place. However, running up against my sins like this-- all of the choices I've made up to this point-- today, being able to die for someone-- is something I'm glad for..."
+> "Even saying they were just a bunch of fools would suffice. So why can't you? Were it me... I would be angry at the ignorance of those who would enter Hueco Mundo... without even testing their own power."
 
-&mdash; [**Irimi Kaya**](https://myanimelist.net/character.php?q=Irimi%20Kaya&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
