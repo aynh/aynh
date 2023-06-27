@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes the things that matter the most are right in front of you."
+> "Someday you'll let go of my hand. When you finally look to the far, far sky, I'll kick you from behind and laugh at you to hurry."
 
-&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
