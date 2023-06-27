@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someday you'll let go of my hand. When you finally look to the far, far sky, I'll kick you from behind and laugh at you to hurry."
+> "Items to invent: Bed, massage chair, humidifier, rubber band, Rube Goldberg Machine, religion... Religions are invented? I've learned something new."
 
-&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
