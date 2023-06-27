@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'To enjoy what one loves to do'. Those words come easily from the mouth. But it's another thing to help them grow."
+> "Moving on doesn't mean you forget about things. It just means you have to accept what's happened and continue living."
 
-&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
