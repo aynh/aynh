@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To put things simply, if your past makes your present... Then your present can and will make your future. When you think about it that way... You absolutely have the potential to be anything you want to be, don't you agree?"
+> "Let's see what kind of heart you have!"
 
-&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
