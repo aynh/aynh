@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Running away isn’t the same thing as losing. You only truly lose by dying. So as long you’re alive, you win."
+> "To put things simply, if your past makes your present... Then your present can and will make your future. When you think about it that way... You absolutely have the potential to be anything you want to be, don't you agree?"
 
-&mdash; [**Senator Figaro**](https://myanimelist.net/character.php?q=Senator%20Figaro&cat=character), [**Valvrave the Liberator**](https://myanimelist.net/search/all?q=Valvrave%20the%20Liberator&cat=all)
+&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
