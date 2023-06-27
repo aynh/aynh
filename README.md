@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In our society, letting others find out that you're a nice person is a very risky move. It's extremely likely that someone would take advantage of that."
+> "Running away isn’t the same thing as losing. You only truly lose by dying. So as long you’re alive, you win."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Senator Figaro**](https://myanimelist.net/character.php?q=Senator%20Figaro&cat=character), [**Valvrave the Liberator**](https://myanimelist.net/search/all?q=Valvrave%20the%20Liberator&cat=all)
