@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am not going to kill you - I am going to break you."
+> "I know I haven't always made the right decisions up to now... Whether I was right, or whether I was wrong, may not even matter in the first place. However, running up against my sins like this-- all of the choices I've made up to this point-- today, being able to die for someone-- is something I'm glad for..."
 
-&mdash; [**Naraku**](https://myanimelist.net/character.php?q=Naraku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Irimi Kaya**](https://myanimelist.net/character.php?q=Irimi%20Kaya&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
