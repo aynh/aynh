@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Often people have it wrong, mistakenly believing... that showing mercy to an enemy is kindness. They spare the foe whose life is in their hands. But don't you see? It's an empty existence, to go on living... alone and unloved... when defeat's already cost you your dream!"
+> "If there's any possibility that I might visit this city again...Then I challenge you to a duel.  I wish to speak with you head-on, to within an inch of my life...To actually experience the joy of existing in this world...that is my desire."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Vorona**](https://myanimelist.net/character.php?q=Vorona&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
