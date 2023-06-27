@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Moving on doesn't mean you forget about things. It just means you have to accept what's happened and continue living."
+> "Sometimes the things that matter the most are right in front of you."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
