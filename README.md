@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not every result can be the one desired. Trust your own judgments and actions. That is enough."
+> "I thought that when I grew up, I could reach more and more. The delicious looking fruit beckoning from the highest branch.The beautiful shell hidden in the sand. If I could only stretch out my hand a little more…. But…. As everyone passes through the junctures of their life, they no longer stretch their hand to the sky, or crouch to the earth. Embarrassed, they ignore what they’d desired for so long. Will you reach out and grab me, grown up as I am?"
 
-&mdash; [**Cadis Etrama Di Raizel**](https://myanimelist.net/character.php?q=Cadis%20Etrama%20Di%20Raizel&cat=character), [**Noblesse**](https://myanimelist.net/search/all?q=Noblesse&cat=all)
+&mdash; [**Kou Ichinomiya**](https://myanimelist.net/character.php?q=Kou%20Ichinomiya&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
