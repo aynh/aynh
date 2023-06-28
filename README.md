@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Rei Miyamoto* I'd be an actor if I could look happy right now."
+> "The notion of set fate is ridiculous. Cause and effect can be bent through strength."
 
-&mdash; [**Takashi Komuro**](https://myanimelist.net/character.php?q=Takashi%20Komuro&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
