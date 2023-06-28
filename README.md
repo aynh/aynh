@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[as a child] Why should I be sad?! My parents died protecting the village from the monster fox. They're heroes, and I'm the son of those heroes! If I cry, it's because I'm happy! I'm not even sad that they went and left me all alone..."
+> "Let me tell you an incomprehensible story! What is it for the actions of men to be incomprehensible? It would seem to me that if it can't be comprehended, one should not even bother trying. It is useless to even think about it, I think. That said, I don't know exactly what's going on but may we continue fighting please?"
 
-&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Graham Specter**](https://myanimelist.net/character.php?q=Graham%20Specter&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
