@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(About Sakura) Was she having fun in her little make-believe fantasy of true love? As for me, I have absolutely no reason to love her and likewise, I can see no reason why she would love me."
+> "Humans and spirits. We're indeed different beings, but that is why understanding each other is meaningful."
 
-&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Tatara Phoron**](https://myanimelist.net/character.php?q=Tatara%20Phoron&cat=character), [**Shinkyoku Soukai Polyphonica**](https://myanimelist.net/search/all?q=Shinkyoku%20Soukai%20Polyphonica&cat=all)
