@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there's any possibility that I might visit this city again...Then I challenge you to a duel.  I wish to speak with you head-on, to within an inch of my life...To actually experience the joy of existing in this world...that is my desire."
+> "There's no reason a fake can't do what the real thing would. And it's possible for a fake to be more real than the real thing."
 
-&mdash; [**Vorona**](https://myanimelist.net/character.php?q=Vorona&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
