@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What do you suppose the most irrational thing is? - It's humanity."
+> "Life is all about 'selection'. There's no such thing as a life of being pushed around by circumstances or a life of doing as one is told.  It is you who selected to be 'swept along'"
 
-&mdash; [**Deadman Wonderland**](https://myanimelist.net/character.php?q=Deadman%20Wonderland&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Gin Kurobe**](https://myanimelist.net/character.php?q=Gin%20Kurobe&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
