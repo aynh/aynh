@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no reason a fake can't do what the real thing would. And it's possible for a fake to be more real than the real thing."
+> "*to Rei Miyamoto* I'd be an actor if I could look happy right now."
 
-&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Takashi Komuro**](https://myanimelist.net/character.php?q=Takashi%20Komuro&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
