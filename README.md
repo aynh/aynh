@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I thought that when I grew up, I could reach more and more. The delicious looking fruit beckoning from the highest branch.The beautiful shell hidden in the sand. If I could only stretch out my hand a little more…. But…. As everyone passes through the junctures of their life, they no longer stretch their hand to the sky, or crouch to the earth. Embarrassed, they ignore what they’d desired for so long. Will you reach out and grab me, grown up as I am?"
+> "Hey, Tsubaki, come out of there already. You haven't lost to him, have you? You can put on a better show than that, come back out on stage. Encore, encore. Tsubaki encore, give us an encore!"
 
-&mdash; [**Kou Ichinomiya**](https://myanimelist.net/character.php?q=Kou%20Ichinomiya&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
