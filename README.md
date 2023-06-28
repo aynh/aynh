@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I bet it's not easy to persevere in one's goal. I never tried, so I wouldn't know. But to achieve a goal, one must work hard even when no one is looking. Having a dream might not be all that great."
+> "Are flaws really bad? Because they are not perfect, they become worried. They don't stand still and instead move forward. After they become perfect, they will stand still. Incompleteness is the ideal."
 
-&mdash; [**Fujisaki Yusuke**](https://myanimelist.net/character.php?q=Fujisaki%20Yusuke&cat=character), [**Sket Dance**](https://myanimelist.net/search/all?q=Sket%20Dance&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
