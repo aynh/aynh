@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are flaws really bad? Because they are not perfect, they become worried. They don't stand still and instead move forward. After they become perfect, they will stand still. Incompleteness is the ideal."
+> "Don't tell me what to do, you seaweed head."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
