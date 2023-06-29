@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Understanding 100% of everything is impossible. That's why we spend all our lives trying to understand the thinking of others. That's what makes life so interesting."
+> "Why is it that the beautiful things are entwined more deeply with death than with life?"
 
-&mdash; [**Ryoji Kaji**](https://myanimelist.net/character.php?q=Ryoji%20Kaji&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
