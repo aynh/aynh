@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why is it that the beautiful things are entwined more deeply with death than with life?"
+> "No matter what changes, I'll still be me. And I can be whoever I want to be!"
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Amu Hinamori**](https://myanimelist.net/character.php?q=Amu%20Hinamori&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
