@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So you want to die honorably? You are being selfish. Each and every person you killed had his own life. Whether that life was blessed or not ... everyone is born into this world ... they grow up ... some people have family ... some are alone in this world ... some have young children ... some are engaged ... some have pets ...some people have high hopes and great dreams ... other have no ambition at all and you ended everything for them Takezo"
+> "Understanding 100% of everything is impossible. That's why we spend all our lives trying to understand the thinking of others. That's what makes life so interesting."
 
-&mdash; [**Takuan Sōhō**](https://myanimelist.net/character.php?q=Takuan%20S%C5%8Dh%C5%8D&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
+&mdash; [**Ryoji Kaji**](https://myanimelist.net/character.php?q=Ryoji%20Kaji&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
