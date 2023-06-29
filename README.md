@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As time passes, the day will come when everything will fade to memories. But, those miraculous days, when you and I along with everyone else, searched together for just one thing... will continue revolving forever. Somewhere deep in my heart as my bittersweet memory."
+> "When I began thinking of him as I fell asleep, I stopped having nightmares. I began to look forward to seeing him. For the first time since I arrived here, I was happy."
 
-&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
