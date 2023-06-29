@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regret is a powerful poison. The more you harbor those thoughts, the harder it is to move on."
+> "*referring to Sokka* He's just upset because a bunch of girls kicked his butt yesterday."
 
-&mdash; [**Sakurako Amamiya**](https://myanimelist.net/character.php?q=Sakurako%20Amamiya&cat=character), [**Psyren**](https://myanimelist.net/search/all?q=Psyren&cat=all)
+&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
