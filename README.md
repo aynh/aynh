@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It won't work. You country-bumpkins will stand out a mile. [Eats food with her hands]"
+> "In the end, L is indeed the greatest detective on earth..."
 
-&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
