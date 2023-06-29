@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Eliot* Fred, Claude, Ernest... The Head Hunter killed all of them! Because of that, our mother lost her mind... And... Fell prey to the lies of that foreigner. And our father still pretends to not notice what's going on!.."
+> "Regret is a powerful poison. The more you harbor those thoughts, the harder it is to move on."
 
-&mdash; [**Vanessa Nightray**](https://myanimelist.net/character.php?q=Vanessa%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Sakurako Amamiya**](https://myanimelist.net/character.php?q=Sakurako%20Amamiya&cat=character), [**Psyren**](https://myanimelist.net/search/all?q=Psyren&cat=all)
