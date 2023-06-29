@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh great, it's a kid! I thought I was rescuing a babe, a luscious damsel in distress, not some flat chested little girl."
+> "Don't worry. When people break their old selves they embark a journey to find their new selves."
 
-&mdash; [**Gourry Gabriev**](https://myanimelist.net/character.php?q=Gourry%20Gabriev&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
