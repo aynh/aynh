@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're proud of your white clothes?.. It sounds like a laundry detergent commercial."
+> "Every brilliant day should be lived for those who passed away."
 
-&mdash; [**Pesche Guatiche**](https://myanimelist.net/character.php?q=Pesche%20Guatiche&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
