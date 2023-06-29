@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end, L is indeed the greatest detective on earth..."
+> "It doesn't seem right to let a girl choose me. I would rather choose the girl I devote myself to."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Taichi Mashima**](https://myanimelist.net/character.php?q=Taichi%20Mashima&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
