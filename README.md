@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I began thinking of him as I fell asleep, I stopped having nightmares. I began to look forward to seeing him. For the first time since I arrived here, I was happy."
+> "Jojo, being human means having limits. I've learned something. The more carefully you scheme, the more unexpected events come along"
 
-&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Dio Brando**](https://myanimelist.net/character.php?q=Dio%20Brando&cat=character), [**JoJo's Bizarre Adventure: Phantom Blood**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Phantom%20Blood&cat=all)
