@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Jojo, being human means having limits. I've learned something. The more carefully you scheme, the more unexpected events come along"
+> "No one cared who I was until I put on a mask."
 
-&mdash; [**Dio Brando**](https://myanimelist.net/character.php?q=Dio%20Brando&cat=character), [**JoJo's Bizarre Adventure: Phantom Blood**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Phantom%20Blood&cat=all)
+&mdash; [**Obito Uchiha**](https://myanimelist.net/character.php?q=Obito%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
