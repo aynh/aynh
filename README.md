@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're at a loss for words, you don't have to force yourself. That in itself is a form of comfort."
+> "If I can get my target to move as I want, I've succeeded as a Hunter."
 
-&mdash; [**Shouta Kazehaya**](https://myanimelist.net/character.php?q=Shouta%20Kazehaya&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Ging Freecss**](https://myanimelist.net/character.php?q=Ging%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
