@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Like God, you mean? That might be pleasurable in its own way, but unfortunately I'm not into being an umpire or a referee, as I can't genuinely enjoy the game unless I'm part of it. And I love this game that people call 'life' from the bottom of my heart. That's why I'd like to continue to participate in it as a player, forever and ever."
+> "Sorry. I don't believe in fate. I explore my future with my own strength. Good or bad, it's my own choice."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Manjoume Jun**](https://myanimelist.net/character.php?q=Manjoume%20Jun&cat=character), [**Yu-Gi-Oh! Duel Monsters GX**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Duel%20Monsters%20GX&cat=all)
