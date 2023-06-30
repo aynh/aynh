@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We all live in the space between one moment and eternity. We meet and part. Everyone lives their lives to the fullest in a world where things change with the passage of time. But I'm sure some things won't ever change. There also things that change and can never be gotten back. But we already now. Even if things change, they'll begin anew. And as long as we have the will, humans will always move on forward. For we can accelerate."
+> "Yeah, if I saw her smiling to herself while reading this, I might think it was creepy. But there's something wrong with people who talk trash and laugh behind another's back, too."
 
-&mdash; [**Haruyuki Arita**](https://myanimelist.net/character.php?q=Haruyuki%20Arita&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
+&mdash; [**Shougo Kiryuu**](https://myanimelist.net/character.php?q=Shougo%20Kiryuu&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
