@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah, if I saw her smiling to herself while reading this, I might think it was creepy. But there's something wrong with people who talk trash and laugh behind another's back, too."
+> "Treecko! Use your Tail Slap attack!"
 
-&mdash; [**Shougo Kiryuu**](https://myanimelist.net/character.php?q=Shougo%20Kiryuu&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
