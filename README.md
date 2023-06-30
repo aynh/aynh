@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We have walked through the darkness of this world, that’s why we are able to see even a sliver of light."
+> "Do they love you, or the mask you put every day?"
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Shido Itsuka**](https://myanimelist.net/character.php?q=Shido%20Itsuka&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
