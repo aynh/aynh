@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no point in having physical strength alone. The real deal needs to have mental strength and will."
+> "We have walked through the darkness of this world, that’s why we are able to see even a sliver of light."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
