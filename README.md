@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you meet your God tell him to leave me alone."
+> "A wall's a wall and there's no wall I can't punch a hole through!"
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Kiba Inuzuka**](https://myanimelist.net/character.php?q=Kiba%20Inuzuka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
