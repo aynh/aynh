@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can steal the very last bite of my very best food. You can mock me all you want. But if you insult my best friend, I will obliterate you."
+> "When you meet your God tell him to leave me alone."
 
-&mdash; [**Choji Akamichi**](https://myanimelist.net/character.php?q=Choji%20Akamichi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
