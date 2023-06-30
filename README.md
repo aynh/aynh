@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry. I don't believe in fate. I explore my future with my own strength. Good or bad, it's my own choice."
+> "I came to realize something. Parenthesis are amazing! No matter how negative something sounds, if you throw 'LOL' in some parentheses behind it - it becomes positive!"
 
-&mdash; [**Manjoume Jun**](https://myanimelist.net/character.php?q=Manjoume%20Jun&cat=character), [**Yu-Gi-Oh! Duel Monsters GX**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Duel%20Monsters%20GX&cat=all)
+&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
