@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I came to realize something. Parenthesis are amazing! No matter how negative something sounds, if you throw 'LOL' in some parentheses behind it - it becomes positive!"
+> "Karla, nothing can surpass a human's curiosity."
 
-&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Grisha Jaeger**](https://myanimelist.net/character.php?q=Grisha%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
