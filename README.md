@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm the one who's in the wrong, so if you really want to break someone's nose, break mine."
+> "We all live in the space between one moment and eternity. We meet and part. Everyone lives their lives to the fullest in a world where things change with the passage of time. But I'm sure some things won't ever change. There also things that change and can never be gotten back. But we already now. Even if things change, they'll begin anew. And as long as we have the will, humans will always move on forward. For we can accelerate."
 
-&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
+&mdash; [**Haruyuki Arita**](https://myanimelist.net/character.php?q=Haruyuki%20Arita&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
