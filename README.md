@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If anyone does not love the Lord Jesus Christ, let them be accursed at His coming. God save you from your fate. Amen!"
+> "It's not a matter of real or fake. These avatars are idols on the net. in other words - icons. Icons cannot solely exist through their own will. Neither Hayama nor Sugawara established their status on their own. They were able to become Talsiman and Spooky Boogie because their fans idolized them based on their own distorted perceptions. Their true feelings and colors are not the same as the ideals their characters represents. It's not surprising that a fan could do a better job than the real owners of playing the idol the fans expect to see."
 
-&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
+&mdash; [**Kougami Shinya**](https://myanimelist.net/character.php?q=Kougami%20Shinya&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
