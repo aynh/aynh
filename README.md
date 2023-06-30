@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I can get my target to move as I want, I've succeeded as a Hunter."
+> "You can steal the very last bite of my very best food. You can mock me all you want. But if you insult my best friend, I will obliterate you."
 
-&mdash; [**Ging Freecss**](https://myanimelist.net/character.php?q=Ging%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Choji Akamichi**](https://myanimelist.net/character.php?q=Choji%20Akamichi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
