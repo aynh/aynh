@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do they love you, or the mask you put every day?"
+> "I'm the one who's in the wrong, so if you really want to break someone's nose, break mine."
 
-&mdash; [**Shido Itsuka**](https://myanimelist.net/character.php?q=Shido%20Itsuka&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
+&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
