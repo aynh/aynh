@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you lovingly collect every last piece of a shattered cup, pieces are still pieces. Once something breaks, it can never return."
+> "'... Although this won't happen instantly, as long as you have the thought, you will have a chance. Because at the moment you want to change, you have already taken the first step to changing.'"
 
-&mdash; [**Ryuuguu Rena**](https://myanimelist.net/character.php?q=Ryuuguu%20Rena&cat=character), [**Higurashi no Naku Koro ni Rei**](https://myanimelist.net/search/all?q=Higurashi%20no%20Naku%20Koro%20ni%20Rei&cat=all)
+&mdash; [**Tachibana Hotaru**](https://myanimelist.net/character.php?q=Tachibana%20Hotaru&cat=character), [**Aoharu x Kikanjuu**](https://myanimelist.net/search/all?q=Aoharu%20x%20Kikanjuu&cat=all)
