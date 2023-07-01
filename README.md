@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm gonna take you out in one giant bug blitzkrieg!"
+> "Miracles are illusions caused by insufficient observation and understanding. They're just... glorious misunderstandings."
 
-&mdash; [**Underwood Weevil**](https://myanimelist.net/character.php?q=Underwood%20Weevil&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Tanya Degurechaff**](https://myanimelist.net/character.php?q=Tanya%20Degurechaff&cat=character), [**Youjo Senki**](https://myanimelist.net/search/all?q=Youjo%20Senki&cat=all)
