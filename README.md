@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey, Shippo. Your village called.They're asking for their idiot!"
+> "Even the worst evil saves something... even the greatest good hurts someone."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Rouka Numachi**](https://myanimelist.net/character.php?q=Rouka%20Numachi&cat=character), [**Hanamonogatari**](https://myanimelist.net/search/all?q=Hanamonogatari&cat=all)
