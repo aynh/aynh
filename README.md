@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you believe in your dreams, I will prove to you, that you can achieve your dreams just by working hard."
+> "Konoha's Uchiha clan and the Mist's Seven Shinobi-gatana seem petty before his name."
 
-&mdash; [**Rock Lee**](https://myanimelist.net/character.php?q=Rock%20Lee&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kisame Hoshigaki**](https://myanimelist.net/character.php?q=Kisame%20Hoshigaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
