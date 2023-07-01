@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's nothing known for certain. Adolescence is like that anyway. It's like a train ride with no destination and nobody. There's no destination and outside everything is flashing by so you can't see anything."
+> "While we are talking of peace, people are dying."
 
-&mdash; [**Choi Yool**](https://myanimelist.net/character.php?q=Choi%20Yool&cat=character), [**Gaussian Blur**](https://myanimelist.net/search/all?q=Gaussian%20Blur&cat=all)
+&mdash; [**Setsuna F. Seiei**](https://myanimelist.net/character.php?q=Setsuna%20F.%20Seiei&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
