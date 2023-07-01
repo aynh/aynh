@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Karla, nothing can surpass a human's curiosity."
+> "Hey, Shippo. Your village called.They're asking for their idiot!"
 
-&mdash; [**Grisha Jaeger**](https://myanimelist.net/character.php?q=Grisha%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
