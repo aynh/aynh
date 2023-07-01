@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Konoha's Uchiha clan and the Mist's Seven Shinobi-gatana seem petty before his name."
+> "[after masturbating over Asuka's comatose body] I'm so fucked up."
 
-&mdash; [**Kisame Hoshigaki**](https://myanimelist.net/character.php?q=Kisame%20Hoshigaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Shinji Ikari**](https://myanimelist.net/character.php?q=Shinji%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
