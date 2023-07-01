@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone's birthplace and upbringing is different. It's obviously impossible for them to understand each other."
+> "Even when our eyes are closed, there's a whole world out there that lives outside ourselves and our dreams."
 
-&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
