@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even when our eyes are closed, there's a whole world out there that lives outside ourselves and our dreams."
+> "If you believe in your dreams, I will prove to you, that you can achieve your dreams just by working hard."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Rock Lee**](https://myanimelist.net/character.php?q=Rock%20Lee&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
