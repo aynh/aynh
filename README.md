@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My new family is just so kind. It's almost if there's been some kind of mistake... like, I'll have to pay back for all this happiness later on."
+> "Stop meddling in Team Rocket's affairs!"
 
-&mdash; [**Nao Yasumori**](https://myanimelist.net/character.php?q=Nao%20Yasumori&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Rocket Grunt**](https://myanimelist.net/character.php?q=Rocket%20Grunt&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
