@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At first, everyone is disgusted. Afraid to bear the sin of killing people. Afraid to receive punishment for replenishing themselves with the life of another. But, once you realize that you won't be punished for killing people, you get used to the guilt pretty soon. The guilt of using humans for food. Aren't humans the same?"
+> "Immersed in ecstasy from killing weak things... A burdensome corpse with no benefit to people. Someone like that... I can't possibly forgive!"
 
-&mdash; [**Mutou Tohru**](https://myanimelist.net/character.php?q=Mutou%20Tohru&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Rikuo Nura**](https://myanimelist.net/character.php?q=Rikuo%20Nura&cat=character), [**Nura: Rise of the Yokai Clan**](https://myanimelist.net/search/all?q=Nura%3A%20Rise%20of%20the%20Yokai%20Clan&cat=all)
