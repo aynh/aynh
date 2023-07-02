@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop meddling in Team Rocket's affairs!"
+> "When you point a sword at someone, either you kill them or they kill you, there ain't no in between. So quit talkin' like a fuckin' pussy. Anyone who can't handle that should just SHUT THE FUCK UP and GET OVER IT!"
 
-&mdash; [**Rocket Grunt**](https://myanimelist.net/character.php?q=Rocket%20Grunt&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
