@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're your own worst enemy. If your worries and doubts torment you, then just stop thinking about them."
+> "Do you value your life? Do you think that your family and friends are important to you? If they are, then you should never think of changing yourself. Otherwise, you will lose everything that is precious to you."
 
-&mdash; [**Binboda Momiji**](https://myanimelist.net/character.php?q=Binboda%20Momiji&cat=character), [**Binbougami Ga!**](https://myanimelist.net/search/all?q=Binbougami%20Ga!&cat=all)
+&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Puella Magi Madoka Magica**](https://myanimelist.net/search/all?q=Puella%20Magi%20Madoka%20Magica&cat=all)
