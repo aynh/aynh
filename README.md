@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We can't let the past be mere water under the bridge. Even so, there's no reason that we can't come together."
+> "Rather than leaving someone to die, I'd much rather die together with them."
 
-&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
