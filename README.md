@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you point a sword at someone, either you kill them or they kill you, there ain't no in between. So quit talkin' like a fuckin' pussy. Anyone who can't handle that should just SHUT THE FUCK UP and GET OVER IT!"
+> "Even if I can't see. Even if I can't hear. I have light inside me. The path I walked with my friends, is bringing light to my future. I don't fear anything! This isn't even worthy of being called pain! The worst pain is.. The pain of losing your light."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
