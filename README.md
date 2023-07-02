@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bite my ankles shorty, I swear I'll make you cry to your mom! If you have a mom, that is!"
+> "You're your own worst enemy. If your worries and doubts torment you, then just stop thinking about them."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Binboda Momiji**](https://myanimelist.net/character.php?q=Binboda%20Momiji&cat=character), [**Binbougami Ga!**](https://myanimelist.net/search/all?q=Binbougami%20Ga!&cat=all)
