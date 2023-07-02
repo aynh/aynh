@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's my own recipe which I call Misty's mystery stew, and it's got 47 secret ingredients."
+> "Kurosaki Ichigo, you have no chance of defeating me. Even if you somehow manage to defeat me, there will be three more powerful than myself for you to fight. It doesn't matter if you stand up again a thousand times. The road to victory does not exist."
 
-&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
