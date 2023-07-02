@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you value your life? Do you think that your family and friends are important to you? If they are, then you should never think of changing yourself. Otherwise, you will lose everything that is precious to you."
+> "At first, everyone is disgusted. Afraid to bear the sin of killing people. Afraid to receive punishment for replenishing themselves with the life of another. But, once you realize that you won't be punished for killing people, you get used to the guilt pretty soon. The guilt of using humans for food. Aren't humans the same?"
 
-&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Puella Magi Madoka Magica**](https://myanimelist.net/search/all?q=Puella%20Magi%20Madoka%20Magica&cat=all)
+&mdash; [**Mutou Tohru**](https://myanimelist.net/character.php?q=Mutou%20Tohru&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
