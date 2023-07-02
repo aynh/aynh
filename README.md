@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kurosaki Ichigo, you have no chance of defeating me. Even if you somehow manage to defeat me, there will be three more powerful than myself for you to fight. It doesn't matter if you stand up again a thousand times. The road to victory does not exist."
+> "Bite my ankles shorty, I swear I'll make you cry to your mom! If you have a mom, that is!"
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
