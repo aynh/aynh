@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Games are not boring. Games purify our souls and leave room for new development that challenges the mind! They are the products of human wisdom!"
+> "Neutral Jing is the key to earthbending. It involves listening and waiting for the right moment to strike."
 
-&mdash; [**Seto Kaiba**](https://myanimelist.net/character.php?q=Seto%20Kaiba&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**King Bumi**](https://myanimelist.net/character.php?q=King%20Bumi&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
