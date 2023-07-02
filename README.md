@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Treecko! Use your Tail Slap attack!"
+> "My new family is just so kind. It's almost if there's been some kind of mistake... like, I'll have to pay back for all this happiness later on."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Nao Yasumori**](https://myanimelist.net/character.php?q=Nao%20Yasumori&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
