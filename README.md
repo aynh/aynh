@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For me to call a man my friend, he must be equal to me in all respects."
+> "I want to believe that life isn't full of darkness. Even if storms come to pass, the sun will shine again. No matter how painful and hard the rain my beat down on me."
 
-&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Akito Sohma**](https://myanimelist.net/character.php?q=Akito%20Sohma&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
