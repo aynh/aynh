@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you hurt someone, you must be prepared to receive the same amount in return."
+> "Even innocent foolish children will grow up in the face of pain, until their thoughts and beliefs are the same as their doubts."
 
-&mdash; [**Mana Ouma**](https://myanimelist.net/character.php?q=Mana%20Ouma&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
