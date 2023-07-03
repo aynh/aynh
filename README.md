@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life's but a waking shadow. A poor player, that struts and frets his hour upon the stage And then is heard no more. No matter how hopelessly they struggle in the light, they all die without meaning. Licht-tans's piano skills are amazing, but see... be it you or anyone, it's impossible to become anything. Human life is so meaningless..."
+> "It's a mystery. Just because of a simple sentence... I get shaken... or I get happy. Kyo-kun is mysterious indeed. (After Kyo says, 'You wanna kill some time... with me?')"
 
-&mdash; [**Lawless**](https://myanimelist.net/character.php?q=Lawless&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
