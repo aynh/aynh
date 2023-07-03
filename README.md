@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who do not fear the sword they wield, have no right to wield a sword at all."
+> "Life's but a waking shadow. A poor player, that struts and frets his hour upon the stage And then is heard no more. No matter how hopelessly they struggle in the light, they all die without meaning. Licht-tans's piano skills are amazing, but see... be it you or anyone, it's impossible to become anything. Human life is so meaningless..."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Lawless**](https://myanimelist.net/character.php?q=Lawless&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
