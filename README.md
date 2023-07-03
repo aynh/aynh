@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Neutral Jing is the key to earthbending. It involves listening and waiting for the right moment to strike."
+> "I guess once you start doubting, there's no end to it."
 
-&mdash; [**King Bumi**](https://myanimelist.net/character.php?q=King%20Bumi&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Batou**](https://myanimelist.net/character.php?q=Batou&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
