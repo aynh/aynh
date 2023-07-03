@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We should work towards world peace. Like giving everyone in the world an Upa cushion..."
+> "Mom, dad, Risa became a delinquent!"
 
-&mdash; [**Mayuri Shiina**](https://myanimelist.net/character.php?q=Mayuri%20Shiina&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Riku Harada**](https://myanimelist.net/character.php?q=Riku%20Harada&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
