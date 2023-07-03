@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Memories... of the people we were. They're subtle, but they're real. It took me a lot of time to understand what I saw. Books say we shouldn't have memories. Or at least that they're only the memories and emotions of the alchemists who made us. But they are wrong. Those memories are mine."
+> "Is that the kinda attitude you show to someone concerned about you?! What's gonna happen to the person who wants to see ya, huh?!?! Its obvious... Its obvious you wish to see each other... SO COME AND FREAKIN' SEE ME ALREADY!!"
 
-&mdash; [**Lust**](https://myanimelist.net/character.php?q=Lust&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
