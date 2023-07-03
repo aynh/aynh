@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I guess once you start doubting, there's no end to it."
+> "If I fail to make my every-minute reports, a gang of 5,000 brutes will attack your whole family."
 
-&mdash; [**Batou**](https://myanimelist.net/character.php?q=Batou&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
