@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is simply an electrical bug in the human neural circuit."
+> "Confidence is a temporary condition, that lasts until you actually understand the situation."
 
-&mdash; [**Akasaka Ryuunosuke**](https://myanimelist.net/character.php?q=Akasaka%20Ryuunosuke&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Larry Bison**](https://myanimelist.net/character.php?q=Larry%20Bison&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
