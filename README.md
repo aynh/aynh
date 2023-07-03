@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Confidence is a temporary condition, that lasts until you actually understand the situation."
+> "I never wanted to save the world or make everyone happy. I never wanted to play God like that. If I could just save my family, and my friends… If I could just be a hero like that, I’d be happy."
 
-&mdash; [**Larry Bison**](https://myanimelist.net/character.php?q=Larry%20Bison&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica: The Different Story**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica%3A%20The%20Different%20Story&cat=all)
