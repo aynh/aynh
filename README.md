@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, it IS a chore. Risking your life and keeping busy are all the same!"
+> "Whether you're alive, dead, or living dead... Loneliness is still loneliness... It's the same thing... Nothing changes. There are no different categories of loneliness. It's just loneliness."
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kurosu Etsurou**](https://myanimelist.net/character.php?q=Kurosu%20Etsurou&cat=character), [**Ana Satsujin**](https://myanimelist.net/search/all?q=Ana%20Satsujin&cat=all)
