@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You do them one favor and they think you're their best friend. This is why I could care less if their entire species was swallowed up."
+> "There's no more trusted observer than someone who suspects you."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
