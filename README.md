@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't tell people to disappear like it's nothing! Words can hurt people! You can't ever take them back! Even if you regret it, you can never take them back!"
+> "A temporary defeat is nothing if it leads to ultimate victory!"
 
-&mdash; [**Naruse Jun**](https://myanimelist.net/character.php?q=Naruse%20Jun&cat=character), [**Kokoro ga Sakebitagatterunda.**](https://myanimelist.net/search/all?q=Kokoro%20ga%20Sakebitagatterunda.&cat=all)
+&mdash; [**Stephanie Dola**](https://myanimelist.net/character.php?q=Stephanie%20Dola&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
