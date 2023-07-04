@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether you're alive, dead, or living dead... Loneliness is still loneliness... It's the same thing... Nothing changes. There are no different categories of loneliness. It's just loneliness."
+> "You see, the world will not change through naive talks."
 
-&mdash; [**Kurosu Etsurou**](https://myanimelist.net/character.php?q=Kurosu%20Etsurou&cat=character), [**Ana Satsujin**](https://myanimelist.net/search/all?q=Ana%20Satsujin&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
