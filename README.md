@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing is unforgivable. So if you cannot forgive him, it means you do not want to."
+> "The ordinary days that we live in may, in fact, be a series of miracles."
 
-&mdash; [**Shirley Fenette**](https://myanimelist.net/character.php?q=Shirley%20Fenette&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Koujirou Sasahara**](https://myanimelist.net/character.php?q=Koujirou%20Sasahara&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
