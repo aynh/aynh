@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there are people you would call naturals, because they were gifted with talent, and if my two rivals (Florence Alicia and Glory Athena) are such naturals, then I just need to have a talent that exceeds theirs, through hard work. Yes, I just have to become a prodigy."
+> "If you are doing it, I'm doing it. If I don't do it, will you? If you don't do it, I'll do it. I'm doing it so that you'll do it too!!"
 
-&mdash; [**Ferrari Akira E.**](https://myanimelist.net/character.php?q=Ferrari%20Akira%20E.&cat=character), [**Aria the Origination**](https://myanimelist.net/search/all?q=Aria%20the%20Origination&cat=all)
+&mdash; [**Kamina**](https://myanimelist.net/character.php?q=Kamina&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
