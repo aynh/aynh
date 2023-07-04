@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no more trusted observer than someone who suspects you."
+> "Don't tell people to disappear like it's nothing! Words can hurt people! You can't ever take them back! Even if you regret it, you can never take them back!"
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Naruse Jun**](https://myanimelist.net/character.php?q=Naruse%20Jun&cat=character), [**Kokoro ga Sakebitagatterunda.**](https://myanimelist.net/search/all?q=Kokoro%20ga%20Sakebitagatterunda.&cat=all)
