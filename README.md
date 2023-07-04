@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're only resorting to physical abuse because you can't prove that I'm wrong."
+> "Idiots should do what idiots can to be quicker."
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Akito Sohma**](https://myanimelist.net/character.php?q=Akito%20Sohma&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
