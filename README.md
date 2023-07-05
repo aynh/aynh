@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You were like a bomb, one wrong move and I might have lost you again."
+> "It must make you sick to know an underling like me is going to kill you."
 
-&mdash; [**Hayashida Nana**](https://myanimelist.net/character.php?q=Hayashida%20Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
