@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My legend dates back to the 12th Century you see. My legend is quite old. The 12th Century was a long time ago."
+> "[after Hisagi thanks him] Aren't you clever? Is that supposed to be sarcastic?"
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
