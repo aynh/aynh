@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe you are right. Where did I come from and where will I go? When I die? Maybe all this time that is what I wanted: the freedom to find out."
+> "If you cling to life, you live in fear of death. And that fear will cloud your judgment."
 
-&mdash; [**Lust**](https://myanimelist.net/character.php?q=Lust&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
