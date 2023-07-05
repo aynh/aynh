@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A temporary defeat is nothing if it leads to ultimate victory!"
+> "The amount of money one owns ultimately decides the victor. This doesn't stop within the walls of a casino, or it's cash flow. It's a rule that forms the basis for a capitalist society!"
 
-&mdash; [**Stephanie Dola**](https://myanimelist.net/character.php?q=Stephanie%20Dola&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Jabami Yumeko**](https://myanimelist.net/character.php?q=Jabami%20Yumeko&cat=character), [**Kakegurui**](https://myanimelist.net/search/all?q=Kakegurui&cat=all)
