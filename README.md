@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's the problem... to being different? Even if Vincent-sama is a Baskerville, as you say, even if he is completely different from me, it doesn't matter. I don't care if we're different! And if he really is that different, that's just one more reason to try to understand him!"
+> "Death is simply another stage of our life."
 
-&mdash; [**Ada Vessalius**](https://myanimelist.net/character.php?q=Ada%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Grand Elder Guru**](https://myanimelist.net/character.php?q=Grand%20Elder%20Guru&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
