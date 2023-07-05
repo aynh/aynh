@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It must make you sick to know an underling like me is going to kill you."
+> "If you let the fly live, the spider is going to die. You can't save both without one suffering."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Millions Knives**](https://myanimelist.net/character.php?q=Millions%20Knives&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
