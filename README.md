@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death is simply another stage of our life."
+> "My legend dates back to the 12th Century you see. My legend is quite old. The 12th Century was a long time ago."
 
-&mdash; [**Grand Elder Guru**](https://myanimelist.net/character.php?q=Grand%20Elder%20Guru&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
