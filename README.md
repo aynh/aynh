@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after Hisagi thanks him] Aren't you clever? Is that supposed to be sarcastic?"
+> "We might be scared but that's what makes us stronger!"
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
