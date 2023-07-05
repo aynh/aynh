@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love for the dead is pointless. We fight to keep them alive, that is all."
+> "Okay, here's the plan: We go in, start hitting people, and see where it takes us."
 
-&mdash; [**Olivier Mira Armstrong**](https://myanimelist.net/character.php?q=Olivier%20Mira%20Armstrong&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
