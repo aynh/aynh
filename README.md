@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The amount of money one owns ultimately decides the victor. This doesn't stop within the walls of a casino, or it's cash flow. It's a rule that forms the basis for a capitalist society!"
+> "If you can move on, then you should."
 
-&mdash; [**Jabami Yumeko**](https://myanimelist.net/character.php?q=Jabami%20Yumeko&cat=character), [**Kakegurui**](https://myanimelist.net/search/all?q=Kakegurui&cat=all)
+&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
