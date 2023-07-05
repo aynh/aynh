@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are weak... but we want to live. Even if we're wounded... or tortured... we feel the pain."
+> "'I would die for you' is what the weak say. If you're in love with someone - live for them."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Ross**](https://myanimelist.net/character.php?q=Ross&cat=character), [**Senyuu. 2**](https://myanimelist.net/search/all?q=Senyuu.%202&cat=all)
