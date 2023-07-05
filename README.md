@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'I would die for you' is what the weak say. If you're in love with someone - live for them."
+> "Maybe you are right. Where did I come from and where will I go? When I die? Maybe all this time that is what I wanted: the freedom to find out."
 
-&mdash; [**Ross**](https://myanimelist.net/character.php?q=Ross&cat=character), [**Senyuu. 2**](https://myanimelist.net/search/all?q=Senyuu.%202&cat=all)
+&mdash; [**Lust**](https://myanimelist.net/character.php?q=Lust&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
