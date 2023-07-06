@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't feel anything for me, just leave me alone. I don't want your tepid kindness."
+> "Haven't you ever thought that life would be better if it was a game?"
 
-&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Dong Taebin**](https://myanimelist.net/character.php?q=Dong%20Taebin&cat=character), [**Dice: The Cube That Changes Everything**](https://myanimelist.net/search/all?q=Dice%3A%20The%20Cube%20That%20Changes%20Everything&cat=all)
