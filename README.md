@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Smiles are what connect people! It allows them to communicate through their souls! Connected souls will never lose to the strength that only relies on control! Dueling is the same! Only strength alone doesn't speak to anyone's soul!"
+> "Humans easily betray others. That's just the nature of them."
 
-&mdash; [**Yuzu Hiiragi**](https://myanimelist.net/character.php?q=Yuzu%20Hiiragi&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
+&mdash; [**Wakabayashi Hatsuna**](https://myanimelist.net/character.php?q=Wakabayashi%20Hatsuna&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
