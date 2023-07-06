@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I would be nothing without you."
+> "Rather than not doing anything and regretting it, we should do something and regret it."
 
-&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Yakumo Tsukamoto**](https://myanimelist.net/character.php?q=Yakumo%20Tsukamoto&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
