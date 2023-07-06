@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But even if I acted sad over it, nothing would change. Even if I cry, nothing would change."
+> "If people could become friends simply by sharing bread and salt, life would be simpler."
 
-&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Peppo**](https://myanimelist.net/character.php?q=Peppo&cat=character), [**Gankutsuou**](https://myanimelist.net/search/all?q=Gankutsuou&cat=all)
