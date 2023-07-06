@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Katara* Try to understand. I need to capture him to restore something I've lost. [Katara jerks her head away from Zuko] Perhaps in exchange, I can restore something you've lost."
+> "Don't improvise what you cannot handle."
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
