@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have the strongest armour, because you are the weakest!"
+> "How is this possible? I must be the first person in history who was flushed down the toilet!"
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Yuri Shibuya**](https://myanimelist.net/character.php?q=Yuri%20Shibuya&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
