@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm inadequate in everything."
+> "Smiles are what connect people! It allows them to communicate through their souls! Connected souls will never lose to the strength that only relies on control! Dueling is the same! Only strength alone doesn't speak to anyone's soul!"
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yuzu Hiiragi**](https://myanimelist.net/character.php?q=Yuzu%20Hiiragi&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
