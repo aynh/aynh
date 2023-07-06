@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There isn’t just one truth. That truth only exists because a few people saw it. If you don’t believe what the books say, then you should go see the world for yourself."
+> "I'm always being told that I don't understand other people's feelings, and also that I don't understand what others are thinking. And I agree. But... If you don't try to stem the tears of a girl crying out for help, you're the lowest kind of man."
 
-&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Kasuka Heiwajima**](https://myanimelist.net/character.php?q=Kasuka%20Heiwajima&cat=character), [**Durarara!!×2**](https://myanimelist.net/search/all?q=Durarara!!%C3%972&cat=all)
