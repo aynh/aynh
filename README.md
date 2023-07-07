@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[about Ulquiorra Cifer, after he takes out Ichigo] I'll teach him what happens when you steal someone else's prey."
+> "A name has nothing to do with loving someone."
 
-&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Seiji Yagiri**](https://myanimelist.net/character.php?q=Seiji%20Yagiri&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
