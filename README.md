@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Excalibur! Excalibur! From the United K! I'm looking for heaven! I'm going to California!"
+> "'Time' is proof that people have lived. Every person lives the time that has been given to them... that is life."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
