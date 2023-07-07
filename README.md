@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The thread of human hope is spun with the flax of sorrow."
+> "'Why must everyone make such a fuss over the death of a single soldier? The moment a soldier dons his uniform, he accepts the reality that he might be buried in it.'"
 
-&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
