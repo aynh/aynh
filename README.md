@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Time' is proof that people have lived. Every person lives the time that has been given to them... that is life."
+> "Why do people depend on each other? In the end you're on your own."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Squall Leonhart**](https://myanimelist.net/character.php?q=Squall%20Leonhart&cat=character), [**Final Fantasy VIII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VIII&cat=all)
