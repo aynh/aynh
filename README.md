@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how much is in your heart, if you don’t tell that person, then it’s meaningless."
+> "Forgive my rudeness, but to hide your true self and make a vain display... I think that's just running away from reality. To know what you are really like, and acknowledge it... A positive thinking of enjoying yourself... isn't that what true strength is?"
 
-&mdash; [**Junjou Romantica**](https://myanimelist.net/character.php?q=Junjou%20Romantica&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
