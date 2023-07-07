@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I become Fuhrer President, all female personnel in the military ... will have to wear mini-skirts."
+> "[about Ulquiorra Cifer, after he takes out Ichigo] I'll teach him what happens when you steal someone else's prey."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
