@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For a man to stand up again, he needs one thing... 'To make excuses'."
+> "I've never talked to a girl before. I don't know how to handle it."
 
-&mdash; [**Takamura Mamoru**](https://myanimelist.net/character.php?q=Takamura%20Mamoru&cat=character), [**Hajime no Ippo - Champion Road**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo%20-%20Champion%20Road&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
