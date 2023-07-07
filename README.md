@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey bitch, get off me! I'm supposed to be on top!"
+> "No matter how much is in your heart, if you don’t tell that person, then it’s meaningless."
 
-&mdash; [**Jan Valentine**](https://myanimelist.net/character.php?q=Jan%20Valentine&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Junjou Romantica**](https://myanimelist.net/character.php?q=Junjou%20Romantica&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
