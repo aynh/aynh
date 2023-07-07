@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ironic, isn't it? How people without truly important things know about them more than those who have them."
+> "Any event is a personal episode, where only those involved comprehend what's happening."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kuro Fukase**](https://myanimelist.net/character.php?q=Kuro%20Fukase&cat=character), [**ib: Instant Bullet**](https://myanimelist.net/search/all?q=ib%3A%20Instant%20Bullet&cat=all)
