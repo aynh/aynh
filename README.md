@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Rely on your Instinct, rather than Logic."
+> "When I become Fuhrer President, all female personnel in the military ... will have to wear mini-skirts."
 
-&mdash; [**Takeshi Yamamoto**](https://myanimelist.net/character.php?q=Takeshi%20Yamamoto&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
