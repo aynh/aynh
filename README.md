@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A name has nothing to do with loving someone."
+> "Excalibur! Excalibur! From the United K! I'm looking for heaven! I'm going to California!"
 
-&mdash; [**Seiji Yagiri**](https://myanimelist.net/character.php?q=Seiji%20Yagiri&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
