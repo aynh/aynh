@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Isn’t there something strange in becoming friends because you’re asked? Friends aren’t given; you’re supposed to make them."
+> "Hey, if you take a step over that line, your territorial law won't mean shit!"
 
-&mdash; [**Fujibayashi Kyou**](https://myanimelist.net/character.php?q=Fujibayashi%20Kyou&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Isao Kondō**](https://myanimelist.net/character.php?q=Isao%20Kond%C5%8D&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
