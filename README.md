@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Care to little, you lose them. Care too much, you get hurt."
+> "Isn’t there something strange in becoming friends because you’re asked? Friends aren’t given; you’re supposed to make them."
 
-&mdash; [**Gajeel Redfox**](https://myanimelist.net/character.php?q=Gajeel%20Redfox&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Fujibayashi Kyou**](https://myanimelist.net/character.php?q=Fujibayashi%20Kyou&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
