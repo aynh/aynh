@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I no longer even dream, for I no longer sleep. So I had this golden enclosed garden made. However, now the only place where I can be myself is in this room. And my wealth is just this one glass of water."
+> "If we have time to get upset, we should have used that time to move on… Even if just one step forward!"
 
-&mdash; [**The Count of Monte Cristo**](https://myanimelist.net/character.php?q=The%20Count%20of%20Monte%20Cristo&cat=character), [**Gankutsuou: The Count of Monte Cristo**](https://myanimelist.net/search/all?q=Gankutsuou%3A%20The%20Count%20of%20Monte%20Cristo&cat=all)
+&mdash; [**Kise Ryouta**](https://myanimelist.net/character.php?q=Kise%20Ryouta&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
