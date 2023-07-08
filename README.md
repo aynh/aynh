@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Give advice and good guidance, then halt if such is of no avail. Do not disgrace yourself for it."
+> "Strength always comes with responsibilities."
 
-&mdash; [**Takaaki Morofushi**](https://myanimelist.net/character.php?q=Takaaki%20Morofushi&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Izumo Kusanagi**](https://myanimelist.net/character.php?q=Izumo%20Kusanagi&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
