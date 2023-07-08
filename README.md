@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You mean that we failed again to prevent a bombing? What are you doing, Hijikata-san? You should take this job more seriously."
+> "The world... is a very small place, but... for those who know it, it is very, very large. And the world... when it is viewed by those who know... is far larger than just one world can hold."
 
-&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
