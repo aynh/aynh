@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey, if you take a step over that line, your territorial law won't mean shit!"
+> "Everything eventually faces destruction. Everything eventually disappears."
 
-&mdash; [**Isao Kondō**](https://myanimelist.net/character.php?q=Isao%20Kond%C5%8D&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
