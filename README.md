@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A real man never goes back on his words!"
+> "Care to little, you lose them. Care too much, you get hurt."
 
-&mdash; [**Taiyou Natsuki**](https://myanimelist.net/character.php?q=Taiyou%20Natsuki&cat=character), [**Seishun Forget!**](https://myanimelist.net/search/all?q=Seishun%20Forget!&cat=all)
+&mdash; [**Gajeel Redfox**](https://myanimelist.net/character.php?q=Gajeel%20Redfox&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
