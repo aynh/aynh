@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*chanting* Blessed be the Lord! For he hath heard the voice of my supplication. The Lord is my helper...and my protector. Thou shalt perish where thou standeth!"
+> "No matter how small the problem is, how small the thing is, it always affects the people around you."
 
-&mdash; [**Fujimoto Shirou**](https://myanimelist.net/character.php?q=Fujimoto%20Shirou&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
