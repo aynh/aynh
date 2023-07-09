@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For those who love another... To disobey, to rage, to curse, to fight, to kill... None of these disproves that love. A love that's too strong may even make those more likely."
+> "Nake, Snake, Cobra, Cobra."
 
-&mdash; [**Khamsin Nbh'w**](https://myanimelist.net/character.php?q=Khamsin%20Nbh'w&cat=character), [**Shakugan no Shana III**](https://myanimelist.net/search/all?q=Shakugan%20no%20Shana%20III&cat=all)
+&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
