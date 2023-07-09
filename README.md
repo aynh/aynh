@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everything eventually faces destruction. Everything eventually disappears."
+> "True happiness comes from overcoming suffering. No one can shoulder your burdens for you."
 
-&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Labrador**](https://myanimelist.net/character.php?q=Labrador&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
