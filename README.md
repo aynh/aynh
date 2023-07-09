@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All that for a memory and a dead mortal girl. If I've known that this is all it took to make you fight, I would have killed her sooner. (to Inuyasha)"
+> "There's is no such thing as a useless player."
 
-&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Daiki Aomine**](https://myanimelist.net/character.php?q=Daiki%20Aomine&cat=character), [**Kuroko no Basket: Mou Ikkai Yarimasen ka**](https://myanimelist.net/search/all?q=Kuroko%20no%20Basket%3A%20Mou%20Ikkai%20Yarimasen%20ka&cat=all)
