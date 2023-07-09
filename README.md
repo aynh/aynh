@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know no one expects much from me! And I know better than anyone how useless a C Class hero is! I know I'm too weak even for B Class! I know more than anyone else that I'll never beat you! But I must fight you anyway! I'm the only one left! It's not about winning or losing! I just have to stand here and face you!"
+> "I've only lived 18 years, but I don't want to change any of them. They're all part of my life, even the failures."
 
-&mdash; [**Mumen Rider**](https://myanimelist.net/character.php?q=Mumen%20Rider&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
