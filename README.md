@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone’s gonna die. It’s a natural part of life. But if life has no purpose, you’re dead already."
+> "SHII-CHAN, YOU SON OF A BITCH!!!! (after learning that Shigure invited Akito to the summer house)"
 
-&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf’s Rain**](https://myanimelist.net/search/all?q=Wolf%E2%80%99s%20Rain&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
