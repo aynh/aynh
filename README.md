@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The winner should not question his victory. If anything, your actions were responsible for making your own luck."
+> "The sky is so low."
 
-&mdash; [**Baby Steps**](https://myanimelist.net/character.php?q=Baby%20Steps&cat=character), [**Baby Steps**](https://myanimelist.net/search/all?q=Baby%20Steps&cat=all)
+&mdash; [**Alto Saotome**](https://myanimelist.net/character.php?q=Alto%20Saotome&cat=character), [**Macross Frontier**](https://myanimelist.net/search/all?q=Macross%20Frontier&cat=all)
