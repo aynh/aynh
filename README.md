@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nake, Snake, Cobra, Cobra."
+> "It doesn't matter who they are, I won't forgive anyone who tries to stand out more than me."
 
-&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
