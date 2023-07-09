@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter who they are, I won't forgive anyone who tries to stand out more than me."
+> "The winner should not question his victory. If anything, your actions were responsible for making your own luck."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Baby Steps**](https://myanimelist.net/character.php?q=Baby%20Steps&cat=character), [**Baby Steps**](https://myanimelist.net/search/all?q=Baby%20Steps&cat=all)
