@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The sky is so low."
+> "While I'm performing it feels like it'll become real somewhere along the line."
 
-&mdash; [**Alto Saotome**](https://myanimelist.net/character.php?q=Alto%20Saotome&cat=character), [**Macross Frontier**](https://myanimelist.net/search/all?q=Macross%20Frontier&cat=all)
+&mdash; [**Hinazuki Kayo**](https://myanimelist.net/character.php?q=Hinazuki%20Kayo&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
