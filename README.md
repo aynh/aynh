@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just because you look a little better, everyone comes running at you screaming and pretending to be friendly... Just because you look a little worse, everyone ignores you and uses you as a plaything or a slave... Isn't life so unfair?"
+> "A wedding is a man's grave."
 
-&mdash; [**Dong Taebin**](https://myanimelist.net/character.php?q=Dong%20Taebin&cat=character), [**Dice: The Cube That Changes Everything**](https://myanimelist.net/search/all?q=Dice%3A%20The%20Cube%20That%20Changes%20Everything&cat=all)
+&mdash; [**Kouta Tsuchiya**](https://myanimelist.net/character.php?q=Kouta%20Tsuchiya&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
