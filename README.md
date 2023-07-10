@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pikachu, you're a Pika-pal!"
+> "You won't survive if you just let your boiling blood dictate your actions."
 
-&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Bulat**](https://myanimelist.net/character.php?q=Bulat&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
