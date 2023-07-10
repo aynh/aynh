@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay to set your goals high; that's what we call a dream!"
+> "Can you do me a favor? Could you kill me with your fangs? Can you still not forgive me? Am I still a traitor?"
 
-&mdash; [**Tatsuhiko Ookuma**](https://myanimelist.net/character.php?q=Tatsuhiko%20Ookuma&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
