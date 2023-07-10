@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A wedding is a man's grave."
+> "It's okay to set your goals high; that's what we call a dream!"
 
-&mdash; [**Kouta Tsuchiya**](https://myanimelist.net/character.php?q=Kouta%20Tsuchiya&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Tatsuhiko Ookuma**](https://myanimelist.net/character.php?q=Tatsuhiko%20Ookuma&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
