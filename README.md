@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Loneliness' is no longer part of my vocabulary."
+> "If you don't let me see Rin... I'll kill myself! If I don't kill you, I'll kill myself! (to Akito)"
 
-&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
