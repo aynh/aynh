@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Can you do me a favor? Could you kill me with your fangs? Can you still not forgive me? Am I still a traitor?"
+> "What are humans’ desires? What I think the most troublesome desire is the desire for attention. It’s the source of jealousy and relationship problems, too."
 
-&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
