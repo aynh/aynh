@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was wrong. I wasn't eating ghouls. I'm the one who was being eaten."
+> "'Loneliness' is no longer part of my vocabulary."
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
