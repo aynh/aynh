@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "While I’m here wasting time, how hard is Kakarot training?"
+> "Okay, here's the plan: We go in, start hitting people, and see where it takes us."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
