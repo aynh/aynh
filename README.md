@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just don't understand the reason why humans continue living on all the while as our individual egos hurt each other..."
+> "Pikachu, you're a Pika-pal!"
 
-&mdash; [**Yuichi Onodera**](https://myanimelist.net/character.php?q=Yuichi%20Onodera&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
