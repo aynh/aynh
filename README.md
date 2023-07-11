@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The last time I let you do my eyebrows it took you a month."
+> "I despise common sense. I’ve seen the world from every possible angle. This cruel, ridiculous, beautiful world."
 
-&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Lacie Baskerville**](https://myanimelist.net/character.php?q=Lacie%20Baskerville&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
