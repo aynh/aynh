@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who can't love themselves are the ugliest."
+> "Well, life is like the weather. It can be sunny or cloudy. Sometimes it rains, and sometimes it storms."
 
-&mdash; [**Ichijou Kazuomi**](https://myanimelist.net/character.php?q=Ichijou%20Kazuomi&cat=character), [**Mayonaka Ni Kiss**](https://myanimelist.net/search/all?q=Mayonaka%20Ni%20Kiss&cat=all)
+&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
