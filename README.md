@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This epidemic leads innocent people to their deaths, and yet it's pathogen will never be eradicated. This is a disease called serenity, a form of death that people have wished for."
+> "Any betrayal you can see is trivial,  what is truly frightening and much more lethal, is the betrayal you cannot see."
 
-&mdash; [**Rikako Oryo**](https://myanimelist.net/character.php?q=Rikako%20Oryo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
