@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more you rush, the less careful you become. Even a cautious rat will show its tail."
+> "[after winning a game of beach volleyball'Kuai Ball'] Yes! We defeated you for all time! You will never rise from the ashes of your shame and humiliation! [pause] Well, that was fun."
 
-&mdash; [**Henrietta de Tristain**](https://myanimelist.net/character.php?q=Henrietta%20de%20Tristain&cat=character), [**Zero no Tsukaima: Futatsuki no Kishi**](https://myanimelist.net/search/all?q=Zero%20no%20Tsukaima%3A%20Futatsuki%20no%20Kishi&cat=all)
+&mdash; [**Azula**](https://myanimelist.net/character.php?q=Azula&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
