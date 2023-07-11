@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I see. So basically, you're a shinigami? And you came all the way from some place called Soul Society to vanquish evil spirits? Which means that monster earlier was one of those evil spirits? And it attacked that little girl? Okay, I belie- NO WAY I'LL BELIEVE THAT, DUMBASS!"
+> "I realized that back then, the reason I wanted to become human, was that I really just wanted to have friends. Now, I just want to be a monster that can help Luffy."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tony Tony Chopper**](https://myanimelist.net/character.php?q=Tony%20Tony%20Chopper&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
