@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Any betrayal you can see is trivial,  what is truly frightening and much more lethal, is the betrayal you cannot see."
+> "If we had spent more time together, maybe I would have seen another side of him. I wish I knew him more. I wish I knew more about what kind of person he was. I wanted more time. If we had more time, we would've gone through things together. Maybe we would've gotten annoyed at each other and fight. Maybe we would've disliked each other, or liked each other more."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
