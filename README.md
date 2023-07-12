@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why did you run away, Chitoge-chan? No... I don't want this... I won't be happy with you just giving up... To end up liking the same person. It's painful, for sure but Chitoge-chan, you like him enough to not be able to face him again after that, don't you? Regardless of who ends up with him, I want to be satisfied when it happens. I thought for sure that you think the same way. Is there a reason why that can't happen? Tell me Chitoge-chan..."
+> "We reset, and return to our separate lives. You can't reset your life, but you can reset your relationships."
 
-&mdash; [**Onodera Kosaki**](https://myanimelist.net/character.php?q=Onodera%20Kosaki&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
