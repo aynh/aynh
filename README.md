@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To be loved out of sympathy is more devastating than to be rejected."
+> "I was wrong, kindness is pointless."
 
-&mdash; [**Shinobu Takatsuki**](https://myanimelist.net/character.php?q=Shinobu%20Takatsuki&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Shū Ouma**](https://myanimelist.net/character.php?q=Sh%C5%AB%20Ouma&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
