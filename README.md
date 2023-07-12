@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We reset, and return to our separate lives. You can't reset your life, but you can reset your relationships."
+> "The three pleasures of life are 'eating', 'bathing' and 'sleeping'!!"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Girl**](https://myanimelist.net/character.php?q=Girl&cat=character), [**Tabi ni Deyou Horobiyuku Sekai no Hate Made**](https://myanimelist.net/search/all?q=Tabi%20ni%20Deyou%20Horobiyuku%20Sekai%20no%20Hate%20Made&cat=all)
