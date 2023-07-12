@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Wanting to be loved, for that sole obstinate reason, people can even go this far."
+> "So what if the government collapses or the country is ruined? I'm not civic-minded! All I want to do is stand tall and live on until the day I collapse and die!"
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
