@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This eternally cursed power. This extremely disgusting existence! May this wretched body help me protect the things most important to me now! This is the only power that makes atonement for my sins possible! Ashes to Ashes, Dust to Dust, Earth to Earth! Amen!"
+> "The more painful the memories one recollects, the better the laughter."
 
-&mdash; [**Abel Nightroad**](https://myanimelist.net/character.php?q=Abel%20Nightroad&cat=character), [**Trinity Blood**](https://myanimelist.net/search/all?q=Trinity%20Blood&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
