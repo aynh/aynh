@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "CHILDBIRTH'S NOT ALCHEMY, YOU DOPE!"
+> "No matter how unimportant the meeting... how small the outcome... it will always have some later effect on you. It can be the smallest of things. It can be the shortest of moments. It may never be remembered. It may have never been recorded. But a bond of fate never disappears once tied."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
