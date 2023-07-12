@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't improvise what you cannot handle."
+> "Always the same... Every age, every generation. Human beings are infinitely more cruel and selfish than any demon in hell."
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Dantalion**](https://myanimelist.net/character.php?q=Dantalion&cat=character), [**Makai Ouji : Devils And Realist**](https://myanimelist.net/search/all?q=Makai%20Ouji%20%3A%20Devils%20And%20Realist&cat=all)
