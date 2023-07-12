@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Lets see, how should I kill you?"
+> "Strength is the only thing that matters in this world. Everything else is just a delusion for the weak."
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
