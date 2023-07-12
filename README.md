@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's simply fun to be part of a group sharing the same interests, regardless of what those interests are."
+> "GOOD MOOOORNING ICHIGOOOOOO!!!!"
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
