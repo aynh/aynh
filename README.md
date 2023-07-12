@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Always the same... Every age, every generation. Human beings are infinitely more cruel and selfish than any demon in hell."
+> "Being angry consumes energy and makes me tired. So I'd rather apologize, even if I'm not at fault. Besides, we get along, and we both want to stay friends. Prolonging an awkward situation out of stubbornness is just silly."
 
-&mdash; [**Dantalion**](https://myanimelist.net/character.php?q=Dantalion&cat=character), [**Makai Ouji : Devils And Realist**](https://myanimelist.net/search/all?q=Makai%20Ouji%20%3A%20Devils%20And%20Realist&cat=all)
+&mdash; [**Tanaka**](https://myanimelist.net/character.php?q=Tanaka&cat=character), [**Tanaka-kun wa Itsumo Kedaruge**](https://myanimelist.net/search/all?q=Tanaka-kun%20wa%20Itsumo%20Kedaruge&cat=all)
