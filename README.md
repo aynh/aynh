@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "GOOD MOOOORNING ICHIGOOOOOO!!!!"
+> "Forgetting is like a wound. The wound may heal but it has already left a scar."
 
-&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
