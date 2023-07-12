@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The three pleasures of life are 'eating', 'bathing' and 'sleeping'!!"
+> "Don't improvise what you cannot handle."
 
-&mdash; [**Girl**](https://myanimelist.net/character.php?q=Girl&cat=character), [**Tabi ni Deyou Horobiyuku Sekai no Hate Made**](https://myanimelist.net/search/all?q=Tabi%20ni%20Deyou%20Horobiyuku%20Sekai%20no%20Hate%20Made&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
