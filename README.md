@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how unimportant the meeting... how small the outcome... it will always have some later effect on you. It can be the smallest of things. It can be the shortest of moments. It may never be remembered. It may have never been recorded. But a bond of fate never disappears once tied."
+> "This scheme of yours is beneath me.  Should it fail, Jaken, you will die."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
