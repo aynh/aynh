@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One can evoke 'extraordinary' abilities if one focuses all energy on just one point."
+> "To be loved out of sympathy is more devastating than to be rejected."
 
-&mdash; [**Shindo Iroha**](https://myanimelist.net/character.php?q=Shindo%20Iroha&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Shinobu Takatsuki**](https://myanimelist.net/character.php?q=Shinobu%20Takatsuki&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
