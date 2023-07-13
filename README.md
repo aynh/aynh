@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't see her, you won't fall in love. If you don't fall in love, you won't get hurt."
+> "There’s no such thing as parents who don’t think about their children. But there are few children who understand their parents feelings."
 
-&mdash; [**Satou Tatsuhiro**](https://myanimelist.net/character.php?q=Satou%20Tatsuhiro&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
+&mdash; [**Ichi Terakado**](https://myanimelist.net/character.php?q=Ichi%20Terakado&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
