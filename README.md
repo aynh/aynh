@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I feel no responsibility to comrades who've lost lives under my command. Because they chose to fight in each battle.. Just as I chose this. But if there is something that... I can do for them. Something I can do for the dead... Then it is to win! I must keep winning to attain my dream. The same one they clung to, and risked their lives for!! To realize my dream, I will perch on top of their corpses.. It is a blood-smeared dream, after all. I don't regret or feel guilty about it.. But to risk thousands of lives while never getting myself dirty. It's not a dream that can be so easily realized!"
+> "Most of the winning results in war is caused by pursuit. Do you know why? Leaving aside modern times, it seems during the era of bayonet warfare, the worst losses always, arise from the moments when the losing side is being pursued."
 
-&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
