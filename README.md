@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no such thing as parents who don’t think about their children. But there are few children who understand their parents feelings."
+> "It's not just grief. There are as many emotions as there are people. The fragility of someone who lets their anger get the best of them... The strength to overcome fear because of love... You can't comprehend anything about them."
 
-&mdash; [**Ichi Terakado**](https://myanimelist.net/character.php?q=Ichi%20Terakado&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Chiyuki**](https://myanimelist.net/character.php?q=Chiyuki&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
