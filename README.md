@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So what if the government collapses or the country is ruined? I'm not civic-minded! All I want to do is stand tall and live on until the day I collapse and die!"
+> "Helping someone out is not a justifiable reason for you to get hurt."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Shizuka Hiratsuka**](https://myanimelist.net/character.php?q=Shizuka%20Hiratsuka&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
