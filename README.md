@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Most people are irresponsible, changing their opinions easily based on unconfirmed information or convenient rumors."
+> "One day, we will vanish. New senshi and new stars will be born. But you, Sailor Moon, you will forever be immortal. You will be the most beautiful star shining in the sky for eternity."
 
-&mdash; [**Saki Morimi**](https://myanimelist.net/character.php?q=Saki%20Morimi&cat=character), [**Eden of the East**](https://myanimelist.net/search/all?q=Eden%20of%20the%20East&cat=all)
+&mdash; [**Mamoru Chiba**](https://myanimelist.net/character.php?q=Mamoru%20Chiba&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
