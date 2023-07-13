@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When the guarantee of safety is dangled right in front of their eyes, humans will turn their eye from probability."
+> "I feel no responsibility to comrades who've lost lives under my command. Because they chose to fight in each battle.. Just as I chose this. But if there is something that... I can do for them. Something I can do for the dead... Then it is to win! I must keep winning to attain my dream. The same one they clung to, and risked their lives for!! To realize my dream, I will perch on top of their corpses.. It is a blood-smeared dream, after all. I don't regret or feel guilty about it.. But to risk thousands of lives while never getting myself dirty. It's not a dream that can be so easily realized!"
 
-&mdash; [**Saori Shibuki**](https://myanimelist.net/character.php?q=Saori%20Shibuki&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
+&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
