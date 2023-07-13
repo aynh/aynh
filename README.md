@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Celebrating Mr. Jesus's birthday (Christmas) was fun, why don't we celebrate Buddha's and Muhammad's birthday next time?"
+> "It is so painful when you lose someone you love ...To the point where your hair turns white because of grief."
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Astharoshe Asran**](https://myanimelist.net/character.php?q=Astharoshe%20Asran&cat=character), [**Trinity Blood**](https://myanimelist.net/search/all?q=Trinity%20Blood&cat=all)
