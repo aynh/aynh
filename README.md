@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not just grief. There are as many emotions as there are people. The fragility of someone who lets their anger get the best of them... The strength to overcome fear because of love... You can't comprehend anything about them."
+> "Never trust anyone too much, remember the devil was once an angel."
 
-&mdash; [**Chiyuki**](https://myanimelist.net/character.php?q=Chiyuki&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
