@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Most of the winning results in war is caused by pursuit. Do you know why? Leaving aside modern times, it seems during the era of bayonet warfare, the worst losses always, arise from the moments when the losing side is being pursued."
+> "If you don't see her, you won't fall in love. If you don't fall in love, you won't get hurt."
 
-&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Satou Tatsuhiro**](https://myanimelist.net/character.php?q=Satou%20Tatsuhiro&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
