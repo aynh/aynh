@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is so painful when you lose someone you love ...To the point where your hair turns white because of grief."
+> "Sometimes, the questions are complicated - and the answers are simple."
 
-&mdash; [**Astharoshe Asran**](https://myanimelist.net/character.php?q=Astharoshe%20Asran&cat=character), [**Trinity Blood**](https://myanimelist.net/search/all?q=Trinity%20Blood&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
