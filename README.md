@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe it would be just like in the mangas. I'd tell him I love him and then we cut to the happy ending."
+> "The worst kind of pain is when you're smiling just to stop the tears from falling."
 
-&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
