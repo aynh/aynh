@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I would come up there and finish you off. If you didn't look half dead already."
+> "Most people are irresponsible, changing their opinions easily based on unconfirmed information or convenient rumors."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Saki Morimi**](https://myanimelist.net/character.php?q=Saki%20Morimi&cat=character), [**Eden of the East**](https://myanimelist.net/search/all?q=Eden%20of%20the%20East&cat=all)
