@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is not meant just to be looked at, it’s important to get the feel of things. Don’t be captivated just by what’s in front of you and neglect the rest. Free your mind from evil and accept everything as it is. This is what we call enlightenment."
+> "I'm not a genuine idiot like you! I'm an idiot who accepts the fact that he's an idiot!"
 
-&mdash; [**Priest**](https://myanimelist.net/character.php?q=Priest&cat=character), [**Kekkaishi**](https://myanimelist.net/search/all?q=Kekkaishi&cat=all)
+&mdash; [**Aoba Kouyou**](https://myanimelist.net/character.php?q=Aoba%20Kouyou&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
