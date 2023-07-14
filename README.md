@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So long as I don't give up, the possibility of winning will never fall to zero."
+> "The world is not meant just to be looked at, it’s important to get the feel of things. Don’t be captivated just by what’s in front of you and neglect the rest. Free your mind from evil and accept everything as it is. This is what we call enlightenment."
 
-&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Priest**](https://myanimelist.net/character.php?q=Priest&cat=character), [**Kekkaishi**](https://myanimelist.net/search/all?q=Kekkaishi&cat=all)
