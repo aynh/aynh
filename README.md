@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The hungrier one is, the more satisfying one's dinner."
+> "A guy who likes someone else shouldn't be taking care of the girl he just dumped."
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Black Butler: Book of Circus**](https://myanimelist.net/search/all?q=Black%20Butler%3A%20Book%20of%20Circus&cat=all)
+&mdash; [**Takumi Nomiya**](https://myanimelist.net/character.php?q=Takumi%20Nomiya&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
