@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A guy who likes someone else shouldn't be taking care of the girl he just dumped."
+> "Kings do not become kings by themselves. If the poor raise up together, declaring that they don't want any money, kings will be overthrown. However, poor seek money so that they can become kings themselves. Which in turn only strengthens the position of the current king."
 
-&mdash; [**Takumi Nomiya**](https://myanimelist.net/character.php?q=Takumi%20Nomiya&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Hyoudou Kazutaka**](https://myanimelist.net/character.php?q=Hyoudou%20Kazutaka&cat=character), [**Kaiji**](https://myanimelist.net/search/all?q=Kaiji&cat=all)
