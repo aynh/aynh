@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Really! How marvellous! You two are simply marvellous. Which one of you should I kill? Which one of you would be more fun to watch as you wail in agony?"
+> "Is he living his dreams in death? Or.. is death the end of dreams?"
 
-&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
