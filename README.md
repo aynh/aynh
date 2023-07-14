@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not a genuine idiot like you! I'm an idiot who accepts the fact that he's an idiot!"
+> "Even if he hates me, being able to die with the knowledge that the one I love will never forget me… there is no greater happiness a woman could desire."
 
-&mdash; [**Aoba Kouyou**](https://myanimelist.net/character.php?q=Aoba%20Kouyou&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Hakaze Kusaribe**](https://myanimelist.net/character.php?q=Hakaze%20Kusaribe&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
