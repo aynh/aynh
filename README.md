@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if he hates me, being able to die with the knowledge that the one I love will never forget me… there is no greater happiness a woman could desire."
+> "If someone always follows the perfect path without ever facing hardship... Is it really what's best for that person?"
 
-&mdash; [**Hakaze Kusaribe**](https://myanimelist.net/character.php?q=Hakaze%20Kusaribe&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Yoake Ryou**](https://myanimelist.net/character.php?q=Yoake%20Ryou&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
