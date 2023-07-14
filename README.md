@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wanted to see your homework from the other day. And I got to see your face while you were sleeping... so don't sweat it."
+> "Skin him. Now. Barbeque the bastard!! (referring to Ayame)"
 
-&mdash; [**Konata Izumi**](https://myanimelist.net/character.php?q=Konata%20Izumi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
