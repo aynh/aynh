@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[repeatedly] Inuyasha, sit, boy."
+> "I wanted to see your homework from the other day. And I got to see your face while you were sleeping... so don't sweat it."
 
-&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Konata Izumi**](https://myanimelist.net/character.php?q=Konata%20Izumi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
