@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Skin him. Now. Barbeque the bastard!! (referring to Ayame)"
+> "We’re searching for a reason of existence. With our own strength, because maybe the truth is that there’s no reason for life from the very beginning. Everyone hopes and tries so hard to find a reason of existence. The reason of birth, of staying with someone, of existence, believing we have to find them all with our own hands. Like finding a place for ourselves in dreams, in jobs, in people. The reasons we conclude may be indefinite and fragile. We may lose it too, but even so, we want a reason. As long as I’m alive, I want it too. If possible, I want to find a reason of existence within a person, within someone."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
