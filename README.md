@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kings do not become kings by themselves. If the poor raise up together, declaring that they don't want any money, kings will be overthrown. However, poor seek money so that they can become kings themselves. Which in turn only strengthens the position of the current king."
+> "In the end, L is indeed the greatest detective on earth..."
 
-&mdash; [**Hyoudou Kazutaka**](https://myanimelist.net/character.php?q=Hyoudou%20Kazutaka&cat=character), [**Kaiji**](https://myanimelist.net/search/all?q=Kaiji&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
