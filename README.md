@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is he living his dreams in death? Or.. is death the end of dreams?"
+> "Urushibara Ruka, delicate as an orchid, fair as a cherry blossom, the personification of feminine grace and also... a dude. Tall as a willow, slender as a reed, a dude. Radiant in shrine vestments, dude. The sun dips low in a rosy sky, secateurs buzz, Ruka is a dude."
 
-&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
