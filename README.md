@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’ve always been wondering, even though you’ve been treating me carefully like a princess, are you just trying to keep your distance away from me? You praise me so much and belittle yourself, so I feel that you’re trying to keep your distance away from me..."
+> "So long as I don't give up, the possibility of winning will never fall to zero."
 
-&mdash; [**Himeji Mizuki**](https://myanimelist.net/character.php?q=Himeji%20Mizuki&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
