@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you're old, all you want to do is stare at the scenery. It's so strange. I've never felt so peaceful before."
+> "I’ve always been wondering, even though you’ve been treating me carefully like a princess, are you just trying to keep your distance away from me? You praise me so much and belittle yourself, so I feel that you’re trying to keep your distance away from me..."
 
-&mdash; [**Sophie Hatter**](https://myanimelist.net/character.php?q=Sophie%20Hatter&cat=character), [**Howl's Moving Castle**](https://myanimelist.net/search/all?q=Howl's%20Moving%20Castle&cat=all)
+&mdash; [**Himeji Mizuki**](https://myanimelist.net/character.php?q=Himeji%20Mizuki&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
