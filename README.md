@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Urushibara Ruka, delicate as an orchid, fair as a cherry blossom, the personification of feminine grace and also... a dude. Tall as a willow, slender as a reed, a dude. Radiant in shrine vestments, dude. The sun dips low in a rosy sky, secateurs buzz, Ruka is a dude."
+> "I don't want fear for a future, that may not even come, to stop me from acting today."
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Simon**](https://myanimelist.net/character.php?q=Simon&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
