@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The true power of us human beings is that we can change ourselves on our own."
+> "The hungrier one is, the more satisfying one's dinner."
 
-&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One-Punch Man**](https://myanimelist.net/search/all?q=One-Punch%20Man&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Black Butler: Book of Circus**](https://myanimelist.net/search/all?q=Black%20Butler%3A%20Book%20of%20Circus&cat=all)
