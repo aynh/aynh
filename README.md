@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[sounding like Marlon Brando] I'm the Godfather of Games. Capsice?"
+> "(To Ichigo Kurosaki before getting shot point-blank by his Cero) I see. So you show no mercy. Just like a true Hollow. I care not. Defeated by you as I stand, my existence holds no further meaning. Do it."
 
-&mdash; [**Joey Wheeler**](https://myanimelist.net/character.php?q=Joey%20Wheeler&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
