@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There was no meaning to things that were only superficial. That was a single belief that both me and her once shared."
+> "It's only the end if you give up!"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru.**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.&cat=all)
+&mdash; [**Elfman Strauss**](https://myanimelist.net/character.php?q=Elfman%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
