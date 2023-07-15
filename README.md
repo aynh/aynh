@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's always a lot easier to let something fall apart, than it is to try to hold it together."
+> "You are saying that innately, all people are good, and if they were to just assume their nature, this organization wouldn't be so rotten, right? But in my opinion, the structure of the organization, the way it is set up is what provides insight into what the true human nature really is."
 
-&mdash; [**Ayasegawa Yumichika**](https://myanimelist.net/character.php?q=Ayasegawa%20Yumichika&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Annie Leonhardt**](https://myanimelist.net/character.php?q=Annie%20Leonhardt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
