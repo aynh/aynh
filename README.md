@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we're going to win, we might as well get the best deal out of it in the process."
+> "Why does everybody have to fight about everything, argue and steal from each other all the time? I mean, it's a big enough world. Why can't we share it?"
 
-&mdash; [**Kyoya Ootori**](https://myanimelist.net/character.php?q=Kyoya%20Ootori&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Toboe**](https://myanimelist.net/character.php?q=Toboe&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
