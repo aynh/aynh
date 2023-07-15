@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How could I let this happen to my son? He has sacrificed everything for me! And I have done nothing but ignore him!"
+> "It's always a lot easier to let something fall apart, than it is to try to hold it together."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Ayasegawa Yumichika**](https://myanimelist.net/character.php?q=Ayasegawa%20Yumichika&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
