@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's only the end if you give up!"
+> "That's people for you. Trusting one another, helping one another- it's all a fantasy. Humans are creatures that will always betray."
 
-&mdash; [**Elfman Strauss**](https://myanimelist.net/character.php?q=Elfman%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Yokoya Norihiko**](https://myanimelist.net/character.php?q=Yokoya%20Norihiko&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
