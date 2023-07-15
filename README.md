@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I watch over Gin-san to protect him. Just like a fairy, like Tinkerbell!"
+> "Small animals have their own ways of surviving."
 
-&mdash; [**Sarutobi Ayame**](https://myanimelist.net/character.php?q=Sarutobi%20Ayame&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
