@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If someone always follows the perfect path without ever facing hardship... Is it really what's best for that person?"
+> "People can be so mean, no matter what you've done for them they will believe the first cheap rumor they hear. In the end they only care about themselves."
 
-&mdash; [**Yoake Ryou**](https://myanimelist.net/character.php?q=Yoake%20Ryou&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Natsu Tanimoto**](https://myanimelist.net/character.php?q=Natsu%20Tanimoto&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
