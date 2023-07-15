@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I'm going to disappear no matter what, I at least want to leave them having fun and smiling."
+> "I shall grieve, and I shall weep. But I shall never regret."
 
-&mdash; [**Yoake Ryou**](https://myanimelist.net/character.php?q=Yoake%20Ryou&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
