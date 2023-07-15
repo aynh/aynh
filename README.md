@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is important is to know fear and yet take a step forward."
+> "If we're going to win, we might as well get the best deal out of it in the process."
 
-&mdash; [**Rosette Christopher**](https://myanimelist.net/character.php?q=Rosette%20Christopher&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
+&mdash; [**Kyoya Ootori**](https://myanimelist.net/character.php?q=Kyoya%20Ootori&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
