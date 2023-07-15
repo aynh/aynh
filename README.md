@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are saying that innately, all people are good, and if they were to just assume their nature, this organization wouldn't be so rotten, right? But in my opinion, the structure of the organization, the way it is set up is what provides insight into what the true human nature really is."
+> "Have you heard this story before? When a certain traveler left on a journey in search of what he desired, he was told by his teacher: 'You mustn't lose your way, because if you make one wrong turn - you will never find what you were searching for'. But, unfortunately, the traveler lost his way and hung his head in dismay... But when he raised his head again, what he saw before him was a world even more magnificent than what the traveler was searching for. It means if you don't make mistakes, there are things you won't discover."
 
-&mdash; [**Annie Leonhardt**](https://myanimelist.net/character.php?q=Annie%20Leonhardt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Alicia Florence**](https://myanimelist.net/character.php?q=Alicia%20Florence&cat=character), [**Aria the Animation**](https://myanimelist.net/search/all?q=Aria%20the%20Animation&cat=all)
