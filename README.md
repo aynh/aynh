@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's people for you. Trusting one another, helping one another- it's all a fantasy. Humans are creatures that will always betray."
+> "[When Ino visits him in the hospital] Hehe. I'm also the type that gets girls to visit him. Take that, Shikamaru!"
 
-&mdash; [**Yokoya Norihiko**](https://myanimelist.net/character.php?q=Yokoya%20Norihiko&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Chouji Akimichi**](https://myanimelist.net/character.php?q=Chouji%20Akimichi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
