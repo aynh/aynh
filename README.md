@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I can't even manage a polite smile, I'll be in trouble in the real world."
+> "Fools who don't respect the past are likely to repeat it."
 
-&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Nico Robin**](https://myanimelist.net/character.php?q=Nico%20Robin&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
