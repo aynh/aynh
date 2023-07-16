@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fools who don't respect the past are likely to repeat it."
+> "It's okay. There's no pain. [something snaps inside Morty] Oops! [grins maniacally at Yoh] I'm sorry."
 
-&mdash; [**Nico Robin**](https://myanimelist.net/character.php?q=Nico%20Robin&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
