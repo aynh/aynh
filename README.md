@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You only understand the true value of things after you've lost them."
+> "For me and Mello, L has been the only person we adore, and the only person who deserves our respect."
 
-&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
