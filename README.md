@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And your eyes were a strange colour that I'd never seen before. And they drew me in."
+> "When I say it doesn't hurt me, that means I can bear it."
 
-&mdash; [**Sion**](https://myanimelist.net/character.php?q=Sion&cat=character), [**No.6**](https://myanimelist.net/search/all?q=No.6&cat=all)
+&mdash; [**Killua Zoldyck**](https://myanimelist.net/character.php?q=Killua%20Zoldyck&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
