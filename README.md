@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why does everybody have to fight about everything, argue and steal from each other all the time? I mean, it's a big enough world. Why can't we share it?"
+> "The most important thing when fighting and running away is to defend. It is not about beating the enemy in front of them, but to retreat while buying time for their comrades to retreat."
 
-&mdash; [**Toboe**](https://myanimelist.net/character.php?q=Toboe&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
