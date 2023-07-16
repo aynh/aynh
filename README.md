@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For me and Mello, L has been the only person we adore, and the only person who deserves our respect."
+> "Once you get everything back, you'll be down to having nothing but loads of fun left."
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Aoi Toori**](https://myanimelist.net/character.php?q=Aoi%20Toori&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
