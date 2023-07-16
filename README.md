@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Remember. You can feel it if you hold your hand against your chest. It belongs to no one. It's our pulse, yours and mine. This is what brings us to the truth. It's what proves that we are the very world itself. Follow your instincts. The answer is already there."
+> "If we all reacted the same way, we'd be predictable, and there's always more than one way to view a situation. What's true for the group is also true for the individual. It's simple: overspecialize, and you breed in weakness. It's slow death."
 
-&mdash; [**Ergo Proxy**](https://myanimelist.net/character.php?q=Ergo%20Proxy&cat=character), [**Ergo Proxy**](https://myanimelist.net/search/all?q=Ergo%20Proxy&cat=all)
+&mdash; [**Motoko Kusanagi**](https://myanimelist.net/character.php?q=Motoko%20Kusanagi&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
