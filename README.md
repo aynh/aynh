@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life's never been easy! What you abandon, and what you take. Even I know that repeating that choice is what it means to be alive! But... If that means I have to keep losing everything over and over... I'll risk my life to try and take it all! I won't give up! Ever!"
+> "If I hadn't met you, I never would have realized what kind of person I am. I would have grown into an apathetic, clueless, obedient adult. However, after spending time with you, in tears, laughter, and anger, I now know that I have all these emotions inside me, too. And that makes me proud. I'm glad to have known you."
 
-&mdash; [**Bridges Yuuya**](https://myanimelist.net/character.php?q=Bridges%20Yuuya&cat=character), [**Muv-Luv Alternative: Total Eclipse**](https://myanimelist.net/search/all?q=Muv-Luv%20Alternative%3A%20Total%20Eclipse&cat=all)
+&mdash; [**Sion**](https://myanimelist.net/character.php?q=Sion&cat=character), [**No.6**](https://myanimelist.net/search/all?q=No.6&cat=all)
