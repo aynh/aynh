@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At times like these, you shouldn't depend on people's advice, but think about it thoroughly by yourself and make a decision. Because there's no right answer when it comes to love. Whatever your answer is, if it's your own choice, then it's right."
+> "This blank space represents infinite potential. One day, it may become anything."
 
-&mdash; [**Yuyuka Nekota**](https://myanimelist.net/character.php?q=Yuyuka%20Nekota&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**No Game No Life**](https://myanimelist.net/character.php?q=No%20Game%20No%20Life&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
