@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The most important thing when fighting and running away is to defend. It is not about beating the enemy in front of them, but to retreat while buying time for their comrades to retreat."
+> "Can you not be something unless you're already somebody else's something?"
 
-&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Ross**](https://myanimelist.net/character.php?q=Ross&cat=character), [**Senyuu. 2**](https://myanimelist.net/search/all?q=Senyuu.%202&cat=all)
