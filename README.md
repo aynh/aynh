@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This blank space represents infinite potential. One day, it may become anything."
+> "Life's never been easy! What you abandon, and what you take. Even I know that repeating that choice is what it means to be alive! But... If that means I have to keep losing everything over and over... I'll risk my life to try and take it all! I won't give up! Ever!"
 
-&mdash; [**No Game No Life**](https://myanimelist.net/character.php?q=No%20Game%20No%20Life&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Bridges Yuuya**](https://myanimelist.net/character.php?q=Bridges%20Yuuya&cat=character), [**Muv-Luv Alternative: Total Eclipse**](https://myanimelist.net/search/all?q=Muv-Luv%20Alternative%3A%20Total%20Eclipse&cat=all)
