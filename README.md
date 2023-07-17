@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I like people who put in effort, even if they're not good at it."
+> "I was too bent on fulfilling my objectives… I failed to see things from a larger perspective. I failed to build up a good relationship with them."
 
-&mdash; [**Mitsukuni Haninozuka**](https://myanimelist.net/character.php?q=Mitsukuni%20Haninozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
