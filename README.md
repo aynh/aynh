@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, there is only good and evil, that was the first universal truths I grasped from observing the world around me when I was a child. Every human being without exception ends up falling into one category or the other."
+> "After all, most human beings are completely selfish. Eventually, they will meet their desires and try to help others. However, that isn't their only desire, they wish to stir people up. It is simplistically easier to do so anyway, they think it is a stupid ideal to show love to anyone but themselves."
 
-&mdash; [**Mikami Teru**](https://myanimelist.net/character.php?q=Mikami%20Teru&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Fuyumi Utsuromiya**](https://myanimelist.net/character.php?q=Fuyumi%20Utsuromiya&cat=character), [**Life is Money**](https://myanimelist.net/search/all?q=Life%20is%20Money&cat=all)
