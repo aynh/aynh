@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes all people need is a good listener."
+> "No need to be afraid of the end, because this world is infinite!"
 
-&mdash; [**Shiki Misaki**](https://myanimelist.net/character.php?q=Shiki%20Misaki&cat=character), [**Subarashiki Kono Sekai**](https://myanimelist.net/search/all?q=Subarashiki%20Kono%20Sekai&cat=all)
+&mdash; [**Kuroyukihime**](https://myanimelist.net/character.php?q=Kuroyukihime&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
