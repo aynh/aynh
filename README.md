@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That day four years ago... When I wasn't needed by anyone. When nobody cared about me. When I had given up on living and was about to jump off the roof of a building... FB saved me with a single message. I didn't care if it was a joke or not. I was just happy that somebody knew... that I was alive... that it was OK for me to live..."
+> "Sure I'm okay. Because that's how I was built, after all."
 
-&mdash; [**Moeka Kiryū**](https://myanimelist.net/character.php?q=Moeka%20Kiry%C5%AB&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
