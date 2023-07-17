@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Victory is everything in this world. The victory is acknowledged, and the vanquished is disavowed. Because I am victorious overall, I am always the just."
+> "That day four years ago... When I wasn't needed by anyone. When nobody cared about me. When I had given up on living and was about to jump off the roof of a building... FB saved me with a single message. I didn't care if it was a joke or not. I was just happy that somebody knew... that I was alive... that it was OK for me to live..."
 
-&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko's Basketball TV 3**](https://myanimelist.net/search/all?q=Kuroko's%20Basketball%20TV%203&cat=all)
+&mdash; [**Moeka Kiryū**](https://myanimelist.net/character.php?q=Moeka%20Kiry%C5%AB&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
