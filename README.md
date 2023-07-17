@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't believe in the you that believes in me and don't believe in the me that believes in you. Believe in the you that believes in yourself."
+> "I hate perfection. To be perfect is to be unable to improve any further."
 
-&mdash; [**Kamina**](https://myanimelist.net/character.php?q=Kamina&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
+&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
