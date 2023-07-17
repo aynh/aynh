@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the world is full of things we never wanted to know, is our only option to look away? You won't solve anything by looking away."
+> "I find it fascinating how we can see something with our eyes, hear with our ears and speak from our mouths. Although science tells us how they work, I just really can't grasp it. I don't know how everyday items like phones work. I can't even explain why a bicycle is fast. When I think like this, I wonder how many things I really understand. Yet I can live on. Because all these mysteries have joined together to keep me alive. Sometimes I admire that before I go to bed."
 
-&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Mifune Ryouko**](https://myanimelist.net/character.php?q=Mifune%20Ryouko&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
