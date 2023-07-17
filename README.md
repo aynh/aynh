@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'd rather give up my eye, than give up his sword. Maybe I'm not so worthless after all."
+> "Victory is everything in this world. The victory is acknowledged, and the vanquished is disavowed. Because I am victorious overall, I am always the just."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko's Basketball TV 3**](https://myanimelist.net/search/all?q=Kuroko's%20Basketball%20TV%203&cat=all)
