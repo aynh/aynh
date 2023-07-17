@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After all, most human beings are completely selfish. Eventually, they will meet their desires and try to help others. However, that isn't their only desire, they wish to stir people up. It is simplistically easier to do so anyway, they think it is a stupid ideal to show love to anyone but themselves."
+> "Sometimes all people need is a good listener."
 
-&mdash; [**Fuyumi Utsuromiya**](https://myanimelist.net/character.php?q=Fuyumi%20Utsuromiya&cat=character), [**Life is Money**](https://myanimelist.net/search/all?q=Life%20is%20Money&cat=all)
+&mdash; [**Shiki Misaki**](https://myanimelist.net/character.php?q=Shiki%20Misaki&cat=character), [**Subarashiki Kono Sekai**](https://myanimelist.net/search/all?q=Subarashiki%20Kono%20Sekai&cat=all)
