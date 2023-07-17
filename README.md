@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sure I'm okay. Because that's how I was built, after all."
+> "Even if other people think it’s meaningless, it’s disgusting for me to quit, even when the possibility is 0. Therefore, I will never... Give up !"
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
