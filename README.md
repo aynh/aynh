@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen, girls like guys who are strong and can protect them. So if you keep working hard and get stronger, she just might like you back."
+> "There are wounds that even magic can't heal, but... even though it was painful to hear you talk about it, it was okay. That part was okay."
 
-&mdash; [**Eina Tulle**](https://myanimelist.net/character.php?q=Eina%20Tulle&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
+&mdash; [**Mary**](https://myanimelist.net/character.php?q=Mary&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
