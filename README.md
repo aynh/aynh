@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate perfection. To be perfect is to be unable to improve any further."
+> "If the world is full of things we never wanted to know, is our only option to look away? You won't solve anything by looking away."
 
-&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
