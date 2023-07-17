@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I find it fascinating how we can see something with our eyes, hear with our ears and speak from our mouths. Although science tells us how they work, I just really can't grasp it. I don't know how everyday items like phones work. I can't even explain why a bicycle is fast. When I think like this, I wonder how many things I really understand. Yet I can live on. Because all these mysteries have joined together to keep me alive. Sometimes I admire that before I go to bed."
+> "*to Inuyasha* Your stupidity knows no boundaries. Run and hide while you can."
 
-&mdash; [**Mifune Ryouko**](https://myanimelist.net/character.php?q=Mifune%20Ryouko&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
+&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
