@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who forgive themselves, and are able to accept their true nature... They are the strong ones!"
+> "My place really was here. I was too foolish and stubborn to notice. But, what I truly hoped for then was here. Why do I always realize it... when I've already lost it."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
