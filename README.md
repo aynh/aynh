@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, forgetting is a type of happiness."
+> "Those who lack resolve are incapable of even wiping away their own tears."
 
-&mdash; [**Kaname Kuran**](https://myanimelist.net/character.php?q=Kaname%20Kuran&cat=character), [**Vampire Knight**](https://myanimelist.net/search/all?q=Vampire%20Knight&cat=all)
+&mdash; [**Satsuki Kiryuuin**](https://myanimelist.net/character.php?q=Satsuki%20Kiryuuin&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
