@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is a dark place... because you have a gloomy look on your face."
+> "Mom... Mom in heaven.... Does love come suddenly like this"
 
-&mdash; [**No-Sense**](https://myanimelist.net/character.php?q=No-Sense&cat=character), [**Coppelion**](https://myanimelist.net/search/all?q=Coppelion&cat=all)
+&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
