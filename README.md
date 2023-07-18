@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I would no longer fight against my feelings because I realized how useless and ineffective it was to fight them."
+> "Mysterious things, when you were a child you used to think 'They exist for sure!', but all of a sudden it changes to, 'It would be nice if they existed.' I wonder when and why you stop believing."
 
-&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
+&mdash; [**Akari Mizunashi**](https://myanimelist.net/character.php?q=Akari%20Mizunashi&cat=character), [**Aria the Animation**](https://myanimelist.net/search/all?q=Aria%20the%20Animation&cat=all)
