@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mysterious things, when you were a child you used to think 'They exist for sure!', but all of a sudden it changes to, 'It would be nice if they existed.' I wonder when and why you stop believing."
+> "You can take control of my mind and my body, but there is one thing a Saiyan always keep… his PRIDE!"
 
-&mdash; [**Akari Mizunashi**](https://myanimelist.net/character.php?q=Akari%20Mizunashi&cat=character), [**Aria the Animation**](https://myanimelist.net/search/all?q=Aria%20the%20Animation&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
