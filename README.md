@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Giving people what they want only results in temporary delight, and that you can only make a select few people happy that way."
+> "Those who forgive themselves, and are able to accept their true nature... They are the strong ones!"
 
-&mdash; [**Otonashi Aya**](https://myanimelist.net/character.php?q=Otonashi%20Aya&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
