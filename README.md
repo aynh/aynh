@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The thing I hate the most is to trample on other people's good will."
+> "Giving people what they want only results in temporary delight, and that you can only make a select few people happy that way."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Otonashi Aya**](https://myanimelist.net/character.php?q=Otonashi%20Aya&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
