@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have no use for a religion that's been forsaken by its own god."
+> "I would no longer fight against my feelings because I realized how useless and ineffective it was to fight them."
 
-&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
