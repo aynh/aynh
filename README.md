@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes living can be hard! But it's only because we're alive that we can make each other laugh, cry, and be happy!"
+> "I'm not stupid. I'm just too lazy to show how smart I am."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
