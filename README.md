@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...There's nothing to feel sorry for on my behalf. I've been a very selfish girl. For the first time, I was able to see that. Thank you for worrying about me, mama. (to her mother)"
+> "We don't know if trying our best will help, but we do know, that if we don't try our best, it won't help for sure!"
 
-&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
