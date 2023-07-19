@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are people who can't act unless they're faced with a problem. Unless they find their reason. All I was left with was the sinking suspicion that I'd gone horribly wrong."
+> "'You can't run away' is an ideal for the strong. You're not always wrong. Society, the world, the people around you - often someone else is in the wrong. To think that you can change is adapting to this cruel, indifferent, trashy world. It's admitting defeat and servility. You're simply deceiving yourself by dressing it up with pretty words."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
