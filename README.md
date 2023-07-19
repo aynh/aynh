@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Learn to treasure your life because unfortunately, it can be taken away from you anytime."
+> "Words are very powerful. That's why you have to watch everything that comes out from your mouth."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
