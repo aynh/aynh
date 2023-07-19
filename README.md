@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Planets are just places for people to stand on. Planets are just rocks. It takes people to make it a world. You can have as many 'Earths' as you want. I only care about what's inside."
+> "The Kuchiki clan is one of the four noble houses. We must set the standard for all shinigami. If we do not abide by the code...then who will uphold it?"
 
-&mdash; [**Sakamoto Tatsuma**](https://myanimelist.net/character.php?q=Sakamoto%20Tatsuma&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
