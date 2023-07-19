@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Words are very powerful. That's why you have to watch everything that comes out from your mouth."
+> "The truth is the truth, regardless of whether it comes out of a genius' mouth or a commoner's."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Tsuchimikado Natsume**](https://myanimelist.net/character.php?q=Tsuchimikado%20Natsume&cat=character), [**Tokyo Ravens**](https://myanimelist.net/search/all?q=Tokyo%20Ravens&cat=all)
