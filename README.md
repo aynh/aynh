@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We don't know if trying our best will help, but we do know, that if we don't try our best, it won't help for sure!"
+> "Things like protecting the world are no more than moral reasons that sound good."
 
-&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
