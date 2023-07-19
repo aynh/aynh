@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Most people don’t mind killing cows and chickens but they’d probably have a hard time doing the same to chimpanzees. Partially, it’s because chimpanzees bear a slight resemblance to humans, but the primary reason is that they can draw pictures. Suppose fish were able to draw pictures. Even if we are unable to understand what they’re thinking, it becomes harder to kill animals that can draw. Instinctively, in our minds we would say to ourselves… “May be they have feelings” That shows how high a value we assign to expression."
+> "[Urahara writes Ichigo a message in blood] Please meet at Urahara shop immediately. [After Ichigo freaked out] P.S: If you look at this message and think that it is the message of a person before his death... then you have no sense of humor."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
