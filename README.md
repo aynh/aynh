@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're just living for your own sake, it's all up to you. No hard feelings. No regrets."
+> "Ichigo...I know this is shameful, but I'm begging you -- Rukia...Please save Rukia!!"
 
-&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
