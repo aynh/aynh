@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every girl is born a princess, some of them just forget is all."
+> "(About Sakura) Was she having fun in her little make-believe fantasy of true love? As for me, I have absolutely no reason to love her and likewise, I can see no reason why she would love me."
 
-&mdash; [**Kuranosuke Koibuchi**](https://myanimelist.net/character.php?q=Kuranosuke%20Koibuchi&cat=character), [**Kuragehime**](https://myanimelist.net/search/all?q=Kuragehime&cat=all)
+&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
