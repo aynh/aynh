@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Urahara writes Ichigo a message in blood] Please meet at Urahara shop immediately. [After Ichigo freaked out] P.S: If you look at this message and think that it is the message of a person before his death... then you have no sense of humor."
+> "Planets are just places for people to stand on. Planets are just rocks. It takes people to make it a world. You can have as many 'Earths' as you want. I only care about what's inside."
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sakamoto Tatsuma**](https://myanimelist.net/character.php?q=Sakamoto%20Tatsuma&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
