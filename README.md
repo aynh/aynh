@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The Kuchiki clan is one of the four noble houses. We must set the standard for all shinigami. If we do not abide by the code...then who will uphold it?"
+> "Every girl is born a princess, some of them just forget is all."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kuranosuke Koibuchi**](https://myanimelist.net/character.php?q=Kuranosuke%20Koibuchi&cat=character), [**Kuragehime**](https://myanimelist.net/search/all?q=Kuragehime&cat=all)
