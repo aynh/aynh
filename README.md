@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want fear for a future, that may not even come, to stop me from acting today."
+> "Weak humans are sly and irresponsible, they always put the blame on and hurt others."
 
-&mdash; [**Simon**](https://myanimelist.net/character.php?q=Simon&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
+&mdash; [**Toto Sakigami**](https://myanimelist.net/character.php?q=Toto%20Sakigami&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
