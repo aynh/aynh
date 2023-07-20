@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "True freedom can't lean on anything. It's transient, lonely, and arduous."
+> "The heroes during times of war, are nothing but mass murderers during times of peace."
 
-&mdash; [**Yoshii Kazuho**](https://myanimelist.net/character.php?q=Yoshii%20Kazuho&cat=character), [**Texhnolyze**](https://myanimelist.net/search/all?q=Texhnolyze&cat=all)
+&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
