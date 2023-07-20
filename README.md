@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Thanks a lot, dream wrecker."
+> "True freedom can't lean on anything. It's transient, lonely, and arduous."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Yoshii Kazuho**](https://myanimelist.net/character.php?q=Yoshii%20Kazuho&cat=character), [**Texhnolyze**](https://myanimelist.net/search/all?q=Texhnolyze&cat=all)
