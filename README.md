@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, there are things you’re better off not knowing."
+> "Every single one of them died while furiously giving off the light that resided within them and that light is then inherited by the next person where it will go on to shine with an even greater radiance. And thus people are connected together... allowing us to work towards a better tomorrow."
 
-&mdash; [**Aizawa Yuuichi**](https://myanimelist.net/character.php?q=Aizawa%20Yuuichi&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
+&mdash; [**Ei Sei**](https://myanimelist.net/character.php?q=Ei%20Sei&cat=character), [**Kingdom**](https://myanimelist.net/search/all?q=Kingdom&cat=all)
