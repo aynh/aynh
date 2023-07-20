@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is at the moment of death that humanity has value."
+> "In manga, there's always a character who gets a sudden boost of power, right? Usually, it's when they're driven into a corner. Readers actually call it a 'convenient power up', but it actually does happen in the real world as well. We humans only truly show our mettle when we're pushed into a corner."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Shinobu Takamiya**](https://myanimelist.net/character.php?q=Shinobu%20Takamiya&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
