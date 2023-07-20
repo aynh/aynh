@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Girls could never understand the passionate bonds that we men share. Male friendship is a bond that runs thicker than blood!"
+> "A person who can't care about himself can't protect anyone, I think."
 
-&mdash; [**Kiyotaka Ishimaru**](https://myanimelist.net/character.php?q=Kiyotaka%20Ishimaru&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Mitsukuni Haninozuka**](https://myanimelist.net/character.php?q=Mitsukuni%20Haninozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
