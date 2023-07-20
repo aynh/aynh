@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The heroes during times of war, are nothing but mass murderers during times of peace."
+> "The same thing as always. No matter how many times I reach game over and no matter how many times I must pathetically hit continue, I will not stop moving forward."
 
-&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
