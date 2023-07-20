@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Weak humans are sly and irresponsible, they always put the blame on and hurt others."
+> "You took my teacher, and now I let you take my friend. What the hell do you want from me?"
 
-&mdash; [**Toto Sakigami**](https://myanimelist.net/character.php?q=Toto%20Sakigami&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
