@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The heroes during times of war, are nothing but mass murderers during times of peace."
+> "We're going to be moving forward! If we move forward, we'll get stronger, both physically and mentally."
 
-&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
