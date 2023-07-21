@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you become perplexed or make errors, in the end have the kind of life that you can have pride in living. The kind where you can say, 'I persevered.' Repeating delightful things and sad things. And in that way keep getting older. I persevered."
+> "How could I burden that brat with the weight of my life? *about Oz*"
 
-&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Elliot Nightray**](https://myanimelist.net/character.php?q=Elliot%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
