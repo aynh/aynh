@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There will be some who give up because they are dissatisfied... But some feel unsettled and are lonely. So if... one day we could all laugh freely together... We, who are all in the same circumstances, can help each other... I think that will be more comforting than anything else and will also chase away loneliness."
+> "You don't have to worry about being special or normal compared to everyone else! It doesn't matter who it is. So as long as they think you're special, then you're special."
 
-&mdash; [**Yuu Tobita**](https://myanimelist.net/character.php?q=Yuu%20Tobita&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
+&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
