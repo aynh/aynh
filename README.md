@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When the time comes, I may need to borrow your chest to cry upon. That's one promise I'll need from you."
+> "But they say a woman is better off with an unloved man, versus a man who loves her."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
