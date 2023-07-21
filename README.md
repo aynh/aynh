@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My grandfather's deck has no pathetic cards, Kaiba. But it does contain... the unstoppable Exodia!"
+> "Children aren't sweet or innocent. The weird ones are left unchecked. It's rare to find anyone you can trust!"
 
-&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Y**](https://myanimelist.net/character.php?q=Y&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
