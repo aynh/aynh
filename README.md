@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Greed may not be good, but it’s not so bad either. You humans think greed is just for money or power, but everyone wants something they can’t have."
+> "When the time comes, I may need to borrow your chest to cry upon. That's one promise I'll need from you."
 
-&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
