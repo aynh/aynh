@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At this point, no matter how I change, the things I've lost won't come back."
+> "There will be some who give up because they are dissatisfied... But some feel unsettled and are lonely. So if... one day we could all laugh freely together... We, who are all in the same circumstances, can help each other... I think that will be more comforting than anything else and will also chase away loneliness."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Yuu Tobita**](https://myanimelist.net/character.php?q=Yuu%20Tobita&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
