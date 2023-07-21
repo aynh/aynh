@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A left... and then a right. Or is it a right and then a left? Hmm... maybe the postcard's upside-down."
+> "If you have time to think of a beautiful end, then live beautifully until the end."
 
-&mdash; [**Hikari**](https://myanimelist.net/character.php?q=Hikari&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
