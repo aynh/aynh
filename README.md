@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no more trusted observer than someone who suspects you."
+> "I will do anything it takes to be the man she loves. I will survive this war. And when I return home, I will swallow every horrible thing I've done here, and I will smile when I'm with her. I swear on my life."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist: Brotherhood OAV**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood%20OAV&cat=all)
