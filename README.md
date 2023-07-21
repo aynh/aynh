@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How could I burden that brat with the weight of my life? *about Oz*"
+> "I'll always love you. (To Yuki)"
 
-&mdash; [**Elliot Nightray**](https://myanimelist.net/character.php?q=Elliot%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
