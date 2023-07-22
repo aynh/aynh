@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your darkness...I will...seal it..."
+> "[about the inefficacy of his attack against Tsunade] Did it not penetrate deep enough because of her fat breasts?"
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kabuto Yakushi**](https://myanimelist.net/character.php?q=Kabuto%20Yakushi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
