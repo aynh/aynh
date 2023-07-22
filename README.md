@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What are humans’ desires? What I think the most troublesome desire is the desire for attention. It’s the source of jealousy and relationship problems, too."
+> "Look. Look at me! Watch as the man you cast out spills his blood and dies. Take a nice long look! I will save you all. I want you to live the rest of your lives knowing the man you abandoned saved you. And I will laugh at you from the afterlife. And tell you that it serves you right!"
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Ikoma**](https://myanimelist.net/character.php?q=Ikoma&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
