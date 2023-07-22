@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[about the inefficacy of his attack against Tsunade] Did it not penetrate deep enough because of her fat breasts?"
+> "Dont care about being pathetic or getting anything in return... People cannot possibly choose their own birthplace, but they can choose their own death that's why I became a 'Code Breaker'.  Im still alive... to the very last second of my life... nothing more than that!!"
 
-&mdash; [**Kabuto Yakushi**](https://myanimelist.net/character.php?q=Kabuto%20Yakushi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ogami Rei**](https://myanimelist.net/character.php?q=Ogami%20Rei&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
