@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can only say that the human curiosity is something completely irrational."
+> "Words are shallow. Just talking doesn't bring world peace."
 
-&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Daichi Muroto**](https://myanimelist.net/character.php?q=Daichi%20Muroto&cat=character), [**Kotoura-san**](https://myanimelist.net/search/all?q=Kotoura-san&cat=all)
