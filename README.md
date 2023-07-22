@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You should realize that there are people whose hearts break each time they see you hurt yourself."
+> "The past can be a great teacher. (trips over a wire, opens a spike trap, and manages to blow himself over it just in time and looks back fearfully) Zuko? I think the past is trying to kill me!"
 
-&mdash; [**Shizuka Hiratsuka**](https://myanimelist.net/character.php?q=Shizuka%20Hiratsuka&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
