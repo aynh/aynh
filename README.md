@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past can be a great teacher. (trips over a wire, opens a spike trap, and manages to blow himself over it just in time and looks back fearfully) Zuko? I think the past is trying to kill me!"
+> "Your darkness...I will...seal it..."
 
-&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
