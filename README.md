@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't know how to give up!!"
+> "They may all look the same to you, but there are different kinds and different levels of evil. A first-class villain doesn't target honest lives."
 
-&mdash; [**Tsunayoshi Sawada**](https://myanimelist.net/character.php?q=Tsunayoshi%20Sawada&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
