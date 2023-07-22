@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's frightening that there's no guarantee that I'll ever be loved."
+> "People are stupid. If I don't do this, there will be no peace. Eventually, time will pass and the pain will heal. Eventually, checkmate's power will weaken and people will begin fighting again. This time, they will use the weapon themselves and once more know true pain. And for the short time, peace will come again. It will give birth to short period of peace within this endless chain of hatred. That's my wish."
 
-&mdash; [**Akito Sohma**](https://myanimelist.net/character.php?q=Akito%20Sohma&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
