@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how you look, as long as your judgement is clouded you won't find the truth."
+> "Even If evil makes you lose your way, you stay your ground and keep searching for the path of good. Is that search now what justice is? It is for that reason that gods gave mortals knowledge."
 
-&mdash; [**Igor Neuhaus**](https://myanimelist.net/character.php?q=Igor%20Neuhaus&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Gowasu**](https://myanimelist.net/character.php?q=Gowasu&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
