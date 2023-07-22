@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They may all look the same to you, but there are different kinds and different levels of evil. A first-class villain doesn't target honest lives."
+> "99% of perception that normal humans have are closed off. Those who don't think of themselves are quite foolish beings."
 
-&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
