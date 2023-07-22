@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The real fun is in constantly pushing beyond your limits. So if you're thinking of everything as a game, you won't be able to fully experience it."
+> "It's frightening that there's no guarantee that I'll ever be loved."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Akito Sohma**](https://myanimelist.net/character.php?q=Akito%20Sohma&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
