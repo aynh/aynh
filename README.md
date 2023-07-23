@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I'd known that the end would come so fast, I would have said so much more."
+> "'Loneliness' is no longer part of my vocabulary."
 
-&mdash; [**Daiki Mamura**](https://myanimelist.net/character.php?q=Daiki%20Mamura&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
