@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even I... know what it's like to be jealous. (referring to Kureno and Akito's relationship)"
+> "Only a genuine wish makes one's own soul shine beautifully in this life. That light is a messenger from heaven lighting the way for our unwavering souls to be brought to the God's side."
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Bastien**](https://myanimelist.net/character.php?q=Bastien&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
