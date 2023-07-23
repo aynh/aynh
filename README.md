@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you lose something big, that nothing can replace it... Then it’s okay if you have more than one, right? Even if the number is small, whether it’s 10 or 100, if you gather them up then you will have a reason to go on!"
+> "I don't have much power and I'm trying to get stronger. But I'm not afraid of sharing my heart..."
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
