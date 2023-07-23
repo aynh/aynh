@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regardless if you see them or not, if you don't believe, then it's like they never existed."
+> "I've won. Exactly as planned."
 
-&mdash; [**Kurosaki Karin**](https://myanimelist.net/character.php?q=Kurosaki%20Karin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
