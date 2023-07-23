@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[On first seeing Kyo] The ceiling... Is he hurt...? Wh-who... Well, hello, orange-head..."
+> "God, my face hurts from forcing smiles all night..."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
