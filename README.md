@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "God, my face hurts from forcing smiles all night..."
+> "I have nothing but me. I'll give you myself. You can use me however you like for the rest of my life. (To Shigure)"
 
-&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
