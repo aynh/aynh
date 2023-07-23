@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I was at the brink of life and death, I used all of my will to survive. I drew upon a different power than that of self-sacrifice and mastered an ultimate technique. The will to live is stronger than anything else. That was the ray of light that my master risked his life to show me. As Hitokiri Battousai, I have committed so many crimes that I cannot possibly repent for them. That is why I had secretly believed that it didn't matter when I died or was killed. However, now... even if I am formally punished or restrained. I will never lose the will to live."
+> "Regardless if you see them or not, if you don't believe, then it's like they never existed."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Kurosaki Karin**](https://myanimelist.net/character.php?q=Kurosaki%20Karin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
