@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The stronger a person looks, the weaker he is."
+> "Only frustrated adults and naive kids believe themselves to be special."
 
-&mdash; [**Minami Ryusuke**](https://myanimelist.net/character.php?q=Minami%20Ryusuke&cat=character), [**Beck**](https://myanimelist.net/search/all?q=Beck&cat=all)
+&mdash; [**Kiyomasa Senji**](https://myanimelist.net/character.php?q=Kiyomasa%20Senji&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
