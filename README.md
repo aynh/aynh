@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dont care about being pathetic or getting anything in return... People cannot possibly choose their own birthplace, but they can choose their own death that's why I became a 'Code Breaker'.  Im still alive... to the very last second of my life... nothing more than that!!"
+> "I'm sorry, but I never lose to the same opponent twice."
 
-&mdash; [**Ogami Rei**](https://myanimelist.net/character.php?q=Ogami%20Rei&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
+&mdash; [**Fuji Shuusuke**](https://myanimelist.net/character.php?q=Fuji%20Shuusuke&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
