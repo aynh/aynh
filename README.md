@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm in the mood for loooooove! *Hot nurse walks in.* I'm in the mood for seeeeeeeeex!"
+> "A lot of people are too scared to admit that they're still children. They do everything they can to avoid it. So people who can admit that have a lot of courage."
 
-&mdash; [**Carrot Glace**](https://myanimelist.net/character.php?q=Carrot%20Glace&cat=character), [**Bakuretsu Hunters**](https://myanimelist.net/search/all?q=Bakuretsu%20Hunters&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
