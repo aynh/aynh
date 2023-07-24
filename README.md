@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Please, let that iron guard down for a minute. It's only hurting you. I know when you've hit rock bottom, people trying to cheer you up can be really annoying. 'What would you know?' 'Just leave me alone.' But what if someone you're pushing away is really worried about you? That'd be a shame."
+> "It's harder to fool one's self than to fool others."
 
-&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Azuma Yunoki**](https://myanimelist.net/character.php?q=Azuma%20Yunoki&cat=character), [**La Corda D'Oro - primo passo**](https://myanimelist.net/search/all?q=La%20Corda%20D'Oro%20-%20primo%20passo&cat=all)
