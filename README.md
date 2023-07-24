@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Reflecting upon death, one appreciates life. If that’s the case, does it take a mistake for people to choose the right path? Behold the brilliance of the heavens burdened with sin."
+> "*to Okita* I don't care about that gap you created on your own. I'll jump across it as many times as it takes, and punch some sense into you."
 
-&mdash; [**Mobile Suit Gundam 00**](https://myanimelist.net/character.php?q=Mobile%20Suit%20Gundam%2000&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Isao Kondō**](https://myanimelist.net/character.php?q=Isao%20Kond%C5%8D&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
