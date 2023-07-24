@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's harder to fool one's self than to fool others."
+> "I'm a little grateful to you. I wonder if I'll forget these feelings too."
 
-&mdash; [**Azuma Yunoki**](https://myanimelist.net/character.php?q=Azuma%20Yunoki&cat=character), [**La Corda D'Oro - primo passo**](https://myanimelist.net/search/all?q=La%20Corda%20D'Oro%20-%20primo%20passo&cat=all)
+&mdash; [**Misaki Ayuzawa**](https://myanimelist.net/character.php?q=Misaki%20Ayuzawa&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
