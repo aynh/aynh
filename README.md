@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wish for a heart. A heart of the man whom I'll never allow to forget me."
+> "Rush in there right now and break his hands and legs so he'll never be able to use them again. Make it so he won't be able to do anything without you anymore. Then he'll be yours. His heart, body, everything."
 
-&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
