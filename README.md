@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A lot of people are too scared to admit that they're still children. They do everything they can to avoid it. So people who can admit that have a lot of courage."
+> "I wish for a heart. A heart of the man whom I'll never allow to forget me."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
