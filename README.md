@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Rush in there right now and break his hands and legs so he'll never be able to use them again. Make it so he won't be able to do anything without you anymore. Then he'll be yours. His heart, body, everything."
+> "Wealth is a nightmare. With each coveted thing we buy, we lose a thing we dream about."
 
-&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Francis Scott Key Fitzgerald**](https://myanimelist.net/character.php?q=Francis%20Scott%20Key%20Fitzgerald&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
