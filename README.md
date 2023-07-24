@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Okita* I don't care about that gap you created on your own. I'll jump across it as many times as it takes, and punch some sense into you."
+> "Please, let that iron guard down for a minute. It's only hurting you. I know when you've hit rock bottom, people trying to cheer you up can be really annoying. 'What would you know?' 'Just leave me alone.' But what if someone you're pushing away is really worried about you? That'd be a shame."
 
-&mdash; [**Isao Kondō**](https://myanimelist.net/character.php?q=Isao%20Kond%C5%8D&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
