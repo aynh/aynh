@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is not society that determines people's futures.  It is people who determine society's future."
+> "I'm a pig, a louse, a useless cow! I destroyed Anubis! Such utter garbage cannot be allowed to live! I deserve to die!"
 
-&mdash; [**Akane Tsunemori**](https://myanimelist.net/character.php?q=Akane%20Tsunemori&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
