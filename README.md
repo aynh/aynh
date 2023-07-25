@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just live normally. You'll be better off if you can catch some fish. Dig up the caves so you can set sail whenever you need to. It wouldn't be easy. But you have an endless amount of time ahead of you."
+> "I still don't know where to find happiness. But I'll continue to think about whether it's good to be here... whether it was good to have been born. But in the end, it's just realizing the obvious over and over again. Because I am myself."
 
-&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Shinji Ikari**](https://myanimelist.net/character.php?q=Shinji%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
