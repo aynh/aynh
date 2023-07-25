@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So because you think you got the ending, you're giving up on viewing the whole play? Even though it could still lead to a climax that you weren't able to predict?"
+> "What's your wish? Peace? Money? Or the world? Whatever you wish for, it's something you have to get with your own strength!"
 
-&mdash; [**Ushiromiya Lion**](https://myanimelist.net/character.php?q=Ushiromiya%20Lion&cat=character), [**Umineko no Naku Koro ni Chiru Episode 8: Twilight of the...**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni%20Chiru%20Episode%208%3A%20Twilight%20of%20the...&cat=all)
+&mdash; [**Gamabunta**](https://myanimelist.net/character.php?q=Gamabunta&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
