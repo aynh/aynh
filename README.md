@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There once was a boy, who dreamed of being a hero, who sincerely believed in the battle to banish darkness from a world of light. But light and darkness are equals and where one exists, so too must the other. When the boy finally realized this, that was when he started the path to becoming a true hero."
+> "Hey hun! I’ve got a great idea, let’s trade! Yo take my spot and I’ll fight Hercule!"
 
-&mdash; [**Record of Lodoss War**](https://myanimelist.net/character.php?q=Record%20of%20Lodoss%20War&cat=character), [**Record of Lodoss War**](https://myanimelist.net/search/all?q=Record%20of%20Lodoss%20War&cat=all)
+&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
