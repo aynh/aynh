@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sincere feelings transcend time and connect hearts."
+> "It is not society that determines people's futures.  It is people who determine society's future."
 
-&mdash; [**Fairy Tail**](https://myanimelist.net/character.php?q=Fairy%20Tail&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Akane Tsunemori**](https://myanimelist.net/character.php?q=Akane%20Tsunemori&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
