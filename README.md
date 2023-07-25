@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't get me wrong. It's not like I'm worried about you. But if you don't come back I'll never forgive you."
+> "If all humans were saints and sages, all truths would be exposed. And every just cause, expedient, ideal, and lie would no longer be necessary, yes?"
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Kaishou Rinroku**](https://myanimelist.net/character.php?q=Kaishou%20Rinroku&cat=character), [**Un-Go**](https://myanimelist.net/search/all?q=Un-Go&cat=all)
