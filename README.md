@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I realized one morning... That I hate this world. This world is made of countless boxes. People bend and stuff their bodies into their own boxes. And stay there for the rest of their lives. And eventually, inside the box, they forget: what they looked like; what they loved; who they loved. That's why I'm getting out of my box. I'm one of the chosen. That's why I'm going to destroy this world."
+> "If this is all it takes to tear us apart, then maybe we weren't all that close to begin with."
 
-&mdash; [**Sanetoshi Watase**](https://myanimelist.net/character.php?q=Sanetoshi%20Watase&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Yukino Yukinoshita**](https://myanimelist.net/character.php?q=Yukino%20Yukinoshita&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
