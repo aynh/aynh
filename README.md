@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's your wish? Peace? Money? Or the world? Whatever you wish for, it's something you have to get with your own strength!"
+> "Never forget who you are, for surely the world won't."
 
-&mdash; [**Gamabunta**](https://myanimelist.net/character.php?q=Gamabunta&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
