@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I still don't know where to find happiness. But I'll continue to think about whether it's good to be here... whether it was good to have been born. But in the end, it's just realizing the obvious over and over again. Because I am myself."
+> "Don't get me wrong. It's not like I'm worried about you. But if you don't come back I'll never forgive you."
 
-&mdash; [**Shinji Ikari**](https://myanimelist.net/character.php?q=Shinji%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
