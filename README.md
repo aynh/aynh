@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone can make a choice after they have learned what it will result in. It is so easy to say we should have done it this way afterwards. But you can't know what your choice will result in before actually choosing."
+> "Becoming an adult is such a sad thing. If you have something dear to protect, you may end up at odds with yourself."
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Cthuko**](https://myanimelist.net/character.php?q=Cthuko&cat=character), [**Haiyore! Nyaruko-san**](https://myanimelist.net/search/all?q=Haiyore!%20Nyaruko-san&cat=all)
