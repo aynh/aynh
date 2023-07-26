@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ignorance is bliss, isn't it?"
+> "[Sees Yoruichi in cat form] Yes! It's Yoruichi! You've come back! Ha ha ha!! [Picks her up] Come here you little devil, let me take a look at you! You're my fuzzy little troublemaker, yes you are! Now who's your daddy? Hmm?"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
