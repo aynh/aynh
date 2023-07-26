@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A normal detective eavesdrops, goes on stakeouts, and gathers information by foot to find out what they're looking for. But a NEET detective can search the world over to find the truth without stepping out of their room!"
+> "Once you've been loved once and have loved once, you cannot forget it."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
