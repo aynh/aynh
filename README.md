@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the world is full of things we never wanted to know, is our only option to look away? You won't solve anything by looking away."
+> "Uncoil the seas and heavens, Nejibana!"
 
-&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
