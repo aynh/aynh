@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Becoming an adult is such a sad thing. If you have something dear to protect, you may end up at odds with yourself."
+> "Thanks a lot, dream wrecker."
 
-&mdash; [**Cthuko**](https://myanimelist.net/character.php?q=Cthuko&cat=character), [**Haiyore! Nyaruko-san**](https://myanimelist.net/search/all?q=Haiyore!%20Nyaruko-san&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
