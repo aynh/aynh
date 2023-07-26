@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't use a serious tone. Don't breathe on me. Your face is too close. Freaking me out."
+> "In this world, wherever there is light - there are also shadows. As long as the concept of winners exists, there must also be losers. The selfish desire of wanting to maintain peace causes wars, and hatred is born to protect love."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
