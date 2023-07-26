@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, it's funny. Every crook I meet wants to tell me how much I'm just like them. But there's a big difference between you and me and the burdens we bear."
+> "Humming and the nightly news share a very tight connection indeed."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
