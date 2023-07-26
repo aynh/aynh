@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Uncoil the seas and heavens, Nejibana!"
+> "I've got nowhere to go back to. So all I can do is move forward."
 
-&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
