@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A life with no adventure in it is boring. The least a friend can do is stir up a little trouble in your heart."
+> "If the world is full of things we never wanted to know, is our only option to look away? You won't solve anything by looking away."
 
-&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
