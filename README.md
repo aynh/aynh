@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[After Gin offers to kill some Arrancars] No thanks, for that would be boring."
+> "You chose to go with the flow and you think that doesn't make you guilty?"
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Murasaki**](https://myanimelist.net/character.php?q=Murasaki&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
