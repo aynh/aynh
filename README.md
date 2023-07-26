@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humming and the nightly news share a very tight connection indeed."
+> "To reign over the kingdom of the world, to make its peace and write its laws; to be generous to the obedient and merciless to all who would stand against you. Nothing ever changes; two thousand years and you still act like the world is yours."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
