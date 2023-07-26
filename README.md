@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone loses sight of themselves sometimes. Don't worry about it."
+> "A life with no adventure in it is boring. The least a friend can do is stir up a little trouble in your heart."
 
-&mdash; [**Ichinose Hayato**](https://myanimelist.net/character.php?q=Ichinose%20Hayato&cat=character), [**Uta No Prince Sama**](https://myanimelist.net/search/all?q=Uta%20No%20Prince%20Sama&cat=all)
+&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
