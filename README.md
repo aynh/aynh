@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey hun! I’ve got a great idea, let’s trade! Yo take my spot and I’ll fight Hercule!"
+> "You know, it's funny. Every crook I meet wants to tell me how much I'm just like them. But there's a big difference between you and me and the burdens we bear."
 
-&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
