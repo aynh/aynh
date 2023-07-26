@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To reign over the kingdom of the world, to make its peace and write its laws; to be generous to the obedient and merciless to all who would stand against you. Nothing ever changes; two thousand years and you still act like the world is yours."
+> "Everyone can make a choice after they have learned what it will result in. It is so easy to say we should have done it this way afterwards. But you can't know what your choice will result in before actually choosing."
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
