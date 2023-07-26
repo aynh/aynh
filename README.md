@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've got nowhere to go back to. So all I can do is move forward."
+> "[After Gin offers to kill some Arrancars] No thanks, for that would be boring."
 
-&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
