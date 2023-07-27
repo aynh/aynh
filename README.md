@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[thinking at the grave of Tosen's friend] O' anonymous friend of Tousen... If you had been there...What would you have said to stop him?"
+> "Those who get fooled are partially at fault."
 
-&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
