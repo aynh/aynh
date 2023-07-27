@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our fates... can be changed. All we have to do is try."
+> "If I can protect, I want to protect."
 
-&mdash; [**Renya Kagurazaka**](https://myanimelist.net/character.php?q=Renya%20Kagurazaka&cat=character), [**Kamisama To Unmei Kakumei No Paradox**](https://myanimelist.net/search/all?q=Kamisama%20To%20Unmei%20Kakumei%20No%20Paradox&cat=all)
+&mdash; [**Syaoran Li**](https://myanimelist.net/character.php?q=Syaoran%20Li&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
