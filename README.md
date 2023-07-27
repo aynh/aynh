@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't stray from my path for those I've left behind."
+> "My obvious charms and god-like powers always dazzle the simple, ordinary folk."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Dark Schneider**](https://myanimelist.net/character.php?q=Dark%20Schneider&cat=character), [**Bastard**](https://myanimelist.net/search/all?q=Bastard&cat=all)
