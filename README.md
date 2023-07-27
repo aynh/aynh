@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, there are things you’re better off not knowing."
+> "There aren't many things you can believe. That's how human beings work. They only care about themselves, and no one else really matters. They get caught up in their own lackadaisical dialogue, lying their way through life."
 
-&mdash; [**Aizawa Yuuichi**](https://myanimelist.net/character.php?q=Aizawa%20Yuuichi&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
+&mdash; [**Death Parade**](https://myanimelist.net/character.php?q=Death%20Parade&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
