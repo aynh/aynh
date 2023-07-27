@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A temporary defeat is nothing if it leads to ultimate victory!"
+> "This is the world I live in. The dirty world of the adults."
 
-&mdash; [**Stephanie Dola**](https://myanimelist.net/character.php?q=Stephanie%20Dola&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
