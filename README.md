@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't make me slap you upside the head, just shoot the damn thing!"
+> "As of this moment, you're my official assistant. Your arms, your legs, your eyes, your ears, your throat, your nails, your teeth, and your tongue. Even the last drop of your blood. They all belong to me now."
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
