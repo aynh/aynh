@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one's going to give you a map. You've got to walk your own path."
+> "In this world, there are things you’re better off not knowing."
 
-&mdash; [**Hilda**](https://myanimelist.net/character.php?q=Hilda&cat=character), [**Outlaw Star**](https://myanimelist.net/search/all?q=Outlaw%20Star&cat=all)
+&mdash; [**Aizawa Yuuichi**](https://myanimelist.net/character.php?q=Aizawa%20Yuuichi&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
