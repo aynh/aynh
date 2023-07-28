@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you get used to the abnormalities, they become mundane."
+> "What good are dreams, if all you do is work? There's more to life than hitting the books, I hope you know."
 
-&mdash; [**Leonardo Watch**](https://myanimelist.net/character.php?q=Leonardo%20Watch&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
