@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never like to work based on trust. It takes hard work to build up trust, but only an instant to lose it. There's no less profitable investment."
+> "Change is never easy in this world. I can't even change one friend, let alone a whole country."
 
-&mdash; [**Ushiromiya Kyrie**](https://myanimelist.net/character.php?q=Ushiromiya%20Kyrie&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
