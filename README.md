@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bruises and fractures heal with time, but the wounds in people's hearts do not heal as easily."
+> "I'm a devilish and talented butler."
 
-&mdash; [**Rainbow: Nisha Rokubou no Shichinin**](https://myanimelist.net/character.php?q=Rainbow%3A%20Nisha%20Rokubou%20no%20Shichinin&cat=character), [**Rainbow: Nisha Rokubou no Shichinin**](https://myanimelist.net/search/all?q=Rainbow%3A%20Nisha%20Rokubou%20no%20Shichinin&cat=all)
+&mdash; [**Gian Carlo**](https://myanimelist.net/character.php?q=Gian%20Carlo&cat=character), [**Lucky Dog**](https://myanimelist.net/search/all?q=Lucky%20Dog&cat=all)
