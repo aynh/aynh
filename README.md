@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, it'd really be embarrassing to get eaten by something that came out of an egg this tiny."
+> "[Last words] All right then, I'll put you out of your misery. [Her hands are sliced off] Eh?"
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
