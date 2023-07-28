@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I like myself. I have never once hated myself. My high specs, my half-decent looks, my pessimistic, realist point of view... I don't hate any of it at all."
+> "By the time I noticed, so much time had passed that even my little sister would have died naturally already."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Sunako Kirishiki**](https://myanimelist.net/character.php?q=Sunako%20Kirishiki&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
