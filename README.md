@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Last words] All right then, I'll put you out of your misery. [Her hands are sliced off] Eh?"
+> "Bruises and fractures heal with time, but the wounds in people's hearts do not heal as easily."
 
-&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Rainbow: Nisha Rokubou no Shichinin**](https://myanimelist.net/character.php?q=Rainbow%3A%20Nisha%20Rokubou%20no%20Shichinin&cat=character), [**Rainbow: Nisha Rokubou no Shichinin**](https://myanimelist.net/search/all?q=Rainbow%3A%20Nisha%20Rokubou%20no%20Shichinin&cat=all)
