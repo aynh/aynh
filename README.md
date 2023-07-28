@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no point. Would apologizing serve any purpose? If it will, I'll do it."
+> "Once you get used to the abnormalities, they become mundane."
 
-&mdash; [**Mei Misaki**](https://myanimelist.net/character.php?q=Mei%20Misaki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
+&mdash; [**Leonardo Watch**](https://myanimelist.net/character.php?q=Leonardo%20Watch&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
