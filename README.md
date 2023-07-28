@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop Whining! All I did was cut off your stupid legs! Summon your demons! Transform yourself! Regenerate your legs! Stand up! Pick up your gun and attack me! Do something! The night is still so young, and the real fun is yet to start! Hurry, hurry, hurry, HURRY!!!"
+> "I'd rather be a pig than a fascist."
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Porco Rosso**](https://myanimelist.net/character.php?q=Porco%20Rosso&cat=character), [**Porco Rosso**](https://myanimelist.net/search/all?q=Porco%20Rosso&cat=all)
