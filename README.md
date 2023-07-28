@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate deserts. It's nothing but sand. *collapses* If there was some grass, I could turn it into bread. I'm starving! Huh? Hey! Al, where'd you go? Al? Hey!"
+> "Obeying a superior you can't even believe doesn't make you loyal. You're just fooling yourself."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Olivier Mira Armstrong**](https://myanimelist.net/character.php?q=Olivier%20Mira%20Armstrong&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
