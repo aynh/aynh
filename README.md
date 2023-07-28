@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How you change is up to you."
+> "There's no point. Would apologizing serve any purpose? If it will, I'll do it."
 
-&mdash; [**Midorima Shintarou**](https://myanimelist.net/character.php?q=Midorima%20Shintarou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Mei Misaki**](https://myanimelist.net/character.php?q=Mei%20Misaki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
