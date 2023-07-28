@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you want to tell him and want to be with him, sometimes, that's not enough."
+> "Oh? I thought I severed your body from the waist-down, but...It seems the cut was too shallow."
 
-&mdash; [**Tateyama Ayano**](https://myanimelist.net/character.php?q=Tateyama%20Ayano&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
