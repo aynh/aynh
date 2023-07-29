@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no right answer for getting along. Different people require different answers."
+> "There's no need to pretend to be cool. Let's show our lame sides. That's who we really are, after all."
 
-&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Hidenori Tabata**](https://myanimelist.net/character.php?q=Hidenori%20Tabata&cat=character), [**Daily Lives of High School Boys**](https://myanimelist.net/search/all?q=Daily%20Lives%20of%20High%20School%20Boys&cat=all)
