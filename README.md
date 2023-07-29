@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "On the internet, we only know each other's usernames. If we were talking face to face, I probably would never talk to them this way. They look at the 'Real Me'. They support me a lot... I wish there were more people like them."
+> "In essence, language accounts for a mere 30% of human communication. The other 70% is made up of information collected from eye movements and other body language. With that, even a loner who never takes part in conversation can pull off 70% of what we consider communication."
 
-&mdash; [**Sumino Hikage**](https://myanimelist.net/character.php?q=Sumino%20Hikage&cat=character), [**Koko Ni Iru Yo!**](https://myanimelist.net/search/all?q=Koko%20Ni%20Iru%20Yo!&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
