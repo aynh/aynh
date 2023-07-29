@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not just a tool for you to use in order to solve your puzzles, you know!"
+> "If I suddenly showed up, would I bother him? Surprise him? There’s no way we could meet. But what if we did? What should I do? Would I annoy him? Would it be awkward? Or maybe… He’d be a bit glad to see me?"
 
-&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Mitsuha Miyamizu**](https://myanimelist.net/character.php?q=Mitsuha%20Miyamizu&cat=character), [**Kimi no Na wa**](https://myanimelist.net/search/all?q=Kimi%20no%20Na%20wa&cat=all)
