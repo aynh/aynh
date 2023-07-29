@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh? I thought I severed your body from the waist-down, but...It seems the cut was too shallow."
+> "Give a man a break, and you'll end up broken."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
