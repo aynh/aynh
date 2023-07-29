@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't put me on their level. I don't care about looking interesting. I'm just self-conscious."
+> "[Kira thinks he has just killed Andrew Waltfeld and cries] It didn't have to end like this."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Kira Yamato**](https://myanimelist.net/character.php?q=Kira%20Yamato&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
