@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Babies are jobless when they are born too! It's just that they are tainted in the large bathtub called life after that!"
+> "I find myself hard to understand sometimes."
 
-&mdash; [**Mukai Hitoshi**](https://myanimelist.net/character.php?q=Mukai%20Hitoshi&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
