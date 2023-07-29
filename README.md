@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Planets are just places for people to stand on. Planets are just rocks. It takes people to make it a world. You can have as many 'Earths' as you want. I only care about what's inside."
+> "Eating together makes food taste better and makes friends grow closer."
 
-&mdash; [**Sakamoto Tatsuma**](https://myanimelist.net/character.php?q=Sakamoto%20Tatsuma&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Karuta Roromiya**](https://myanimelist.net/character.php?q=Karuta%20Roromiya&cat=character), [**Inu X Boku SS**](https://myanimelist.net/search/all?q=Inu%20X%20Boku%20SS&cat=all)
