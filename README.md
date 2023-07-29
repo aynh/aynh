@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Eating together makes food taste better and makes friends grow closer."
+> "If the truth is a cruel mistress, then a lie must be a nice girl."
 
-&mdash; [**Karuta Roromiya**](https://myanimelist.net/character.php?q=Karuta%20Roromiya&cat=character), [**Inu X Boku SS**](https://myanimelist.net/search/all?q=Inu%20X%20Boku%20SS&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
