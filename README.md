@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just how many times must I strain my voice before it will reach you? And yet, nowhere in this world can there be anyone who knows me better than you."
+> "Rumors, at times, can be more severe than the truth."
 
-&mdash; [**Zangetsu**](https://myanimelist.net/character.php?q=Zangetsu&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
