@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You may not always see the light at the end of the tunnel, but if you keep moving, you will come to a better place."
+> "Do I have to kill you to stop you from being foolish?"
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
