@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I suddenly showed up, would I bother him? Surprise him? There’s no way we could meet. But what if we did? What should I do? Would I annoy him? Would it be awkward? Or maybe… He’d be a bit glad to see me?"
+> "You may not always see the light at the end of the tunnel, but if you keep moving, you will come to a better place."
 
-&mdash; [**Mitsuha Miyamizu**](https://myanimelist.net/character.php?q=Mitsuha%20Miyamizu&cat=character), [**Kimi no Na wa**](https://myanimelist.net/search/all?q=Kimi%20no%20Na%20wa&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
