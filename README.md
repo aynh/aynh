@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no need to pretend to be cool. Let's show our lame sides. That's who we really are, after all."
+> "Just how many times must I strain my voice before it will reach you? And yet, nowhere in this world can there be anyone who knows me better than you."
 
-&mdash; [**Hidenori Tabata**](https://myanimelist.net/character.php?q=Hidenori%20Tabata&cat=character), [**Daily Lives of High School Boys**](https://myanimelist.net/search/all?q=Daily%20Lives%20of%20High%20School%20Boys&cat=all)
+&mdash; [**Zangetsu**](https://myanimelist.net/character.php?q=Zangetsu&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
