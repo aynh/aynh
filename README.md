@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He who forgives and acknowledges himself... that is what it truly means to be strong!"
+> "If fate were real, then I would say meeting someone new would constitute such a thing."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Takahiro Mizuno**](https://myanimelist.net/character.php?q=Takahiro%20Mizuno&cat=character), [**Walkure Romanze**](https://myanimelist.net/search/all?q=Walkure%20Romanze&cat=all)
