@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'M﻿ NOT AN ELEMENTARY STUDENT!!!"
+> "A bratty little midget."
 
-&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
