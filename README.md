@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dreams are illusions. All they do is interfere with reality."
+> "We don't know if this world is real or a dream. Maybe the world until now has been a convenient fake. But magic will probably disappear now. The dream is over."
 
-&mdash; [**Ein**](https://myanimelist.net/character.php?q=Ein&cat=character), [**Phantom: Requiem For The Phantom**](https://myanimelist.net/search/all?q=Phantom%3A%20Requiem%20For%20The%20Phantom&cat=all)
+&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
