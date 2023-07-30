@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When one thing ends, another begins."
+> "It's true that I'm not very tall. However! I can jump!"
 
-&mdash; [**Riko Aida**](https://myanimelist.net/character.php?q=Riko%20Aida&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Shōyō Hinata**](https://myanimelist.net/character.php?q=Sh%C5%8Dy%C5%8D%20Hinata&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
