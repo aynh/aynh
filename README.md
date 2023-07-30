@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You disappointed me. So I have to give you a punishment. Regret your helplessness and feel despair."
+> "Urameshi, I'm gonna mess your face up so bad that kittens won't even look at you."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
