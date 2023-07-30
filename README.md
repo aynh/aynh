@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We don't know if this world is real or a dream. Maybe the world until now has been a convenient fake. But magic will probably disappear now. The dream is over."
+> "Well, well, if it isn't the holy monk."
 
-&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Naraku**](https://myanimelist.net/character.php?q=Naraku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
