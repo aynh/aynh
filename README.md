@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you're made a fool of by someone, even if the future becomes so dark that you can't see what's in front of you, even if the place we get to is the very end of the world, you and I are still together."
+> "Food tastes best when you don't have to work for it."
 
-&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
