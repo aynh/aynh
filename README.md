@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't judge people from the outside. Like any rose has thorns, the more the person appears nice on the outside, the more you should doubt the inside."
+> "Dreams are illusions. All they do is interfere with reality."
 
-&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Ein**](https://myanimelist.net/character.php?q=Ein&cat=character), [**Phantom: Requiem For The Phantom**](https://myanimelist.net/search/all?q=Phantom%3A%20Requiem%20For%20The%20Phantom&cat=all)
