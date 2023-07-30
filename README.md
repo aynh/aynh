@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Wasted effort is one of the privileges of the youth."
+> "We should be driven by things like our desires, instincts, and impulses. That's how it should be."
 
-&mdash; [**Undertaker**](https://myanimelist.net/character.php?q=Undertaker&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Ranta**](https://myanimelist.net/character.php?q=Ranta&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
