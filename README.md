@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You still haven’t noticed that something precious to you has been replaced."
+> "He who forgives and acknowledges himself... that is what it truly means to be strong!"
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
