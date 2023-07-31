@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Will you choose that ticket and live on as a man? Or will you choose this one and go back to being a woman? No matter what you choose, I'm sure you will continue to waver. But what's wrong with that? Manly? Womanly? Are those random values that others made up really what you were striving toward? If things were so clear cut, then neither men, women, you, or me would be leading such painful lives."
+> "I now have things that I don't want to forget, and things that I shouldn't forget. And I don't plan to ever forget those things, as long as I live."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama' TV 2012**](https://myanimelist.net/search/all?q=Gintama'%20TV%202012&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
