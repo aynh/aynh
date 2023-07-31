@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "True Change cannot be made if it is bound by laws and limitations, predictions and imagination."
+> "Doesn't it ever get boring always being on the winning side?"
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Thorkell**](https://myanimelist.net/character.php?q=Thorkell&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
