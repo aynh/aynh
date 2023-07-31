@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The inferiority you feel is actually the quality of a king. You may grumble a lot, but you know how small you are. And yet you still struggle to reach heights greater than you can imagine."
+> "Music speaks to people's hearts, all throughout the world. I believe it's a powerful language."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Kawashima Sapphire**](https://myanimelist.net/character.php?q=Kawashima%20Sapphire&cat=character), [**Hibike! Euphonium**](https://myanimelist.net/search/all?q=Hibike!%20Euphonium&cat=all)
