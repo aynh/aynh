@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Society doesn't always do what's right. That's exactly why we ourselves must live virtuous lives."
+> "The inferiority you feel is actually the quality of a king. You may grumble a lot, but you know how small you are. And yet you still struggle to reach heights greater than you can imagine."
 
-&mdash; [**Akane Tsunemori**](https://myanimelist.net/character.php?q=Akane%20Tsunemori&cat=character), [**Psycho-Pass 2**](https://myanimelist.net/search/all?q=Psycho-Pass%202&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
