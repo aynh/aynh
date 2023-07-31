@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A light comes out of the darkness. A heart that makes a flower bloom in the wilderness journeys through the sky. Music changes the world."
+> "If you don't want to be betrayed anymore, then start by doubting the person you want to doubt the least."
 
-&mdash; [**Haruka Nanami**](https://myanimelist.net/character.php?q=Haruka%20Nanami&cat=character), [**Uta no Prince-sama**](https://myanimelist.net/search/all?q=Uta%20no%20Prince-sama&cat=all)
+&mdash; [**Inspector Lunge**](https://myanimelist.net/character.php?q=Inspector%20Lunge&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
