@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Doesn't it ever get boring always being on the winning side?"
+> "What a punchline, no... that was just a punch."
 
-&mdash; [**Thorkell**](https://myanimelist.net/character.php?q=Thorkell&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Arisawa Tatsuki**](https://myanimelist.net/character.php?q=Arisawa%20Tatsuki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
