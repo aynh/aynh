@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Music speaks to people's hearts, all throughout the world. I believe it's a powerful language."
+> "Using a rescued civilian as a hostage? So do you still feel justified in fighting by their side with these cowards? Kira?"
 
-&mdash; [**Kawashima Sapphire**](https://myanimelist.net/character.php?q=Kawashima%20Sapphire&cat=character), [**Hibike! Euphonium**](https://myanimelist.net/search/all?q=Hibike!%20Euphonium&cat=all)
+&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
