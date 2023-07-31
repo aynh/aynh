@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ask of me, and I shall give thee the heathen for thine inheritance, and for thy possession, the ends of the earth. Thou shalt break them with a rod of iron. Thou shalt dash them in pieces, like a potters vessel. Be wise now, therefore ye kings. Be admonished ye judges of the earth. Serve the lord with fear, and rejoice with trembling. Kiss the son lest he be angry, and ye perish in the way, though his wrath be kindled but a little."
+> "Will you choose that ticket and live on as a man? Or will you choose this one and go back to being a woman? No matter what you choose, I'm sure you will continue to waver. But what's wrong with that? Manly? Womanly? Are those random values that others made up really what you were striving toward? If things were so clear cut, then neither men, women, you, or me would be leading such painful lives."
 
-&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama' TV 2012**](https://myanimelist.net/search/all?q=Gintama'%20TV%202012&cat=all)
