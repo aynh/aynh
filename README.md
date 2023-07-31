@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How should I put this... There are times when you begin to hate everything around you."
+> "You must be prepared to face the worst possible scenarios. Because harsh reality strikes without warning."
 
-&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Hunter X Hunter**](https://myanimelist.net/character.php?q=Hunter%20X%20Hunter&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
