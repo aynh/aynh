@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If fate were real, then I would say meeting someone new would constitute such a thing."
+> "Noooo, there's no way I, a mere handsome and sexy shopkeeper, could possibly have bankai!"
 
-&mdash; [**Takahiro Mizuno**](https://myanimelist.net/character.php?q=Takahiro%20Mizuno&cat=character), [**Walkure Romanze**](https://myanimelist.net/search/all?q=Walkure%20Romanze&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
