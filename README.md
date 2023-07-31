@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The coin is appreciated...but not as much as your smile."
+> "Love, passion, why do we get caught up by such troublesome feelings? The mind couldn't ever get things straight, and you lose control to know what is sensible. Deep down it's all so vexing."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
