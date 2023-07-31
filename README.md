@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah, it's still a nameless sniper. It's become quite a topic among us. She's still a cadet from the military academy, but at any rate she's got a good arm. It seems she's been brought all the way out here. Hah... to think they have to pull out even a little chick like that... this must be the end."
+> "True Change cannot be made if it is bound by laws and limitations, predictions and imagination."
 
-&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
