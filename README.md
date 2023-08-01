@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A great enough sorrow can stop time, but someday, time will start moving again. No matter how many years may pass."
+> "I don't understand you! You said you don't love me, but you act like you do! Then you tell me to stay away. Do I have a chance or not?!"
 
-&mdash; [**Grandmother Sawatari**](https://myanimelist.net/character.php?q=Grandmother%20Sawatari&cat=character), [**Tamayura**](https://myanimelist.net/search/all?q=Tamayura&cat=all)
+&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
