@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey sis, I've been wondering. How come everyone always closes their eyes when they sneeze? Is it to keep their eyes from popping out of their heads?"
+> "Unfortunately, the real world isn't the same as a fairy tale."
 
-&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Blake Belladonna**](https://myanimelist.net/character.php?q=Blake%20Belladonna&cat=character), [**RWBY**](https://myanimelist.net/search/all?q=RWBY&cat=all)
