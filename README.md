@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unfortunately, the real world isn't the same as a fairy tale."
+> "Watching messy troubles from the sidelines is a hobby of mine."
 
-&mdash; [**Blake Belladonna**](https://myanimelist.net/character.php?q=Blake%20Belladonna&cat=character), [**RWBY**](https://myanimelist.net/search/all?q=RWBY&cat=all)
+&mdash; [**Tomoe**](https://myanimelist.net/character.php?q=Tomoe&cat=character), [**Kamisama Hajimemashita**](https://myanimelist.net/search/all?q=Kamisama%20Hajimemashita&cat=all)
