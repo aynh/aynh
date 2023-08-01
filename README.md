@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hmm... you can go anywhere you want? Cuz' I'll go... anywhere with you, y'know. (To Kureno)"
+> "It's not bad enough they buried us alive in the oversized dung heap, but now they're stealing our chakra. You gotta give these guys credit for thoroughness!"
 
-&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kiba Inuzuka**](https://myanimelist.net/character.php?q=Kiba%20Inuzuka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
