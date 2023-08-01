@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You must be prepared to face the worst possible scenarios. Because harsh reality strikes without warning."
+> "The two of us aren't so different. My whole life I've desired from others. I felt bitter to the people around me and I closed off my heart...and a heart that lets nothing in..will become empty before you realize it. But in this world, you'll sometimes meet meddlesome people who will, even without asking, give you the love you need. And for someone like you or me, meeting such a person is very blissful."
 
-&mdash; [**Hunter X Hunter**](https://myanimelist.net/character.php?q=Hunter%20X%20Hunter&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Mei Aihara**](https://myanimelist.net/character.php?q=Mei%20Aihara&cat=character), [**Citrus**](https://myanimelist.net/search/all?q=Citrus&cat=all)
