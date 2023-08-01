@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The beginning of a story is a sudden event; the start, a happy accident, the end, the fate for which it's meant. A story that never ends is a sad fate."
+> "I don't have any regrets. I'm glad I met you, Sousuke Sagara."
 
-&mdash; [**Edel**](https://myanimelist.net/character.php?q=Edel&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
+&mdash; [**Kaname Chidori**](https://myanimelist.net/character.php?q=Kaname%20Chidori&cat=character), [**Full Metal Panic!**](https://myanimelist.net/search/all?q=Full%20Metal%20Panic!&cat=all)
