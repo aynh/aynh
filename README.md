@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't have any regrets. I'm glad I met you, Sousuke Sagara."
+> "No matter how hard you try, you cannot exceed your true capabilities."
 
-&mdash; [**Kaname Chidori**](https://myanimelist.net/character.php?q=Kaname%20Chidori&cat=character), [**Full Metal Panic!**](https://myanimelist.net/search/all?q=Full%20Metal%20Panic!&cat=all)
+&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
