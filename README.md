@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Team Rocket may be dirty rotten criminals, but we're not in the business of destroying children's dreams! At least, not yet."
+> "At times like these, you shouldn't depend on people's advice, but think about it thoroughly by yourself and make a decision. Because there's no right answer when it comes to love. Whatever your answer is, if it's your own choice, then it's right."
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Yuyuka Nekota**](https://myanimelist.net/character.php?q=Yuyuka%20Nekota&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
