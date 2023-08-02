@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have a confession. I love special things."
+> "Why do you still want to be my friend? Is it because you feel comfortable being with me? Because I understand your awkward and useless self, and yet still love you? Quit acting so spoiled. When you rejected me, you lost the right to want those things!"
 
-&mdash; [**Azaka Kokutō**](https://myanimelist.net/character.php?q=Azaka%20Kokut%C5%8D&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
