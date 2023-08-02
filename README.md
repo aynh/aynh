@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just really don't wanna meet a disappointing end, with someone burning my bones without even knowing who they belonged to."
+> "People in reality spout off all in unison about love and friendship but in fact it's a dirty little world full of lies and desires, isn't it?"
 
-&mdash; [**Jean Kirstein**](https://myanimelist.net/character.php?q=Jean%20Kirstein&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Satou Tatsuhiro**](https://myanimelist.net/character.php?q=Satou%20Tatsuhiro&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
