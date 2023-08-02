@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hope it's a cool morning. That's how cool days always start out. And a cool guy like me deserves the coolest morning possible."
+> "I have a confession. I love special things."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Azaka Kokutō**](https://myanimelist.net/character.php?q=Azaka%20Kokut%C5%8D&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
