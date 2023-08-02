@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fool! Next time you see the sun at night, know it's your last!"
+> "Our motto is to make use of our characteristics to answer customers' needs."
 
-&mdash; [**Yashiro Hoshimiya**](https://myanimelist.net/character.php?q=Yashiro%20Hoshimiya&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
+&mdash; [**Kyoya Ootori**](https://myanimelist.net/character.php?q=Kyoya%20Ootori&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
