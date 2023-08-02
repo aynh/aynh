@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay to make mistakes. In fact, you should. Making mistakes is how you learn to do it right. Getting a good result isn't the only thing. What matters is that you play your best during the game."
+> "A lump of steel, like a shooting star. Just seeing the same sky as you makes familiar scenery look different. I swing between hope and despair at your slightest gesture, and my heart starts to play a melody. What kind of feeling is this again? What do they call this kind of feeling? I think it's probably... Called Love. I'm sure this is what they call love."
 
-&mdash; [**Soujuu Matsushita**](https://myanimelist.net/character.php?q=Soujuu%20Matsushita&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
+&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
