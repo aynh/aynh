@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you look back after a long life, you'll realize there's nothing that's really worth risking your life for."
+> "[when Rukia asks why she is in the Gotei 13] What the hell?! That's so obvious! To 'fight' and to 'protect'!"
 
-&mdash; [**Mackenzie Glen**](https://myanimelist.net/character.php?q=Mackenzie%20Glen&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
