@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our motto is to make use of our characteristics to answer customers' needs."
+> "I just really don't wanna meet a disappointing end, with someone burning my bones without even knowing who they belonged to."
 
-&mdash; [**Kyoya Ootori**](https://myanimelist.net/character.php?q=Kyoya%20Ootori&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Jean Kirstein**](https://myanimelist.net/character.php?q=Jean%20Kirstein&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
