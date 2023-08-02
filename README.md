@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What would you have me say? 'Don't worry, I'm sure he's still alive.'? Ridiculous. I am not here to comfort you. I don't understand why are you so fixated on life and death? At any rate, your friends will soon be annihilated. So what if that's one step closer? They should have seen this coming from the start. If they couldn't see it coming, the fault lies in their own foolishness. Laughing them off as a group of idiots would be sufficient. Why can't you do that? If it were me, and my friends entered Hueco Mundo without first gauging their strength, I'd be infuriated by their stupidity."
+> "I hope it's a cool morning. That's how cool days always start out. And a cool guy like me deserves the coolest morning possible."
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
