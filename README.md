@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Aang* You need to find someone who WAITS and LISTENS before striking."
+> "The more material you possess, the harder you'll feel the loss."
 
-&mdash; [**King Bumi**](https://myanimelist.net/character.php?q=King%20Bumi&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Arima Teppei**](https://myanimelist.net/character.php?q=Arima%20Teppei&cat=character), [**Princess Lover!**](https://myanimelist.net/search/all?q=Princess%20Lover!&cat=all)
