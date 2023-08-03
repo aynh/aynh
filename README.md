@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey hun! I've got a great idea, let's trade! Yo take my spot and I'll fight Hercule!"
+> "Don't kid yourself, Mustang. You know how humans love to watch other people suffer while making fools of themselves. I mean, why else would you constantly be at war with each other?"
 
-&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Envy**](https://myanimelist.net/character.php?q=Envy&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
