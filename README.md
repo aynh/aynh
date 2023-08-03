@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're so gullible! Don't you have any standards? So if I told you to spin around, you'd do it? If they told you to jump off a cliff, would you do that, too? I can't stand people who have no individuality!! (To Tohru)"
+> "Search out the facts, then string them all together... and that's when the truth will be revealed."
 
-&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Saji Crossroad**](https://myanimelist.net/character.php?q=Saji%20Crossroad&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
