@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Any betrayal you can see is trivial,  what is truly frightening and much more lethal, is the betrayal you cannot see."
+> "If one side was just, it would be called a defense or a suppression. But this is war. And wars happen because both sides are just."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kajoumaru Hidetomo**](https://myanimelist.net/character.php?q=Kajoumaru%20Hidetomo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
