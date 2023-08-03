@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unwilling to listen or see anything else, you lost yourself in your own world and became incapable of seeing the things around you."
+> "[to Ichigo] You're a Soul Reaper and I'm a Hollow. Whichever side loses will be massacred! It's been that way for over a thousand years! Who needs any more reason than that?! Now bring it! The last man standing gets to go home alive! That's all there is to it!"
 
-&mdash; [**Raiko Shimizu**](https://myanimelist.net/character.php?q=Raiko%20Shimizu&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
