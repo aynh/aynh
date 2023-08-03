@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hard work is worthless for those that don't believe in themselves."
+> "The difference in ability... What about it? Do you think I should give up just because you're stronger than me?"
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
