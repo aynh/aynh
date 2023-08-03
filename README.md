@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The difference in ability... What about it? Do you think I should give up just because you're stronger than me?"
+> "Doesn't seem to matter how far I travel, my destiny is always followed by blood and gunsmoke. The result is always the same every time, mountains of death and debris."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
