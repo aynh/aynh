@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To take responsibility is to take pain onto yourself. It means to bear more pain than what others felt because of your mistakes! If you ruined someone's silver tableware, you must repay with gold tableware. The president of a polluting manufacturing plant must live beside the plant's chimney. That's what taking responsibility means. However the people in so-called high positions never see the consequences. When mistakes are made, they will casually bow their heads and apologize. They think that's enough. Are you one of them too?"
+> "You're so gullible! Don't you have any standards? So if I told you to spin around, you'd do it? If they told you to jump off a cliff, would you do that, too? I can't stand people who have no individuality!! (To Tohru)"
 
-&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
+&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
