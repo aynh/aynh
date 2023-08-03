@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more material you possess, the harder you'll feel the loss."
+> "The world is not beautiful; and that, in a way, lends it a sort of beauty."
 
-&mdash; [**Arima Teppei**](https://myanimelist.net/character.php?q=Arima%20Teppei&cat=character), [**Princess Lover!**](https://myanimelist.net/search/all?q=Princess%20Lover!&cat=all)
+&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
