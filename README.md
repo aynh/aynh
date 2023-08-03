@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are Partners. If you are a Witch, then I am a Warlock."
+> "You believe that the strong exist to cull the weak. To use them as food. But you are mistaken... The strong exist, not to feed off of the weak, but to protect them!"
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
