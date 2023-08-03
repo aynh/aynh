@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans must think about living on. And, must also understand death. Most important, we must learn to understand the truth."
+> "*To Tayuya* How many times do I have to tell you? The first move is always a feint. It's the most basic thing, to land a hit with the second move."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
