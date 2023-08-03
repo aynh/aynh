@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If one side was just, it would be called a defense or a suppression. But this is war. And wars happen because both sides are just."
+> "But even though she's gone... she's not really gone, right? That the light won't go on in that apartment... is a lie, right?"
 
-&mdash; [**Kajoumaru Hidetomo**](https://myanimelist.net/character.php?q=Kajoumaru%20Hidetomo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
