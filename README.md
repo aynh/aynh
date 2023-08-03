@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But even though she's gone... she's not really gone, right? That the light won't go on in that apartment... is a lie, right?"
+> "Hey hun! I've got a great idea, let's trade! Yo take my spot and I'll fight Hercule!"
 
-&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
