@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't kid yourself, Mustang. You know how humans love to watch other people suffer while making fools of themselves. I mean, why else would you constantly be at war with each other?"
+> "Humans all behave the same way, like idiots. They all forget that someday, they're gonna die, so the moment they come face to face with death, they cling to life."
 
-&mdash; [**Envy**](https://myanimelist.net/character.php?q=Envy&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Ginti**](https://myanimelist.net/character.php?q=Ginti&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
