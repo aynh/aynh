@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Search out the facts, then string them all together... and that's when the truth will be revealed."
+> "Humans must think about living on. And, must also understand death. Most important, we must learn to understand the truth."
 
-&mdash; [**Saji Crossroad**](https://myanimelist.net/character.php?q=Saji%20Crossroad&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
