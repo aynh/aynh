@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Tayuya* How many times do I have to tell you? The first move is always a feint. It's the most basic thing, to land a hit with the second move."
+> "Unwilling to listen or see anything else, you lost yourself in your own world and became incapable of seeing the things around you."
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Raiko Shimizu**](https://myanimelist.net/character.php?q=Raiko%20Shimizu&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
