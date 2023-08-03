@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You believe that the strong exist to cull the weak. To use them as food. But you are mistaken... The strong exist, not to feed off of the weak, but to protect them!"
+> "The government is the sails, the people the wind, and the time the sea. As long as there is people to repair the ship, it can be used forever."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**France**](https://myanimelist.net/character.php?q=France&cat=character), [**Hetalia The Beautiful World**](https://myanimelist.net/search/all?q=Hetalia%20The%20Beautiful%20World&cat=all)
