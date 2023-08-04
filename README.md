@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Flowers are disturbed, god of flowers weeps, winds of Heaven are disturbed, demon of Heaven laughs. Katen Kyōkotsu!"
+> "Don't beg for it, earn it. Do it, and you'll be rewarded."
 
-&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Renton Thurston**](https://myanimelist.net/character.php?q=Renton%20Thurston&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
