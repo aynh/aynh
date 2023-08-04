@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do your best, no matter how many times you fail!"
+> "Humans will wither away if they're always alone. The only remedy would be to seek out other people."
 
-&mdash; [**Takeshi Tatsumi**](https://myanimelist.net/character.php?q=Takeshi%20Tatsumi&cat=character), [**Giant Killing**](https://myanimelist.net/search/all?q=Giant%20Killing&cat=all)
+&mdash; [**Misawa Kyouko**](https://myanimelist.net/character.php?q=Misawa%20Kyouko&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
