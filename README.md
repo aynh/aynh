@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The government is the sails, the people the wind, and the time the sea. As long as there is people to repair the ship, it can be used forever."
+> "If so many people believe in this, the lies will become reality. That's the so called group mentality."
 
-&mdash; [**France**](https://myanimelist.net/character.php?q=France&cat=character), [**Hetalia The Beautiful World**](https://myanimelist.net/search/all?q=Hetalia%20The%20Beautiful%20World&cat=all)
+&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
