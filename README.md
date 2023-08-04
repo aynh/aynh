@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't beg for it, earn it. Do it, and you'll be rewarded."
+> "I am content with just being a flower, blooming and withering away… that’s all I ever needed."
 
-&mdash; [**Renton Thurston**](https://myanimelist.net/character.php?q=Renton%20Thurston&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Dune**](https://myanimelist.net/character.php?q=Dune&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
