@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In that case, you have nothing to fear. Mistakes aren’t made by locking your feelings away and holding back… They’re made while wearing your heart on your sleeve."
+> "Flowers are disturbed, god of flowers weeps, winds of Heaven are disturbed, demon of Heaven laughs. Katen Kyōkotsu!"
 
-&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
