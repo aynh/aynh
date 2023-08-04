@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's harder to fool one's self than to fool others."
+> "To Mello, it's like playing a videogame against me, I think. 'See who gets to Kira, the last boss, first.'"
 
-&mdash; [**Azuma Yunoki**](https://myanimelist.net/character.php?q=Azuma%20Yunoki&cat=character), [**La Corda D'Oro - primo passo**](https://myanimelist.net/search/all?q=La%20Corda%20D'Oro%20-%20primo%20passo&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
