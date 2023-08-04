@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A half moon. A bright half and a dark half. Just like me."
+> "If you keep bad-mouthing someone, you might feel like as if you are on a higher position than that person. But in actual fact, its completely wrong to do that!"
 
-&mdash; [**Gasai Yuno**](https://myanimelist.net/character.php?q=Gasai%20Yuno&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
