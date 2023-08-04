@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the first place, the logic that says 'those who play games are kids' is itself an allusion, therefore one might say that shoehorning reality into your stubborn dualism is already a criticism of the self. In short, humans can only recognize reality through the filter called 'me' and so they are unable to escape the constraints of their uncanny existence."
+> "There is only one truth."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
