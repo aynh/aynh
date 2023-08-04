@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know you play by higher standards, but at least give me credit for the nose."
+> "As a cool guy, I'm used to seeing naked women."
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
