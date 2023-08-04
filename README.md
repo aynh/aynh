@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ruin Myself, huh? I like it."
+> "She beat me like I owed her money."
 
-&mdash; [**Ohana Matsumae**](https://myanimelist.net/character.php?q=Ohana%20Matsumae&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
