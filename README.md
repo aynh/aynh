@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bearing the sins of the children of earth, the moon begins to consume its light."
+> "Protecting someone means giving them a place to belong. Giving them a place where they can be happy."
 
-&mdash; [**Bertha**](https://myanimelist.net/character.php?q=Bertha&cat=character), [**Darker than Black**](https://myanimelist.net/search/all?q=Darker%20than%20Black&cat=all)
+&mdash; [**Rayneshia El-Arte Corwen**](https://myanimelist.net/character.php?q=Rayneshia%20El-Arte%20Corwen&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
