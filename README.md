@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Protecting someone means giving them a place to belong. Giving them a place where they can be happy."
+> "The skull is one of the most eloquent bones in existence. If you just ask, it will tell you many things."
 
-&mdash; [**Rayneshia El-Arte Corwen**](https://myanimelist.net/character.php?q=Rayneshia%20El-Arte%20Corwen&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Sakurako Kujō**](https://myanimelist.net/character.php?q=Sakurako%20Kuj%C5%8D&cat=character), [**Sakurako-san no Ashioto ni wa Shitai ga Umatteiru**](https://myanimelist.net/search/all?q=Sakurako-san%20no%20Ashioto%20ni%20wa%20Shitai%20ga%20Umatteiru&cat=all)
