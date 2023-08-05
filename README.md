@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you think music is only made of sounds, you're mistaken. Silence is also part of music."
+> "Welcome. Welcome to my cave young ones. Please forgive the belated salutations I am the holy sword Excalibur!"
 
-&mdash; [**Kunio Yaobi**](https://myanimelist.net/character.php?q=Kunio%20Yaobi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
