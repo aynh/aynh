@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans will wither away if they're always alone. The only remedy would be to seek out other people."
+> "There are things people can't accept, even if they do understand them."
 
-&mdash; [**Misawa Kyouko**](https://myanimelist.net/character.php?q=Misawa%20Kyouko&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
