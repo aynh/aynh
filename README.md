@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well it's not like the world is full of sunshine and daisies. If society was only shaped by the view that one must be happy-go-lucky all the time, Hollywood wouldn't make tear-jerking movies, would they?"
+> "I feel no responsibility to comrades who've lost lives under my command. Because they chose to fight in each battle.. Just as I chose this. But if there is something that... I can do for them. Something I can do for the dead... Then it is to win! I must keep winning to attain my dream. The same one they clung to, and risked their lives for!! To realize my dream, I will perch on top of their corpses.. It is a blood-smeared dream, after all. I don't regret or feel guilty about it.. But to risk thousands of lives while never getting myself dirty. It's not a dream that can be so easily realized!"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru.**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.&cat=all)
+&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
