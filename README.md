@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How could I burden that brat with the weight of my life? *about Oz*"
+> "[singing] Total slaughter, total slaughter. I won't leave a single man alive. La de da de die, genocide. La de da de dud, an ocean of blood. Let's begin the killing time."
 
-&mdash; [**Elliot Nightray**](https://myanimelist.net/character.php?q=Elliot%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
