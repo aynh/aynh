@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you wanna climb a mountain, you obviously aim for the top, but you gotta enjoy the scenery too."
+> "Bearing the sins of the children of earth, the moon begins to consume its light."
 
-&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Bertha**](https://myanimelist.net/character.php?q=Bertha&cat=character), [**Darker than Black**](https://myanimelist.net/search/all?q=Darker%20than%20Black&cat=all)
