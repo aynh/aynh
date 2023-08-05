@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You wanted revenge? You're just making other people as miserable as you. Revenge is just the path you took to escape your suffering."
+> "How could I burden that brat with the weight of my life? *about Oz*"
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Elliot Nightray**](https://myanimelist.net/character.php?q=Elliot%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
