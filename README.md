@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, the blood rushes to my head and I feel like, if I run, I'll lose something important."
+> "If the ways of this world are based on equivalent exchange, as alchemy says, then in order to allow for a new generation to enjoy good fortune, the price that we must pay, is to carry the bodies of the dead across a river of blood."
 
-&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
