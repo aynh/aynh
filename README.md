@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[singing] Total slaughter, total slaughter. I won't leave a single man alive. La de da de die, genocide. La de da de dud, an ocean of blood. Let's begin the killing time."
+> "Check it out yo, how kick ass is my new fighter plane of doom!? Dude, it blowin your mind yet or what?"
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**America**](https://myanimelist.net/character.php?q=America&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
