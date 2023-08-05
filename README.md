@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Eventually, someday, whatever! If it will break, and we'll be free then that's good enough for me! (To Tohru)"
+> "Sometimes, the blood rushes to my head and I feel like, if I run, I'll lose something important."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
