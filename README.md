@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Game!? Is life a game to you?...Life is not a game!!"
+> "All things change in a dynamic environment. Your effort to remain what you are is what limits you."
 
-&mdash; [**Dongtae**](https://myanimelist.net/character.php?q=Dongtae&cat=character), [**Dice: The Cube That Changes Everything**](https://myanimelist.net/search/all?q=Dice%3A%20The%20Cube%20That%20Changes%20Everything&cat=all)
+&mdash; [**Puppet Master**](https://myanimelist.net/character.php?q=Puppet%20Master&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
