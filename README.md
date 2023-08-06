@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ashitaka... can you save the girl you love?"
+> "C'mon, there is no such thing as gross stuff in this world...  Except for GROSSLY CUTE things."
 
-&mdash; [**Moro**](https://myanimelist.net/character.php?q=Moro&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Fuura Kafuka**](https://myanimelist.net/character.php?q=Fuura%20Kafuka&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
