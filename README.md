@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Setbacks are inevitable to superstars. Adversity is what separates the good from the great. After all, stars can only shine during the night."
+> "If you don't want to die - think."
 
-&mdash; [**Watari Ryouta**](https://myanimelist.net/character.php?q=Watari%20Ryouta&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
