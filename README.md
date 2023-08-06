@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All things change in a dynamic environment. Your effort to remain what you are is what limits you."
+> "Every phenomenon that happens in the human world is caused by people for their own convenience."
 
-&mdash; [**Puppet Master**](https://myanimelist.net/character.php?q=Puppet%20Master&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Takano Miyo**](https://myanimelist.net/character.php?q=Takano%20Miyo&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
