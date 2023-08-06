@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every phenomenon that happens in the human world is caused by people for their own convenience."
+> "Only I could do it! I was well aware that killing people is crime in itself! Yet at that point it was the only way to make things right! I thought to myself that someday people will come to realize this as much, and regard it as an act of justice! I had no choice but to act as Kira… it was the destiny given to me. I was chosen to renew this rotten world, to bring about true peace – a utopia."
 
-&mdash; [**Takano Miyo**](https://myanimelist.net/character.php?q=Takano%20Miyo&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
