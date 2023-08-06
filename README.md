@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mongrels though they may be, they're still figures of some slight renown"
+> "Becoming an adult is such a sad thing. If you have something dear to protect, you may end up at odds with yourself."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Cthuko**](https://myanimelist.net/character.php?q=Cthuko&cat=character), [**Haiyore! Nyaruko-san**](https://myanimelist.net/search/all?q=Haiyore!%20Nyaruko-san&cat=all)
