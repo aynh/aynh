@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[yelling angrily toward the sky] You've always thrown everything you could at me! Well, I can take it, and now I can give it back! Come on! STRIKE ME! You've never held back before!"
+> "This is my case! I'm going to solve it!! Don't get involved!"
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
