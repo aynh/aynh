@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only I could do it! I was well aware that killing people is crime in itself! Yet at that point it was the only way to make things right! I thought to myself that someday people will come to realize this as much, and regard it as an act of justice! I had no choice but to act as Kira… it was the destiny given to me. I was chosen to renew this rotten world, to bring about true peace – a utopia."
+> "Hope is harmony. A just heart, moving toward the light. That is all. Despair is hope's polar opposite. It is messy and confusing. Despair swallows up love, hatred, and everything else. Because not knowing where you will end up is despair. Despair is what even you cannot predict. Only despair's unpredictability will save you from a boring future."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Junko Enoshima**](https://myanimelist.net/character.php?q=Junko%20Enoshima&cat=character), [**Danganronpa 3: The End of Kibougamine Gakuen - Zetsubou-hen**](https://myanimelist.net/search/all?q=Danganronpa%203%3A%20The%20End%20of%20Kibougamine%20Gakuen%20-%20Zetsubou-hen&cat=all)
