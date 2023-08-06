@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The probability of you remaining yourself until the day you die is extremely low. The hopeless spark you have now will be corrupted and in the most awful way there is."
+> "You must believe in yourself, follow your path without fear."
 
-&mdash; [**Hampnie Hambart**](https://myanimelist.net/character.php?q=Hampnie%20Hambart&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
+&mdash; [**Mamoru Chiba**](https://myanimelist.net/character.php?q=Mamoru%20Chiba&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
