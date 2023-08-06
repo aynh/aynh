@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Living has it own challenges. I'll give you just one piece of advice. Don't quit. Yes, when you die, you die. But if you give up, you're definitely going to die. That, I am sure of."
+> "Ashitaka... can you save the girl you love?"
 
-&mdash; [**Brittany**](https://myanimelist.net/character.php?q=Brittany&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Moro**](https://myanimelist.net/character.php?q=Moro&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
