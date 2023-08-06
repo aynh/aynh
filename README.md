@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You were wrong on two counts. Even the hardest substance can be broken, when crashed into itself. And the ability to feel pain is not a weakness. It’s a strength. Pain tells a creature its vulnerabilities, and not you expose them to attack. Your robot is dead. And so, I’m afraid, are you."
+> "This is called the 'Rippling Sword'. 'Rippling Ophelia'... Great name, don't you think? But it's not too well known yet. Because most of the people who've seen it are dead."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
