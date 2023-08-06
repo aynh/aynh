@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You must believe in yourself, follow your path without fear."
+> "Setbacks are inevitable to superstars. Adversity is what separates the good from the great. After all, stars can only shine during the night."
 
-&mdash; [**Mamoru Chiba**](https://myanimelist.net/character.php?q=Mamoru%20Chiba&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
+&mdash; [**Watari Ryouta**](https://myanimelist.net/character.php?q=Watari%20Ryouta&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
