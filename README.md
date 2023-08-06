@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, Okabe, whether time is slow or fast, depends on perception. Theory of relativity is so romantic."
+> "If you simply obey orders without question to protect your master, that isn't your greatest wish, but your greatest tragedy."
 
-&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Jae-ha**](https://myanimelist.net/character.php?q=Jae-ha&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
