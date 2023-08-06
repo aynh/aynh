@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is my case! I'm going to solve it!! Don't get involved!"
+> "I'm a half-demon, more egotistical and greedy than any other living creature — that's what human beings are, right?.. But with human blood flowing through my veins, I never give up! Don't you understand? When you have someone to protect, your power increases multifold!"
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
