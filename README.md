@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Becoming an adult is such a sad thing. If you have something dear to protect, you may end up at odds with yourself."
+> "You were wrong on two counts. Even the hardest substance can be broken, when crashed into itself. And the ability to feel pain is not a weakness. It’s a strength. Pain tells a creature its vulnerabilities, and not you expose them to attack. Your robot is dead. And so, I’m afraid, are you."
 
-&mdash; [**Cthuko**](https://myanimelist.net/character.php?q=Cthuko&cat=character), [**Haiyore! Nyaruko-san**](https://myanimelist.net/search/all?q=Haiyore!%20Nyaruko-san&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
