@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm a half-demon, more egotistical and greedy than any other living creature — that's what human beings are, right?.. But with human blood flowing through my veins, I never give up! Don't you understand? When you have someone to protect, your power increases multifold!"
+> "Living has it own challenges. I'll give you just one piece of advice. Don't quit. Yes, when you die, you die. But if you give up, you're definitely going to die. That, I am sure of."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Brittany**](https://myanimelist.net/character.php?q=Brittany&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
