@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kindness alone can't save people. It can't erase sin or wash away the impurities."
+> "That's right...If I'm the first one here, I can save Kuchiki-san. Kurosaki must've wanted to rescue her himself...If I did it, he'd get really pissed...Heheheh..."
 
-&mdash; [**Marida Cruz**](https://myanimelist.net/character.php?q=Marida%20Cruz&cat=character), [**Mobile Suit Gundam UC**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20UC&cat=all)
+&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
