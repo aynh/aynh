@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now all that is left is the destruction of earth, but I think it would be a waste to destroy it. The food of this planet is very delicious."
+> "I think running a restaurant would fit you better than being an assassin."
 
-&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
