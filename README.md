@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Yubaba] I'm not leaving until you give me a job!"
+> "Ninjas are revolting, they stole my idea. I'll have to kill them now."
 
-&mdash; [**Chihiro Ogino**](https://myanimelist.net/character.php?q=Chihiro%20Ogino&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
