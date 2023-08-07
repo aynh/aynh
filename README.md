@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's right...If I'm the first one here, I can save Kuchiki-san. Kurosaki must've wanted to rescue her himself...If I did it, he'd get really pissed...Heheheh..."
+> "Damn. My eyes are naturally drawn in her direction. Is this the unibreastal law of gravitation? Leave it to Sir Isaac Newtit."
 
-&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
