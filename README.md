@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's all it is: information. Even a simulated experience or a dream; simultaneous reality and fantasy. Any way you look at it, all the information that a person accumulates in a lifetime is just a drop in the bucket."
+> "Now all that is left is the destruction of earth, but I think it would be a waste to destroy it. The food of this planet is very delicious."
 
-&mdash; [**Batou**](https://myanimelist.net/character.php?q=Batou&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
