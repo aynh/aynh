@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is like a tube of toothpaste. When you've used all the toothpaste down the last squeeze, that's when you've really lived. Live with all your might. And struggle as long as you have life."
+> "A sound soul dwells within sound skin and sound cuticles."
 
-&mdash; [**Sonozaki Mion**](https://myanimelist.net/character.php?q=Sonozaki%20Mion&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
+&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
