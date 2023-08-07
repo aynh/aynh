@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is just my opinion, but when it comes to teaching somebody discipline... I believe pain is the most effective way."
+> "War is not heroic. War is not exhilarating. War is full of despair. It's dark. It's dreadful. It's a thing of sorrow and gloom."
 
-&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Kira Izuru**](https://myanimelist.net/character.php?q=Kira%20Izuru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
