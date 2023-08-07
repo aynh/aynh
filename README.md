@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you simply obey orders without question to protect your master, that isn't your greatest wish, but your greatest tragedy."
+> "I just realized I love learning things that I don't know anything about. It sort of feels like I'm one step closer to my dream."
 
-&mdash; [**Jae-ha**](https://myanimelist.net/character.php?q=Jae-ha&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Midori Imai**](https://myanimelist.net/character.php?q=Midori%20Imai&cat=character), [**Shirobako**](https://myanimelist.net/search/all?q=Shirobako&cat=all)
