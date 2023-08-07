@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Men don't get touchy-feely with each other."
+> "Not killing people is really hard. Clean living is tough."
 
-&mdash; [**Taichi Mashima**](https://myanimelist.net/character.php?q=Taichi%20Mashima&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Killua Zoldyck**](https://myanimelist.net/character.php?q=Killua%20Zoldyck&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
