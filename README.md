@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Damn. My eyes are naturally drawn in her direction. Is this the unibreastal law of gravitation? Leave it to Sir Isaac Newtit."
+> "In truth everyone gets their wings the day they are born, and if one has the courage to spread those wings, then he'll fly for sure"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Rika Noyamano**](https://myanimelist.net/character.php?q=Rika%20Noyamano&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
