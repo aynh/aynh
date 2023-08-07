@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In truth everyone gets their wings the day they are born, and if one has the courage to spread those wings, then he'll fly for sure"
+> "Then you swear that, once I defeat an enemy, you will buy me pants?"
 
-&mdash; [**Rika Noyamano**](https://myanimelist.net/character.php?q=Rika%20Noyamano&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
