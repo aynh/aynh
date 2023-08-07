@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Prince Zuko, pride is not the opposite of shame, but rather it's source. True humility is the only antidote to shame."
+> "[To Yubaba] I'm not leaving until you give me a job!"
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Chihiro Ogino**](https://myanimelist.net/character.php?q=Chihiro%20Ogino&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
