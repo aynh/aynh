@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're horrible! Commenting on my appearance like that! I don't have to listen to this from you! It's sexual harassment!"
+> "There's no need to rush. Sometimes even pointless conversations can teach you a thing or two."
 
-&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ryou Haruna**](https://myanimelist.net/character.php?q=Ryou%20Haruna&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
