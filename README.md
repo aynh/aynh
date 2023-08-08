@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I can do it tomorrow, I won't do it today!"
+> "Sometimes we women must fight too, don't underestimate us!"
 
-&mdash; [**KyÅko ToshinÅ**](https://myanimelist.net/character.php?q=Ky%C3%85%C2%8Dko%20Toshin%C3%85%C2%8D&cat=character), [**Yuri Yuri**](https://myanimelist.net/search/all?q=Yuri%20Yuri&cat=all)
+&mdash; [**Gi-gan**](https://myanimelist.net/character.php?q=Gi-gan&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
