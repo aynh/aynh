@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To me... This world is like a dark night that swallows everything."
+> "I can only say that the human curiosity is something completely irrational."
 
-&mdash; [**Jack Vessalius**](https://myanimelist.net/character.php?q=Jack%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
