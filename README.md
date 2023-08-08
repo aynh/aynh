@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no need to rush. Sometimes even pointless conversations can teach you a thing or two."
+> "*To Shinpachi* When your friend is crying, cry with him. When your friend is worried, you should worry with him. And when your friend has an awkward bowel movement, then you must have an awkward bowel movement too, Shin-chan. If you are a friend, you should be able to share the other's pain, no matter what. And Shin-chan, if your friend goes down the wrong path... Then, you must stop your friend, even if it ruins your friendship. That is true samurai friendship."
 
-&mdash; [**Ryou Haruna**](https://myanimelist.net/character.php?q=Ryou%20Haruna&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
+&mdash; [**Shimura Tae**](https://myanimelist.net/character.php?q=Shimura%20Tae&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
