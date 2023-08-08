@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sounds like a lot of work, I think I'll pass. I'd rather play and I'll ask for help when I get stuck."
+> "To me... This world is like a dark night that swallows everything."
 
-&mdash; [**Konata Izumi**](https://myanimelist.net/character.php?q=Konata%20Izumi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
+&mdash; [**Jack Vessalius**](https://myanimelist.net/character.php?q=Jack%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
