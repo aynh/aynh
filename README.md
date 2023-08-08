@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In exchange of being able to get something that normal people can't have... you must let go of what normal people have."
+> "Who'd want to date girls that talk smack about your friends?"
 
-&mdash; [**Aki Ogasawara**](https://myanimelist.net/character.php?q=Aki%20Ogasawara&cat=character), [**Kanojo wa Uso wo Aishisugiteru**](https://myanimelist.net/search/all?q=Kanojo%20wa%20Uso%20wo%20Aishisugiteru&cat=all)
+&mdash; [**Makoto Sunakawa**](https://myanimelist.net/character.php?q=Makoto%20Sunakawa&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
