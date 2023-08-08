@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If they find out what you did there, a lot of people will say a lot of things to you. Some will say you did the right thing. And some will say you did the wrong thing. But that's not what matters. No matter what anyone says, you don't have to worry. Because you didn't do the right thing, and you didn't do the wrong thing. It was all part of being young."
+> "At first, people only play as dots. But when lines of trust and friendship connect those dots, the lines become a circle and that circle is teamwork. As long as you keep playing as a dot, the others won't trust you either."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Major**](https://myanimelist.net/character.php?q=Major&cat=character), [**Major**](https://myanimelist.net/search/all?q=Major&cat=all)
