@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The voice, the smile that still remains in his heart... all of it was a long time ago. Humans live such short lives."
+> "Being angry consumes energy and makes me tired. So I'd rather apologize, even if I'm not at fault. Besides, we get along, and we both want to stay friends. Prolonging an awkward situation out of stubbornness is just silly."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Tanaka**](https://myanimelist.net/character.php?q=Tanaka&cat=character), [**Tanaka-kun wa Itsumo Kedaruge**](https://myanimelist.net/search/all?q=Tanaka-kun%20wa%20Itsumo%20Kedaruge&cat=all)
