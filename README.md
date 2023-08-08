@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter what the essence of it is. The truth is what's hidden inside."
+> "In exchange of being able to get something that normal people can't have... you must let go of what normal people have."
 
-&mdash; [**Hiro Hirono**](https://myanimelist.net/character.php?q=Hiro%20Hirono&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Aki Ogasawara**](https://myanimelist.net/character.php?q=Aki%20Ogasawara&cat=character), [**Kanojo wa Uso wo Aishisugiteru**](https://myanimelist.net/search/all?q=Kanojo%20wa%20Uso%20wo%20Aishisugiteru&cat=all)
