@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At first, people only play as dots. But when lines of trust and friendship connect those dots, the lines become a circle and that circle is teamwork. As long as you keep playing as a dot, the others won't trust you either."
+> "The voice, the smile that still remains in his heart... all of it was a long time ago. Humans live such short lives."
 
-&mdash; [**Major**](https://myanimelist.net/character.php?q=Major&cat=character), [**Major**](https://myanimelist.net/search/all?q=Major&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
