@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Ichigo* I thought you were interesting before, but now you're just a creepy kid."
+> "It doesn't matter what the essence of it is. The truth is what's hidden inside."
 
-&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Hiro Hirono**](https://myanimelist.net/character.php?q=Hiro%20Hirono&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
