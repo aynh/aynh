@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think running a restaurant would fit you better than being an assassin."
+> "You're horrible! Commenting on my appearance like that! I don't have to listen to this from you! It's sexual harassment!"
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
