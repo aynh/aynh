@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The King lives to the fullest! He needs to live more fully than anyone else. He is a figure of admiration to his people!"
+> "Men select women based on emotion. Even if there's a reason, it's only secondary. However, women select men based on reason. Either by something like his class ranking or his standing in society."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Makina**](https://myanimelist.net/character.php?q=Makina&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
