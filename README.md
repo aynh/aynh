@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who cares? Who cares if they're human or if they're something else? If they have boobs, what's the problem?"
+> "That's right! Whatever the tragedy or the blunder is, only the things that actually happened are written in stone!"
 
-&mdash; [**Sakurai Tomozo**](https://myanimelist.net/character.php?q=Sakurai%20Tomozo&cat=character), [**Sora no Otoshimono: Forte**](https://myanimelist.net/search/all?q=Sora%20no%20Otoshimono%3A%20Forte&cat=all)
+&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
