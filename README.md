@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A light comes out of the darkness. A heart that makes a flower bloom in the wilderness journeys through the sky. Music changes the world."
+> "So don't be afraid to open your hearts to others. It's pointless to keep testing people. All you're doing is hurting yourselves."
 
-&mdash; [**Haruka Nanami**](https://myanimelist.net/character.php?q=Haruka%20Nanami&cat=character), [**Uta no Prince-sama**](https://myanimelist.net/search/all?q=Uta%20no%20Prince-sama&cat=all)
+&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
