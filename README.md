@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's right! Whatever the tragedy or the blunder is, only the things that actually happened are written in stone!"
+> "No matter how sturdy something appears, it should have some weakness."
 
-&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Susanoo**](https://myanimelist.net/character.php?q=Susanoo&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
