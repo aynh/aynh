@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to be strong, smile! He who can smile, even when he's so sad that he wants to die, when it's so painful that he wants to give it all up and run away, is the one who becomes strong."
+> "NEETs aren't people who can't do or won't do things. The only difference is the rules. Because we're playing with different rules, we're forced to do things differently. The participants are disoriented. They frown. Then they are discouraged by labeling and stereotyping and find comfort in isolation."
 
-&mdash; [**Atro Spiker**](https://myanimelist.net/character.php?q=Atro%20Spiker&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
