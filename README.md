@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The end result is important. But what's truly important... is the journey to get there."
+> "There's a lot of products that you can buy with money...but my love is the only limited product that only you can have."
 
-&mdash; [**Hikari Hanazono**](https://myanimelist.net/character.php?q=Hikari%20Hanazono&cat=character), [**Special A**](https://myanimelist.net/search/all?q=Special%20A&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
