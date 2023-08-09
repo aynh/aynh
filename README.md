@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The brighter they shine, the darker the shadow grows."
+> "It seems I have overestimated you quite a bit. Your evolution did not even satisfy my expectations. This is the end."
 
-&mdash; [**Makino Fumito**](https://myanimelist.net/character.php?q=Makino%20Fumito&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
