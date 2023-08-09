@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you take someone at puberty, a teen... introduce him or her to a member of the opposite sex around the same age and say, 'This is the person who was meant for you'... and then go on to spend a lot of time together... why wouldn't you fall for them?"
+> "Who cares? Who cares if they're human or if they're something else? If they have boobs, what's the problem?"
 
-&mdash; [**Nisaka Yuusuke**](https://myanimelist.net/character.php?q=Nisaka%20Yuusuke&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
+&mdash; [**Sakurai Tomozo**](https://myanimelist.net/character.php?q=Sakurai%20Tomozo&cat=character), [**Sora no Otoshimono: Forte**](https://myanimelist.net/search/all?q=Sora%20no%20Otoshimono%3A%20Forte&cat=all)
