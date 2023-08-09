@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This guy's a special kind of stupid."
+> "At first, everyone is disgusted. Afraid to bear the sin of killing people. Afraid to receive punishment for replenishing themselves with the life of another. But, once you realize that you won't be punished for killing people, you get used to the guilt pretty soon. The guilt of using humans for food. Aren't humans the same?"
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Mutou Tohru**](https://myanimelist.net/character.php?q=Mutou%20Tohru&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
