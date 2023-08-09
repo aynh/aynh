@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Believe in yourself... If you don’t have that... it doesn’t matter how many talents you have, you still won’t be able to hold your head up high..."
+> "The brighter they shine, the darker the shadow grows."
 
-&mdash; [**Chiaki Nanami**](https://myanimelist.net/character.php?q=Chiaki%20Nanami&cat=character), [**Super Dangan Ronpa 2**](https://myanimelist.net/search/all?q=Super%20Dangan%20Ronpa%202&cat=all)
+&mdash; [**Makino Fumito**](https://myanimelist.net/character.php?q=Makino%20Fumito&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
