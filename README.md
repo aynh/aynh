@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I start wars, resolve them myself, then I buy up the war ravaged lands for a low prince and make a killing off redevelopment and reconstruction concessions!It is a brilliant scheme."
+> "*to Urameshi* Sacrificing your life to save billions of others. You've lit our torches and I won't let your death be in vain... even if it means I'll be joining you soon."
 
-&mdash; [**Frost**](https://myanimelist.net/character.php?q=Frost&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
