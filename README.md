@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To win, but not destroy; to conquer, but not humiliate: That is what true conquest is!"
+> "I think that having no relationships with others is the loneliest thing in the world."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
