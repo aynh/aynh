@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've just gained the privilege to kill."
+> "As long is you still draw breathe, there is no way to escape having to bid others farewell.  It doesn't matter if you're human or not...we all have to say good-bye."
 
-&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Yasaburou Shimogamo**](https://myanimelist.net/character.php?q=Yasaburou%20Shimogamo&cat=character), [**Uchouten Kazoku**](https://myanimelist.net/search/all?q=Uchouten%20Kazoku&cat=all)
