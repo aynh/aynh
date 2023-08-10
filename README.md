@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Men select women based on emotion. Even if there's a reason, it's only secondary. However, women select men based on reason. Either by something like his class ranking or his standing in society."
+> "Why is it?.. I'm so sad and so lonely. But the tears just won't come."
 
-&mdash; [**Makina**](https://myanimelist.net/character.php?q=Makina&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
