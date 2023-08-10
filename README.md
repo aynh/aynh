@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm sorry! I'm sorry, Takashi! I won't forget to brush my teeth again! I won't forget!..."
+> "You've just gained the privilege to kill."
 
-&mdash; [**Mitsukuni Haninozuka**](https://myanimelist.net/character.php?q=Mitsukuni%20Haninozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
