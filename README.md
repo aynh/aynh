@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My obvious charms and god-like powers always dazzle the simple, ordinary folk."
+> "[To Orihime, when she refuses to eat] Shall I force it down your throat? Or would you rather be strapped down and given IV's?"
 
-&mdash; [**Dark Schneider**](https://myanimelist.net/character.php?q=Dark%20Schneider&cat=character), [**Bastard**](https://myanimelist.net/search/all?q=Bastard&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
