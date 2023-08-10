@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is not so simple. You can't save people with kindness only."
+> "'Those who believe will be saved'. It's just that I wanted to find out whether you'll be saved if you believed. If such a thing were true, I feel like I can change myself too."
 
-&mdash; [**Anji Yūkyūzan**](https://myanimelist.net/character.php?q=Anji%20Y%C5%ABky%C5%ABzan&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
