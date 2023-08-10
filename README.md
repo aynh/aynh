@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we love someone, we need to tell them about it. That way, we'll feel relieved and a lot stronger."
+> "I'm sorry! I'm sorry, Takashi! I won't forget to brush my teeth again! I won't forget!..."
 
-&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Mitsukuni Haninozuka**](https://myanimelist.net/character.php?q=Mitsukuni%20Haninozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
