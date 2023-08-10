@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you sure you don't want to see this smooth skin of a young woman? This will be the last time..."
+> "My obvious charms and god-like powers always dazzle the simple, ordinary folk."
 
-&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Dark Schneider**](https://myanimelist.net/character.php?q=Dark%20Schneider&cat=character), [**Bastard**](https://myanimelist.net/search/all?q=Bastard&cat=all)
