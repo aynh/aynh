@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kindness alone can't save people. It can't erase sin or wash away the impurities."
+> "I wouldn´t mind being eaten, as long as it was by a scorchingly hot lady titan."
 
-&mdash; [**Marida Cruz**](https://myanimelist.net/character.php?q=Marida%20Cruz&cat=character), [**Mobile Suit Gundam UC**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20UC&cat=all)
+&mdash; [**Dot Pixis**](https://myanimelist.net/character.php?q=Dot%20Pixis&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
