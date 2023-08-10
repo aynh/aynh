@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wouldn´t mind being eaten, as long as it was by a scorchingly hot lady titan."
+> "The world is not so simple. You can't save people with kindness only."
 
-&mdash; [**Dot Pixis**](https://myanimelist.net/character.php?q=Dot%20Pixis&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Anji Yūkyūzan**](https://myanimelist.net/character.php?q=Anji%20Y%C5%ABky%C5%ABzan&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
