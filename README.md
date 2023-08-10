@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Urameshi* Sacrificing your life to save billions of others. You've lit our torches and I won't let your death be in vain... even if it means I'll be joining you soon."
+> "Kindness alone can't save people. It can't erase sin or wash away the impurities."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Marida Cruz**](https://myanimelist.net/character.php?q=Marida%20Cruz&cat=character), [**Mobile Suit Gundam UC**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20UC&cat=all)
