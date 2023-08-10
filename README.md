@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why is it?.. I'm so sad and so lonely. But the tears just won't come."
+> "Revenge that involves unrelated people isn’t valid at all. All he’s doing is hiding his vengeful hate with the title of God’s representative and acting sublime."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
