@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There comes a time when we can no longer tell the invaders from the invaded. That is what we call “War”."
+> "I start wars, resolve them myself, then I buy up the war ravaged lands for a low prince and make a killing off redevelopment and reconstruction concessions!It is a brilliant scheme."
 
-&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
+&mdash; [**Frost**](https://myanimelist.net/character.php?q=Frost&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
