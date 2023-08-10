@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Orihime, when she refuses to eat] Shall I force it down your throat? Or would you rather be strapped down and given IV's?"
+> "If we love someone, we need to tell them about it. That way, we'll feel relieved and a lot stronger."
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
