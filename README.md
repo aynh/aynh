@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll never forget that you wasted three minutes of my life."
+> "Just walk the path you believe in. And don't forget, you're the main character of your own life story!"
 
-&mdash; [**Barnaby Brooks Jr.**](https://myanimelist.net/character.php?q=Barnaby%20Brooks%20Jr.&cat=character), [**Tiger & Bunny**](https://myanimelist.net/search/all?q=Tiger%20%26%20Bunny&cat=all)
+&mdash; [**Glenn Radars**](https://myanimelist.net/character.php?q=Glenn%20Radars&cat=character), [**Rokudenashi Majutsu Koushi to Akashic Records**](https://myanimelist.net/search/all?q=Rokudenashi%20Majutsu%20Koushi%20to%20Akashic%20Records&cat=all)
