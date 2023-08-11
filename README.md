@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[After Hatori asks what snow becomes when it melts]Ah...um, well...hmm. It becomes spring! No matter how cold it is now, spring will come again! Without fail. It's strange isn't it? But it's true."
+> "They say people can change, but is that really true? If they decide they want to fly, will they grow wings? I don't think so. You don't change yourself, you change how you do things. You have to make your own way. You have to create a way to fly, even while you stay the same."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
