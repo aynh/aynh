@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't care where I get hurt, as long as my injuries are visible."
+> "As long as I'm with you, I get fed and nobody picks on me! I like being here!"
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**South Italy**](https://myanimelist.net/character.php?q=South%20Italy&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
