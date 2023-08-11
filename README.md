@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as I'm with you, I get fed and nobody picks on me! I like being here!"
+> "Nothing worse than being strong, but not strong enough."
 
-&mdash; [**South Italy**](https://myanimelist.net/character.php?q=South%20Italy&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Shinobu Sensui**](https://myanimelist.net/character.php?q=Shinobu%20Sensui&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
