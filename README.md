@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That makes four time. Listen. The more you say, 'I'm sorry', the lesser it's worth."
+> "While I’m here wasting time, how hard is Kakarot training?"
 
-&mdash; [**Kazuki Kazami**](https://myanimelist.net/character.php?q=Kazuki%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
