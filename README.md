@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing worse than being strong, but not strong enough."
+> "Look at my soldiers and their mean faces! I taught them that face!"
 
-&mdash; [**Shinobu Sensui**](https://myanimelist.net/character.php?q=Shinobu%20Sensui&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Prussia**](https://myanimelist.net/character.php?q=Prussia&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
