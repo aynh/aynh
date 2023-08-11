@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how ugly something is, if you look at it in a cute way, it'll seem dear somehow."
+> "If you still love her, I can't help that, but don't meddle with her half-heartedly. If you can surpress your feelings, then leave it."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Shuuko Murao**](https://myanimelist.net/character.php?q=Shuuko%20Murao&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
