@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, you know... I'm gonna do this, and a little of that... and I'm definitely gonna do THAT...! (to Kyo about Tohru, after calling her Kyo's girlfriend)"
+> "No matter how ugly something is, if you look at it in a cute way, it'll seem dear somehow."
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
