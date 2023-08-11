@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who know how painful it can be to be alive, are fascinating."
+> "That makes four time. Listen. The more you say, 'I'm sorry', the lesser it's worth."
 
-&mdash; [**Soichiro Arima**](https://myanimelist.net/character.php?q=Soichiro%20Arima&cat=character), [**His and Her Circumstances**](https://myanimelist.net/search/all?q=His%20and%20Her%20Circumstances&cat=all)
+&mdash; [**Kazuki Kazami**](https://myanimelist.net/character.php?q=Kazuki%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
