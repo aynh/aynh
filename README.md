@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Geniuses don't understand the feelings of people who aren't able to do something."
+> "[To Starrk, about Lilynette] That child with you... Can you send her somewhere else? I can't really go all out with her there."
 
-&mdash; [**Akatsuki no Yona**](https://myanimelist.net/character.php?q=Akatsuki%20no%20Yona&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
