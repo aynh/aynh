@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not that I hate the person in front of me. If I had met him under different circumstances, this never would have happened. But I did meet him that day, and now there is no turning back. I must distinguish the difference between past and present. Everything must be left behind, and the man in front of me is the wall; the wall that I must break through. There is only one direction for me to go. I have to move forward. That's what I'm thinking..."
+> "*to Rei Miyamoto* I'd be an actor if I could look happy right now."
 
-&mdash; [**Kanami Yuta**](https://myanimelist.net/character.php?q=Kanami%20Yuta&cat=character), [**Scryed**](https://myanimelist.net/search/all?q=Scryed&cat=all)
+&mdash; [**Takashi Komuro**](https://myanimelist.net/character.php?q=Takashi%20Komuro&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
