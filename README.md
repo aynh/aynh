@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one’s going to criticize you if you get excited for something, or you laugh with all your heart! And if someone does, I’ll beat them up!"
+> "They all grow up, the youths that are going to live in this era. Go forward, youths. Like a wind on a field. Your burning blood, sweat, and tears... are as beautiful as a parasol. Show no fear, youths."
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
