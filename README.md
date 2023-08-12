@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you think music is only made of sounds, you're mistaken. Silence is also part of music."
+> "Yes, I'm the nice twin, but this conversation bores me. Go play in traffic, please."
 
-&mdash; [**Kunio Yaobi**](https://myanimelist.net/character.php?q=Kunio%20Yaobi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
+&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
