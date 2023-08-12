@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Starrk, about Lilynette] That child with you... Can you send her somewhere else? I can't really go all out with her there."
+> "You're not as slow as you look, monk."
 
-&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Naraku**](https://myanimelist.net/character.php?q=Naraku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
