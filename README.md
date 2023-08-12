@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll always be by your side. You'll never be alone. You have as many hopes as there are stars that light up the sky. The wind that brushes your skin is a presentiment of tomorrow. Come, lets walk in time with the song of the fairies..."
+> "You wont be laughing once you taste our power of friendship!"
 
-&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
