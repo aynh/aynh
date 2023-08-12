@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Keep in mind that there are those who get hurt and those who try to heal the hurt ones. For those guys, it's not funny to have something they value so much be brushed off so lightly. How can a man protect another if he can't even protect himself?"
+> "Don't put me on their level. I don't care about looking interesting. I'm just self-conscious."
 
-&mdash; [**Sawada Iemitsu**](https://myanimelist.net/character.php?q=Sawada%20Iemitsu&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
