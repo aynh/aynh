@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can come up with any number of reasons why you love someone. Like they are cool, or kind, or tall, or rich. There are all sorts of reasons you can say, but those are all lies. They're just excuses you tell yourself to rationally justify your emotions. Well, not so much excuses, as tricks. It's like a ladder you climb, based on the conclusion that you love them. When you feel like you want to be together forever, that's love."
+> "Geniuses don't understand the feelings of people who aren't able to do something."
 
-&mdash; [**Tsukihi Araragi**](https://myanimelist.net/character.php?q=Tsukihi%20Araragi&cat=character), [**Nekomonogatari: Kuro**](https://myanimelist.net/search/all?q=Nekomonogatari%3A%20Kuro&cat=all)
+&mdash; [**Akatsuki no Yona**](https://myanimelist.net/character.php?q=Akatsuki%20no%20Yona&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
