@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People derive their happiness in a variety of ways, even though it might seem cruel."
+> "Killing one man won't change anything. Kill every last person in the world. If you could do that, it might be possible."
 
-&mdash; [**Adashino**](https://myanimelist.net/character.php?q=Adashino&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Kaminski Natalia**](https://myanimelist.net/character.php?q=Kaminski%20Natalia&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
