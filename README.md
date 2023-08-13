@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm the sniper king, sogeking."
+> "No matter how hard or impossible it is, never lose sight of your goal."
 
-&mdash; [**Usopp**](https://myanimelist.net/character.php?q=Usopp&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
