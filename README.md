@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you entrust so much of your everyday life to those electronic devices, the argument that you aren't a cyborg isn't very convincing. To you, those portable terminals are already your second brain. Isn't that right? It can be said that the history of science is a history of the expansion of the human body's functionality, in other words, the history of man's cyberization. That's why it's a matter of degree."
+> "I'm the sniper king, sogeking."
 
-&mdash; [**Toyohisa Senguji**](https://myanimelist.net/character.php?q=Toyohisa%20Senguji&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Usopp**](https://myanimelist.net/character.php?q=Usopp&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
