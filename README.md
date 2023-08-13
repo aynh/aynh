@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So now we know her past. So what? It doesn't have anything to do with us. We have to be nice to her just because she's had a rough past? You've got to be kidding."
+> "I think you've got me all wrong. My motives aren't so sophisticated as 'revenge' or 'honor' or any of that... The reason I killed all of those men... was because I could. It's that simple."
 
-&mdash; [**Ranta**](https://myanimelist.net/character.php?q=Ranta&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Solf J. Kimblee**](https://myanimelist.net/character.php?q=Solf%20J.%20Kimblee&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
