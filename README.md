@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You all underestimate humans. Individually, they may appear weak, but that is not the case. What we need to recognize is that humans are a single life-form comprised of millions of individuals. Besides their individual brains, humans possess a different 'brain' of enormous magnitude. The moment we act in opposition to that brain, we will lose."
+> "Crying when you need to cry is another way to show strength."
 
-&mdash; [**Tamura Reiko**](https://myanimelist.net/character.php?q=Tamura%20Reiko&cat=character), [**Parasyte -the maxim-**](https://myanimelist.net/search/all?q=Parasyte%20-the%20maxim-&cat=all)
+&mdash; [**Fay D. Flourite**](https://myanimelist.net/character.php?q=Fay%20D.%20Flourite&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
