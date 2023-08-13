@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Talking about peace whilst spilling blood, it's something that only humans can do."
+> "[to himself as he chops at the ice] I'm just a guy with a boomerang. I didn't ask for all this flying and magic."
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
