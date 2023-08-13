@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You must be prepared to face the worst possible scenarios. Because harsh reality strikes without warning."
+> "Fine. I'll correct myself. I have no experience. I'm a virgin. More to the point, the only kind of girl who'd talk to an unappealing virgin like you are late-bloomer virgins like me!"
 
-&mdash; [**Hunter X Hunter**](https://myanimelist.net/character.php?q=Hunter%20X%20Hunter&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
