@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pika Pika!"
+> "If you keep your vision clear you will see the future. What happens in our future is our own responsibility."
 
-&mdash; [**Pikachu**](https://myanimelist.net/character.php?q=Pikachu&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Rem Saverem**](https://myanimelist.net/character.php?q=Rem%20Saverem&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
