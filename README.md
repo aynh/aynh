@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "However happy or sad something is, you’ll soon forget it if you don’t get a chance to recall it. What people don’t realize is that they’ve forgotten about forgetting. If everyone really preserved the happiest memory from their past perfectly, they’d only be sadder living in their relatively hollow present. And if everyone preserved the worst memory from their past perfectly, well, they’d still be sad. Everyone just remembers what it’s inconvenient not to remember."
+> "People derive their happiness in a variety of ways, even though it might seem cruel."
 
-&mdash; [**Kusonoki**](https://myanimelist.net/character.php?q=Kusonoki&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
+&mdash; [**Adashino**](https://myanimelist.net/character.php?q=Adashino&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
