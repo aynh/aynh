@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Killing one man won't change anything. Kill every last person in the world. If you could do that, it might be possible."
+> "The world you want can’t be built after destruction. We build it everyday -step by step!"
 
-&mdash; [**Kaminski Natalia**](https://myanimelist.net/character.php?q=Kaminski%20Natalia&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
