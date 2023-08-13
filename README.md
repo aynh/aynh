@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stress makes you bald, but it's stressful to avoid stress, so you end up stressed out anyway. In the end, there's nothing you can do."
+> "The time when you're happy is also the time when you're afraid that the happiness will end."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Subarashii Sekai**](https://myanimelist.net/character.php?q=Subarashii%20Sekai&cat=character), [**Subarashii Sekai**](https://myanimelist.net/search/all?q=Subarashii%20Sekai&cat=all)
