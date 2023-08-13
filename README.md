@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how hard or impossible it is, never lose sight of your goal."
+> "You guys are a team, you have to work together if you want to do anything! One person can't make a decision without the other, you decide together and you fight together!"
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
