@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someday we'll part. Maybe be forgotten. But we're living in the moment. So... make lots of friends, fall madly in love, and enjoy every moment to the fullest."
+> "Life is an incessant series of problems... all difficult, with brutally limited choices... and a time limit."
 
-&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Chapel the Evergreen**](https://myanimelist.net/character.php?q=Chapel%20the%20Evergreen&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
