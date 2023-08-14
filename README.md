@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Protecting someone means giving them a place to belong. Giving them a place where they can be happy."
+> "A great enough sorrow can stop time, but someday, time will start moving again. No matter how many years may pass."
 
-&mdash; [**Rayneshia El-Arte Corwen**](https://myanimelist.net/character.php?q=Rayneshia%20El-Arte%20Corwen&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Grandmother Sawatari**](https://myanimelist.net/character.php?q=Grandmother%20Sawatari&cat=character), [**Tamayura**](https://myanimelist.net/search/all?q=Tamayura&cat=all)
