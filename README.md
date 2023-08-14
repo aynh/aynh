@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're only resorting to physical abuse because you can't prove that I'm wrong."
+> "It's not difficult to compose poetry. You just have to translate your feelings into meter."
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Kanade Ōe**](https://myanimelist.net/character.php?q=Kanade%20%C5%8Ce&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
