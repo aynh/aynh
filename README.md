@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do not fear Death. Death is always at our side. When we show fear, it jumps at us faster than light. But, if we do not show fear, it casts its eye upon us gently and then guides us into infinity."
+> "I thought I told you. If you see your allies losing, that's your chance. Don't step between them. Take the enemy down from behind. And if the enemy's so strong, you can't even do that, then just watch your allies get killed. That's what it means to be Special Forces."
 
-&mdash; [**Laughing Bull**](https://myanimelist.net/character.php?q=Laughing%20Bull&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
