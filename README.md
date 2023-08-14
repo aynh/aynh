@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is an incessant series of problems... all difficult, with brutally limited choices... and a time limit."
+> "Humans will wither away if they're always alone. The only remedy would be to seek out other people."
 
-&mdash; [**Chapel the Evergreen**](https://myanimelist.net/character.php?q=Chapel%20the%20Evergreen&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Misawa Kyouko**](https://myanimelist.net/character.php?q=Misawa%20Kyouko&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
