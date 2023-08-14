@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And that's precisely why it's so convenient, don't you think?"
+> "Who'd eat a pervert's banana? *blushing*"
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
