@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if armed with hundreds of weapons... there are times when you just can't beat a man with a spear of conviction in his gut."
+> "Save your breath. The laws of alchemy don't justify murder!"
 
-&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
