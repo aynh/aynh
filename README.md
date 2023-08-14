@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what bonds you forge with others, time will tear them apart. Well... Doesn't thinking about it make you sick?"
+> "Neither one nor the other, not a demon, but not a human either, no place no belong… I thought the only way was to carve out your own place, by force; that’s how I survived. And by the time I knew what was happening, I was all alone…"
 
-&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
