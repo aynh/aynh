@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not difficult to compose poetry. You just have to translate your feelings into meter."
+> "And that's precisely why it's so convenient, don't you think?"
 
-&mdash; [**Kanade Ōe**](https://myanimelist.net/character.php?q=Kanade%20%C5%8Ce&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
