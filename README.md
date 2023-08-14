@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The way of the sword doesn't belong to any one nation. Knowledge of the arts belongs to us all."
+> "Even death can't cure idiocy."
 
-&mdash; [**Piandao**](https://myanimelist.net/character.php?q=Piandao&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Yui**](https://myanimelist.net/character.php?q=Yui&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
