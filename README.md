@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just think we're missing out if we're not trying different things and having fun. Life's too short."
+> "You're only resorting to physical abuse because you can't prove that I'm wrong."
 
-&mdash; [**Birthday**](https://myanimelist.net/character.php?q=Birthday&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
