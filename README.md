@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who'd eat a pervert's banana? *blushing*"
+> "It's not a matter of a creature's individual worth. It's a matter of a creature's personal feelings."
 
-&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
