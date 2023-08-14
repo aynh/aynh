@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even death can't cure idiocy."
+> "There ain't a single coward who'd turn tail and run from just that! Not among the men of the Shiba clan!"
 
-&mdash; [**Yui**](https://myanimelist.net/character.php?q=Yui&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Ganju Shiba**](https://myanimelist.net/character.php?q=Ganju%20Shiba&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
