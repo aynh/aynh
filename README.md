@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Save your breath. The laws of alchemy don't justify murder!"
+> "I just think we're missing out if we're not trying different things and having fun. Life's too short."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Birthday**](https://myanimelist.net/character.php?q=Birthday&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
