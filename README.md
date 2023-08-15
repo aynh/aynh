@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It looks to me like you've completely lost your touch."
+> "The things we can't obtain are the most beautiful ones."
 
-&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate Stay Night - Unlimited Blade Works**](https://myanimelist.net/search/all?q=Fate%20Stay%20Night%20-%20Unlimited%20Blade%20Works&cat=all)
