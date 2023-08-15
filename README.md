@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Be as swift as the wind. Be as quiet as the forest. Attack as fiercely as the fire. Be immovable like a mountain. Move like the lightning. Be as impenetrable as a shadow."
+> "Failing doesn't give you a reason to give up as long as you believe."
 
-&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
