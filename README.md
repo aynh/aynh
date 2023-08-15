@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And if when everything ends, nothing is left in my hands...that's alright."
+> "Everyone is sacrificing something precious to them in order to save something else. Is that the reason for human action?"
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Shijima Kurookano**](https://myanimelist.net/character.php?q=Shijima%20Kurookano&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
