@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I get reincarnated... I wanna become a clam."
+> "*аfter a customer tells Tamaki she's afraid that her father will yell at her if she drinks this* What if I let you drink it from my mouth?"
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
