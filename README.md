@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, there's this one hopeless idiot... who'll probably end up crying if I see you again."
+> "Those who don't fulfill their obligation to others 'ave no right to ask 'em for such privilege..."
 
-&mdash; [**Atsushi Otani**](https://myanimelist.net/character.php?q=Atsushi%20Otani&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
+&mdash; [**Mr. Blouse**](https://myanimelist.net/character.php?q=Mr.%20Blouse&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
