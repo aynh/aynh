@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*аfter a customer tells Tamaki she's afraid that her father will yell at her if she drinks this* What if I let you drink it from my mouth?"
+> "If I can get my target to move as I want, I've succeeded as a Hunter."
 
-&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Ging Freecss**](https://myanimelist.net/character.php?q=Ging%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
