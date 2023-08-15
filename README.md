@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "DEATH is so unfair. It comes to those who don't need it. But not the people who are asking for it."
+> "Well, there's this one hopeless idiot... who'll probably end up crying if I see you again."
 
-&mdash; [**Yuu Otosaka**](https://myanimelist.net/character.php?q=Yuu%20Otosaka&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
+&mdash; [**Atsushi Otani**](https://myanimelist.net/character.php?q=Atsushi%20Otani&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
