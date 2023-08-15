@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Defying me till the very end, huh? But I'll forgive you. Some things are beautiful exactly because they are unobtainable."
+> "What you speak of at greatest length is what interests you the most."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
