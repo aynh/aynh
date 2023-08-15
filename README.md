@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The worst way to miss someone is to be sitting right next to them and know you can never have them."
+> "I'm sorry! I'm sorry, Takashi! I won't forget to brush my teeth again! I won't forget!..."
 
-&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
+&mdash; [**Mitsukuni Haninozuka**](https://myanimelist.net/character.php?q=Mitsukuni%20Haninozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
