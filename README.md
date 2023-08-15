@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm sure that things that are truly fun can't be compared. Back then, now, and from now on, in the time you spend with others, lots of small fun things are born and disappear. If you are able to capture each of them, you'll never run out of fun things. Forever and ever. And here's one point of advice. Thinking that now is fun is what makes it the most fun."
+> "And if when everything ends, nothing is left in my hands...that's alright."
 
-&mdash; [**Alicia Florence**](https://myanimelist.net/character.php?q=Alicia%20Florence&cat=character), [**Aria the Animation**](https://myanimelist.net/search/all?q=Aria%20the%20Animation&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
