@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I thought I told you. If you see your allies losing, that's your chance. Don't step between them. Take the enemy down from behind. And if the enemy's so strong, you can't even do that, then just watch your allies get killed. That's what it means to be Special Forces."
+> "Being thrown away by humans, devoted to them even though you aren't one of them... and once they are finished with you, they have you end your life yourself... and not even an ounce of gratitude for all that. On the contrary: for your whole life you are hated and reviled. It really is idiotic. We are a different species after all. Once you start seeing things that way, it all becomes very easy to accept. Do humans shed tears for the birds, pigs, cows and sheep that become their food? Of course they don't. They are a different species after all. That is nature. That is the truth. That is Providence. Your way of thinking up to now was the warped one."
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
