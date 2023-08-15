@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who don't fulfill their obligation to others 'ave no right to ask 'em for such privilege..."
+> "Power is not the only connection you can have.  This world is filled with much warmer things."
 
-&mdash; [**Mr. Blouse**](https://myanimelist.net/character.php?q=Mr.%20Blouse&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Minerva Orland**](https://myanimelist.net/character.php?q=Minerva%20Orland&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
