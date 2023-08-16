@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The people who have the ability to change something in this world, all, without exception, have guts to abandon things important to them if they have to."
+> "They say you never know when a bullet you fired in battle will find its way back to you."
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Meikyuu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Meikyuu&cat=all)
