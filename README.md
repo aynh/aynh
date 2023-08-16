@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you selling soup or donkey piss?"
+> "By experiencing both, victory and defeat, running away and shedding tears, a man will become a man."
 
-&mdash; [**Jigo**](https://myanimelist.net/character.php?q=Jigo&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Shanks**](https://myanimelist.net/character.php?q=Shanks&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
