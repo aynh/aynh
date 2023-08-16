@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think that no one wants to see others' sins."
+> "People who want to leave are going to leave. But not everyone is like that."
 
-&mdash; [**Yuusuke Kanda**](https://myanimelist.net/character.php?q=Yuusuke%20Kanda&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Yoshihisa Manabe**](https://myanimelist.net/character.php?q=Yoshihisa%20Manabe&cat=character), [**Kotoura-san**](https://myanimelist.net/search/all?q=Kotoura-san&cat=all)
