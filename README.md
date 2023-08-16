@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why do you still want to be my friend? Is it because you feel comfortable being with me? Because I understand your awkward and useless self, and yet still love you? Quit acting so spoiled. When you rejected me, you lost the right to want those things!"
+> "Death is the end of everything. Your past and future will be lost in an instant where there will be no second chance. However as long as you live there will be a chance of pulling a win."
 
-&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Kazuma Yagami**](https://myanimelist.net/character.php?q=Kazuma%20Yagami&cat=character), [**Kaze no Stigma**](https://myanimelist.net/search/all?q=Kaze%20no%20Stigma&cat=all)
