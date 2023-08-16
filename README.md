@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Her sword shines, a dream that all warriors  scattered in battle, past, present, and future, hold and mournfully exalt as their final moments approach. She carries their will as her pride, bidding them to remain steadfast in their loyalty."
+> "Don't hesitate to tell the people you care about the feelings you have for them, because they may not be there tomorrow."
 
-&mdash; [**Irisviel von Einzbern**](https://myanimelist.net/character.php?q=Irisviel%20von%20Einzbern&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Akagi**](https://myanimelist.net/character.php?q=Akagi&cat=character), [**Kantai Collection: KanColle**](https://myanimelist.net/search/all?q=Kantai%20Collection%3A%20KanColle&cat=all)
