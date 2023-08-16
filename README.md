@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "By experiencing both, victory and defeat, running away and shedding tears, a man will become a man."
+> "We all have our scars from loving someone too deeply, from wanting to protect  someone too much."
 
-&mdash; [**Shanks**](https://myanimelist.net/character.php?q=Shanks&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Mei Tachibana**](https://myanimelist.net/character.php?q=Mei%20Tachibana&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
