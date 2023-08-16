@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone is sacrificing something precious to them in order to save something else. Is that the reason for human action?"
+> "He turns the black-and-white landscape into brilliant colors. That's what George was to me. Even if our paths don't ever cross again, that will never change."
 
-&mdash; [**Shijima Kurookano**](https://myanimelist.net/character.php?q=Shijima%20Kurookano&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Yukari Hayasaka**](https://myanimelist.net/character.php?q=Yukari%20Hayasaka&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
