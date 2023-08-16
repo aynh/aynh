@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah, we've become friends. When you're in the same party, there will be times when things don't go smoothly, when you get angry, and when you fight. But they really are your precious friends. It doesn't matter why you became friends, but that you are friends at this moment."
+> "[when Naruto transforms into a woman in front of the whole class] CUT THE STUPID TRICKS! THIS IS YOUR LAST WARNING!!"
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
