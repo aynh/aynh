@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say you never know when a bullet you fired in battle will find its way back to you."
+> "Nobody thinks they're cuter than others unless they're conceited."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Meikyuu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Meikyuu&cat=all)
+&mdash; [**Maki Nishikino**](https://myanimelist.net/character.php?q=Maki%20Nishikino&cat=character), [**Love Live! School idol project TV 2/2014**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project%20TV%202%2F2014&cat=all)
