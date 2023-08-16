@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who want to leave are going to leave. But not everyone is like that."
+> "The people who have the ability to change something in this world, all, without exception, have guts to abandon things important to them if they have to."
 
-&mdash; [**Yoshihisa Manabe**](https://myanimelist.net/character.php?q=Yoshihisa%20Manabe&cat=character), [**Kotoura-san**](https://myanimelist.net/search/all?q=Kotoura-san&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
