@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He turns the black-and-white landscape into brilliant colors. That's what George was to me. Even if our paths don't ever cross again, that will never change."
+> "Her sword shines, a dream that all warriors  scattered in battle, past, present, and future, hold and mournfully exalt as their final moments approach. She carries their will as her pride, bidding them to remain steadfast in their loyalty."
 
-&mdash; [**Yukari Hayasaka**](https://myanimelist.net/character.php?q=Yukari%20Hayasaka&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
+&mdash; [**Irisviel von Einzbern**](https://myanimelist.net/character.php?q=Irisviel%20von%20Einzbern&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
