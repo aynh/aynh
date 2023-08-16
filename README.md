@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether it's on the other side of the planet, or right in front of one's eyes, as long as one is safe, it doesn't matter how many others die. Isn't that humanity?"
+> "I’m fine with being a monster. I’m fine with having fake emotions. But I’ll protect Shu. Because I am me! Even if I’m just a fake… To me, I’m the only… real one!"
 
-&mdash; [**Shuntarou Chishiya**](https://myanimelist.net/character.php?q=Shuntarou%20Chishiya&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
+&mdash; [**Inori Yuzuriha**](https://myanimelist.net/character.php?q=Inori%20Yuzuriha&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
