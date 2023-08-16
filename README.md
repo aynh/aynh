@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are two ways to escape: escape without a purpose, and escape with a purpose. I call the former 'floating', and the latter 'flight'. You are the only one that decides which of the two your view of the world from on high was. But you don't choose these paths because of the weight on your soul. We don't choose the path we take because of the sins we carry. But we carry our sins on the path we choose."
+> "Protecting the powerless is simply a soldier's duty!"
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Wave**](https://myanimelist.net/character.php?q=Wave&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
