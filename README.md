@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not all warriors fight on the battlefield with a sword in hand. A sailor makes his living battling the sea"
+> "Whether it's on the other side of the planet, or right in front of one's eyes, as long as one is safe, it doesn't matter how many others die. Isn't that humanity?"
 
-&mdash; [**Leif Ericson**](https://myanimelist.net/character.php?q=Leif%20Ericson&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Shuntarou Chishiya**](https://myanimelist.net/character.php?q=Shuntarou%20Chishiya&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
