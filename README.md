@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death is the end of everything. Your past and future will be lost in an instant where there will be no second chance. However as long as you live there will be a chance of pulling a win."
+> "Not all warriors fight on the battlefield with a sword in hand. A sailor makes his living battling the sea"
 
-&mdash; [**Kazuma Yagami**](https://myanimelist.net/character.php?q=Kazuma%20Yagami&cat=character), [**Kaze no Stigma**](https://myanimelist.net/search/all?q=Kaze%20no%20Stigma&cat=all)
+&mdash; [**Leif Ericson**](https://myanimelist.net/character.php?q=Leif%20Ericson&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
