@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Please remember that there are times to take someone's hand and lead them along... But also times when you must be stern and let them fend for themselves."
+> "No one can decide what someone else should do with their life."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
