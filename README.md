@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whenever I see tulips, I'm always reminded of when we learned that these precious little flowers, have the strength to endure harsh winters."
+> "Real power is forged from the desire smoldering in the heart. It fans into a flame and begins to burn with an intensity scarcely imagined to be possible."
 
-&mdash; [**Asaba Yuta**](https://myanimelist.net/character.php?q=Asaba%20Yuta&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
+&mdash; [**Orochimaru**](https://myanimelist.net/character.php?q=Orochimaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
