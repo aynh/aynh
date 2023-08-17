@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there's a miracle that can be reached by fighting to the end, then I want to see it."
+> "Whenever I see tulips, I'm always reminded of when we learned that these precious little flowers, have the strength to endure harsh winters."
 
-&mdash; [**Amano Yukiteru**](https://myanimelist.net/character.php?q=Amano%20Yukiteru&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Asaba Yuta**](https://myanimelist.net/character.php?q=Asaba%20Yuta&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
