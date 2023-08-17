@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This device paints the illusion of fairy tales for those with naive wishes in their hearts, who say they wish something eternal existed, who say they wish the power of miracles existed. But, there's no place higher than this room. This room is the summit of Ohtori Academy, and of the world."
+> "Even in the darkness, I’m sure it’s reassuring to have someone there to walk with you."
 
-&mdash; [**Akio Ohtori**](https://myanimelist.net/character.php?q=Akio%20Ohtori&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
+&mdash; [**Noe Isurugi**](https://myanimelist.net/character.php?q=Noe%20Isurugi&cat=character), [**True Tears**](https://myanimelist.net/search/all?q=True%20Tears&cat=all)
