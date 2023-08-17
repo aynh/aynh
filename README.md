@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm going to become the best manga editor anyone's ever seen! And then you can kiss your job goodbye!"
+> "I'm just a dude who's way ahead of his time you know? Does that mean I was born too early because time can't keep up with me?"
 
-&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
