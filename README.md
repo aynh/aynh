@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ruling over death means ruling over life. Death is the climax of life. To have the best death, you must honor life."
+> "Tragic he said. I'm tragic?"
 
-&mdash; [**Rory Mercury**](https://myanimelist.net/character.php?q=Rory%20Mercury&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
