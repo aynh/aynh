@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm just a dude who's way ahead of his time you know? Does that mean I was born too early because time can't keep up with me?"
+> "Ruling over death means ruling over life. Death is the climax of life. To have the best death, you must honor life."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Rory Mercury**](https://myanimelist.net/character.php?q=Rory%20Mercury&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
