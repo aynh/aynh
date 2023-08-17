@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even in the darkness, I’m sure it’s reassuring to have someone there to walk with you."
+> "Nerd violence..."
 
-&mdash; [**Noe Isurugi**](https://myanimelist.net/character.php?q=Noe%20Isurugi&cat=character), [**True Tears**](https://myanimelist.net/search/all?q=True%20Tears&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
