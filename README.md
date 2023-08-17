@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Knowledge and awareness are vague, and perhaps better called illusions. Everyone lives within their own subjective interpretation."
+> "Once the revenge is dealt, you are required to pay the compensation."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
