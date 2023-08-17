@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The strong don't win. The winners are the strong ones."
+> "Please remember that there are times to take someone's hand and lead them along... But also times when you must be stern and let them fend for themselves."
 
-&mdash; [**Tsutomu Iwamura**](https://myanimelist.net/character.php?q=Tsutomu%20Iwamura&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
