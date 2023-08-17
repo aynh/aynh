@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if this is a twisted way to go about it, even if a guaranteed way to save our hearts cannot be found, even so, it doesn't mean that people like us don't try and struggle."
+> "If there's a miracle that can be reached by fighting to the end, then I want to see it."
 
-&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
+&mdash; [**Amano Yukiteru**](https://myanimelist.net/character.php?q=Amano%20Yukiteru&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
