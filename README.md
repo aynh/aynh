@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I confessed you know!? Many, many times! Even though I knew the answer from my mouth... with my voice! I confessed you know!? Have you ever looked at Raku straight in the eyes!? Is that all you've got for Raku!? At least for the last time, you need to be a little more truthful to yourself!! If you really liked him, then you can't just pretend like nothing ever happened!!"
+> "If  you are lookin' back all the time, you'll never get ahead!"
 
-&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
