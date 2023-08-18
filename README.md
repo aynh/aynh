@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love. I myself have never loved another person.  Most likely, I don't even love myself.  I do have knowledge of it.  But I am incapable of determining whether or not it is vital in my life."
+> "There is no heaven or hell. No matter what you do while you're alive, everybody goes to the same place once you die. Death is Equal."
 
-&mdash; [**Vorona**](https://myanimelist.net/character.php?q=Vorona&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
