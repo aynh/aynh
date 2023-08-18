@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not bad enough they buried us alive in the oversized dung heap, but now they're stealing our chakra. You gotta give these guys credit for thoroughness!"
+> "Game over. If that's the case. I just have to play again."
 
-&mdash; [**Kiba Inuzuka**](https://myanimelist.net/character.php?q=Kiba%20Inuzuka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Megumi Yamamoto**](https://myanimelist.net/character.php?q=Megumi%20Yamamoto&cat=character), [**Special A**](https://myanimelist.net/search/all?q=Special%20A&cat=all)
