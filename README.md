@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The future isn’t written yet. There’s still time for things to change!"
+> "Life is like a mountain - you can say you've reached the top, but only after climbing back down."
 
-&mdash; [**Yūsei Fudō**](https://myanimelist.net/character.php?q=Y%C5%ABsei%20Fud%C5%8D&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
