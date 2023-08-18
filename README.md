@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The Commander-General's rather violent today, wouldn't you say?"
+> "The future isn’t written yet. There’s still time for things to change!"
 
-&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yūsei Fudō**](https://myanimelist.net/character.php?q=Y%C5%ABsei%20Fud%C5%8D&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
