@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Enduring and forgiving are two different things. You must not forget the unjustness of society. As a human being, you must hold the event in contempt. Yet, you must endure. You must put an end to the chain of hatred!"
+> "Only underlings get caught up in the matter of style and lose the battle. A captain can't afford such indulgences. Don't try to be a good kid. Whether you own somebody or they own you. The moment you start a fight, you are wrong in either way."
 
-&mdash; [**Scar's Master**](https://myanimelist.net/character.php?q=Scar's%20Master&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
