@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humility is a virtue, but do not insult yourself."
+> "I confessed you know!? Many, many times! Even though I knew the answer from my mouth... with my voice! I confessed you know!? Have you ever looked at Raku straight in the eyes!? Is that all you've got for Raku!? At least for the last time, you need to be a little more truthful to yourself!! If you really liked him, then you can't just pretend like nothing ever happened!!"
 
-&mdash; [**Ryu Lion**](https://myanimelist.net/character.php?q=Ryu%20Lion&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
+&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
