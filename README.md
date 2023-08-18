@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is like a firework from the past... it's more beautiful for it to go to pieces and scatter far off."
+> "Love. I myself have never loved another person.  Most likely, I don't even love myself.  I do have knowledge of it.  But I am incapable of determining whether or not it is vital in my life."
 
-&mdash; [**Shima Katsuki**](https://myanimelist.net/character.php?q=Shima%20Katsuki&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Vorona**](https://myanimelist.net/character.php?q=Vorona&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
