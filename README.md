@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The thing that we call power is dynamic, it keeps on changing."
+> "Regardless of the color of eyes or skin, the color of blood is the same for everyone, isn’t it?"
 
-&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Oskar von Reuenthal**](https://myanimelist.net/character.php?q=Oskar%20von%20Reuenthal&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
