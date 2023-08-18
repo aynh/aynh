@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Game over. If that's the case. I just have to play again."
+> "Between dreams and reality is the vault of your soul. No one could see the “Dream World” without this path."
 
-&mdash; [**Megumi Yamamoto**](https://myanimelist.net/character.php?q=Megumi%20Yamamoto&cat=character), [**Special A**](https://myanimelist.net/search/all?q=Special%20A&cat=all)
+&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
