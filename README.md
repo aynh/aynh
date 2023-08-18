@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want you to be happy. I want you to laugh a lot. I don't know what exactly I'll be able to do for you, but I'll always be by your side."
+> "Love is like a firework from the past... it's more beautiful for it to go to pieces and scatter far off."
 
-&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Shima Katsuki**](https://myanimelist.net/character.php?q=Shima%20Katsuki&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
