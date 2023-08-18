@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no heaven or hell. No matter what you do while you're alive, everybody goes to the same place once you die. Death is Equal."
+> "Don't do something wasteful as to wash your frustrations with tears. Your frustration is motivation that you can use to make yourself better. Hold it inside like it's an important thing!"
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Maria Momoe**](https://myanimelist.net/character.php?q=Maria%20Momoe&cat=character), [**Big Windup!**](https://myanimelist.net/search/all?q=Big%20Windup!&cat=all)
