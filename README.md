@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no reason to pretend to be cool. Let’s show our lame sides. That’s who we really are, after all."
+> "It looks to me like you've completely lost your touch."
 
-&mdash; [**Hidenori Tabata**](https://myanimelist.net/character.php?q=Hidenori%20Tabata&cat=character), [**Danshi Koukousei no Nichijou**](https://myanimelist.net/search/all?q=Danshi%20Koukousei%20no%20Nichijou&cat=all)
+&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
