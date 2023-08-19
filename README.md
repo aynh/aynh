@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've won. Exactly as planned."
+> "Strength that knows no boundaries is merely violence."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Bismarck Waldstein**](https://myanimelist.net/character.php?q=Bismarck%20Waldstein&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
