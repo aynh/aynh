@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Strength that knows no boundaries is merely violence."
+> "Charm is reserved for dealing with people with more power than you."
 
-&mdash; [**Bismarck Waldstein**](https://myanimelist.net/character.php?q=Bismarck%20Waldstein&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Chihayafuru 2**](https://myanimelist.net/character.php?q=Chihayafuru%202&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
