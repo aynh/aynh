@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Because I won’t die if I miss.' I can totally understand the words of that slugger. We won’t die just because our dreams and efforts prove futile, nor do we need to despair. We both faced much greater despair, so we aren’t afraid of the obstacles that lie before us. We can easily bet on a coin flip while others are too frightened to even pick heads or tails."
+> "Surviving means continuing to shoulder one's burden. When you can't handle that strain, then you'll be the one to die next."
 
-&mdash; [**Usui Haruaki**](https://myanimelist.net/character.php?q=Usui%20Haruaki&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
