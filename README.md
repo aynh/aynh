@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When the hunger seemed to kill me, I was wondering if the world hates me. I can't explain it, but I still love the world."
+> "The way of the sword doesn't belong to any one nation. Knowledge of the arts belongs to us all."
 
-&mdash; [**Johnathan Mar**](https://myanimelist.net/character.php?q=Johnathan%20Mar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Piandao**](https://myanimelist.net/character.php?q=Piandao&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
