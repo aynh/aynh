@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who can't throw something important away, can never hope to change anything."
+> "It’s natural to want to stay in the game world and hope the game will never end. However, I’ve learned one thing from playing all those online games. There’s nothing lonelier or sadder than the end of a game with no ending. More and more players get bored and move on to other games... And one day, even NPC's like your favorite blacksmith or landlady disappear forever as they smile. I've experienced that moment and cried many, many times. That isn't how games should end. It definitely isn't!"
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Haruyuki Arita**](https://myanimelist.net/character.php?q=Haruyuki%20Arita&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
