@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When life changes to be harder, change yourself to be stronger."
+> "There’s no reason to pretend to be cool. Let’s show our lame sides. That’s who we really are, after all."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Hidenori Tabata**](https://myanimelist.net/character.php?q=Hidenori%20Tabata&cat=character), [**Danshi Koukousei no Nichijou**](https://myanimelist.net/search/all?q=Danshi%20Koukousei%20no%20Nichijou&cat=all)
