@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Surviving means continuing to shoulder one's burden. When you can't handle that strain, then you'll be the one to die next."
+> "This is how culture spreads. When someone has a new idea, it is immediately copied."
 
-&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
