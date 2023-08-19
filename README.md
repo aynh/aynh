@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is how culture spreads. When someone has a new idea, it is immediately copied."
+> "When the hunger seemed to kill me, I was wondering if the world hates me. I can't explain it, but I still love the world."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Johnathan Mar**](https://myanimelist.net/character.php?q=Johnathan%20Mar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
