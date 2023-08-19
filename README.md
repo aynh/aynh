@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wanted to tell you that… Wherever you may end up in this world, I will be searching for you."
+> "I despise myself... because others are too kind to me..."
 
-&mdash; [**Taki Tachibana**](https://myanimelist.net/character.php?q=Taki%20Tachibana&cat=character), [**Kimi no Na wa**](https://myanimelist.net/search/all?q=Kimi%20no%20Na%20wa&cat=all)
+&mdash; [**Yuichi Onodera**](https://myanimelist.net/character.php?q=Yuichi%20Onodera&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
