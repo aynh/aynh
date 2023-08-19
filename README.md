@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll do whatever it takes to have everything make sense again!"
+> "People in reality spout off all in unison about love and friendship but in fact it's a dirty little world full of lies and desires, isn't it?"
 
-&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Satou Tatsuhiro**](https://myanimelist.net/character.php?q=Satou%20Tatsuhiro&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
