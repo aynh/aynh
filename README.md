@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The way of the sword doesn't belong to any one nation. Knowledge of the arts belongs to us all."
+> "I've won. Exactly as planned."
 
-&mdash; [**Piandao**](https://myanimelist.net/character.php?q=Piandao&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
