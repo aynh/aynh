@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Somebody's a little light on his feet. What's your fighting name, the Fancy Dancer?"
+> "So fucking what if I'm not you?! That doesn't mean it's okay for you to give up! If you do, I'll never forgive you as long as I live. God knows I'm not perfect either. I've made tons of stupid mistakes and later I regretted them. And I've done it over and over again, thousands of times. A cycle of hollow joy and vicious self-hatred. But even so, every time I learned something about myself."
 
-&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Misato Katsuragi**](https://myanimelist.net/character.php?q=Misato%20Katsuragi&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
