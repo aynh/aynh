@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A small mistake can make a huge difference."
+> "No matter how much we think we want - it's never enough. I just want one thing to go right for me. I just need something to give me the energy so I can keep going."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Nana Komatsu**](https://myanimelist.net/character.php?q=Nana%20Komatsu&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
