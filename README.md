@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no knowing how others are feeling unless you ask them. And your feelings can’t get through to others unless you tell them directly."
+> "Hey, Oz. what are you lazing around for?"
 
-&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
