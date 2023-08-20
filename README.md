@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't do any good to pretend you can't see what's going on."
+> "Isn't changing yourself the same as running away? Why can't you just accept who you are?"
 
-&mdash; [**Yuuya Mochizuki**](https://myanimelist.net/character.php?q=Yuuya%20Mochizuki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
