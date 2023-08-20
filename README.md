@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The warmth of another person's flesh is scary. It thaws out the loneliness that you had forgotten about so easily."
+> "If you come across an event that's too good to be true, it's probably poison."
 
-&mdash; [**Rokka Shimao**](https://myanimelist.net/character.php?q=Rokka%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
