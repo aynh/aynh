@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is a tasteless life if you don't have something you regret."
+> "If you don't like your destiny, don't accept it. Instead, have the courage to change it the way you want it to be!"
 
-&mdash; [**Inu X Boku SS**](https://myanimelist.net/character.php?q=Inu%20X%20Boku%20SS&cat=character), [**Inu X Boku SS**](https://myanimelist.net/search/all?q=Inu%20X%20Boku%20SS&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
