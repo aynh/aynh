@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You’re like big umbrella. You’re the shade from the strong sun’s rays when the weather is good. And you’re the shelter from the cold rain when the weather is bad. You’re always protecting others."
+> "It doesn't do any good to pretend you can't see what's going on."
 
-&mdash; [**Angelina Nanatsu Sewell**](https://myanimelist.net/character.php?q=Angelina%20Nanatsu%20Sewell&cat=character), [**Mashiroiro Symphony - The color of lovers**](https://myanimelist.net/search/all?q=Mashiroiro%20Symphony%20-%20The%20color%20of%20lovers&cat=all)
+&mdash; [**Yuuya Mochizuki**](https://myanimelist.net/character.php?q=Yuuya%20Mochizuki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
