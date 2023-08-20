@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It looks to me like you've completely lost your touch."
+> "The warmth of another person's flesh is scary. It thaws out the loneliness that you had forgotten about so easily."
 
-&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Rokka Shimao**](https://myanimelist.net/character.php?q=Rokka%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
