@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't like your destiny, don't accept it. Instead, have the courage to change it the way you want it to be!"
+> "You're a team player, a save-the-day superhero... I hate people like you."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
