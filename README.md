@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how unimportant the meeting... how small the outcome... it will always have some later effect on you. It can be the smallest of things. It can be the shortest of moments. It may never be remembered. It may have never been recorded. But a bond of fate never disappears once tied."
+> "However, I do know one guy who whines, cries, and throws tantrums but still manages to save everyone. He's a crazy man who's not afraid of anything. Even though he's been scarred from head to toe, he'll always be there."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
