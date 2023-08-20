@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Can we really be proud of our own survival that's predicated on sacrificing our own? There lives aren't all we lose."
+> "Everyone's the same, no exceptions.  All of them, equal before god."
 
-&mdash; [**Ikoma**](https://myanimelist.net/character.php?q=Ikoma&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
