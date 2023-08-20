@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're a team player, a save-the-day superhero... I hate people like you."
+> "I won't ask what you wish for. I only hope it comes true by your own two hands. (to Kyo)"
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
