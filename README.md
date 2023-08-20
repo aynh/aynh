@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone's the same, no exceptions.  All of them, equal before god."
+> "Sometimes, the questions are complicated - and the answers are simple."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
