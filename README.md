@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "WHO ARE YOU CALLING A MOUSY LITTLE PIPSQUEAK?!"
+> "I just realized I love learning things that I don't know anything about. It sort of feels like I'm one step closer to my dream."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Midori Imai**](https://myanimelist.net/character.php?q=Midori%20Imai&cat=character), [**Shirobako**](https://myanimelist.net/search/all?q=Shirobako&cat=all)
