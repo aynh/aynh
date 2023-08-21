@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This little girl, who's not even half my size... taught me that tears can flow even from these silver eyes."
+> "As it turns out, living was a punishment."
 
-&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Himari Takakura**](https://myanimelist.net/character.php?q=Himari%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
