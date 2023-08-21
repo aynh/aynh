@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[in reference to Mizuho Asano, Keigo's sister] I owe this crazy woman."
+> "I was feeling down, but you distracted me by subjecting me to your selfish whims. There are times when selfishness can save a person."
 
-&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
