@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To have a name. To remove one layer of the unknown. To be painted in reality. If you have your feet firmly planted to the ground, you may have a chance to pull someone down."
+> "No choice, then. Before you become intoxicated by your own power, I shall show you a decisive power gap that you could not overcome in a millennium of struggle."
 
-&mdash; [**Makoto Niwa**](https://myanimelist.net/character.php?q=Makoto%20Niwa&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
