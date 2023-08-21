@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No choice, then. Before you become intoxicated by your own power, I shall show you a decisive power gap that you could not overcome in a millennium of struggle."
+> "Unlike demons, you’re base, you harbor a complicated malice, you lie… You struggle desperately, knocking down others in your way… You steal and are stolen from, you make endless excuses… And still you strive to get over the hill and far away. I suppose that’s why humans are so interesting."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji: Book of Circus**](https://myanimelist.net/search/all?q=Kuroshitsuji%3A%20Book%20of%20Circus&cat=all)
