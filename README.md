@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Of course! Dogs embody loyalty, they follow their master's commands above all else! Be a jerk to them and they don't complain, and they never once beg for a paycheck! Trust me Fuery, they're the great servants of man! *singing* Loyal canine how we salute thee! *laughs maniacally*"
+> "Although my heart may be weak, it’s not alone. It’s grom with each new experience. And it’s found a home with all the friends I’ve made. I’ve become a part of their heart, just as they’ve become part of mine. And if they think of me now and then, if they don’t forget me, then our hearts will be one. I don’t need a weapon. My friends are my power!"
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**Kingdom Hearts**](https://myanimelist.net/search/all?q=Kingdom%20Hearts&cat=all)
