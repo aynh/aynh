@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unlike demons, you’re base, you harbor a complicated malice, you lie… You struggle desperately, knocking down others in your way… You steal and are stolen from, you make endless excuses… And still you strive to get over the hill and far away. I suppose that’s why humans are so interesting."
+> "The earth's rowdier than a group of five high school guys living under the same roof."
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji: Book of Circus**](https://myanimelist.net/search/all?q=Kuroshitsuji%3A%20Book%20of%20Circus&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
