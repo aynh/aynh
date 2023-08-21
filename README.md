@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's a bad habit of mine. When I concentrate on one thing, I forget other important things."
+> "[to a dating simulation that has just dumped him] Wait! If you cut off negotiations, it can only lead to war. Accept a truce, and I will listen to whatever you have to say. Let's work toward a compromise!"
 
-&mdash; [**Tsukushi Makino**](https://myanimelist.net/character.php?q=Tsukushi%20Makino&cat=character), [**Hana Yori Dango**](https://myanimelist.net/search/all?q=Hana%20Yori%20Dango&cat=all)
+&mdash; [**Sousuke Sagara**](https://myanimelist.net/character.php?q=Sousuke%20Sagara&cat=character), [**Full Metal Panic!**](https://myanimelist.net/search/all?q=Full%20Metal%20Panic!&cat=all)
