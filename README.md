@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can’t even imagine a world without Light."
+> "WHO ARE YOU CALLING A MOUSY LITTLE PIPSQUEAK?!"
 
-&mdash; [**Misa Amane**](https://myanimelist.net/character.php?q=Misa%20Amane&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
