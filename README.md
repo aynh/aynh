@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to a dating simulation that has just dumped him] Wait! If you cut off negotiations, it can only lead to war. Accept a truce, and I will listen to whatever you have to say. Let's work toward a compromise!"
+> "This little girl, who's not even half my size... taught me that tears can flow even from these silver eyes."
 
-&mdash; [**Sousuke Sagara**](https://myanimelist.net/character.php?q=Sousuke%20Sagara&cat=character), [**Full Metal Panic!**](https://myanimelist.net/search/all?q=Full%20Metal%20Panic!&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
