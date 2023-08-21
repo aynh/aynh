@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is the first time in my life that I've been provoked to hit a woman."
+> "It's a bad habit of mine. When I concentrate on one thing, I forget other important things."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Tsukushi Makino**](https://myanimelist.net/character.php?q=Tsukushi%20Makino&cat=character), [**Hana Yori Dango**](https://myanimelist.net/search/all?q=Hana%20Yori%20Dango&cat=all)
