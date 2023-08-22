@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Having someone to lean on is an amazing thing. Some things that can't be done alone can be achieved with the courage of two. And in times when you try your hardest and still can't make it work. When it's so tough you're ready to cry... if you have someone there to support you, you can make it through. The smallest words of support can save you."
+> "Theories are nothing more than words. Accept what you've seen."
 
-&mdash; [**Gokou Ruri**](https://myanimelist.net/character.php?q=Gokou%20Ruri&cat=character), [**Ore No Imouto Ga Konna Ni Kawaii Wake Ga Nai**](https://myanimelist.net/search/all?q=Ore%20No%20Imouto%20Ga%20Konna%20Ni%20Kawaii%20Wake%20Ga%20Nai&cat=all)
+&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
