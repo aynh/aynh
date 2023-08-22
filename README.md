@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anyone accepting defeat will be punished by running ten laps around the school, naked! And you'll have to yell 'Green Martians are chasing me!' for the whole ten laps!"
+> "You're nothing but a piece. Your absence wouldn't hinder my progress in this game in the slightest. If you can't think of any other theories in particular, please just go back to the piece tray and gather dust or something. It's painful to even remember useless pieces."
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Frederica Bernkastel**](https://myanimelist.net/character.php?q=Frederica%20Bernkastel&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
