@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I don't have to do it, I won't. If I have to do it, I'll make it quick."
+> "The weak always cling to words, and those with power die for those without it."
 
-&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Claymore**](https://myanimelist.net/character.php?q=Claymore&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
