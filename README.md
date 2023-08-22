@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The Santa that showed up at my Kindergarden Christmas festival? I knew he was fake. And I never saw Mommy kissing Santa Claus, either. But I have to say, even as a little kid I knew better to believe in some old man who worked only one day a year."
+> "When you're just starting out, put all your energy into surviving. No matter how pathetic you feel, or how people laugh at you, if you come back alive, you win."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Mia Grand**](https://myanimelist.net/character.php?q=Mia%20Grand&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
