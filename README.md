@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kagome, what do you have in your bag? Rocks?"
+> "I think I finally understand... As long as there's someone who'll grieve, it's wrong to want to die."
 
-&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Hidehito Nomura**](https://myanimelist.net/character.php?q=Hidehito%20Nomura&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
