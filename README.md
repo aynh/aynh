@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You sure can talk the talk, but you're not quite ready to walk the walk. Time's up, it's my turn."
+> "Even your gravest mistakes shouldn't stop you from moving forward."
 
-&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
