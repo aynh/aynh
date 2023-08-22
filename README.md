@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Can you stop guessing if they got the question right based on the amount of time left when they cut to commercial!?"
+> "Anyone accepting defeat will be punished by running ten laps around the school, naked! And you'll have to yell 'Green Martians are chasing me!' for the whole ten laps!"
 
-&mdash; [**Kagami Hiiragi**](https://myanimelist.net/character.php?q=Kagami%20Hiiragi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
+&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
