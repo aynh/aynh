@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you're just starting out, put all your energy into surviving. No matter how pathetic you feel, or how people laugh at you, if you come back alive, you win."
+> "Having someone to lean on is an amazing thing. Some things that can't be done alone can be achieved with the courage of two. And in times when you try your hardest and still can't make it work. When it's so tough you're ready to cry... if you have someone there to support you, you can make it through. The smallest words of support can save you."
 
-&mdash; [**Mia Grand**](https://myanimelist.net/character.php?q=Mia%20Grand&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
+&mdash; [**Gokou Ruri**](https://myanimelist.net/character.php?q=Gokou%20Ruri&cat=character), [**Ore No Imouto Ga Konna Ni Kawaii Wake Ga Nai**](https://myanimelist.net/search/all?q=Ore%20No%20Imouto%20Ga%20Konna%20Ni%20Kawaii%20Wake%20Ga%20Nai&cat=all)
