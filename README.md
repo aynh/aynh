@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I knew it. The Earth Forces' new mobile weapons. Father, I knew you'd betray us all!"
+> "Kagome, what do you have in your bag? Rocks?"
 
-&mdash; [**Cagalli Yula Athha**](https://myanimelist.net/character.php?q=Cagalli%20Yula%20Athha&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
