@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think I finally understand... As long as there's someone who'll grieve, it's wrong to want to die."
+> "We're going to be moving forward! If we move forward, we'll get stronger, both physically and mentally."
 
-&mdash; [**Hidehito Nomura**](https://myanimelist.net/character.php?q=Hidehito%20Nomura&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
