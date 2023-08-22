@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether it's good or bad, it's so unfortunate to wake up during a dream."
+> "I despise myself... because others are too kind to me..."
 
-&mdash; [**Judeau**](https://myanimelist.net/character.php?q=Judeau&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Yuichi Onodera**](https://myanimelist.net/character.php?q=Yuichi%20Onodera&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
