@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You try to sound like you think things through, when in fact, you're not thinking at all."
+> "Can you stop guessing if they got the question right based on the amount of time left when they cut to commercial!?"
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kagami Hiiragi**](https://myanimelist.net/character.php?q=Kagami%20Hiiragi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
