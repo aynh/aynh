@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're nothing but a piece. Your absence wouldn't hinder my progress in this game in the slightest. If you can't think of any other theories in particular, please just go back to the piece tray and gather dust or something. It's painful to even remember useless pieces."
+> "I knew it. The Earth Forces' new mobile weapons. Father, I knew you'd betray us all!"
 
-&mdash; [**Frederica Bernkastel**](https://myanimelist.net/character.php?q=Frederica%20Bernkastel&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Cagalli Yula Athha**](https://myanimelist.net/character.php?q=Cagalli%20Yula%20Athha&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
