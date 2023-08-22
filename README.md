@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The weak always cling to words, and those with power die for those without it."
+> "You try to sound like you think things through, when in fact, you're not thinking at all."
 
-&mdash; [**Claymore**](https://myanimelist.net/character.php?q=Claymore&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
