@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's times like this that I wish I could come up with an appropriate response.  I hate myself for not being able to reply properly."
+> "You get free hatred for everything you sell. I've amassed a real supply of it, so I'd like to sell it too... But no one wants to buy it from me!"
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
