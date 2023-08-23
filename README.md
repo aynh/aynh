@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have to be her place to belong. I need to be a steady, reliable man whom she can trust."
+> "Do you know what the most primitive emotion people have is? It’s fear."
 
-&mdash; [**Haruto Kirishima**](https://myanimelist.net/character.php?q=Haruto%20Kirishima&cat=character), [**Kimi no Iru Machi**](https://myanimelist.net/search/all?q=Kimi%20no%20Iru%20Machi&cat=all)
+&mdash; [**Nona**](https://myanimelist.net/character.php?q=Nona&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
