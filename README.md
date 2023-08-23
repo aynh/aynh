@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate talkative guys... They gross me out."
+> "You do them one favor and they think you're their best friend. This is why I could care less if their entire species was swallowed up."
 
-&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
