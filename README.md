@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I saw you, I just wanted to find a way to protect you."
+> "My goal isn't your death. I will just torture you, make you awaken and then make you my friends!"
 
-&mdash; [**Shawn**](https://myanimelist.net/character.php?q=Shawn&cat=character), [**Karigurashi no Arrietty**](https://myanimelist.net/search/all?q=Karigurashi%20no%20Arrietty&cat=all)
+&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
