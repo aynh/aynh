@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whatever you lose, you'll find it again, but what you throw away you'll never get it back."
+> "I'M﻿ NOT AN ELEMENTARY STUDENT!!!"
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
