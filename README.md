@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know, someone like me can't just go out and change the world on a whim."
+> "They say that in hard times, you'll never in your life forget the person who gave you a cup of water."
 
-&mdash; [**Akatsuki Kojou**](https://myanimelist.net/character.php?q=Akatsuki%20Kojou&cat=character), [**Strike the Blood**](https://myanimelist.net/search/all?q=Strike%20the%20Blood&cat=all)
+&mdash; [**Yumiko Sakaki**](https://myanimelist.net/character.php?q=Yumiko%20Sakaki&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
