@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can't move with your hands then play with your feet! If you don't have enough fingers, then use your nose as well! Whether you're sad, you're a mess, or you've hit rock bottom, you still have to play! That's how people like us survive."
+> "A pig who doesn't fly is just an ordinary pig."
 
-&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Porco Rosso**](https://myanimelist.net/character.php?q=Porco%20Rosso&cat=character), [**Porco Rosso**](https://myanimelist.net/search/all?q=Porco%20Rosso&cat=all)
