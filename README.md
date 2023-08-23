@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You do them one favor and they think you're their best friend. This is why I could care less if their entire species was swallowed up."
+> "I have to be her place to belong. I need to be a steady, reliable man whom she can trust."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Haruto Kirishima**](https://myanimelist.net/character.php?q=Haruto%20Kirishima&cat=character), [**Kimi no Iru Machi**](https://myanimelist.net/search/all?q=Kimi%20no%20Iru%20Machi&cat=all)
