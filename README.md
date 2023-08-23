@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'M﻿ NOT AN ELEMENTARY STUDENT!!!"
+> "I don't care if it's a girl, a baby or someone's grandma. I'm gonna fight her anyway."
 
-&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
