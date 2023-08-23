@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know I am not the person you expected...and I did not expect to be licked by a giant tongue just now."
+> "I know, someone like me can't just go out and change the world on a whim."
 
-&mdash; [**Pathik**](https://myanimelist.net/character.php?q=Pathik&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Akatsuki Kojou**](https://myanimelist.net/character.php?q=Akatsuki%20Kojou&cat=character), [**Strike the Blood**](https://myanimelist.net/search/all?q=Strike%20the%20Blood&cat=all)
