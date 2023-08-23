@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not a crime! Caring about your friends is not a crime!"
+> "Nobody calls me a pipsqueak and gets away with it! Not even a little girl!"
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
