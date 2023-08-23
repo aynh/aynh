@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Drop ink on the finest snow-white paper and it will inevitably absorb into black. Its purity demands it. Tainted men have immunities. Black does not absorb black."
+> "I hate talkative guys... They gross me out."
 
-&mdash; [**Shinobu Sensui**](https://myanimelist.net/character.php?q=Shinobu%20Sensui&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
