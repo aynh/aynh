@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say that in hard times, you'll never in your life forget the person who gave you a cup of water."
+> "When I saw you, I just wanted to find a way to protect you."
 
-&mdash; [**Yumiko Sakaki**](https://myanimelist.net/character.php?q=Yumiko%20Sakaki&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
+&mdash; [**Shawn**](https://myanimelist.net/character.php?q=Shawn&cat=character), [**Karigurashi no Arrietty**](https://myanimelist.net/search/all?q=Karigurashi%20no%20Arrietty&cat=all)
