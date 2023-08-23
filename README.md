@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't care if it's a girl, a baby or someone's grandma. I'm gonna fight her anyway."
+> "I won't ask what you wish for. I only hope it comes true by your own two hands. (to Kyo)"
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
