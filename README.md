@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I despise myself... because others are too kind to me..."
+> "If you can't move with your hands then play with your feet! If you don't have enough fingers, then use your nose as well! Whether you're sad, you're a mess, or you've hit rock bottom, you still have to play! That's how people like us survive."
 
-&mdash; [**Yuichi Onodera**](https://myanimelist.net/character.php?q=Yuichi%20Onodera&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
