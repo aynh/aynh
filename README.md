@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My goal isn't your death. I will just torture you, make you awaken and then make you my friends!"
+> "It's not a crime! Caring about your friends is not a crime!"
 
-&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
