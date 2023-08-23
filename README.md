@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know what the most primitive emotion people have is? It’s fear."
+> "A detective must become nothing more than an advocate. We must never put words to the feelings that failed to take form."
 
-&mdash; [**Nona**](https://myanimelist.net/character.php?q=Nona&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
