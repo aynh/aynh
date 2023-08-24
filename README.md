@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The beginning exists for the end and the end exists for the beginning."
+> "I lost all of what you could call feelings of love. They weren't sealed, so they can't be released. They weren't broken, so they can't be fixed. That which is lost, cannot be recovered."
 
-&mdash; [**Quon Kisaragi**](https://myanimelist.net/character.php?q=Quon%20Kisaragi&cat=character), [**RahXephon**](https://myanimelist.net/search/all?q=RahXephon&cat=all)
+&mdash; [**Tatsuya Shiba**](https://myanimelist.net/character.php?q=Tatsuya%20Shiba&cat=character), [**Mahouka Koukou no Rettousei**](https://myanimelist.net/search/all?q=Mahouka%20Koukou%20no%20Rettousei&cat=all)
