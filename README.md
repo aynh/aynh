@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wasn’t scared that I’d be rejected, I was scared that if I said how I felt, all of our relationships would change."
+> "I never rely on luck. It's all my own choice. It leads me to the future."
 
-&mdash; [**Chisaki Hiradaira**](https://myanimelist.net/character.php?q=Chisaki%20Hiradaira&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
+&mdash; [**Kagura Mikazuchi**](https://myanimelist.net/character.php?q=Kagura%20Mikazuchi&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
