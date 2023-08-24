@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Lan Fan] Brat, quit blabbering on about trifling topics such as love and sadness. Don't underestimate us. She's the woman I chose. A will is unnecessary between us. That's usually how it is between a King and his companion."
+> "I wasn’t scared that I’d be rejected, I was scared that if I said how I felt, all of our relationships would change."
 
-&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Chisaki Hiradaira**](https://myanimelist.net/character.php?q=Chisaki%20Hiradaira&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
