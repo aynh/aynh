@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The summer continues to make me wonder. So my head, boiling like a pot, will never cool. With the heat. With the cicadas buzzing. With the twinkling of the myriad stars floating in the sky."
+> "[after masturbating over Asuka's comatose body] I'm so fucked up."
 
-&mdash; [**Makoto Niwa**](https://myanimelist.net/character.php?q=Makoto%20Niwa&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
+&mdash; [**Shinji Ikari**](https://myanimelist.net/character.php?q=Shinji%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
