@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, filled with violence, blood and scheming, the promise we made on that day was my one and only refuge."
+> "This silence belongs to us... and every single person out there, is waiting for us to fill it with something."
 
-&mdash; [**Mina Tepeş**](https://myanimelist.net/character.php?q=Mina%20Tepe%C5%9F&cat=character), [**Dance in the Vampire Bund**](https://myanimelist.net/search/all?q=Dance%20in%20the%20Vampire%20Bund&cat=all)
+&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
