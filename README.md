@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Never once did I say it.  But just as he knew my feelings and couldn't return them. She will probably realize his and probably his heart wouldn't have a chance either? When I think about things like that, my tears won't stop."
+> "The words of your past are fundamentally unrelated to who you are now."
 
-&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Ryuunosuke Akutagawa**](https://myanimelist.net/character.php?q=Ryuunosuke%20Akutagawa&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
