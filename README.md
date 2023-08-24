@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A dream... It's something you do for yourself, not for others."
+> "People can be so mean, no matter what you've done for them they will believe the first cheap rumor they hear. In the end they only care about themselves."
 
-&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Natsu Tanimoto**](https://myanimelist.net/character.php?q=Natsu%20Tanimoto&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
