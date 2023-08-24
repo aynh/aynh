@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But you're wrong, no one ever has the right to take the life of another person. No one, no one ever has the right to take the life of another. No one. And everyone, everyone deserves a future. Don't you think that's true? Please, please, it's time to stop the fighting now. It's up to us to end the cycle of hatred. If we don't work to end the sorrow this time, then the cycle of pain will just continue on. When we were all born, were any of us made to steal or cause others harm?"
+> "People aren't all perfect. They're weak, ugly, and they get jealous and try to bring others down. Oddly enough, the better you are, the harder it is to live. That's why I'm going to change this world and the people in it..."
 
-&mdash; [**Meryl Stryfe**](https://myanimelist.net/character.php?q=Meryl%20Stryfe&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Yukino Yukinoshita**](https://myanimelist.net/character.php?q=Yukino%20Yukinoshita&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
