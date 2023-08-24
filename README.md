@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't seem right to let a girl choose me. I would rather choose the girl I devote myself to."
+> "The world runs on power. Everything is determined by the superior power. You are weak. That is why you lose."
 
-&mdash; [**Taichi Mashima**](https://myanimelist.net/character.php?q=Taichi%20Mashima&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Ayato Kirishima**](https://myanimelist.net/character.php?q=Ayato%20Kirishima&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
