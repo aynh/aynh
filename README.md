@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after masturbating over Asuka's comatose body] I'm so fucked up."
+> "In this world, filled with violence, blood and scheming, the promise we made on that day was my one and only refuge."
 
-&mdash; [**Shinji Ikari**](https://myanimelist.net/character.php?q=Shinji%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Mina Tepeş**](https://myanimelist.net/character.php?q=Mina%20Tepe%C5%9F&cat=character), [**Dance in the Vampire Bund**](https://myanimelist.net/search/all?q=Dance%20in%20the%20Vampire%20Bund&cat=all)
