@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never rely on luck. It's all my own choice. It leads me to the future."
+> "A dream... It's something you do for yourself, not for others."
 
-&mdash; [**Kagura Mikazuchi**](https://myanimelist.net/character.php?q=Kagura%20Mikazuchi&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
