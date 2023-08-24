@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What about when you reciprocate someone else’s emotions? Is that still coming from you… or is the air connecting you to one another?"
+> "Too much curiosity kills both dreams and hopes..."
 
-&mdash; [**Jinno Yuu**](https://myanimelist.net/character.php?q=Jinno%20Yuu&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
+&mdash; [**Dlanor A. Knox**](https://myanimelist.net/character.php?q=Dlanor%20A.%20Knox&cat=character), [**Umineko no Naku Koro ni Chiru Episode 8: Twilight of the...**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni%20Chiru%20Episode%208%3A%20Twilight%20of%20the...&cat=all)
