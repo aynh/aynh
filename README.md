@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Have you heard this story before? When a certain traveler left on a journey in search of what he desired, he was told by his teacher: 'You mustn't lose your way, because if you make one wrong turn - you will never find what you were searching for'. But, unfortunately, the traveler lost his way and hung his head in dismay... But when he raised his head again, what he saw before him was a world even more magnificent than what the traveler was searching for. It means if you don't make mistakes, there are things you won't discover."
+> "Once, there was a tiger striped cat. This cat, died a million deaths, revived and lived a million lives. And he had various owners that he didn't really care about, the cat wasn't afraid to die. Then ONE day, he met a white female cat, the two of them fell in love and lived together happily. Well, the years went by and the white female cat got old and passed away. The Tiger Striped cat cried a million times, then he also died. But this time.....he didn't come back."
 
-&mdash; [**Alicia Florence**](https://myanimelist.net/character.php?q=Alicia%20Florence&cat=character), [**Aria the Animation**](https://myanimelist.net/search/all?q=Aria%20the%20Animation&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
