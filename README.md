@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Too much curiosity kills both dreams and hopes..."
+> "But you're wrong, no one ever has the right to take the life of another person. No one, no one ever has the right to take the life of another. No one. And everyone, everyone deserves a future. Don't you think that's true? Please, please, it's time to stop the fighting now. It's up to us to end the cycle of hatred. If we don't work to end the sorrow this time, then the cycle of pain will just continue on. When we were all born, were any of us made to steal or cause others harm?"
 
-&mdash; [**Dlanor A. Knox**](https://myanimelist.net/character.php?q=Dlanor%20A.%20Knox&cat=character), [**Umineko no Naku Koro ni Chiru Episode 8: Twilight of the...**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni%20Chiru%20Episode%208%3A%20Twilight%20of%20the...&cat=all)
+&mdash; [**Meryl Stryfe**](https://myanimelist.net/character.php?q=Meryl%20Stryfe&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
