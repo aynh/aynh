@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People can be so mean, no matter what you've done for them they will believe the first cheap rumor they hear. In the end they only care about themselves."
+> "It doesn't seem right to let a girl choose me. I would rather choose the girl I devote myself to."
 
-&mdash; [**Natsu Tanimoto**](https://myanimelist.net/character.php?q=Natsu%20Tanimoto&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
+&mdash; [**Taichi Mashima**](https://myanimelist.net/character.php?q=Taichi%20Mashima&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
