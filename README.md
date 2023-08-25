@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes I think the whole world is conspiring to destroy my house."
+> "[Last words] All right then, I'll put you out of your misery. [Her hands are sliced off] Eh?"
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
