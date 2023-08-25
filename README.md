@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whatever your thoughts may be, if you don't say them, none of it will be acknowledged by others."
+> "There are bad ways to win and good ways to lose. What's interesting and troubling, is that it's not always clear which is which. A flipped coin doesn't always land heads or tails. Sometimes it may never land at all."
 
-&mdash; [**Tomoyo Daidouji**](https://myanimelist.net/character.php?q=Tomoyo%20Daidouji&cat=character), [**Cardcaptor Sakura**](https://myanimelist.net/search/all?q=Cardcaptor%20Sakura&cat=all)
+&mdash; [**Grimsley**](https://myanimelist.net/character.php?q=Grimsley&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
