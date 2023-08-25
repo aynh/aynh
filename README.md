@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm here because I don't like to be tied down. So you should decide for yourself who you want for your friend."
+> "Whatever your thoughts may be, if you don't say them, none of it will be acknowledged by others."
 
-&mdash; [**Hayabusa Shou**](https://myanimelist.net/character.php?q=Hayabusa%20Shou&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
+&mdash; [**Tomoyo Daidouji**](https://myanimelist.net/character.php?q=Tomoyo%20Daidouji&cat=character), [**Cardcaptor Sakura**](https://myanimelist.net/search/all?q=Cardcaptor%20Sakura&cat=all)
