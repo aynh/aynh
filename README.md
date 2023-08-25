@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Please, let that iron guard down for a minute. It's only hurting you. I know when you've hit rock bottom, people trying to cheer you up can be really annoying. 'What would you know?' 'Just leave me alone.' But what if someone you're pushing away is really worried about you? That'd be a shame."
+> "The rain, the wind, the sun... you bring them all with you. Every time our eyes meet. You bring the world to me."
 
-&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
