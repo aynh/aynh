@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Last words] All right then, I'll put you out of your misery. [Her hands are sliced off] Eh?"
+> "People like you... are the reason why people like me need medication."
 
-&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
