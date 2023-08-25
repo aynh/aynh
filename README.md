@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Zealotry and prejudice more than anything, bring harm to the people of the land."
+> "Please, let that iron guard down for a minute. It's only hurting you. I know when you've hit rock bottom, people trying to cheer you up can be really annoying. 'What would you know?' 'Just leave me alone.' But what if someone you're pushing away is really worried about you? That'd be a shame."
 
-&mdash; [**Arslan**](https://myanimelist.net/character.php?q=Arslan&cat=character), [**The Heroic Legend of Arslan**](https://myanimelist.net/search/all?q=The%20Heroic%20Legend%20of%20Arslan&cat=all)
+&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
