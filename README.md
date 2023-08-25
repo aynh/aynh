@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Starting today... I'll be with you! I'll always be by your side! (to a young Kyo)"
+> "We will not just fade away, thought there's no way to know how long it may last. We WILL leave our mark on this world!"
 
-&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Katakura Kojūrō**](https://myanimelist.net/character.php?q=Katakura%20Koj%C5%ABr%C5%8D&cat=character), [**Sengoku Basara**](https://myanimelist.net/search/all?q=Sengoku%20Basara&cat=all)
