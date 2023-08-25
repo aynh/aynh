@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We will not just fade away, thought there's no way to know how long it may last. We WILL leave our mark on this world!"
+> "Zealotry and prejudice more than anything, bring harm to the people of the land."
 
-&mdash; [**Katakura Kojūrō**](https://myanimelist.net/character.php?q=Katakura%20Koj%C5%ABr%C5%8D&cat=character), [**Sengoku Basara**](https://myanimelist.net/search/all?q=Sengoku%20Basara&cat=all)
+&mdash; [**Arslan**](https://myanimelist.net/character.php?q=Arslan&cat=character), [**The Heroic Legend of Arslan**](https://myanimelist.net/search/all?q=The%20Heroic%20Legend%20of%20Arslan&cat=all)
