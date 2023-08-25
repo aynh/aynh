@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People like you... are the reason why people like me need medication."
+> "Starting today... I'll be with you! I'll always be by your side! (to a young Kyo)"
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
