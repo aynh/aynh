@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, I don't think we can deny the distinct possibility that the world we are in now was freshly created, by Her, last night! In any case, it's an honor to meet you and Miss Suzumiya again. *laughing softly* Be seeing you after class!"
+> "I won't die no matter what. That's what I believe, so stay silent and believe in me. I am a guy who will never die."
 
-&mdash; [**Itsuki Koizumi**](https://myanimelist.net/character.php?q=Itsuki%20Koizumi&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Claire Stanfield**](https://myanimelist.net/character.php?q=Claire%20Stanfield&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
