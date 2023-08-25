@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know what's the most important thing about climbing mountains is? It's not about having the courage to challenge it, It's about having the courage to back down."
+> "They say 'there's always room for dessert', but for me, it's more like 'there's always room if someone else is paying'."
 
-&mdash; [**Nozomi Tōjō**](https://myanimelist.net/character.php?q=Nozomi%20T%C5%8Dj%C5%8D&cat=character), [**Love Live! School idol project**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project&cat=all)
+&mdash; [**Kasumi Fuu**](https://myanimelist.net/character.php?q=Kasumi%20Fuu&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
