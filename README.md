@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was reckless when I was young. I educated myself by cursing the heartlessness of the world. The world was cruel - so I made myself more heartless and used that as a weapon, trying to follow through on my ideals."
+> "There are people who can't act unless they're faced with a problem. Unless they find their reason. All I was left with was the sinking suspicion that I'd gone horribly wrong."
 
-&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
