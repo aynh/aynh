@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People aren't complicated. We work hard when we know that we'll get something in return, and we try to work even harder if that something is our own improvement."
+> "Celebrations are more fun if there are more people."
 
-&mdash; [**Kumiko Oumae**](https://myanimelist.net/character.php?q=Kumiko%20Oumae&cat=character), [**Hibike! Euphonium**](https://myanimelist.net/search/all?q=Hibike!%20Euphonium&cat=all)
+&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
