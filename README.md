@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I fight to get what I need, and I kill whoever gets in my way. I always have."
+> "I'll die smiling! Because if you ever think of me in the future, I want you to remember me smiling."
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Donquixote Rosinante**](https://myanimelist.net/character.php?q=Donquixote%20Rosinante&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
