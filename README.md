@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is a reason nesessary? I don't know why you would kill someone. But as for saving someone... A logical mind isn't needed, right?"
+> "Very funny. Carrots, peppers, and bugs! Everyone has something they don't like and I don't like bugs!"
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
