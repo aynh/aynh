@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Very funny. Carrots, peppers, and bugs! Everyone has something they don't like and I don't like bugs!"
+> "The moment you find the courage to give up your life for someone... Would be the moment you understand love."
 
-&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
