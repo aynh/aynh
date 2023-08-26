@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just because you die... doesn't mean that the people you killed will come back to life... instead using this sword to save just one more soul is repentance in true sense."
+> "Kurosaki Ichigo, you have no chance of defeating me. Even if you somehow manage to defeat me, there will be three more powerful than myself for you to fight. It doesn't matter if you stand up again a thousand times. The road to victory does not exist."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
