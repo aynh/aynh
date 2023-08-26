@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment you find the courage to give up your life for someone... Would be the moment you understand love."
+> "Is it okay for me to have my own life now, father, now that I'm not 'special' anymore?"
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
