@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll be waiting for you to get your asses back here!"
+> "Katsura, just stop this. No matter how elegant you think dying is, your death won't appease your conscience and won't change anything."
 
-&mdash; [**Sawako Yamanaka**](https://myanimelist.net/character.php?q=Sawako%20Yamanaka&cat=character), [**K-ON!**](https://myanimelist.net/search/all?q=K-ON!&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
