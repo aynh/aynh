@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll die smiling! Because if you ever think of me in the future, I want you to remember me smiling."
+> "You'll break. Humans are so fragile."
 
-&mdash; [**Donquixote Rosinante**](https://myanimelist.net/character.php?q=Donquixote%20Rosinante&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Argentine**](https://myanimelist.net/character.php?q=Argentine&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
