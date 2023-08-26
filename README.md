@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That, I don't want to do. You may feel that I'm currently an abnormal Nagato Yuki. That judgement is correct. But I myself cannot accept that I am abnormal... because if I do, I'll become alone. I was scared, so I tried to hide it."
+> "Everyone gets help from someone else at some point in their lives. So someday, you should help someone too."
 
-&mdash; [**Yuki Nagato**](https://myanimelist.net/character.php?q=Yuki%20Nagato&cat=character), [**The Disappearance of Nagato Yuki-chan**](https://myanimelist.net/search/all?q=The%20Disappearance%20of%20Nagato%20Yuki-chan&cat=all)
+&mdash; [**Suzuha Amane**](https://myanimelist.net/character.php?q=Suzuha%20Amane&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
