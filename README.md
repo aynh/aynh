@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Geniuses don't understand the feelings of people who aren't able to do something."
+> "Love provides the worth of everything in the world. Without love...gold, silver, horses, and women...all are worthless."
 
-&mdash; [**Akatsuki no Yona**](https://myanimelist.net/character.php?q=Akatsuki%20no%20Yona&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Father Willibald**](https://myanimelist.net/character.php?q=Father%20Willibald&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
