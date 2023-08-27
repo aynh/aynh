@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're going to selfishly admire someone only to be disillusioned later, then maybe you shouldn't try to get to know them better at all."
+> "Stories are better when they have an ending, are they not?"
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
