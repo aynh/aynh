@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah, if I saw her smiling to herself while reading this, I might think it was creepy. But there's something wrong with people who talk trash and laugh behind another's back, too."
+> "Finishing Strike! Black Star Big Wave!"
 
-&mdash; [**Shougo Kiryuu**](https://myanimelist.net/character.php?q=Shougo%20Kiryuu&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
