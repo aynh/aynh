@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "From now on, Lacus Clyne will be singing the song of peace."
+> "Geniuses don't understand the feelings of people who aren't able to do something."
 
-&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Akatsuki no Yona**](https://myanimelist.net/character.php?q=Akatsuki%20no%20Yona&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
