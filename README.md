@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "First it was that sewer-face and now I'm up against a superhero."
+> "There isn't just one truth out there, everyone carries their own form of it"
 
-&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
