@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This world is far more complicated, rich and full of mystery, than people think."
+> "Yeah, if I saw her smiling to herself while reading this, I might think it was creepy. But there's something wrong with people who talk trash and laugh behind another's back, too."
 
-&mdash; [**Jirou Hatori**](https://myanimelist.net/character.php?q=Jirou%20Hatori&cat=character), [**Zettai Shonen**](https://myanimelist.net/search/all?q=Zettai%20Shonen&cat=all)
+&mdash; [**Shougo Kiryuu**](https://myanimelist.net/character.php?q=Shougo%20Kiryuu&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
