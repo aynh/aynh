@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want everyone to feel safe again soon...I want this to be a world where people can without fighting each other."
+> "What is important to survival isn't the ability to hide and protect yourself, it is to stand up and fight the Kabane."
 
-&mdash; [**Hange Zoe**](https://myanimelist.net/character.php?q=Hange%20Zoe&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Biba Amatori**](https://myanimelist.net/character.php?q=Biba%20Amatori&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
