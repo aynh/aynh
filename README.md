@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only one thing separates dangerous people and safe people: whether they know you or not. If they think you're a good person, they will all smile back at you."
+> "We cannot be satisfied until we have eliminated all others. It has nothing to do with reason. It is instinct."
 
-&mdash; [**Claude Claudel**](https://myanimelist.net/character.php?q=Claude%20Claudel&cat=character), [**Croisée in a Foreign Labyrinth - The Animation**](https://myanimelist.net/search/all?q=Crois%C3%A9e%20in%20a%20Foreign%20Labyrinth%20-%20The%20Animation&cat=all)
+&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
