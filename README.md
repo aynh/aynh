@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Gekokujou."
+> "Only one thing separates dangerous people and safe people: whether they know you or not. If they think you're a good person, they will all smile back at you."
 
-&mdash; [**Wakashi Hiyoshi**](https://myanimelist.net/character.php?q=Wakashi%20Hiyoshi&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Claude Claudel**](https://myanimelist.net/character.php?q=Claude%20Claudel&cat=character), [**Croisée in a Foreign Labyrinth - The Animation**](https://myanimelist.net/search/all?q=Crois%C3%A9e%20in%20a%20Foreign%20Labyrinth%20-%20The%20Animation&cat=all)
