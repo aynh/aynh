@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stories are better when they have an ending, are they not?"
+> "This world is far more complicated, rich and full of mystery, than people think."
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Jirou Hatori**](https://myanimelist.net/character.php?q=Jirou%20Hatori&cat=character), [**Zettai Shonen**](https://myanimelist.net/search/all?q=Zettai%20Shonen&cat=all)
