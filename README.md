@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's Valentine's day, silly! It's the day when lovers are together!"
+> "It just so happens that I was caught in a web. A web known as malice. Whether you put up with it, or put up a fight, it makes no difference. In the end, you get killed. If you don't like that... risk your life... and retaliate."
 
-&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Fujisawa Ayana**](https://myanimelist.net/character.php?q=Fujisawa%20Ayana&cat=character), [**Fukushuu Kyoushitsu**](https://myanimelist.net/search/all?q=Fukushuu%20Kyoushitsu&cat=all)
