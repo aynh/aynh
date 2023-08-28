@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you telling me to flee from my foe!? The blood of a coward doesn't flow through these veins!"
+> "Where is your tail? (Searching for tail in Bulma's butt)"
 
-&mdash; [**Elliot Nightray**](https://myanimelist.net/character.php?q=Elliot%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
