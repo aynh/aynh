@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There stood a high school boy, who for selfish reasons had twice beaten an elementary school girl unconscious, and had gotten all nihistically worked up about it. Actually, that's still me."
+> "So what if the government collapses or the country is ruined? I'm not civic-minded! All I want to do is stand tall and live on until the day I collapse and die!"
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
