@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We're going to explore the outside world someday, right? Far beyond these walls, there's flaming water, land made of ice, and fields of sand spread wide. It's the world my parents wanted to go to."
+> "I never rely on luck. It's all my own choice. It leads me to the future."
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Kagura Mikazuchi**](https://myanimelist.net/character.php?q=Kagura%20Mikazuchi&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
