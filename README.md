@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is important to survival isn't the ability to hide and protect yourself, it is to stand up and fight the Kabane."
+> "Time might separate us some day. But, even still, until then, let's stay together."
 
-&mdash; [**Biba Amatori**](https://myanimelist.net/character.php?q=Biba%20Amatori&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
+&mdash; [**Hotaru Takegawa**](https://myanimelist.net/character.php?q=Hotaru%20Takegawa&cat=character), [**Hotarubi no Mori e**](https://myanimelist.net/search/all?q=Hotarubi%20no%20Mori%20e&cat=all)
