@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never rely on luck. It's all my own choice. It leads me to the future."
+> "Working hard alone doesn't assure you that you'll achieve your dreams. Actually there are more cases where you don't. Even so, working hard and achieving something is some consolation at least."
 
-&mdash; [**Kagura Mikazuchi**](https://myanimelist.net/character.php?q=Kagura%20Mikazuchi&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
