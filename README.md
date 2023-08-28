@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Immersed in ecstasy from killing weak things... A burdensome corpse with no benefit to people. Someone like that... I can't possibly forgive!"
+> "You shy, little boy."
 
-&mdash; [**Rikuo Nura**](https://myanimelist.net/character.php?q=Rikuo%20Nura&cat=character), [**Nura: Rise of the Yokai Clan**](https://myanimelist.net/search/all?q=Nura%3A%20Rise%20of%20the%20Yokai%20Clan&cat=all)
+&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
