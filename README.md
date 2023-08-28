@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My eyes can see the death of everything. I can cut the lines as long as I understand the death behind it. This means I can kill anything, even if that thing is God."
+> "Laugh at love and love will make you cry."
 
-&mdash; [**Ryougi Shiki**](https://myanimelist.net/character.php?q=Ryougi%20Shiki&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Yasushi Takagi**](https://myanimelist.net/character.php?q=Yasushi%20Takagi&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
