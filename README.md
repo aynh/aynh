@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tragic he said. I'm tragic?"
+> "Hey! It looks like now is a good time to do a little tail fishing!"
 
-&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
