@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Where is your tail? (Searching for tail in Bulma's butt)"
+> "I'm not fat, I'm pleasingly plump!"
 
-&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Chouji Akimichi**](https://myanimelist.net/character.php?q=Chouji%20Akimichi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
