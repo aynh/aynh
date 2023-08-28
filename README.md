@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Never beg and earn by winning or else you won't get anything."
+> "I despise myself... because others are too kind to me..."
 
-&mdash; [**Renton Thurston**](https://myanimelist.net/character.php?q=Renton%20Thurston&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Yuichi Onodera**](https://myanimelist.net/character.php?q=Yuichi%20Onodera&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
