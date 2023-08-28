@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's always like this. The only things I can ever do for Naruto are the little things anyone could do..."
+> "Immersed in ecstasy from killing weak things... A burdensome corpse with no benefit to people. Someone like that... I can't possibly forgive!"
 
-&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Rikuo Nura**](https://myanimelist.net/character.php?q=Rikuo%20Nura&cat=character), [**Nura: Rise of the Yokai Clan**](https://myanimelist.net/search/all?q=Nura%3A%20Rise%20of%20the%20Yokai%20Clan&cat=all)
