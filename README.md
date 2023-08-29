@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Showing your back in a battle? You've become a fool Yoruichi!"
+> "Human memories are too vague. Thinking something has color when it doesn't, making things more dramatic than they really are, glorifying things... It gives new greater meaning than was actually there. That's why I don't believe any of this talk about 'beautiful memories'."
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Motoharu Yano**](https://myanimelist.net/character.php?q=Motoharu%20Yano&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
