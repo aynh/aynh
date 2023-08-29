@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I can’t see you… Even if we are separated far apart from each other… I’ll always be watching after you. I’ll definitely watch over you forever…"
+> "At least in academics, you can control the outcome, whether it's good or bad."
 
-&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
