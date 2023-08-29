@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For a pregnant woman to give birth, she's gotta feel the pain of pulling a watermelon out of her nostril. For an Artist to create a masterpiece, he's gotta feel the pain of pulling entire galaxies out  of his ass."
+> "What you need are feelings and experiences. The feelings of the person seeking the rain must be in concert with those of the person making it."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
