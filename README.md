@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kyo-kun! Kyo-kun! I do love you, Kyo-kun! I love you!!!"
+> "Tell you what… I’ll carve you up until you find yourselves cursing the fact that you have such resilient bodies."
 
-&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
