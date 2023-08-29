@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what my heart will be forever yours and I will fight until the day I see you again."
+> "Pika Pika!"
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Pikachu**](https://myanimelist.net/character.php?q=Pikachu&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
