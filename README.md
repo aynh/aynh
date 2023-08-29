@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times when working hard may not be enough. But those who succeed worked hard."
+> "For me to call a man my friend, he must be equal to me in all respects."
 
-&mdash; [**Coach Kamogawa**](https://myanimelist.net/character.php?q=Coach%20Kamogawa&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
+&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
