@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tell you what… I’ll carve you up until you find yourselves cursing the fact that you have such resilient bodies."
+> "Happiness is only happiness when everyone shares it."
 
-&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Ryuugajou Nanana**](https://myanimelist.net/character.php?q=Ryuugajou%20Nanana&cat=character), [**Ryuugajou Nanana No Maizoukin**](https://myanimelist.net/search/all?q=Ryuugajou%20Nanana%20No%20Maizoukin&cat=all)
