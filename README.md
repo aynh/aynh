@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our battle will be concluded, and I will begin my reign from the summit of victory!"
+> "Showing your back in a battle? You've become a fool Yoruichi!"
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
