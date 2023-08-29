@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What you need are feelings and experiences. The feelings of the person seeking the rain must be in concert with those of the person making it."
+> "Because it has powers that surpass everything, a king must cut off his own desires and never use it."
 
-&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Durandal Tobari Kumohira**](https://myanimelist.net/character.php?q=Durandal%20Tobari%20Kumohira&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
