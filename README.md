@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because it has powers that surpass everything, a king must cut off his own desires and never use it."
+> "Justice. I can't think of another word more loved by the people. It does have a nice ring to it. However, without ever exercising your own strength, you seek the death of others at the hands of someone else. Well, the justice you refer to smells pretty rotten to me."
 
-&mdash; [**Durandal Tobari Kumohira**](https://myanimelist.net/character.php?q=Durandal%20Tobari%20Kumohira&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Balalaika**](https://myanimelist.net/character.php?q=Balalaika&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
