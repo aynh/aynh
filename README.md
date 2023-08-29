@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm an apple for a day and I need a doctor right away..."
+> "For a pregnant woman to give birth, she's gotta feel the pain of pulling a watermelon out of her nostril. For an Artist to create a masterpiece, he's gotta feel the pain of pulling entire galaxies out  of his ass."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
