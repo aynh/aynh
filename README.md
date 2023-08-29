@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Justice. I can't think of another word more loved by the people. It does have a nice ring to it. However, without ever exercising your own strength, you seek the death of others at the hands of someone else. Well, the justice you refer to smells pretty rotten to me."
+> "No matter what my heart will be forever yours and I will fight until the day I see you again."
 
-&mdash; [**Balalaika**](https://myanimelist.net/character.php?q=Balalaika&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
