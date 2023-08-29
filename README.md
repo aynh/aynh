@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For me to call a man my friend, he must be equal to me in all respects."
+> "I bet it's not easy to persevere in one's goal. I never tried, so I wouldn't know. But to achieve a goal, one must work hard even when no one is looking. Having a dream might not be all that great."
 
-&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Fujisaki Yusuke**](https://myanimelist.net/character.php?q=Fujisaki%20Yusuke&cat=character), [**Sket Dance**](https://myanimelist.net/search/all?q=Sket%20Dance&cat=all)
