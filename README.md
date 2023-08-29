@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At least in academics, you can control the outcome, whether it's good or bad."
+> "Kyo-kun! Kyo-kun! I do love you, Kyo-kun! I love you!!!"
 
-&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
