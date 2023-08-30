@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The ordinary days that we live in may, in fact, be a series of miracles."
+> "In the end, L is indeed the greatest detective on earth..."
 
-&mdash; [**Koujirou Sasahara**](https://myanimelist.net/character.php?q=Koujirou%20Sasahara&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
