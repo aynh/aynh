@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Can it be that I'm afraid or is it merely I know not my own limit?"
+> "No matter how much is in your heart, if you don’t tell that person, then it’s meaningless."
 
-&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Junjou Romantica**](https://myanimelist.net/character.php?q=Junjou%20Romantica&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
