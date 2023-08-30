@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those bound by superficial rules who do not use their pawns to the utmost are fools."
+> "Life is short, so fall in love, dear maiden, before your youthful ardor cools off, for there is no tomorrow."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Atsushi Shimao**](https://myanimelist.net/character.php?q=Atsushi%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
