@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Check it out yo, how kick ass is my new fighter plane of doom!? Dude, it blowin your mind yet or what?"
+> "I don't like it, the dark circles under my eyes will come back and I don't know how to deal with the dark circles!"
 
-&mdash; [**America**](https://myanimelist.net/character.php?q=America&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
