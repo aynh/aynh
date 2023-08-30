@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how much is in your heart, if you don’t tell that person, then it’s meaningless."
+> "It is the path you have chosen. Take pride in it."
 
-&mdash; [**Junjou Romantica**](https://myanimelist.net/character.php?q=Junjou%20Romantica&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
