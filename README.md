@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It seems like the small leaves in the Village of Konoha have inherited that 'will of fire' you spoke of, Third. The fire on the leaves will eventually burn greater and stronger... It will flash its light and protect this village."
+> "Check it out yo, how kick ass is my new fighter plane of doom!? Dude, it blowin your mind yet or what?"
 
-&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**America**](https://myanimelist.net/character.php?q=America&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
