@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The melody of logic always plays the notes of truth."
+> "If you're here, can you prove you're really here?"
 
-&mdash; [**Ayumi Narumi**](https://myanimelist.net/character.php?q=Ayumi%20Narumi&cat=character), [**Spiral**](https://myanimelist.net/search/all?q=Spiral&cat=all)
+&mdash; [**Mei Misaki**](https://myanimelist.net/character.php?q=Mei%20Misaki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
