@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is the path you have chosen. Take pride in it."
+> "What If I didn't fold the toilet paper? Something like that could ruin my life forever. I can't be defeated by toilet paper, if I turn my back on this I shouldn't be allowed to live anymore."
 
-&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
