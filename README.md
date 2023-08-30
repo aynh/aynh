@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll tattle-tale to Yachiru if you keep that up, Ikkaku!"
+> "Can it be that I'm afraid or is it merely I know not my own limit?"
 
-&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
