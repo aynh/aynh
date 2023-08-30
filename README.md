@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't like it, the dark circles under my eyes will come back and I don't know how to deal with the dark circles!"
+> "The ordinary days that we live in may, in fact, be a series of miracles."
 
-&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Koujirou Sasahara**](https://myanimelist.net/character.php?q=Koujirou%20Sasahara&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
