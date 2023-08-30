@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The double grief of a lost bliss is to recall its happy hour in pain."
+> "If you think music is only made of sounds, you're mistaken. Silence is also part of music."
 
-&mdash; [**Shuichiro Keido**](https://myanimelist.net/character.php?q=Shuichiro%20Keido&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Kunio Yaobi**](https://myanimelist.net/character.php?q=Kunio%20Yaobi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
