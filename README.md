@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you think music is only made of sounds, you're mistaken. Silence is also part of music."
+> "Once you've recognized your mistakes, it's easy enough to correct them."
 
-&mdash; [**Kunio Yaobi**](https://myanimelist.net/character.php?q=Kunio%20Yaobi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
+&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
