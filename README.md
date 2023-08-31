@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment a soldier dons his uniform, he accepts that he might be buried in it."
+> "Anybody want to take the sexy kitty home? She's free."
 
-&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
