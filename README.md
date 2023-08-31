@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trying to not hurt others is something you can’t do. People are creatures who hurt others just by existing even if they’re not aware of it. Whether you’re living or dying, you’ll always be hurting someone. Once you’re involved, you’ll hurt someone, and even by not being involved, you might be hurting someone else as well…"
+> "And if when everything ends, nothing is left in my hands...that's alright."
 
-&mdash; [**Shizuka Hiratsuka**](https://myanimelist.net/character.php?q=Shizuka%20Hiratsuka&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
