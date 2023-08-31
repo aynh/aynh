@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If someone starts doing the right thing, the others will follow."
+> "What I desire is a heart... A heart that understands emotions."
 
-&mdash; [**Ronaldo Kuriki**](https://myanimelist.net/character.php?q=Ronaldo%20Kuriki&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Gowther**](https://myanimelist.net/character.php?q=Gowther&cat=character), [**Nanatsu no Taizai**](https://myanimelist.net/search/all?q=Nanatsu%20no%20Taizai&cat=all)
