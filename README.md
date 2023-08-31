@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Yoh* Because I aim to be the First Lady of the shaman world... You will become Shaman King, whether you want to or not."
+> "[In his Resurrección form] I can see! I can see! I can see!!! So this is the sky!! So this is blood!! So this is the world!! ...So this is what you look like. Komamura. You are uglier... than I thought."
 
-&mdash; [**Anna Kyoyama**](https://myanimelist.net/character.php?q=Anna%20Kyoyama&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
