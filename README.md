@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things you can't have no matter how much you want them. So it's easier to just forget them."
+> "To kill the one you love... If someone else will do it anyway, I'd rather do it myself."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Kurome**](https://myanimelist.net/character.php?q=Kurome&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
