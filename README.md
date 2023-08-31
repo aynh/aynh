@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To kill the one you love... If someone else will do it anyway, I'd rather do it myself."
+> "When something dies or is lost, that thing doesn't truly disappear, as long as someone remembers it. And that remembering it is to acknowledge its existence, and because of that, it can sometimes be seen again."
 
-&mdash; [**Kurome**](https://myanimelist.net/character.php?q=Kurome&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
