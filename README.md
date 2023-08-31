@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is education? Isn't education meant to create a person that conforms to society? What kind of education must be administrated to create a human being that meets the society's demands? Education is an experiment."
+> "If someone starts doing the right thing, the others will follow."
 
-&mdash; [**Mikhail Petrov**](https://myanimelist.net/character.php?q=Mikhail%20Petrov&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Ronaldo Kuriki**](https://myanimelist.net/character.php?q=Ronaldo%20Kuriki&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
