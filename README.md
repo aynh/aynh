@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There were many tears, many unsure times, and many troubled moments. The fun memories were only a few, but even so, those memories will shine bright like stardust and continue to shine on in my heart."
+> "The moment a soldier dons his uniform, he accepts that he might be buried in it."
 
-&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
