@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Depending on who you place in the same situation, the characteristics of said incident change kaleidoscopically. In other words, there is one incident; however, there are as many stories explaining it as there are people involved in it."
+> "Human emotions are ambiguous. A person can have contradicting feelings. I know how they are capable of creating lies and pain when reflected in the real world. That's why we have words. Words are brutally precise. They give form to feelings while mercilessly killing anything left unsaid."
 
-&mdash; [**Gustav St. Germain**](https://myanimelist.net/character.php?q=Gustav%20St.%20Germain&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
