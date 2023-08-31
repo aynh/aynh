@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And if when everything ends, nothing is left in my hands...that's alright."
+> "It's harder to fool one's self than to fool others."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Azuma Yunoki**](https://myanimelist.net/character.php?q=Azuma%20Yunoki&cat=character), [**La Corda D'Oro - primo passo**](https://myanimelist.net/search/all?q=La%20Corda%20D'Oro%20-%20primo%20passo&cat=all)
