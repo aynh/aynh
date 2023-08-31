@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What I desire is a heart... A heart that understands emotions."
+> "There's only one world for us, and things in it are set up so that we can find happiness in it."
 
-&mdash; [**Gowther**](https://myanimelist.net/character.php?q=Gowther&cat=character), [**Nanatsu no Taizai**](https://myanimelist.net/search/all?q=Nanatsu%20no%20Taizai&cat=all)
+&mdash; [**Ryuuguu Rena**](https://myanimelist.net/character.php?q=Ryuuguu%20Rena&cat=character), [**Higurashi no Naku Koro ni Rei**](https://myanimelist.net/search/all?q=Higurashi%20no%20Naku%20Koro%20ni%20Rei&cat=all)
