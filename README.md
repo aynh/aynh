@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unfortunately, I don't have a nice eyeball like you, that can see this and that. All I can do to pursue one thing in front of me. So whether it's the abyss of death or an empty void, I won't fight for the manju offered to my grave. I'll fight for tomorrow's breakfast. That's all."
+> "Ant king , you believe I cannot pray with a single arm? A prayer comes from the heart. If the heart achieves the correct form, it becomes emotions and emotions can be manifested."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Netero**](https://myanimelist.net/character.php?q=Netero&cat=character), [**Hunter × Hunter**](https://myanimelist.net/search/all?q=Hunter%20%C3%97%20Hunter&cat=all)
