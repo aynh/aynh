@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What do you think are the most important things in life? Money, dreams, sympathy towards others... Yes, they're all important things as well... But the most important thing is responsibility for your own actions."
+> "No matter what bonds you forge with others, time will tear them apart. Well... Doesn't thinking about it make you sick?"
 
-&mdash; [**Yuichi Onodera**](https://myanimelist.net/character.php?q=Yuichi%20Onodera&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
