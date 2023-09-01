@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as you live things will keep happening! As long as you're alive wishes will keep being made!"
+> "What do you think are the most important things in life? Money, dreams, sympathy towards others... Yes, they're all important things as well... But the most important thing is responsibility for your own actions."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Yuichi Onodera**](https://myanimelist.net/character.php?q=Yuichi%20Onodera&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
