@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what bonds you forge with others, time will tear them apart. Well... Doesn't thinking about it make you sick?"
+> "It is the role of a parent to stand in front of their children... and protect them even if their legs were to give out at any moment."
 
-&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
