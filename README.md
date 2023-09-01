@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is just my opinion, but when it comes to teaching somebody discipline... I believe pain is the most effective way."
+> "A dream? That's right. Because there was the past, there is now the present. And because there is the present, we can believe in tomorrow and pursue our dreams."
 
-&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Rio Kazumiya**](https://myanimelist.net/character.php?q=Rio%20Kazumiya&cat=character), [**So Ra No Wo To**](https://myanimelist.net/search/all?q=So%20Ra%20No%20Wo%20To&cat=all)
