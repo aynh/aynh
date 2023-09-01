@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can look high or low but you wont find a bigger guy than me!"
+> "In this world, the weak are the sustenance of the strong. The strong live, the weak die."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Makoto Shishio**](https://myanimelist.net/character.php?q=Makoto%20Shishio&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
