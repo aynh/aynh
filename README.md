@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A dream? That's right. Because there was the past, there is now the present. And because there is the present, we can believe in tomorrow and pursue our dreams."
+> "As long as you live things will keep happening! As long as you're alive wishes will keep being made!"
 
-&mdash; [**Rio Kazumiya**](https://myanimelist.net/character.php?q=Rio%20Kazumiya&cat=character), [**So Ra No Wo To**](https://myanimelist.net/search/all?q=So%20Ra%20No%20Wo%20To&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
