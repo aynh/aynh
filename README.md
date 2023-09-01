@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Luck of the draw isn’t about luck. Luck doesn’t decide a match!"
+> "Oh! My little scythey boy!"
 
-&mdash; [**Hidehiro Harada**](https://myanimelist.net/character.php?q=Hidehiro%20Harada&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Blair**](https://myanimelist.net/character.php?q=Blair&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
