@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ant king , you believe I cannot pray with a single arm? A prayer comes from the heart. If the heart achieves the correct form, it becomes emotions and emotions can be manifested."
+> "To someone who bears responsibility, there's no greater treasure than experience."
 
-&mdash; [**Netero**](https://myanimelist.net/character.php?q=Netero&cat=character), [**Hunter × Hunter**](https://myanimelist.net/search/all?q=Hunter%20%C3%97%20Hunter&cat=all)
+&mdash; [**Litonar**](https://myanimelist.net/character.php?q=Litonar&cat=character), [**Suisei no Gargantia**](https://myanimelist.net/search/all?q=Suisei%20no%20Gargantia&cat=all)
