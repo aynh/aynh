@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just your touch... gets me excited. It makes me so happy. But those feelings will all turn into pain. The happier I am now, the more it'll hurt. I know how cruel this is... but no matter how hard I try, I can't rid myself of this. Nejima-kun... I... don't know... what love is."
+> "Luck of the draw isn’t about luck. Luck doesn’t decide a match!"
 
-&mdash; [**Takasaki Misaki**](https://myanimelist.net/character.php?q=Takasaki%20Misaki&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
+&mdash; [**Hidehiro Harada**](https://myanimelist.net/character.php?q=Hidehiro%20Harada&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
