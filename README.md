@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To someone who bears responsibility, there's no greater treasure than experience."
+> "I just like those who try their best, even when they're afraid."
 
-&mdash; [**Litonar**](https://myanimelist.net/character.php?q=Litonar&cat=character), [**Suisei no Gargantia**](https://myanimelist.net/search/all?q=Suisei%20no%20Gargantia&cat=all)
+&mdash; [**Kirishima Shouko**](https://myanimelist.net/character.php?q=Kirishima%20Shouko&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
