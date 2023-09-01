@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When we were still in the world of living, death was something that came indiscriminately and randomly. So, there was no way to fight it."
+> "Even a piece of garbage has its pride."
 
-&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
