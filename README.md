@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just like those who try their best, even when they're afraid."
+> "Only a genuine wish makes one's own soul shine beautifully in this life. That light is a messenger from heaven lighting the way for our unwavering souls to be brought to the God's side."
 
-&mdash; [**Kirishima Shouko**](https://myanimelist.net/character.php?q=Kirishima%20Shouko&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Bastien**](https://myanimelist.net/character.php?q=Bastien&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
