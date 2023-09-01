@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is the role of a parent to stand in front of their children... and protect them even if their legs were to give out at any moment."
+> "Once you question your own belief, it's over."
 
-&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
