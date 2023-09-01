@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I highly recommend pissing yourself followed by a course of praying to your impotent god."
+> "You can look high or low but you wont find a bigger guy than me!"
 
-&mdash; [**Walter C. Dornez**](https://myanimelist.net/character.php?q=Walter%20C.%20Dornez&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
