@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's interesting. Don't do it again."
+> "This is just my opinion, but when it comes to teaching somebody discipline... I believe pain is the most effective way."
 
-&mdash; [**Eucliwood Hellscythe**](https://myanimelist.net/character.php?q=Eucliwood%20Hellscythe&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
+&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
