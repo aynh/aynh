@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no encounter without meaning. I've encountered many people on my journey, and those meetings meant something."
+> "When we were still in the world of living, death was something that came indiscriminately and randomly. So, there was no way to fight it."
 
-&mdash; [**Cardfight!! Vanguard G**](https://myanimelist.net/character.php?q=Cardfight!!%20Vanguard%20G&cat=character), [**Cardfight!! Vanguard G**](https://myanimelist.net/search/all?q=Cardfight!!%20Vanguard%20G&cat=all)
+&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
