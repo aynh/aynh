@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To enjoy my youth properly. She might've been talking about something like this. To live without thinking about consequences or what's around me with all my strength. That's what it was about..."
+> "You're not a strong person, so you can really understand how weak people feel. I mean... Most humans are weak, including me... But if I got an order from someone who saw things like I do, no matter how tough it was, I'd do my damnedest to carry it out."
 
-&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Marco Bodt**](https://myanimelist.net/character.php?q=Marco%20Bodt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
