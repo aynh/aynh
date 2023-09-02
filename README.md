@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are saying that innately, all people are good, and if they were to just assume their nature, this organization wouldn't be so rotten, right? But in my opinion, the structure of the organization, the way it is set up is what provides insight into what the true human nature really is."
+> "Kuwabara, come back! You're like an ugly singer with a good voice, best for backup!"
 
-&mdash; [**Annie Leonhardt**](https://myanimelist.net/character.php?q=Annie%20Leonhardt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
