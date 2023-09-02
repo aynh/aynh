@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The question is what does it take to be the one in control? Money? Brains? Strategic Prowess? Of course, all three are very important. However, there is something that outshines them all and provides a faster and more effective way to victory. And that is... information. The one in possession of information will be able to easily become the ruler of the liar game."
+> "The sun may be wonderful but can you live on that alone? We all live because of the wind, the clouds, and the rain. They're not things you can throw out just because they're temporarily inconvenient, right?"
 
-&mdash; [**Yokoya Norihiko**](https://myanimelist.net/character.php?q=Yokoya%20Norihiko&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
