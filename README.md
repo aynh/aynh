@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A beautiful flower too will eventually wither and fall. That's the fate of all living beings. If that's the case, it's only natural for one to want to stop the time while they're still blossoming in all full glory."
+> "Even if I am to carry all the evils of this world, it won't matter. If that can save the world, then I'd gladly accept it."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
+&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
