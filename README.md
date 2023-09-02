@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're not a strong person, so you can really understand how weak people feel. I mean... Most humans are weak, including me... But if I got an order from someone who saw things like I do, no matter how tough it was, I'd do my damnedest to carry it out."
+> "I had no intention of deceiving anyone. It's just that none of you could understand...My true self."
 
-&mdash; [**Marco Bodt**](https://myanimelist.net/character.php?q=Marco%20Bodt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
