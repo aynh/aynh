@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is when it isn't fun to be with that person. It's when nothing goes the way you want. When you're not having fun... and yet you still want to be with that person."
+> "To enjoy my youth properly. She might've been talking about something like this. To live without thinking about consequences or what's around me with all my strength. That's what it was about..."
 
-&mdash; [**Taichi Mashima**](https://myanimelist.net/character.php?q=Taichi%20Mashima&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
