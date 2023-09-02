@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if we're not confident that we'll win, even if others tell us we don't stand a chance, we must never tell ourselves that."
+> "I will protect Hinamori."
 
-&mdash; [**Daichi Sawamura**](https://myanimelist.net/character.php?q=Daichi%20Sawamura&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
