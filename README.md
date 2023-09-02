@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human hearts are complicated mysteries."
+> "Maybe it would be just like in the mangas. I'd tell him I love him and then we cut to the happy ending."
 
-&mdash; [**Haqua du Lot Herminium**](https://myanimelist.net/character.php?q=Haqua%20du%20Lot%20Herminium&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
