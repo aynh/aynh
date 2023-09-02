@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ah... what a beautiful sound. It doesn't get any better than that. I can feel it deep in my bones, like a part of me I never noticed before. That sound is an extension of my being. And this land - this land that's governed by death - I will paint it red with this shard of destruction."
+> "The question is what does it take to be the one in control? Money? Brains? Strategic Prowess? Of course, all three are very important. However, there is something that outshines them all and provides a faster and more effective way to victory. And that is... information. The one in possession of information will be able to easily become the ruler of the liar game."
 
-&mdash; [**Solf J. Kimblee**](https://myanimelist.net/character.php?q=Solf%20J.%20Kimblee&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Yokoya Norihiko**](https://myanimelist.net/character.php?q=Yokoya%20Norihiko&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
