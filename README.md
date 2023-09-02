@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kuwabara, come back! You're like an ugly singer with a good voice, best for backup!"
+> "Even if we're not confident that we'll win, even if others tell us we don't stand a chance, we must never tell ourselves that."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Daichi Sawamura**](https://myanimelist.net/character.php?q=Daichi%20Sawamura&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
