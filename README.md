@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If praying does not work, and words are ineffective... what's left is to fight."
+> "Listen up, brats! Today’s defeat is the seed for tomorrow’s victory! We’ll rise up and show them! We don’t know the meaning of giving up!"
 
-&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
