@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People are weak. Because of their weakness, they sometimes behave in ways devoid of self-respect. But then, so what if they do, my old friend? Even if I am struck with a thousand setbacks... it does not serve as a reason to alter the way I live... my life!"
+> "Human hearts are complicated mysteries."
 
-&mdash; [**Klaus von Reinherz**](https://myanimelist.net/character.php?q=Klaus%20von%20Reinherz&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Haqua du Lot Herminium**](https://myanimelist.net/character.php?q=Haqua%20du%20Lot%20Herminium&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
