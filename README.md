@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't really want you to understand... I just don't want you to be like, 'Oh, is that all'? I don't need people to get it. These feelings... are important to me, and they're just for me."
+> "You need three types of power to control the world. One is influence. One is wealth. The third is... force."
 
-&mdash; [**Takasaki Misaki**](https://myanimelist.net/character.php?q=Takasaki%20Misaki&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
+&mdash; [**Ushiromiya George**](https://myanimelist.net/character.php?q=Ushiromiya%20George&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
