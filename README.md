@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A long time there... There was a balloon man, right? When I first heard that story, I was so stupid that I actually enjoyed it... But really, the story was horrible. Driven solely by his dreams he used his balloons to disapear into the sky. The people watching made a big fuss about it... But no one really tried to stop it. There's no telling where the wind will take you. And he knew that one day his fuel, his ''freedom'' would run out, and he'd fall into the black ocean. To fly... that feeling is the most important thing. But instead of the dark clouds that drive people from the sky... There must be a chain to keep them grounded. The time will come, for those with the ability to fly away, while everyone else can only watch. Using their own wings, their own power... soaring as far as they can without aid. Because... Because that is what it means to fly."
+> "However, I can't be happy. I feel I can't have that experience, I can't assume I will have that experience. I'm free, but feeling lonely and disheartened. I hope there's happiness out there. Besides, the future is approaching and waiting for me. In the future, I will be a part of the world. I will finally live my life."
 
-&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Sohma Momiji**](https://myanimelist.net/character.php?q=Sohma%20Momiji&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
