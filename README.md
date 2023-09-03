@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You need three types of power to control the world. One is influence. One is wealth. The third is... force."
+> "There are no guarantees. But if there’s a chance it could help everyone avoid the calamity, isn’t it worth it? It’s sad when people die."
 
-&mdash; [**Ushiromiya George**](https://myanimelist.net/character.php?q=Ushiromiya%20George&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Mei Misaki**](https://myanimelist.net/character.php?q=Mei%20Misaki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
