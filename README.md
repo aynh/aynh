@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I fell for you out of my own free will. So if I ever fall out of love, that'll be my own decision too."
+> "Songs are good. Singing brings us joy. It is the highest point in the culture that Lilims have created."
 
-&mdash; [**Chiho Sasaki**](https://myanimelist.net/character.php?q=Chiho%20Sasaki&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
+&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
