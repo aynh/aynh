@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To reach the top we must crush their dreams and climb atop their shattered hopes. The will to win at any cost, to obliterate the enemy if necessary, without ambition there is no way to move up."
+> "'Are you prepared to die?'. Most astronauts answer with a simple 'yes', but you can say anything. It's just a weak yes. You shouldn't be prepared to die. Instead, you should have the resolve to live until the very end! If there's someone who replies 'no', you can trust them."
 
-&mdash; [**Agito Wanijima**](https://myanimelist.net/character.php?q=Agito%20Wanijima&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Brian Jay**](https://myanimelist.net/character.php?q=Brian%20Jay&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
