@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My eyes can see the death of everything. I can cut the lines as long as I understand the death behind it. This means I can kill anything, even if that thing is God."
+> "A heaven that only watches has no meaning."
 
-&mdash; [**Ryougi Shiki**](https://myanimelist.net/character.php?q=Ryougi%20Shiki&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Su-won**](https://myanimelist.net/character.php?q=Su-won&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
