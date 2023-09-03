@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[in reference to Mizuho Asano, Keigo's sister] I owe this crazy woman."
+> "Spoiling stories... is an unforgivable sin in this world."
 
-&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Leo Baskerville**](https://myanimelist.net/character.php?q=Leo%20Baskerville&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
