@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Are you prepared to die?'. Most astronauts answer with a simple 'yes', but you can say anything. It's just a weak yes. You shouldn't be prepared to die. Instead, you should have the resolve to live until the very end! If there's someone who replies 'no', you can trust them."
+> "My eyes can see the death of everything. I can cut the lines as long as I understand the death behind it. This means I can kill anything, even if that thing is God."
 
-&mdash; [**Brian Jay**](https://myanimelist.net/character.php?q=Brian%20Jay&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Ryougi Shiki**](https://myanimelist.net/character.php?q=Ryougi%20Shiki&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
