@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Keeheehe. I like him. I'm going to make him my cat."
+> "To reach the top we must crush their dreams and climb atop their shattered hopes. The will to win at any cost, to obliterate the enemy if necessary, without ambition there is no way to move up."
 
-&mdash; [**Gajeel Redfox**](https://myanimelist.net/character.php?q=Gajeel%20Redfox&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Agito Wanijima**](https://myanimelist.net/character.php?q=Agito%20Wanijima&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
