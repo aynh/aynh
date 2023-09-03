@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I won't ever be the best at anything. Or rather, you might say that I've stopped trying to be."
+> "[in reference to Mizuho Asano, Keigo's sister] I owe this crazy woman."
 
-&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
