@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We're hunting after a legendary sword. Finding a fairy or two shouldn't be surprising."
+> "In our culture, the phenomena known as emotion is considered a mental disorder."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
