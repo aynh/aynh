@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Having people acknowledge your existence is a wonderful thing."
+> "There are people in this world who don't understand that what they consider a harmless prank can deeply hurt someone else."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Mio Nishizono**](https://myanimelist.net/character.php?q=Mio%20Nishizono&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
