@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Inside your mouth, it's rat-ta-ta-ta-ta-ta-ta, wonderful."
+> "In a conflict between creatures that are fundamentally the same, defeat is equavalent to annihilation."
 
-&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Chamber**](https://myanimelist.net/character.php?q=Chamber&cat=character), [**Suisei no Gargantia**](https://myanimelist.net/search/all?q=Suisei%20no%20Gargantia&cat=all)
