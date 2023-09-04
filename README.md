@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’m not the same as you. I’ll never dream about things that I know won’t come true."
+> "If you think about it, death really isn't so frightening. Who knows, you might actually enjoy it."
 
-&mdash; [**Chiriko Tsurumi**](https://myanimelist.net/character.php?q=Chiriko%20Tsurumi&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
+&mdash; [**Karasu**](https://myanimelist.net/character.php?q=Karasu&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
