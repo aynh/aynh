@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This world would be in darkness without a sense of duty."
+> "We're hunting after a legendary sword. Finding a fairy or two shouldn't be surprising."
 
-&mdash; [**Kasumi Fuu**](https://myanimelist.net/character.php?q=Kasumi%20Fuu&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
