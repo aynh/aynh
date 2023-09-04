@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "From a different perspective, an imposing wall is just a large door."
+> "If fighting could provide us with the truth, nobody would make any mistakes in their lives. A person's life is not that easy. The truth you must learn from yourself, from how you live your life."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
