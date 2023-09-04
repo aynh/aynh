@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In our culture, the phenomena known as emotion is considered a mental disorder."
+> "Even if a fool dies, he won't be cured."
 
-&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Atsushi Shimao**](https://myanimelist.net/character.php?q=Atsushi%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
