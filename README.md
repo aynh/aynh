@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People's feelings can change. You may hate someone today, but you might come to love that person tomorrow."
+> "Having people acknowledge your existence is a wonderful thing."
 
-&mdash; [**Naoki Irie**](https://myanimelist.net/character.php?q=Naoki%20Irie&cat=character), [**Itazura na Kiss**](https://myanimelist.net/search/all?q=Itazura%20na%20Kiss&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
