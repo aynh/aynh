@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh? I thought I severed your body from the waist-down, but...It seems the cut was too shallow."
+> "You guys are a team, you have to work together if you want to do anything! One person can't make a decision without the other, you decide together and you fight together!"
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
