@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There isn't anything that's evil to everyone. Even the worst evil saves something. On the other hand, even the greatest good hurts someone. The phrase 'There are no absolutes in this world' means there isn't any absolute good or absolute evil."
+> "Yuusuke... Dammit Yuusuke, listen to me! Everyone has to fight with time to find their place before their inevitable death. Toguro... he ran away from that fight. Don't you ever do the same. No human is ever a one man show. Every decision that you make will affect the countless people who care about you. Do you understand? You can't be a cocky kid anymore."
 
-&mdash; [**Rouka Numachi**](https://myanimelist.net/character.php?q=Rouka%20Numachi&cat=character), [**Hanamonogatari**](https://myanimelist.net/search/all?q=Hanamonogatari&cat=all)
+&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
