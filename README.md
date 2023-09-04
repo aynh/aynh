@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are people in this world who don't understand that what they consider a harmless prank can deeply hurt someone else."
+> "You people, are you satisfied with this kind of world? I'm not."
 
-&mdash; [**Mio Nishizono**](https://myanimelist.net/character.php?q=Mio%20Nishizono&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Lockon Stratos**](https://myanimelist.net/character.php?q=Lockon%20Stratos&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
