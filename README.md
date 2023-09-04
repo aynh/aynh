@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In a conflict between creatures that are fundamentally the same, defeat is equavalent to annihilation."
+> "People's feelings can change. You may hate someone today, but you might come to love that person tomorrow."
 
-&mdash; [**Chamber**](https://myanimelist.net/character.php?q=Chamber&cat=character), [**Suisei no Gargantia**](https://myanimelist.net/search/all?q=Suisei%20no%20Gargantia&cat=all)
+&mdash; [**Naoki Irie**](https://myanimelist.net/character.php?q=Naoki%20Irie&cat=character), [**Itazura na Kiss**](https://myanimelist.net/search/all?q=Itazura%20na%20Kiss&cat=all)
