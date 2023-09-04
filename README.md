@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You people, are you satisfied with this kind of world? I'm not."
+> "Oh? What are you surprised about!? Do you think that I'm someone who would give up after being rejected just once!? Hospitalized or not, I shall continue to polish myself and become even moooore of a spectacular lady, and return to you!!"
 
-&mdash; [**Lockon Stratos**](https://myanimelist.net/character.php?q=Lockon%20Stratos&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
