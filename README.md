@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yuusuke... Dammit Yuusuke, listen to me! Everyone has to fight with time to find their place before their inevitable death. Toguro... he ran away from that fight. Don't you ever do the same. No human is ever a one man show. Every decision that you make will affect the countless people who care about you. Do you understand? You can't be a cocky kid anymore."
+> "If one feels it is fun now, one will be able to enjoy life the most. Everything will change over time, so we must treasure the happy moments before us."
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Akari Mizunashi**](https://myanimelist.net/character.php?q=Akari%20Mizunashi&cat=character), [**Aria the Animation**](https://myanimelist.net/search/all?q=Aria%20the%20Animation&cat=all)
