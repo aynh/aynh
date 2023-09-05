@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if it doesn't pay off or you're laughed at, go down the path that you believe is right."
+> "Sometimes we women must fight too, don't underestimate us!"
 
-&mdash; [**Makoto Hijikata**](https://myanimelist.net/character.php?q=Makoto%20Hijikata&cat=character), [**Psychic Detective Yakumo**](https://myanimelist.net/search/all?q=Psychic%20Detective%20Yakumo&cat=all)
+&mdash; [**Gi-gan**](https://myanimelist.net/character.php?q=Gi-gan&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
