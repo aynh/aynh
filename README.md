@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you telling me to go back and put a corpse on trial?"
+> "Appearances rarely share the whole truth."
 
-&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Pride**](https://myanimelist.net/character.php?q=Pride&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
