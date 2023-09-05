@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the human world, truth and reality aren't always one and the same. Humans just call their desires and ambitions as 'truth'. Humans will even kill other humans if they have 'truth' as an excuse."
+> "Walking along the path that she chose, without being affected by others... in this sense, white is her color...in another sense, it also makes me want to put more colors on her."
 
-&mdash; [**Sanetoshi Watase**](https://myanimelist.net/character.php?q=Sanetoshi%20Watase&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
