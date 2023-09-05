@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not going to protect you by being your shield or armor, but I'll be the dagger hidden below your pillow."
+> "The words “fly” and “fall” are tied together. But the more you're hooked to flying, the more you forget about that fact. As a result, you end up trying to reach the skies even after you die. Not falling to the ground, but falling toward the sky."
 
-&mdash; [**Shuu Tsukiyama**](https://myanimelist.net/character.php?q=Shuu%20Tsukiyama&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
