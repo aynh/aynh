@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you think about it, death really isn't so frightening. Who knows, you might actually enjoy it."
+> "Are you telling me to go back and put a corpse on trial?"
 
-&mdash; [**Karasu**](https://myanimelist.net/character.php?q=Karasu&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
