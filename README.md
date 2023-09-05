@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The words “fly” and “fall” are tied together. But the more you're hooked to flying, the more you forget about that fact. As a result, you end up trying to reach the skies even after you die. Not falling to the ground, but falling toward the sky."
+> "Living forever means that the suffering of life also continues forever."
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Sakura Hiraga**](https://myanimelist.net/character.php?q=Sakura%20Hiraga&cat=character), [**Masquerade**](https://myanimelist.net/search/all?q=Masquerade&cat=all)
