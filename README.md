@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Never trust anyone too much... Remember the devil was once an angel...'"
+> "I'm going to become the best manga editor anyone's ever seen! And then you can kiss your job goodbye!"
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul √A**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%20%E2%88%9AA&cat=all)
+&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
