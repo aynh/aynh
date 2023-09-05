@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Living forever means that the suffering of life also continues forever."
+> "No one can decide what someone else should do with their life."
 
-&mdash; [**Sakura Hiraga**](https://myanimelist.net/character.php?q=Sakura%20Hiraga&cat=character), [**Masquerade**](https://myanimelist.net/search/all?q=Masquerade&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
