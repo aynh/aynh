@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is this place? Where am I? Wherever it is, it's completely dark. I can't even see my own body. It hurts... Which way is up? Which way is down? Where am I supposed to go? Someone help me."
+> "Even if it doesn't pay off or you're laughed at, go down the path that you believe is right."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Makoto Hijikata**](https://myanimelist.net/character.php?q=Makoto%20Hijikata&cat=character), [**Psychic Detective Yakumo**](https://myanimelist.net/search/all?q=Psychic%20Detective%20Yakumo&cat=all)
