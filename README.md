@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You cannot understand that which you do not know, and that misunderstanding breeds hatred."
+> "Belief in others is an illusion concocted by the clever to exploit the stupid."
 
-&mdash; [**Sehara**](https://myanimelist.net/character.php?q=Sehara&cat=character), [**One thousand and one nights**](https://myanimelist.net/search/all?q=One%20thousand%20and%20one%20nights&cat=all)
+&mdash; [**Shin Hyuga Shaing**](https://myanimelist.net/character.php?q=Shin%20Hyuga%20Shaing&cat=character), [**Code Geass: Akito the Exiled**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Akito%20the%20Exiled&cat=all)
