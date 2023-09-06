@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At first, people only play as dots. But when lines of trust and friendship connect those dots, the lines become a circle and that circle is teamwork. As long as you keep playing as a dot, the others won't trust you either."
+> "Infinite wisdom requires infinite perspective. Only by experiencing each element, each moment separately and in their own time, does the beauty of the whole become apparent."
 
-&mdash; [**Major**](https://myanimelist.net/character.php?q=Major&cat=character), [**Major**](https://myanimelist.net/search/all?q=Major&cat=all)
+&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Bubblegum Crisis: Tokyo 2040**](https://myanimelist.net/search/all?q=Bubblegum%20Crisis%3A%20Tokyo%202040&cat=all)
