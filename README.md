@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll drive you into a corner and make you remember that attack."
+> "The things that are most important aren't written in books. You have to learn them by experiencing them yourself."
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
