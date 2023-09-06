@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh great, it's a kid! I thought I was rescuing a babe, a luscious damsel in distress, not some flat chested little girl."
+> "A woman must always move with grace, whether you're wiping a table or drying sheets. Or in the fight for your life."
 
-&mdash; [**Gourry Gabriev**](https://myanimelist.net/character.php?q=Gourry%20Gabriev&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
+&mdash; [**Ooe Kanade**](https://myanimelist.net/character.php?q=Ooe%20Kanade&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
