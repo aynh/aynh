@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We're all lost... That's why we're sad."
+> "Getting dumped always makes a man stronger. But then again, men aren't meant to pursue happiness."
 
-&mdash; [**Van Hohenheim**](https://myanimelist.net/character.php?q=Van%20Hohenheim&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
