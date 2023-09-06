@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Getting dumped always makes a man stronger. But then again, men aren't meant to pursue happiness."
+> "Every time you hurt others, you're the one who end up being hurt."
 
-&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Takashi Morinozuka**](https://myanimelist.net/character.php?q=Takashi%20Morinozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
