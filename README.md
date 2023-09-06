@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The things that are most important aren't written in books. You have to learn them by experiencing them yourself."
+> "If you value your peaceful everyday life, protect it for yourself."
 
-&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
