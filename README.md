@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Belief in others is an illusion concocted by the clever to exploit the stupid."
+> "Don't use a serious tone. Don't breathe on me. Your face is too close. Freaking me out."
 
-&mdash; [**Shin Hyuga Shaing**](https://myanimelist.net/character.php?q=Shin%20Hyuga%20Shaing&cat=character), [**Code Geass: Akito the Exiled**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Akito%20the%20Exiled&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
