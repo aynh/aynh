@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Crying over ill luck won't do you any good. You must believe tomorrow will be better than today and smile."
+> "Oh great, it's a kid! I thought I was rescuing a babe, a luscious damsel in distress, not some flat chested little girl."
 
-&mdash; [**Amane Rui**](https://myanimelist.net/character.php?q=Amane%20Rui&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
+&mdash; [**Gourry Gabriev**](https://myanimelist.net/character.php?q=Gourry%20Gabriev&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
