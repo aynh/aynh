@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you value your peaceful everyday life, protect it for yourself."
+> "Whether you get mad, whether you laugh. The sun will set, morning will come. Each and every time, I'll just start over again."
 
-&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Atsuhiro Maeda**](https://myanimelist.net/character.php?q=Atsuhiro%20Maeda&cat=character), [**Tari Tari**](https://myanimelist.net/search/all?q=Tari%20Tari&cat=all)
