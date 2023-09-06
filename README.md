@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humpty Dumpty. I reject you."
+> "If they find out what you did there, a lot of people will say a lot of things to you. Some will say you did the right thing. And some will say you did the wrong thing. But that's not what matters. No matter what anyone says, you don't have to worry. Because you didn't do the right thing, and you didn't do the wrong thing. It was all part of being young."
 
-&mdash; [**Elliot Nightray**](https://myanimelist.net/character.php?q=Elliot%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
