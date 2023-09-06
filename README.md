@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why do you get so cold when you're old? I'm fatter than ever, and yet, the wind blows right through me."
+> "A database can't draw conclusions."
 
-&mdash; [**Sophie Hatter**](https://myanimelist.net/character.php?q=Sophie%20Hatter&cat=character), [**Howl's Moving Castle**](https://myanimelist.net/search/all?q=Howl's%20Moving%20Castle&cat=all)
+&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
