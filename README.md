@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'If you close down the way to your own path, it will always open up. That's why this isn't a song of ending. It is a new encounter. A song of beginning.'"
+> "You cannot understand that which you do not know, and that misunderstanding breeds hatred."
 
-&mdash; [**Kahoko Hino**](https://myanimelist.net/character.php?q=Kahoko%20Hino&cat=character), [**La Corda D'Oro - primo passo**](https://myanimelist.net/search/all?q=La%20Corda%20D'Oro%20-%20primo%20passo&cat=all)
+&mdash; [**Sehara**](https://myanimelist.net/character.php?q=Sehara&cat=character), [**One thousand and one nights**](https://myanimelist.net/search/all?q=One%20thousand%20and%20one%20nights&cat=all)
