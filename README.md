@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Drop ink on the finest snow-white paper and it will inevitably absorb into black. Its purity demands it. Tainted men have immunities. Black does not absorb black."
+> "What is an adult? Does coolly drinking black coffee and spouting logic make you an adult?! If that's the case, I'll stay a kid that likes drinking orange juice."
 
-&mdash; [**Shinobu Sensui**](https://myanimelist.net/character.php?q=Shinobu%20Sensui&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Shirota Mahiru**](https://myanimelist.net/character.php?q=Shirota%20Mahiru&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
