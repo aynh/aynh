@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm bothered by the very fact that people exist, but you're an exception."
+> "You can lose the match and the game, but if you don't lose to yourself, it isn't a loss."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Karen Araragi**](https://myanimelist.net/character.php?q=Karen%20Araragi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
