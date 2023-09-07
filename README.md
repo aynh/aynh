@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Kyo] Perhaps if you'd just die you'd be reincarnated as something more pleasant."
+> "Ash will never really be alone cause he's got... me."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
