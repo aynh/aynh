@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are three things I hate the most: Kids, pets, and women with attitude. So tell me, why do we have all of them packed into our ship!?"
+> "I cried alone every single night. It felt like every day that passed here stole another piece of my real life away. After I cried, I'd go and fight as hard as I could. My only thought was winning, moving forward and getting stronger."
 
-&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
