@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A fake with more power than the real thing is more dangerous than the real thing."
+> "There are three things I hate the most: Kids, pets, and women with attitude. So tell me, why do we have all of them packed into our ship!?"
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
