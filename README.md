@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is the world too peaceful? Is the future bothersome? Is reality your enemy? Don't worry, even if it is - LIFE IS EPIC."
+> "Anyone can smile if you give them something to be happy about."
 
-&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Setsuna F. Seiei**](https://myanimelist.net/character.php?q=Setsuna%20F.%20Seiei&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
