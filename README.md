@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't understand you! You said you don't love me, but you act like you do! Then you tell me to stay away. Do I have a chance or not?!"
+> "[To Kyo] Perhaps if you'd just die you'd be reincarnated as something more pleasant."
 
-&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
