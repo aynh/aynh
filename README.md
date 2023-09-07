@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud!"
+> "For murderers, there is no good or evil. I know that."
 
-&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
