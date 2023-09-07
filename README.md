@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When one person is cursed, two graves are dug."
+> "I don't want to die, either. But I'm an aristocrat. It's an honor to die for one's people. You make fun of it, but is it that insignificant to die for everyone else?"
 
-&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
+&mdash; [**Louise Françoise Le Blanc de La Vallière**](https://myanimelist.net/character.php?q=Louise%20Fran%C3%A7oise%20Le%20Blanc%20de%20La%20Valli%C3%A8re&cat=character), [**Zero no Tsukaima: Futatsuki no Kishi**](https://myanimelist.net/search/all?q=Zero%20no%20Tsukaima%3A%20Futatsuki%20no%20Kishi&cat=all)
