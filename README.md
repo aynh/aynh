@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anyone accepting defeat will be punished by running ten laps around the school, naked! And you'll have to yell 'Green Martians are chasing me!' for the whole ten laps!"
+> "Don’t push your feelings onto others. No matter what pretty words you use, your kindness is just hypocrisy. You’re pretending to be nice only to make yourself feel better."
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Hallelujah Haptism**](https://myanimelist.net/character.php?q=Hallelujah%20Haptism&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
