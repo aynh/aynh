@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don’t push your feelings onto others. No matter what pretty words you use, your kindness is just hypocrisy. You’re pretending to be nice only to make yourself feel better."
+> "Everytime Otani says or does something, I end up going to heaven, or hell."
 
-&mdash; [**Hallelujah Haptism**](https://myanimelist.net/character.php?q=Hallelujah%20Haptism&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
