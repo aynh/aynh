@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if we are far apart. We'll always be united by tennis."
+> "If you can't understand the darkness in your opponent's heart, you will never comprehend the pain and suffering of others."
 
-&mdash; [**Fuji Shuusuke**](https://myanimelist.net/character.php?q=Fuji%20Shuusuke&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
