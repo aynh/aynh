@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Since then… I’ve started to think…about things with the worst case outcome first. By doing so, even if you did get hurt a little bit, it wouldn’t end up being a lasting wound."
+> "Drat, we wasted this episode cheering the good guys!"
 
-&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
