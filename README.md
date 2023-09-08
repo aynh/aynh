@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A woman's jealousy is blacker than the oceans deepest chasm. You may all begin screaming now."
+> "If you wanna make people dream, you've gotta start by believing in that dream yourself!"
 
-&mdash; [**Ryuuguu Otohime**](https://myanimelist.net/character.php?q=Ryuuguu%20Otohime&cat=character), [**Okami-san And Her Seven Companions**](https://myanimelist.net/search/all?q=Okami-san%20And%20Her%20Seven%20Companions&cat=all)
+&mdash; [**Seiya Kanie**](https://myanimelist.net/character.php?q=Seiya%20Kanie&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
