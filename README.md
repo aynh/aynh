@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The best way to tame a mystery is with another mystery."
+> "Humans are so voracious, though. They eat everything from plants to animals... almost as if they think they are the top living creature to roam the earth. No being is more full of themselves as the humans."
 
-&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Hildegard**](https://myanimelist.net/character.php?q=Hildegard&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
