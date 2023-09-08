@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how much everyone loves me, and no matter how much I love everyone - if I don't like it, I just can't do it."
+> "Then just become stronger. I have my ambition, you have your ambition too. Which means you should just keep walking forward towards that goal."
 
-&mdash; [**Shana**](https://myanimelist.net/character.php?q=Shana&cat=character), [**Shakugan no Shana**](https://myanimelist.net/search/all?q=Shakugan%20no%20Shana&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
