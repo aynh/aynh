@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end the winner is still the last man standing."
+> "Anyway, here's my point. Trivial setbacks like yours and mine are nothing but common occurrences in everyday life! Getting hung up over pointless crap like that shows that you're a joke! A complete and utter joke!"
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Seiya Kanie**](https://myanimelist.net/character.php?q=Seiya%20Kanie&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
