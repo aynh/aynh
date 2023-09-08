@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fun times are bound to end."
+> "A woman's jealousy is blacker than the oceans deepest chasm. You may all begin screaming now."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Ryuuguu Otohime**](https://myanimelist.net/character.php?q=Ryuuguu%20Otohime&cat=character), [**Okami-san And Her Seven Companions**](https://myanimelist.net/search/all?q=Okami-san%20And%20Her%20Seven%20Companions&cat=all)
