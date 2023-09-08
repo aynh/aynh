@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can't understand the darkness in your opponent's heart, you will never comprehend the pain and suffering of others."
+> "Your new form is burning through more power than your body can supply. You should hav ewaited until you were used to this form and knew how to regulate it before you started picking fights."
 
-&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Goku**](https://myanimelist.net/character.php?q=Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
