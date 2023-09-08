@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am a complete opposite of Ryuk."
+> "People need to be told they're worthy of being alive by someone else or they can't go on."
 
-&mdash; [**Rem (Death Note)**](https://myanimelist.net/character.php?q=Rem%20(Death%20Note)&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Atsushi Nakajima**](https://myanimelist.net/character.php?q=Atsushi%20Nakajima&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
