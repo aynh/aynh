@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am a famous model."
+> "I am a complete opposite of Ryuk."
 
-&mdash; [**Misa Amane**](https://myanimelist.net/character.php?q=Misa%20Amane&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Rem (Death Note)**](https://myanimelist.net/character.php?q=Rem%20(Death%20Note)&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
