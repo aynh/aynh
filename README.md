@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you wanna make people dream, you've gotta start by believing in that dream yourself!"
+> "Those with talent who aren't aware of themselves cause pain for those who have none."
 
-&mdash; [**Seiya Kanie**](https://myanimelist.net/character.php?q=Seiya%20Kanie&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
+&mdash; [**Fuyumi Irisu**](https://myanimelist.net/character.php?q=Fuyumi%20Irisu&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
