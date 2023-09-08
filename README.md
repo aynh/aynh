@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anyway, here's my point. Trivial setbacks like yours and mine are nothing but common occurrences in everyday life! Getting hung up over pointless crap like that shows that you're a joke! A complete and utter joke!"
+> "The best way to tame a mystery is with another mystery."
 
-&mdash; [**Seiya Kanie**](https://myanimelist.net/character.php?q=Seiya%20Kanie&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
