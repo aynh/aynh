@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You shouldn’t stop like that. If you can move forward, then you should."
+> "I don't have the strength or wisdom to stand up against someone who is insusceptible to reason. You won't even give me time to make an effort. That's why I'm going to rely on numbers!"
 
-&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Ryuugamine Mikado**](https://myanimelist.net/character.php?q=Ryuugamine%20Mikado&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
