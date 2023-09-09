@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't have the strength or wisdom to stand up against someone who is insusceptible to reason. You won't even give me time to make an effort. That's why I'm going to rely on numbers!"
+> "They say time and a people’s heart are inversely proportional. The more it passes, the more they grow apart. It seems there are some rare exceptions though."
 
-&mdash; [**Ryuugamine Mikado**](https://myanimelist.net/character.php?q=Ryuugamine%20Mikado&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
