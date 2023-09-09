@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's wrong Frieza? Is your brain another one of your weak and under used muscles?"
+> "What I hate the most in the world is when I'm already trying hard and I'm told to try harder!"
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
