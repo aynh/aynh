@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I love you. When did I start to love you so much?"
+> "You don't like being lonely, but you're afraid of people expressing their affection towards you. You pretend not to notice. You run away. You brush it off. You cover up. You reject. You even lie to yourself, convincing yourself that no one has any feelings for you."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Rika Shiguma**](https://myanimelist.net/character.php?q=Rika%20Shiguma&cat=character), [**Boku wa Tomodachi ga Sukunai**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai&cat=all)
