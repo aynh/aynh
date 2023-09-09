@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what changes, I'll still be me. And I can be whoever I want to be!"
+> "I love you. When did I start to love you so much?"
 
-&mdash; [**Amu Hinamori**](https://myanimelist.net/character.php?q=Amu%20Hinamori&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
