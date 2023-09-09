@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You find a glimmer of hope, only to lose it. That is when your despair tastes the most divine."
+> "When you someday find a way of life that you can truly be proud of, you'll be forced into your own battle whether you like it or not."
 
-&mdash; [**Takaya Kurisu**](https://myanimelist.net/character.php?q=Takaya%20Kurisu&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
