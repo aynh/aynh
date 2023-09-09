@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What I hate the most in the world is when I'm already trying hard and I'm told to try harder!"
+> "You find a glimmer of hope, only to lose it. That is when your despair tastes the most divine."
 
-&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Takaya Kurisu**](https://myanimelist.net/character.php?q=Takaya%20Kurisu&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
