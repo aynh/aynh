@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're gonna have great happiness, it requires great effort in exchange, that's called compensation. For the good things in life, there are the bad. For the bad things in life, there are always the good. In order for you to be happy, you must be willing to accept a burden of a equal amount of unhappiness in exchange as your payment. The more you achieve, the greater the demands will be placed upon you in return."
+> "What's wrong Frieza? Is your brain another one of your weak and under used muscles?"
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
