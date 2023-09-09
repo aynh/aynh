@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When one person is cursed, two graves are dug."
+> "The world is indeed full of malice, but there are some pitfalls one can avoid as long as one knows of them- ignorance is a sin, after all."
 
-&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
