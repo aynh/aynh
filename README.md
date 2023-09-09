@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't like being lonely, but you're afraid of people expressing their affection towards you. You pretend not to notice. You run away. You brush it off. You cover up. You reject. You even lie to yourself, convincing yourself that no one has any feelings for you."
+> "Just as planets seek the light of a star and circle around it, I was a planet that sought the light of a pure star. Even the moon can't shine by itself. It shines so brightly because it reflects light from the sun."
 
-&mdash; [**Rika Shiguma**](https://myanimelist.net/character.php?q=Rika%20Shiguma&cat=character), [**Boku wa Tomodachi ga Sukunai**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai&cat=all)
+&mdash; [**Takada**](https://myanimelist.net/character.php?q=Takada&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
