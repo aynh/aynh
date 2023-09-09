@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just as planets seek the light of a star and circle around it, I was a planet that sought the light of a pure star. Even the moon can't shine by itself. It shines so brightly because it reflects light from the sun."
+> "When I tell you to leave, leave. In this world, winning is everything. Winners are affirmed completely, and losers are denied completely. I've never lost at anything before, and I never will. Because I always win, and I'm always right. I show no mercy to those who oppose me, not even my own parents."
 
-&mdash; [**Takada**](https://myanimelist.net/character.php?q=Takada&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
+&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
