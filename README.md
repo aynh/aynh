@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say time and a people’s heart are inversely proportional. The more it passes, the more they grow apart. It seems there are some rare exceptions though."
+> "If you're gonna have great happiness, it requires great effort in exchange, that's called compensation. For the good things in life, there are the bad. For the bad things in life, there are always the good. In order for you to be happy, you must be willing to accept a burden of a equal amount of unhappiness in exchange as your payment. The more you achieve, the greater the demands will be placed upon you in return."
 
-&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
