@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You need to accept the fact that you're not the best and have all the will to strive to be better than anyone you face."
+> "When one person is cursed, two graves are dug."
 
-&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
