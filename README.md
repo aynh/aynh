@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if Hell is where we're headed. You people might not have found it, but we're going to. We will find Paradise."
+> "It's time I started living my own life."
 
-&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
