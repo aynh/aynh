@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why are you acting like you're the only one hurting when you pushed him away?"
+> "Destiny is what you create with your own will."
 
-&mdash; [**Yukimura Tooru**](https://myanimelist.net/character.php?q=Yukimura%20Tooru&cat=character), [**Aoharu x Kikanjuu**](https://myanimelist.net/search/all?q=Aoharu%20x%20Kikanjuu&cat=all)
+&mdash; [**Shinguji Sakura**](https://myanimelist.net/character.php?q=Shinguji%20Sakura&cat=character), [**Sakura Taisen**](https://myanimelist.net/search/all?q=Sakura%20Taisen&cat=all)
