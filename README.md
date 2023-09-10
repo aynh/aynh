@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's time I started living my own life."
+> "Words alone, can make an entire army withdraw."
 
-&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Yuusha**](https://myanimelist.net/character.php?q=Yuusha&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
