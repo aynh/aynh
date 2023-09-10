@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter who they are, I won't forgive anyone who tries to stand out more than me."
+> "*after touching Misa's butt and getting away with it* This is an outrage... taking advantage of this situation! I assure you, I will get to the bottom of this!"
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
