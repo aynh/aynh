@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A joke only lasts for a moment, if it leaves a misunderstanding, it becomes a lie."
+> "It doesn't matter who they are, I won't forgive anyone who tries to stand out more than me."
 
-&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
