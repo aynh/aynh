@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just think we're missing out if we're not trying different things and having fun. Life's too short."
+> "Music speaks to people's hearts, all throughout the world. I believe it's a powerful language."
 
-&mdash; [**Birthday**](https://myanimelist.net/character.php?q=Birthday&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
+&mdash; [**Kawashima Sapphire**](https://myanimelist.net/character.php?q=Kawashima%20Sapphire&cat=character), [**Hibike! Euphonium**](https://myanimelist.net/search/all?q=Hibike!%20Euphonium&cat=all)
