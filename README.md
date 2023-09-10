@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To have a name. To remove one layer of the unknown. To be painted in reality. If you have your feet firmly planted to the ground, you may have a chance to pull someone down."
+> "There is nothing outside of yourself that can ever enable you to get better, stronger, richer, quicker, or smarter. Everything is within. Everything exists. Seek nothing outside of yourself."
 
-&mdash; [**Makoto Niwa**](https://myanimelist.net/character.php?q=Makoto%20Niwa&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
+&mdash; [**Miyamoto Musashi**](https://myanimelist.net/character.php?q=Miyamoto%20Musashi&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
