@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A person can work for their ideals. But if you lose sight of those ideals, when things don't work out as you hoped, you'll never accomplish anything! You won't be able to protect yourself or those dear to you."
+> "That's people for you. Trusting one another, helping one another- it's all a fantasy. Humans are creatures that will always betray."
 
-&mdash; [**Hiroomi Nase**](https://myanimelist.net/character.php?q=Hiroomi%20Nase&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
+&mdash; [**Yokoya Norihiko**](https://myanimelist.net/character.php?q=Yokoya%20Norihiko&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
