@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Destiny is what you create with your own will."
+> "To have a name. To remove one layer of the unknown. To be painted in reality. If you have your feet firmly planted to the ground, you may have a chance to pull someone down."
 
-&mdash; [**Shinguji Sakura**](https://myanimelist.net/character.php?q=Shinguji%20Sakura&cat=character), [**Sakura Taisen**](https://myanimelist.net/search/all?q=Sakura%20Taisen&cat=all)
+&mdash; [**Makoto Niwa**](https://myanimelist.net/character.php?q=Makoto%20Niwa&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
