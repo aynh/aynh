@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey! Sameji, why don't we give Takkun a little preview of forbidden lesbian love?"
+> "Even if Hell is where we're headed. You people might not have found it, but we're going to. We will find Paradise."
 
-&mdash; [**Haruko Haruhara**](https://myanimelist.net/character.php?q=Haruko%20Haruhara&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
