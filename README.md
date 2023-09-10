@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you lose your uniqueness for fear of being disliked, then no one will ever love you."
+> "A joke only lasts for a moment, if it leaves a misunderstanding, it becomes a lie."
 
-&mdash; [**Yuuki Aito**](https://myanimelist.net/character.php?q=Yuuki%20Aito&cat=character), [**The Comic Artist and His Assistants**](https://myanimelist.net/search/all?q=The%20Comic%20Artist%20and%20His%20Assistants&cat=all)
+&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
