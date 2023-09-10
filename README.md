@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I really do like you. You pissed me off, so I considered giving up for a minute, but I'd never lie about my feelings. So I won't quit. Even if you don't believe me now, I'll keep saying it until you do! I'll keep trying! This isn't over!"
+> "There comes a time when we can no longer tell the invaders from the invaded. That is what we call “War”."
 
-&mdash; [**Erika Shinohara**](https://myanimelist.net/character.php?q=Erika%20Shinohara&cat=character), [**Wolf Girl & Black Prince**](https://myanimelist.net/search/all?q=Wolf%20Girl%20%26%20Black%20Prince&cat=all)
+&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
