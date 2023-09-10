@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Words alone, can make an entire army withdraw."
+> "A person can work for their ideals. But if you lose sight of those ideals, when things don't work out as you hoped, you'll never accomplish anything! You won't be able to protect yourself or those dear to you."
 
-&mdash; [**Yuusha**](https://myanimelist.net/character.php?q=Yuusha&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
+&mdash; [**Hiroomi Nase**](https://myanimelist.net/character.php?q=Hiroomi%20Nase&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
