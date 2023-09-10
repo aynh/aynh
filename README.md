@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Music speaks to people's hearts, all throughout the world. I believe it's a powerful language."
+> "This guy's a special kind of stupid."
 
-&mdash; [**Kawashima Sapphire**](https://myanimelist.net/character.php?q=Kawashima%20Sapphire&cat=character), [**Hibike! Euphonium**](https://myanimelist.net/search/all?q=Hibike!%20Euphonium&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
