@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is nothing outside of yourself that can ever enable you to get better, stronger, richer, quicker, or smarter. Everything is within. Everything exists. Seek nothing outside of yourself."
+> "That may be so. What is right from wrong? What is good from evil? Nobody can truly distinguish between them. Even if there was a god. Now, supposing a god and his world existed, even then I'd stop and think for myself. I'd decide for myself whether his teachings are right or wrong. After all, I am just the same as you. I put faith in my own convictions as to what I believe is right, and consider them to be righteous."
 
-&mdash; [**Miyamoto Musashi**](https://myanimelist.net/character.php?q=Miyamoto%20Musashi&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
