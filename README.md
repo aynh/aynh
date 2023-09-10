@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's people for you. Trusting one another, helping one another- it's all a fantasy. Humans are creatures that will always betray."
+> "To know your sin is to have no sin."
 
-&mdash; [**Yokoya Norihiko**](https://myanimelist.net/character.php?q=Yokoya%20Norihiko&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Renmei Communicator**](https://myanimelist.net/character.php?q=Renmei%20Communicator&cat=character), [**Haibane Renmei**](https://myanimelist.net/search/all?q=Haibane%20Renmei&cat=all)
