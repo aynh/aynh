@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is a reason nesessary? I don't know why you would kill someone. But as for saving someone... A logical mind isn't needed, right?"
+> "When a human is victorious is when they're most vulnerable."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
