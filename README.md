@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*mockingly* That's amazing, Mikuru! We're counting on you! The Earth is in your-- *breaks into uncontrollable and hysterical laughter*"
+> "When you do something for the man you love, instead of for the world, it's easier to decide what must be done. Ultimately, it's better to do things for someone rather than something."
 
-&mdash; [**Tsuruya**](https://myanimelist.net/character.php?q=Tsuruya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Hakaze Kusaribe**](https://myanimelist.net/character.php?q=Hakaze%20Kusaribe&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
