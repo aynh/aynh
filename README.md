@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The melody of logic always plays the notes of truth."
+> "You have a swimsuit tan. You could jump in the pool naked and no one would know you weren't wearing anything."
 
-&mdash; [**Ayumi Narumi**](https://myanimelist.net/character.php?q=Ayumi%20Narumi&cat=character), [**Spiral**](https://myanimelist.net/search/all?q=Spiral&cat=all)
+&mdash; [**Ayumu Kasuga**](https://myanimelist.net/character.php?q=Ayumu%20Kasuga&cat=character), [**Azumanga Daioh**](https://myanimelist.net/search/all?q=Azumanga%20Daioh&cat=all)
