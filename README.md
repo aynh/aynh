@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human minds are not designed to accept negative statements like ‘don’t do this’ or ‘I can’t do that’, ‘we can’t make any mistakes’, ‘failure is not accepted’. These kinds of thoughts only serve to counter productively stress the body and lead to further mistakes. And if just one mistake is made, it turns into a vicious cycle. The more they think about it, the more mistakes will be made, and the more the quality of their plays will drop."
+> "Yesterday my mouth tasted like mud. Now it tastes like sand. I never thought I would miss the taste of mud so much."
 
-&mdash; [**Kuroko No Basket**](https://myanimelist.net/character.php?q=Kuroko%20No%20Basket&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
