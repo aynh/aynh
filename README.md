@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All the while we've been thinking you were a brilliant strategist when really, you're just a lucky fool."
+> "All living things eventually die. It's unavoidable. But as long as you remember, it will live on in your heart forever."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Lisanna Strauss**](https://myanimelist.net/character.php?q=Lisanna%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
