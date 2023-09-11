@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you do something for the man you love, instead of for the world, it's easier to decide what must be done. Ultimately, it's better to do things for someone rather than something."
+> "I don't let anyone in my sight get away, and my bullets never miss their mark. Especially if it's the heart of a beautiful lady... BANG."
 
-&mdash; [**Hakaze Kusaribe**](https://myanimelist.net/character.php?q=Hakaze%20Kusaribe&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
