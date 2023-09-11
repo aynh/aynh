@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I really liked him I should hope for his happiness. But like you said in the car, I actually hoped they would break up."
+> "All the while we've been thinking you were a brilliant strategist when really, you're just a lucky fool."
 
-&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
