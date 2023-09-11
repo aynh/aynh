@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's human nature to judge by appearance. It's not just males who are superficial. No one bothers about things they cannot see... like the heart."
+> "But still... Not trying to undo misunderstandings is the same as telling a lie."
 
-&mdash; [**Yuzuru Shino**](https://myanimelist.net/character.php?q=Yuzuru%20Shino&cat=character), [**Seven Days**](https://myanimelist.net/search/all?q=Seven%20Days&cat=all)
+&mdash; [**Yotsugi Ononoki**](https://myanimelist.net/character.php?q=Yotsugi%20Ononoki&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
