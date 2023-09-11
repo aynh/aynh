@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All living things eventually die. It's unavoidable. But as long as you remember, it will live on in your heart forever."
+> "You’re like big umbrella. You’re the shade from the strong sun’s rays when the weather is good. And you’re the shelter from the cold rain when the weather is bad. You’re always protecting others."
 
-&mdash; [**Lisanna Strauss**](https://myanimelist.net/character.php?q=Lisanna%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Angelina Nanatsu Sewell**](https://myanimelist.net/character.php?q=Angelina%20Nanatsu%20Sewell&cat=character), [**Mashiroiro Symphony - The color of lovers**](https://myanimelist.net/search/all?q=Mashiroiro%20Symphony%20-%20The%20color%20of%20lovers&cat=all)
