@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am an ice sculpture mage. I can make anything."
+> "(To Ichigo Kurosaki before getting shot point-blank by his Cero) I see. So you show no mercy. Just like a true Hollow. I care not. Defeated by you as I stand, my existence holds no further meaning. Do it."
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
