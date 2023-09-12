@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there is such a thing as the work of the devil, then there's no doubt it's what happened in this incident."
+> "What pride... are you saying that you are God's equal?"
 
-&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Rose Tomas**](https://myanimelist.net/character.php?q=Rose%20Tomas&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
