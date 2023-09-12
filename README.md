@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the darkness, hope is something you give yourself."
+> "Idiots in their idiotic way have their own idiotic worries."
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
