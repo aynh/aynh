@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't know what's happened to you, but you shouldn't suppress your feelings if you're angry or sad. It's okay to let it all out."
+> "If you lose something, just build it again. And this time, with a greater care."
 
-&mdash; [**Rea Sanka**](https://myanimelist.net/character.php?q=Rea%20Sanka&cat=character), [**Sankarea**](https://myanimelist.net/search/all?q=Sankarea&cat=all)
+&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
