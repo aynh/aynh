@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate waiting, but if waiting means being able to be with you I'll wait for as long as forever."
+> "[as he prepares to fire on the Eternal with Lacus Clyne on board] It's a shame really, I did enjoy your songs. But the real world isn't as kind as the one in pop songs!"
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
