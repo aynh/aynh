@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just as planets seek the light of a star and circle around it, I was a planet that sought the light of a pure star. Even the moon can't shine by itself. It shines so brightly because it reflects light from the sun."
+> "In the darkness, hope is something you give yourself."
 
-&mdash; [**Takada**](https://myanimelist.net/character.php?q=Takada&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
+&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
