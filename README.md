@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Talking to Riki] We've spent time together that made our hearts dance. But every story has to come to an end. No one can stay a kid forever. Time passes, and people grow up. There will come a day when we will no longer be together."
+> "Unfortunately, I don't have a nice eyeball like you, that can see this and that. All I can do to pursue one thing in front of me. So whether it's the abyss of death or an empty void, I won't fight for the manju offered to my grave. I'll fight for tomorrow's breakfast. That's all."
 
-&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
