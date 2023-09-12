@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What pride... are you saying that you are God's equal?"
+> "[Talking to Riki] We've spent time together that made our hearts dance. But every story has to come to an end. No one can stay a kid forever. Time passes, and people grow up. There will come a day when we will no longer be together."
 
-&mdash; [**Rose Tomas**](https://myanimelist.net/character.php?q=Rose%20Tomas&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
