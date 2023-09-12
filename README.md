@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There isn't just one truth out there, everyone carries their own form of it"
+> "A wall's a wall and there's no wall I can't punch a hole through!"
 
-&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Kiba Inuzuka**](https://myanimelist.net/character.php?q=Kiba%20Inuzuka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
