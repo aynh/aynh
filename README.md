@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can take a picture of something and it never does it justice... I think about that sometimes when I see a picture of you."
+> "People who don't work hard don't have the right to be envious of the people with talent. People fail because they don't understand the hard work necessary to be successful."
 
-&mdash; [**Mikako Nagamine**](https://myanimelist.net/character.php?q=Mikako%20Nagamine&cat=character), [**Voices of a Distant Star**](https://myanimelist.net/search/all?q=Voices%20of%20a%20Distant%20Star&cat=all)
+&mdash; [**Yukino Yukinoshita**](https://myanimelist.net/character.php?q=Yukino%20Yukinoshita&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
