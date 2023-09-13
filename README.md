@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You’d better not (rip my mask). Like Pandora’s box, you want to open it because you don’t know what’s inside. But if you know what’s inside before you open it… It’s boring, isn’t it?"
+> "I think there are many things in this world we are better off not knowing. Sometimes the truth is the cruelest thing of all. Not everyone can bear it."
 
-&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Maria Akitsuki**](https://myanimelist.net/character.php?q=Maria%20Akitsuki&cat=character), [**Shinsekai Yori**](https://myanimelist.net/search/all?q=Shinsekai%20Yori&cat=all)
