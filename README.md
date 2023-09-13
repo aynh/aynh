@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Of course I'm insecure. Of course I'm lonely. Of course I wanna see him. And of course being so far apart sucks, but the thing is, nobody else could ever take his place. So it doesn't matter if I don't want a long-distance relationship. I don't have a choice, but I have to do it. I love him."
+> "Human hearts are complicated mysteries."
 
-&mdash; [**Haruna Nagashima**](https://myanimelist.net/character.php?q=Haruna%20Nagashima&cat=character), [**Highschool Debut**](https://myanimelist.net/search/all?q=Highschool%20Debut&cat=all)
+&mdash; [**Haqua du Lot Herminium**](https://myanimelist.net/character.php?q=Haqua%20du%20Lot%20Herminium&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
