@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People like us aren't qualified to be involved in a dramatic incident such as a suicide. No matter how depressed you are or how much pain you're in, you have to return to your routine, daily life. Even if you don't come back, you'll just end up dying in vain. A dramatic death isn't befitting of us."
+> "I have two rules: First, I'm never wrong. Second, if I'm wrong... back to the first rule."
 
-&mdash; [**Kaoru Yamazaki**](https://myanimelist.net/character.php?q=Kaoru%20Yamazaki&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
