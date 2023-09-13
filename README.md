@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter the journey, when you come to a fork in the road, you must decide in an instant which path to take."
+> "They may all look the same to you, but there are different kinds and different levels of evil. A first-class villain doesn't target honest lives."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
