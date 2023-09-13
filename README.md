@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The lesson you need to learn right now, can't be taught with words... only with action."
+> "Of course I'm insecure. Of course I'm lonely. Of course I wanna see him. And of course being so far apart sucks, but the thing is, nobody else could ever take his place. So it doesn't matter if I don't want a long-distance relationship. I don't have a choice, but I have to do it. I love him."
 
-&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Haruna Nagashima**](https://myanimelist.net/character.php?q=Haruna%20Nagashima&cat=character), [**Highschool Debut**](https://myanimelist.net/search/all?q=Highschool%20Debut&cat=all)
