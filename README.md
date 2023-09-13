@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Damn that sister of mine! She's always talking about our father, but what did that baldy ever do for us?! He just played Othello with us from time to time!"
+> "You.... Could it be that you're just an idiot? *to Senjougahara*"
 
-&mdash; [**Shimura Shinpachi**](https://myanimelist.net/character.php?q=Shimura%20Shinpachi&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
