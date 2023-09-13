@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who don't work hard don't have the right to be envious of the people with talent. People fail because they don't understand the hard work necessary to be successful."
+> "Damn that sister of mine! She's always talking about our father, but what did that baldy ever do for us?! He just played Othello with us from time to time!"
 
-&mdash; [**Yukino Yukinoshita**](https://myanimelist.net/character.php?q=Yukino%20Yukinoshita&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Shimura Shinpachi**](https://myanimelist.net/character.php?q=Shimura%20Shinpachi&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
