@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one can draw a clear line between sane and insane. You move that line as you see fit for yourself. No one else can. You'll understand soon... that the one that's insane is this world."
+> "I don't want fear for a future, that may not even come, to stop me from acting today."
 
-&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Simon**](https://myanimelist.net/character.php?q=Simon&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
