@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human hearts are complicated mysteries."
+> "No one can draw a clear line between sane and insane. You move that line as you see fit for yourself. No one else can. You'll understand soon... that the one that's insane is this world."
 
-&mdash; [**Haqua du Lot Herminium**](https://myanimelist.net/character.php?q=Haqua%20du%20Lot%20Herminium&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
