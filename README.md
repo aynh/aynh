@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "However, even if it is reckless... I don't think someone who is making their best effort to try and break through the current situation is foolish."
+> "You can take a picture of something and it never does it justice... I think about that sometimes when I see a picture of you."
 
-&mdash; [**Su-won**](https://myanimelist.net/character.php?q=Su-won&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Mikako Nagamine**](https://myanimelist.net/character.php?q=Mikako%20Nagamine&cat=character), [**Voices of a Distant Star**](https://myanimelist.net/search/all?q=Voices%20of%20a%20Distant%20Star&cat=all)
