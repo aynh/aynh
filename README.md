@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They may all look the same to you, but there are different kinds and different levels of evil. A first-class villain doesn't target honest lives."
+> "The ideal tool for controlling people is fear. And nothing overwhelms people more than an unseen fear."
 
-&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Akito the Exiled**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Akito%20the%20Exiled&cat=all)
