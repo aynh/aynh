@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The ideal tool for controlling people is fear. And nothing overwhelms people more than an unseen fear."
+> "However, even if it is reckless... I don't think someone who is making their best effort to try and break through the current situation is foolish."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Akito the Exiled**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Akito%20the%20Exiled&cat=all)
+&mdash; [**Su-won**](https://myanimelist.net/character.php?q=Su-won&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
