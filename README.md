@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You.... Could it be that you're just an idiot? *to Senjougahara*"
+> "A dream... It's something you do for yourself, not for others."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
