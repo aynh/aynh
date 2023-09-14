@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Laws exist only for those who cannot live without clinging to them."
+> "Mankind is a very intresting species."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sakamoto**](https://myanimelist.net/character.php?q=Sakamoto&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
