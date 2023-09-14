@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are two ways to escape: escape without a purpose, and escape with a purpose. I call the former 'floating', and the latter 'flight'. You are the only one that decides which of the two your view of the world from on high was. But you don't choose these paths because of the weight on your soul. We don't choose the path we take because of the sins we carry. But we carry our sins on the path we choose."
+> "I'm just letting you know, I'm not telling you this because I want your pity! I'm just fed up with humans, that's all! They tell lie after lie, only accepting people who are the same as they are! Humans are such hypocrites!"
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Rachnera Arachnera**](https://myanimelist.net/character.php?q=Rachnera%20Arachnera&cat=character), [**Monster Musume no Iru Nichijou**](https://myanimelist.net/search/all?q=Monster%20Musume%20no%20Iru%20Nichijou&cat=all)
