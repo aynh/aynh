@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For a pregnant woman to give birth, she's gotta feel the pain of pulling a watermelon out of her nostril. For an Artist to create a masterpiece, he's gotta feel the pain of pulling entire galaxies out  of his ass."
+> "Your friend thinks he can win the prize crown, but he has no hope whatsoever. He is a mere shadow of a true shaman and he will be the first in a long line to perish in my hands."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Tao Len**](https://myanimelist.net/character.php?q=Tao%20Len&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
