@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more painful the memories one recollects, the better the laughter."
+> "Saying things like 'It would be troubling for her' are just really convenient excuses for yourself. If you can forgive yourself like this, then you can just enjoy staying in your comfort zone, right?"
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
