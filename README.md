@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Enjoy your life today. Yesterday is gone, and the tomorrow might never come."
+> "There are people in this world that enjoy being alone, but there isn't a single person who can bear solitude."
 
-&mdash; [**Takeshi Yamamoto**](https://myanimelist.net/character.php?q=Takeshi%20Yamamoto&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
