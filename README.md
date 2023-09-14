@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing amazing happens here. Everything is ordinary. The huge factory that can be seen from our town, the Medical Mechanica Plant, all the adults got excited when it came here, like it was really a big thing. The white steam that blows out every day at the same time, it looked to me like smoke that signified some kind of omen. Smoke that spreads out and covers everything."
+> "Do what you can until you learn what you need. If you're going to try something, you may as well aim for the top."
 
-&mdash; [**Naota Nandaba**](https://myanimelist.net/character.php?q=Naota%20Nandaba&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
