@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your friend thinks he can win the prize crown, but he has no hope whatsoever. He is a mere shadow of a true shaman and he will be the first in a long line to perish in my hands."
+> "Don't think that by abiding the rules you'll automatically be useful to society. Rules are not there for us, they are there for the 'person who made it' and the 'reality' and 'future', which are bound by these lies. They are preventing you from reaching your full potential. Which is why, if there is a future that you want, fight for it! Fight for it and pin down your own 'reality'."
 
-&mdash; [**Tao Len**](https://myanimelist.net/character.php?q=Tao%20Len&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
