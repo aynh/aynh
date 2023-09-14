@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mankind is a very intresting species."
+> "Admiration is admiration. It's the same as viewing flowers from afar. When you get too close - it becomes like Icarus, who lost his wings and plunged into the earth after flying too close to the Sun. Disaster befalls oneself."
 
-&mdash; [**Sakamoto**](https://myanimelist.net/character.php?q=Sakamoto&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
+&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
