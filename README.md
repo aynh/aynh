@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm just letting you know, I'm not telling you this because I want your pity! I'm just fed up with humans, that's all! They tell lie after lie, only accepting people who are the same as they are! Humans are such hypocrites!"
+> "Enjoy your life today. Yesterday is gone, and the tomorrow might never come."
 
-&mdash; [**Rachnera Arachnera**](https://myanimelist.net/character.php?q=Rachnera%20Arachnera&cat=character), [**Monster Musume no Iru Nichijou**](https://myanimelist.net/search/all?q=Monster%20Musume%20no%20Iru%20Nichijou&cat=all)
+&mdash; [**Takeshi Yamamoto**](https://myanimelist.net/character.php?q=Takeshi%20Yamamoto&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
