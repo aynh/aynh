@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Admiration is admiration. It's the same as viewing flowers from afar. When you get too close - it becomes like Icarus, who lost his wings and plunged into the earth after flying too close to the Sun. Disaster befalls oneself."
+> "Nothing amazing happens here. Everything is ordinary. The huge factory that can be seen from our town, the Medical Mechanica Plant, all the adults got excited when it came here, like it was really a big thing. The white steam that blows out every day at the same time, it looked to me like smoke that signified some kind of omen. Smoke that spreads out and covers everything."
 
-&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Naota Nandaba**](https://myanimelist.net/character.php?q=Naota%20Nandaba&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
