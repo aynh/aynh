@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Admiration is admiration. It's the same as viewing flowers from afar. When you get too close - it becomes like Icarus, who lost his wings and plunged into the earth after flying too close to the Sun. Disaster befalls oneself."
+> "The more painful the memories one recollects, the better the laughter."
 
-&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
