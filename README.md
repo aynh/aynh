@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do what you can until you learn what you need. If you're going to try something, you may as well aim for the top."
+> "For a pregnant woman to give birth, she's gotta feel the pain of pulling a watermelon out of her nostril. For an Artist to create a masterpiece, he's gotta feel the pain of pulling entire galaxies out  of his ass."
 
-&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
