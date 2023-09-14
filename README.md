@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't think that by abiding the rules you'll automatically be useful to society. Rules are not there for us, they are there for the 'person who made it' and the 'reality' and 'future', which are bound by these lies. They are preventing you from reaching your full potential. Which is why, if there is a future that you want, fight for it! Fight for it and pin down your own 'reality'."
+> "There are two ways to escape: escape without a purpose, and escape with a purpose. I call the former 'floating', and the latter 'flight'. You are the only one that decides which of the two your view of the world from on high was. But you don't choose these paths because of the weight on your soul. We don't choose the path we take because of the sins we carry. But we carry our sins on the path we choose."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
