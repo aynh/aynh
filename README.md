@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are many unusual things in this world. Everyday events occur that cannot be explained. Bizarre phenomena that often go unnoticed because people close their eyes to what they don't understand. But the truth of the matter is, there are many unusual things in this world. And people... People are the most mysterious of them all."
+> "Laws exist only for those who cannot live without clinging to them."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
