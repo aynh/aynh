@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if they're not your own child, you can't, as an adult, overlook their wrongdoings."
+> "If anyone does not love the Lord Jesus Christ, let them be accursed at His coming. God save you from your fate. Amen!"
 
-&mdash; [**Nagi Kengamine**](https://myanimelist.net/character.php?q=Nagi%20Kengamine&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
