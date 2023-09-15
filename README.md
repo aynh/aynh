@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You probably do lose a lot, but that just means you need to fill what you lost with new things."
+> "If a man will not work, he shall not eat."
 
-&mdash; [**Tsumugu Kihara**](https://myanimelist.net/character.php?q=Tsumugu%20Kihara&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
+&mdash; [**Olivier Mira Armstrong**](https://myanimelist.net/character.php?q=Olivier%20Mira%20Armstrong&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
