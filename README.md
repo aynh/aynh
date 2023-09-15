@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's always like this. The only things I can ever do for Naruto are the little things anyone could do..."
+> "Even if they're not your own child, you can't, as an adult, overlook their wrongdoings."
 
-&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Nagi Kengamine**](https://myanimelist.net/character.php?q=Nagi%20Kengamine&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
