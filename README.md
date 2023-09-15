@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more you rush, the less careful you become. Even a cautious rat will show its tail."
+> "No one would intentionally set an easily accessible place as their goal. It's a challenge, because it's difficult. It is a dream because it can't be achieved easily."
 
-&mdash; [**Henrietta de Tristain**](https://myanimelist.net/character.php?q=Henrietta%20de%20Tristain&cat=character), [**Zero no Tsukaima: Futatsuki no Kishi**](https://myanimelist.net/search/all?q=Zero%20no%20Tsukaima%3A%20Futatsuki%20no%20Kishi&cat=all)
+&mdash; [**Isashiki Jun**](https://myanimelist.net/character.php?q=Isashiki%20Jun&cat=character), [**Diamond No Ace**](https://myanimelist.net/search/all?q=Diamond%20No%20Ace&cat=all)
