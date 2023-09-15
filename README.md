@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Country of birth, time period, parents, location... various factors make people's lives unequal from the very beginning."
+> "After today, tomorrow will come again. Maybe I've been taking that for granted. But now... It's not easy, huh..."
 
-&mdash; [**Death Parade**](https://myanimelist.net/character.php?q=Death%20Parade&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
