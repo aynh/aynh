@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I finished Hige off. I don't want to move any more either. I knew it from the beginning, I knew it somewhere in my heart. That's why I led a spontaneous life. I was confident after having met you... that I wasn't the one who would open Paradise. [groans]"
+> "The law doesn't protect people. People protect the law. People have always detested evil and sought out a righteous way of living. Their feelings, the accumulation of those peoples feelings are the law. They're neither the provisions, nor the system. They're the fragile and irreplaceable feelings that everyone carries in their hearts."
 
-&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Akane Tsunemori**](https://myanimelist.net/character.php?q=Akane%20Tsunemori&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
