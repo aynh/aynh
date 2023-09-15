@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only those who do their jobs on the battlefield get the rewards they desire. That's the life of a warrior."
+> "You probably do lose a lot, but that just means you need to fill what you lost with new things."
 
-&mdash; [**Askeladd**](https://myanimelist.net/character.php?q=Askeladd&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Tsumugu Kihara**](https://myanimelist.net/character.php?q=Tsumugu%20Kihara&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
