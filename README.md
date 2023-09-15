@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you put aside regret, you´ll end up feeling it anyway. Right now, you need to make sure you grasp this good feeling and never forget it."
+> "Everything in this world is just a game and we are merely the pawns."
 
-&mdash; [**Ryūnosuke Tanaka**](https://myanimelist.net/character.php?q=Ry%C5%ABnosuke%20Tanaka&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
+&mdash; [**Gasai Yuno**](https://myanimelist.net/character.php?q=Gasai%20Yuno&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
