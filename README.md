@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Protecting the powerless is simply a soldier's duty!"
+> "There are all sorts of goodbyes. There are sad goodbyes, and sometimes goodbyes you're thankful for, that take a load off your mind. It often happens that someone you say goodbye to unexpectedly returns, all self-conscious. Then there are times when, anticipating that, you put on the front of a short goodbye, only to have them not return so soon. And then there are goodbyes that last forever, true goodbyes that only happen once in your life."
 
-&mdash; [**Wave**](https://myanimelist.net/character.php?q=Wave&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Yasaburou Shimogamo**](https://myanimelist.net/character.php?q=Yasaburou%20Shimogamo&cat=character), [**Uchouten Kazoku**](https://myanimelist.net/search/all?q=Uchouten%20Kazoku&cat=all)
