@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If all life is so important, then the most evil of all beings on this earth are without a doubt humans. If there weren't any people on earth, the environment and conditions that all living things live in would be drastically better. Even if there were no school to teach us the stuff we know, it would still be obvious to everyone, wouldn't it? Just think of all that's happened to the earth due to our desires and ego."
+> "I believe that people have the individual right to decide how they want to live. So whether you just listen to what others say, or get stuck a lot of times...and cause trouble to others, it ultimately comes back to yourself."
 
-&mdash; [**Kai**](https://myanimelist.net/character.php?q=Kai&cat=character), [**Suicide Island**](https://myanimelist.net/search/all?q=Suicide%20Island&cat=all)
+&mdash; [**Shirasagi Yuki**](https://myanimelist.net/character.php?q=Shirasagi%20Yuki&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
