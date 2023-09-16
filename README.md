@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm still a man too, I wanted to look calm and composed in front of everyone. Especially in front of the one I'm in love with."
+> "A politician in the past once said: 'My secretaries did it all.'"
 
-&mdash; [**Ooga Kazuomi**](https://myanimelist.net/character.php?q=Ooga%20Kazuomi&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**UNESCO Director**](https://myanimelist.net/character.php?q=UNESCO%20Director&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
