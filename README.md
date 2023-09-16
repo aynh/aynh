@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When receiving an illogical favor from others, one should do the same to return the illogical favor."
+> "Sometimes the blood rushes to my head and I feel like, if I run I'll lose something important."
 
-&mdash; [**Frontier Setter**](https://myanimelist.net/character.php?q=Frontier%20Setter&cat=character), [**Rakuen Tsuihō - Expelled from Paradise**](https://myanimelist.net/search/all?q=Rakuen%20Tsuih%C5%8D%20-%20Expelled%20from%20Paradise&cat=all)
+&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
