@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Loneliness' is no longer part of my vocabulary."
+> "You must look within yourself to save yourself from your other self. Only then will your true self reveal itself."
 
-&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
