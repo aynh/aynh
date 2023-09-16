@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is better to be hated for what you are. Than to be loved for what you are not."
+> "Everybody's weak. That's why we rely on others. We live by helping one another. We can say, we need one another. I've been able to survive because I have you and the others."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Hibiki Kuze**](https://myanimelist.net/character.php?q=Hibiki%20Kuze&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
