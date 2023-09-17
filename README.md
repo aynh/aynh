@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You think I'm making demons simply as weapons, but demons are created by the human soul."
+> "Only once every hundred years can a Firebender experience this kind of power."
 
-&mdash; [**Millenium Earl**](https://myanimelist.net/character.php?q=Millenium%20Earl&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
