@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[about Verde] His head is a bit off and he's a pervert scientist."
+> "If you were to turn into a snake tomorrow and began devouring humans, and from the same mouth you devoured humans, you cried out to me, 'I Love You!' Would I still be able to say 'I Love You,' the same way I do today?"
 
-&mdash; [**Rokudou Mukuro**](https://myanimelist.net/character.php?q=Rokudou%20Mukuro&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
