@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I really don't know what I should believe in anymore... Even if I believe I'm doing the right thing... Nothing goes well at all."
+> "Hearts are fragile. But hearts that support each other are as strong as steel."
 
-&mdash; [**Hakua Du Lot Herminium**](https://myanimelist.net/character.php?q=Hakua%20Du%20Lot%20Herminium&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Jodie Hayward**](https://myanimelist.net/character.php?q=Jodie%20Hayward&cat=character), [**El Cazador de la Bruja**](https://myanimelist.net/search/all?q=El%20Cazador%20de%20la%20Bruja&cat=all)
