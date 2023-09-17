@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's as if you are stuck in some predetermined program, following some predetermined script. If you really want to live in reality, then fight against it. Break through destiny with your own hands, and build your own reality!"
+> "People save themselves on their own. Nobody can ever save anyone else."
 
-&mdash; [**Sarutobi Ayame**](https://myanimelist.net/character.php?q=Sarutobi%20Ayame&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
