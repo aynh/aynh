@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Memories are, in a word, learning. And there's no shame in learning from a formidable enemy!"
+> "It's as if you are stuck in some predetermined program, following some predetermined script. If you really want to live in reality, then fight against it. Break through destiny with your own hands, and build your own reality!"
 
-&mdash; [**Rufus Lore**](https://myanimelist.net/character.php?q=Rufus%20Lore&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Sarutobi Ayame**](https://myanimelist.net/character.php?q=Sarutobi%20Ayame&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
