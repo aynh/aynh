@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you're in front of the enemy, even if your hands are trembling - fight."
+> "Memories are, in a word, learning. And there's no shame in learning from a formidable enemy!"
 
-&mdash; [**Kureo Mado**](https://myanimelist.net/character.php?q=Kureo%20Mado&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Rufus Lore**](https://myanimelist.net/character.php?q=Rufus%20Lore&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
