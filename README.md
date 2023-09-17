@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hearts are fragile. But hearts that support each other are as strong as steel."
+> "[thinking after Soifon asks why she didn't take her with her] You've gotten stronger since the last time we were together, Soifon."
 
-&mdash; [**Jodie Hayward**](https://myanimelist.net/character.php?q=Jodie%20Hayward&cat=character), [**El Cazador de la Bruja**](https://myanimelist.net/search/all?q=El%20Cazador%20de%20la%20Bruja&cat=all)
+&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
