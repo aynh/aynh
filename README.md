@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I told him my feelings, he understood. When I said I wasn't lying, he believed me."
+> "I can only tell the fortune of girls."
 
-&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Shima Kinzou**](https://myanimelist.net/character.php?q=Shima%20Kinzou&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
