@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can only tell the fortune of girls."
+> "You think I'm making demons simply as weapons, but demons are created by the human soul."
 
-&mdash; [**Shima Kinzou**](https://myanimelist.net/character.php?q=Shima%20Kinzou&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Millenium Earl**](https://myanimelist.net/character.php?q=Millenium%20Earl&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
