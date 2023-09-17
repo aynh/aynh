@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who do not want to advance spiritually are fools."
+> "When you're in front of the enemy, even if your hands are trembling - fight."
 
-&mdash; [**K**](https://myanimelist.net/character.php?q=K&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
+&mdash; [**Kureo Mado**](https://myanimelist.net/character.php?q=Kureo%20Mado&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
