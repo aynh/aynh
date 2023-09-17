@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People can really change. When they're far away from each other, their hearts will change. It's so cruel that the only thing I can do is wait."
+> "I really don't know what I should believe in anymore... Even if I believe I'm doing the right thing... Nothing goes well at all."
 
-&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Hakua Du Lot Herminium**](https://myanimelist.net/character.php?q=Hakua%20Du%20Lot%20Herminium&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
