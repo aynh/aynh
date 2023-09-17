@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "42-42-564 whenever you wanna knock on deaths door."
+> "Those who do not want to advance spiritually are fools."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**K**](https://myanimelist.net/character.php?q=K&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
