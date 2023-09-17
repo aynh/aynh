@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Run? Is that how you speak to a hero? How little you understand. Allow me to educate you. If a hero were to run from battle... the children could no longer call him a hero."
+> "I dont need to believe in God to believe in myself."
 
-&mdash; [**Don Kanonji**](https://myanimelist.net/character.php?q=Don%20Kanonji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
