@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is nothing more than a cultural idea attached to our pre-existing genetic needs to reproduce and gain recognition from our peers."
+> "[about Verde] His head is a bit off and he's a pervert scientist."
 
-&mdash; [**Akane Senri**](https://myanimelist.net/character.php?q=Akane%20Senri&cat=character), [**Rewrite**](https://myanimelist.net/search/all?q=Rewrite&cat=all)
+&mdash; [**Rokudou Mukuro**](https://myanimelist.net/character.php?q=Rokudou%20Mukuro&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
