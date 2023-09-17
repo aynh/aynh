@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Gin-chan told me to pay people back double for revenge!"
+> "No matter how small the problem is, how small the thing is, it always affects the people around you."
 
-&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
