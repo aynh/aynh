@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'd better split before I catch loser-itis!"
+> "It's my job to make school fun."
 
-&mdash; [**Green**](https://myanimelist.net/character.php?q=Green&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Eikichi Onizuka**](https://myanimelist.net/character.php?q=Eikichi%20Onizuka&cat=character), [**Great Teacher Onizuka**](https://myanimelist.net/search/all?q=Great%20Teacher%20Onizuka&cat=all)
