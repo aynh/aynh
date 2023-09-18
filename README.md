@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do all of you really want... to win that badly? You all want the Grail that desperately?! You'd crush the only wish I have in my heart... do none of you feel any shame at all?! I won't forgive you... I? won't forgive ANY of you for this! All of you monsters who'd disregard a knight's honor for personal gain... let my blood taint your dreams! Let the Grail be cursed! Let the wish it grants bring disaster! And when you fall into the pits of hell... remember the rage of Diarmuid!"
+> "It doesn't matter if we're wrong...because every time we go wrong, we'll continue to look for the right answer."
 
-&mdash; [**Lancer**](https://myanimelist.net/character.php?q=Lancer&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
