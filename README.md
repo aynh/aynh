@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*while stomping on Inuyasha* Lay down, be silent, sleep, rest, sleep... how many times do I have to tell you..."
+> "Peace under an illusion is not true peace. It's only meaningful if the real world manages to accomplish it."
 
-&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
