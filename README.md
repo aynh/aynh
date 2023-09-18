@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being too rigid makes you fragile. You'll end up breaking yourself and those around you."
+> "*while stomping on Inuyasha* Lay down, be silent, sleep, rest, sleep... how many times do I have to tell you..."
 
-&mdash; [**Yukina Himeragi**](https://myanimelist.net/character.php?q=Yukina%20Himeragi&cat=character), [**Strike the Blood**](https://myanimelist.net/search/all?q=Strike%20the%20Blood&cat=all)
+&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
