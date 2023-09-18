@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll help you... But not by death, this world has enough of that. You can keep your life as long as you change the way you live it. It's never too late, believe me."
+> "So stupid! Stupid, Stupid! You're so stupid! You want to live your life scared of being ratted out?! Screw that! I'd rather let everyone know everything!! (to Yuki, Tohru, Kyo, and Momiji while destroying a classroom)"
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
