@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are some scars that never fade."
+> "I'm Hatake Kakashi. Things I like and things I hate? I don't feel like telling you that. My dreams for the future? Never really thought about that. As for my hobbies... I have lots of hobbies."
 
-&mdash; [**Basara Tōjō**](https://myanimelist.net/character.php?q=Basara%20T%C5%8Dj%C5%8D&cat=character), [**Shinmai Maou no Testament**](https://myanimelist.net/search/all?q=Shinmai%20Maou%20no%20Testament&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
