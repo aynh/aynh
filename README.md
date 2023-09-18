@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah, I get it. You couldn't see me since I'm so short, you couldn't distinguish me from all the grains of sand. VERY FUNNY!!"
+> "One who relies overly on a single skill will be brought low by that very same skill."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Aikurō Mikisugi**](https://myanimelist.net/character.php?q=Aikur%C5%8D%20Mikisugi&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
