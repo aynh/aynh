@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Peace under an illusion is not true peace. It's only meaningful if the real world manages to accomplish it."
+> "That was worth an academy award, Light."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
