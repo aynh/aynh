@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One who relies overly on a single skill will be brought low by that very same skill."
+> "I'd better split before I catch loser-itis!"
 
-&mdash; [**Aikurō Mikisugi**](https://myanimelist.net/character.php?q=Aikur%C5%8D%20Mikisugi&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
+&mdash; [**Green**](https://myanimelist.net/character.php?q=Green&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
