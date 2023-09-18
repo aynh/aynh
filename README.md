@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But, you will not go in there with hopes of winning the tournament the first time you compete. To do so would be arrogant! And arrogance is for fools, not warriors! So you will enter the tournament with the sole purpose of improving your fighting skills."
+> "Do all of you really want... to win that badly? You all want the Grail that desperately?! You'd crush the only wish I have in my heart... do none of you feel any shame at all?! I won't forgive you... I? won't forgive ANY of you for this! All of you monsters who'd disregard a knight's honor for personal gain... let my blood taint your dreams! Let the Grail be cursed! Let the wish it grants bring disaster! And when you fall into the pits of hell... remember the rage of Diarmuid!"
 
-&mdash; [**Master Roshi**](https://myanimelist.net/character.php?q=Master%20Roshi&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Lancer**](https://myanimelist.net/character.php?q=Lancer&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
