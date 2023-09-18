@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They call each other friends, but they are either using others or being used themselves."
+> "To take responsibility is to take the pain onto yourself. It means to bear more pain than what others felt because of your mistake."
 
-&mdash; [**Aoyagi Ritsuka**](https://myanimelist.net/character.php?q=Aoyagi%20Ritsuka&cat=character), [**Loveless**](https://myanimelist.net/search/all?q=Loveless&cat=all)
+&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
