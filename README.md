@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't need some ring or some throne! If it means that I won't lose you... I would throw everything away!"
+> "To live is to die, to die is to live. Pure is unpure, unpure is pure."
 
-&mdash; [**Livius Orvinus Ifrikia**](https://myanimelist.net/character.php?q=Livius%20Orvinus%20Ifrikia&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
