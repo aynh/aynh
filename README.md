@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Inside my memories lies sad thoughts and it's hard to forget, but I try everyday to keep moving forward in life, so why can't you, living in saddness isn't living at all."
+> "No matter what you do, no matter where you go, you can't get away from your nature."
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Oomine Daiya**](https://myanimelist.net/character.php?q=Oomine%20Daiya&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
