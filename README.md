@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The point of life isn't to be perfect. It's to do what you want to do. To be who you want to be."
+> "[after winning a game of beach volleyball'Kuai Ball'] Yes! We defeated you for all time! You will never rise from the ashes of your shame and humiliation! [pause] Well, that was fun."
 
-&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Azula**](https://myanimelist.net/character.php?q=Azula&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
