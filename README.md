@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It’s because we help out when they’re in trouble that we can count on them to come running when we need it."
+> "I am the only one who's earned that right in the entire universe! I alone have the right to judge all of humanity!"
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
