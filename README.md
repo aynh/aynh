@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Last words] Well done. You win. As promised, I entrust you with everything. After all I can't do any more at this point anyways. Man, this really annoys me. I really hate people, who put their life on the line like you. Now quickly, finish me off. If you don't hurry, I'll regenerate again. Since you will be fighting in my stead, I won't stand for it if you lose, understand?"
+> "It's not that I'm not sure or anything. I actually don't want to think about it. It's not that I don't care about the future, but I'm mystified as to why I should have to be in a rush to narrow things down right this minute. It's not that I'm trying to escape from it, but I want a little more of what I have now, easy and... or rather, spending time having fun. That's kind of how I feel."
 
-&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Akiyama Sou**](https://myanimelist.net/character.php?q=Akiyama%20Sou&cat=character), [**Ushinawareta Mirai wo Motomete**](https://myanimelist.net/search/all?q=Ushinawareta%20Mirai%20wo%20Motomete&cat=all)
