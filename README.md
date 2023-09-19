@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*after seeing Grevil's unicorn hairstyle for the first time* I've never seen such a creative hairstyle!"
+> "There are two types of people in this world - those who do what they're told and those who stay true to themselves. Most people think you're supposed to follow a predetermined path, keep your head down, obey the rules, do whatever's popular. But some prefer to follow their own path in life."
 
-&mdash; [**Kazuya Kujō**](https://myanimelist.net/character.php?q=Kazuya%20Kuj%C5%8D&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
+&mdash; [**Yuji Sakurai**](https://myanimelist.net/character.php?q=Yuji%20Sakurai&cat=character), [**Beck**](https://myanimelist.net/search/all?q=Beck&cat=all)
