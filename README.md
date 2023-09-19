@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've never been so grateful to have walls to shut the world out."
+> "Surviving means continuing to shoulder one's burden. When you can't handle that strain, then you'll be the one to die next."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
