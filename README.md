@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you win, you live. If you lose, you die. If you don't fight, you can't win!"
+> "It’s because we help out when they’re in trouble that we can count on them to come running when we need it."
 
-&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
