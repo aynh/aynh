@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This may have been a useless time for you... but I really wanted to see you!"
+> "If you have time to think of a beautiful end, then live beautifully until the end."
 
-&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
