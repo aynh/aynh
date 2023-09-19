@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no use in just creating 'Love'. Empty hearts filled with 'Love' tend to be unstable."
+> "*after seeing Grevil's unicorn hairstyle for the first time* I've never seen such a creative hairstyle!"
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Kazuya Kujō**](https://myanimelist.net/character.php?q=Kazuya%20Kuj%C5%8D&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
