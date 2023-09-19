@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pray not for the future. Rely not on the future or the past. Just stay in the Now."
+> "I've learned that from a war ignited by revenge, nothing can be born, but sorrow."
 
-&mdash; [**Miyamoto Musashi**](https://myanimelist.net/character.php?q=Miyamoto%20Musashi&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
+&mdash; [**Aladdin**](https://myanimelist.net/character.php?q=Aladdin&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
