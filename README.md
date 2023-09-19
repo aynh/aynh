@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am the only one who's earned that right in the entire universe! I alone have the right to judge all of humanity!"
+> "Pray not for the future. Rely not on the future or the past. Just stay in the Now."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Miyamoto Musashi**](https://myanimelist.net/character.php?q=Miyamoto%20Musashi&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
