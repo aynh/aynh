@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Surviving means continuing to shoulder one's burden. When you can't handle that strain, then you'll be the one to die next."
+> "This may have been a useless time for you... but I really wanted to see you!"
 
-&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
