@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to change, don't wait for someone else to make it happen. Do it yourself."
+> "I really am... shinobi trash. But the one thing I still learned is this. That void is something that everyone helps you fill. Just because you face adversity and hardships, is no reason to give up on this world. A person willing to throw away all those memories... of their friends and comrades, will never find peace of mind. Resorting to something like that isn't going to bury that hole. If you persevere and endure, someone will be there to support you!"
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
