@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Of what worth is a king who fails to protect the powerless?"
+> "Nobody will admire you just because you are strong. People respect the ones that choose the difficult path, even if they're weak."
 
-&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Tejirof**](https://myanimelist.net/character.php?q=Tejirof&cat=character), [**Aoi Sekai no Chuushin de**](https://myanimelist.net/search/all?q=Aoi%20Sekai%20no%20Chuushin%20de&cat=all)
