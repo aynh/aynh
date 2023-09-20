@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I really am... shinobi trash. But the one thing I still learned is this. That void is something that everyone helps you fill. Just because you face adversity and hardships, is no reason to give up on this world. A person willing to throw away all those memories... of their friends and comrades, will never find peace of mind. Resorting to something like that isn't going to bury that hole. If you persevere and endure, someone will be there to support you!"
+> "If you're always worried about crushing the ants beneath you... you won't be able to walk."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
