@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You.... Could it be that you're just an idiot? *to Senjougahara*"
+> "Someday, I promise you, they will all watch as I change the world."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Monkey D. Dragon**](https://myanimelist.net/character.php?q=Monkey%20D.%20Dragon&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
