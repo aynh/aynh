@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even the most ignorant, innocent child will eventually grow up as they learn what true pain is. It affects what they say, what they think… and they become real people."
+> "Even if doesn't alter or change the end result in the slightest, making decisions based on convictions that you believe in and walking your own path has its own merit and worth. There's something to be said for not having... even one regret."
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Haschwalth Jugram**](https://myanimelist.net/character.php?q=Haschwalth%20Jugram&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
