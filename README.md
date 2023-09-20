@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ken-Chan!"
+> "Oh? What are you surprised about!? Do you think that I'm someone who would give up after being rejected just once!? Hospitalized or not, I shall continue to polish myself and become even moooore of a spectacular lady, and return to you!!"
 
-&mdash; [**Kusajishi Yachiru**](https://myanimelist.net/character.php?q=Kusajishi%20Yachiru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
