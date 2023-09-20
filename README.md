@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Thus I found myself carrying the entire weight of the troop as I preformed my dance before a capacity crowd at the opera house."
+> "Between dreams and reality is the vault of your soul. No one could see the “Dream World” without this path."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
