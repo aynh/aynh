@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Between dreams and reality is the vault of your soul. No one could see the “Dream World” without this path."
+> "To ask is a moment's shame. Not to, lifelong."
 
-&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Yotsugi Ononoki**](https://myanimelist.net/character.php?q=Yotsugi%20Ononoki&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
