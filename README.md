@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A sword is a weapon. The art of swordsmanship is learning how to kill. What Miss Kaoru says is nothing but sweet and innocent talk, only those whose hands have never been stained with the blood of man can believe."
+> "The difference between your decision and ours is experience. But you don't have to rely on that. CHOOSE... Believe in yourself, or believe in the survey corps and me. I don't know... I never have. I can believe in my own abilities or the choices of the companions I trust. But no one ever knows how it will turn out. So choose for yourself, whichever decision you will regret the least."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
