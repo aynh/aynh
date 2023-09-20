@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh? What are you surprised about!? Do you think that I'm someone who would give up after being rejected just once!? Hospitalized or not, I shall continue to polish myself and become even moooore of a spectacular lady, and return to you!!"
+> "And the one person who I thought understood me was just using me all along. No one ever treated me as an equal. Adults are all trash. They didn't listen when I said that it hurt. They didn't listen when I told them to stop. They didn't listen to anything I said!"
 
-&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Chris Yukine**](https://myanimelist.net/character.php?q=Chris%20Yukine&cat=character), [**Senki Zesshō Symphogear**](https://myanimelist.net/search/all?q=Senki%20Zessh%C5%8D%20Symphogear&cat=all)
