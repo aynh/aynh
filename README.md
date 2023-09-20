@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if doesn't alter or change the end result in the slightest, making decisions based on convictions that you believe in and walking your own path has its own merit and worth. There's something to be said for not having... even one regret."
+> "If you want to change, don't wait for someone else to make it happen. Do it yourself."
 
-&mdash; [**Haschwalth Jugram**](https://myanimelist.net/character.php?q=Haschwalth%20Jugram&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
