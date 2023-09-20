@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you leave, I'll probably be sad. However, if there's somewhere else you'd rather be, you should admit it. Don't lose sight of what you really want."
+> "Ken-Chan!"
 
-&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Kusajishi Yachiru**](https://myanimelist.net/character.php?q=Kusajishi%20Yachiru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
