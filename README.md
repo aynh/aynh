@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nobody will admire you just because you are strong. People respect the ones that choose the difficult path, even if they're weak."
+> "A sword is a weapon. The art of swordsmanship is learning how to kill. What Miss Kaoru says is nothing but sweet and innocent talk, only those whose hands have never been stained with the blood of man can believe."
 
-&mdash; [**Tejirof**](https://myanimelist.net/character.php?q=Tejirof&cat=character), [**Aoi Sekai no Chuushin de**](https://myanimelist.net/search/all?q=Aoi%20Sekai%20no%20Chuushin%20de&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
