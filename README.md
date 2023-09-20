@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things that take a long time to acquire. Friends. Love. Really, nothing has been a waste."
+> "Yes, my lord. I devote my entire being to you. Until the day... that lies become truth."
 
-&mdash; [**Megumi Hanajima**](https://myanimelist.net/character.php?q=Megumi%20Hanajima&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji: Book of Murder**](https://myanimelist.net/search/all?q=Kuroshitsuji%3A%20Book%20of%20Murder&cat=all)
