@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to make his dreams come true..."
+> "There are things that take a long time to acquire. Friends. Love. Really, nothing has been a waste."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Megumi Hanajima**](https://myanimelist.net/character.php?q=Megumi%20Hanajima&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
