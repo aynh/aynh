@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yes, my lord. I devote my entire being to you. Until the day... that lies become truth."
+> "You.... Could it be that you're just an idiot? *to Senjougahara*"
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji: Book of Murder**](https://myanimelist.net/search/all?q=Kuroshitsuji%3A%20Book%20of%20Murder&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
