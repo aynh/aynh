@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're always worried about crushing the ants beneath you... you won't be able to walk."
+> "Thus I found myself carrying the entire weight of the troop as I preformed my dance before a capacity crowd at the opera house."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
