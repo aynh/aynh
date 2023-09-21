@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times when people who are different cannot understand each other. Even if you think you understand the other person, you really don't. And what awaits in the end, usually, is despair."
+> "When you get a piece of Ryu you get the whole pie!"
 
-&mdash; [**Corticarte Apa Lagranges**](https://myanimelist.net/character.php?q=Corticarte%20Apa%20Lagranges&cat=character), [**Shinkyoku Soukai Polyphonica**](https://myanimelist.net/search/all?q=Shinkyoku%20Soukai%20Polyphonica&cat=all)
+&mdash; [**RYU**](https://myanimelist.net/character.php?q=RYU&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
