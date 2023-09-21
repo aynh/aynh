@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now it’s not just your heart, but also your breathing, your brain, your nervous system, and everything else… See, the human body is in some way always moving from the time they were in their mother’s womb until the last moments of their life. Even when someone is asleep, fainted, or unconscious, their body never stops. In other words, the concept of stopping is precisely how humans are able to perceive death."
+> "Nothing can be communicated without words but if you really care about someone, even the smallest details are important to notice."
 
-&mdash; [**Crow**](https://myanimelist.net/character.php?q=Crow&cat=character), [**Sugar Dark**](https://myanimelist.net/search/all?q=Sugar%20Dark&cat=all)
+&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
