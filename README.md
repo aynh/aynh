@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Power isn't determined by your size, but the size of your heart and dreams!"
+> "It could be real difficult to hide when you're as big a star as I am."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
