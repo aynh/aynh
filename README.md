@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Prince Zuko, pride is not the opposite of shame, but rather it's source. True humility is the only antidote to shame."
+> "Be not a fool, I have no such time to waste."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
