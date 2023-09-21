@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you get a piece of Ryu you get the whole pie!"
+> "Self-sacrifice... A nameless shinobi who protects peace within its shadow. That is a true shinobi."
 
-&mdash; [**RYU**](https://myanimelist.net/character.php?q=RYU&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
