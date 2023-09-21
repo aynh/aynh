@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What am I to you anyway? You get all teary eyed whenever it suits you but you never stop to think about my feelings and how you might be messing with my heart. You want some nice guy to be a part of your life but only if its on your terms. All this talk of just being friends with a guy... don't make me laugh!"
+> "Making sure I have no regrets... that would just be self-serving, nothing more. It's all right. I mean, this is a great memory in itself, right?"
 
-&mdash; [**Shoji Endo**](https://myanimelist.net/character.php?q=Shoji%20Endo&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
