@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Does he really believe we would turn around after all that we've been through?"
+> "You have yet to see what form your soul has taken. That's what it actually means when you claim that you lack joy in your life."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
