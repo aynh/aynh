@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing can be communicated without words but if you really care about someone, even the smallest details are important to notice."
+> "It's simple. Even a single Coordinator is a threat to the Earth's survival, and our goal here is to get rid of them all!"
 
-&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Muruta Azrael**](https://myanimelist.net/character.php?q=Muruta%20Azrael&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
