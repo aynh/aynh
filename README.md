@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look, I hate to be the wet blanket here, but since Katara's busy, I guess it's up to me."
+> "Mu, I'd actually be pleased if you'd vanish right about now!"
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
