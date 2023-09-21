@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The whale leaps. As high as he can imagine. Piercing the water from peak to peak. Is a yearning for the sky reflected in his eyes? What if this high point wasn't merely the sky, but something far higher? If he knew of the infinite glitter of the stars, would his dreams soar even higher? Even if one doesn't know why, to live is to constantly reach out. Not to a nervous restlessness, but to a constant motion of the heart."
+> "There are times when people who are different cannot understand each other. Even if you think you understand the other person, you really don't. And what awaits in the end, usually, is despair."
 
-&mdash; [**Nino**](https://myanimelist.net/character.php?q=Nino&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
+&mdash; [**Corticarte Apa Lagranges**](https://myanimelist.net/character.php?q=Corticarte%20Apa%20Lagranges&cat=character), [**Shinkyoku Soukai Polyphonica**](https://myanimelist.net/search/all?q=Shinkyoku%20Soukai%20Polyphonica&cat=all)
