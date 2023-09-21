@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Making sure I have no regrets... that would just be self-serving, nothing more. It's all right. I mean, this is a great memory in itself, right?"
+> "Now it’s not just your heart, but also your breathing, your brain, your nervous system, and everything else… See, the human body is in some way always moving from the time they were in their mother’s womb until the last moments of their life. Even when someone is asleep, fainted, or unconscious, their body never stops. In other words, the concept of stopping is precisely how humans are able to perceive death."
 
-&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Crow**](https://myanimelist.net/character.php?q=Crow&cat=character), [**Sugar Dark**](https://myanimelist.net/search/all?q=Sugar%20Dark&cat=all)
