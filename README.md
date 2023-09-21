@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mu, I'd actually be pleased if you'd vanish right about now!"
+> "The whale leaps. As high as he can imagine. Piercing the water from peak to peak. Is a yearning for the sky reflected in his eyes? What if this high point wasn't merely the sky, but something far higher? If he knew of the infinite glitter of the stars, would his dreams soar even higher? Even if one doesn't know why, to live is to constantly reach out. Not to a nervous restlessness, but to a constant motion of the heart."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Nino**](https://myanimelist.net/character.php?q=Nino&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
