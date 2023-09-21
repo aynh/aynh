@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you ever reach the point where you need to pray, you're already a failure of a man."
+> "That morning's dawn was painted a beautiful scarlet, the likes of which I had never seen before. Like the color of Erza's hair, it was warm and passionate... If she could only lift her face a beautiful sky would be spread out before her."
 
-&mdash; [**Hyoudou Kazutaka**](https://myanimelist.net/character.php?q=Hyoudou%20Kazutaka&cat=character), [**Gyakkyou Burai Kaiji: Hakairoku Hen**](https://myanimelist.net/search/all?q=Gyakkyou%20Burai%20Kaiji%3A%20Hakairoku%20Hen&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
