@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That morning's dawn was painted a beautiful scarlet, the likes of which I had never seen before. Like the color of Erza's hair, it was warm and passionate... If she could only lift her face a beautiful sky would be spread out before her."
+> "There are three things I hate the most: Kids, pets, and women with attitude. So tell me, why do we have all of them packed into our ship!?"
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
