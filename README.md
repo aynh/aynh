@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have yet to see what form your soul has taken. That's what it actually means when you claim that you lack joy in your life."
+> "You reject your femininity... yet at the end here you are using it."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
