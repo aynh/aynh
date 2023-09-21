@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It could be real difficult to hide when you're as big a star as I am."
+> "Prince Zuko, pride is not the opposite of shame, but rather it's source. True humility is the only antidote to shame."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
