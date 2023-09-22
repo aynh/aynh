@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Cast aside the illusion that there is a beginning and end to the story. The story has no beginning. And it has no end. All there is, is a performance of people connecting, living, influencing each other, and departing."
+> "I don't wanna see your face ever again. Keep that helmet on until you die."
 
-&mdash; [**Gustav St. Germain**](https://myanimelist.net/character.php?q=Gustav%20St.%20Germain&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Kurogane**](https://myanimelist.net/character.php?q=Kurogane&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
