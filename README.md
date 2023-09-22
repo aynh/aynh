@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment a person says he's working hard without thinking, he's still being naive. He is not trying at all!"
+> "*after Misa-chan says that she can't imagine a world without Light* Hmmm... Yes, it would be dark!"
 
-&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
