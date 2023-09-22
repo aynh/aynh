@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At a place where you feel most restful… Next to the person you find most dear. People's lives are repetitions of inflicting pain on each other. It's understandable to doubt others. But being unable to trust anything is the same as being unable to feel other people's love. Aren’t you, perhaps, feeling lonely? Aren’t you, perhaps, living slavishly? Are you able to laugh with an honest heart?"
+> "We didn’t give up on our dreams! We changed our dreams into your dream! That’s what parents do! That’s what a family does!"
 
-&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Furukawa Akio**](https://myanimelist.net/character.php?q=Furukawa%20Akio&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
