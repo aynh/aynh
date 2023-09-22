@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Treasure the experience. Dreams fade away after you wake up."
+> "[After Gin offers to kill some Arrancars] No thanks, for that would be boring."
 
-&mdash; [**Hitoha Miyamizu**](https://myanimelist.net/character.php?q=Hitoha%20Miyamizu&cat=character), [**Kimi no Na wa**](https://myanimelist.net/search/all?q=Kimi%20no%20Na%20wa&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
