@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People can be so mean, no matter what you've done for them they will believe the first cheap rumor they hear. In the end they only care about themselves."
+> "You are defeated yet you will not step back, why not?"
 
-&mdash; [**Natsu Tanimoto**](https://myanimelist.net/character.php?q=Natsu%20Tanimoto&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
+&mdash; [**Dracule Mihawk**](https://myanimelist.net/character.php?q=Dracule%20Mihawk&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
