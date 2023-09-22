@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People die when they are killed."
+> "[after drawing the infinity symbol] I thought of it myself, it stands for... Mugen."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
