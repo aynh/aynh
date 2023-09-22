@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*after Misa-chan says that she can't imagine a world without Light* Hmmm... Yes, it would be dark!"
+> "Could you settle for a smile, and a fond farewell?"
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
