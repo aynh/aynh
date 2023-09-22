@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm too naive. With thoughts like 'If I saved someone maybe I can start all over again.'"
+> "What are you good at, what do you like… You need to show something that makes people understand who you are."
 
-&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Tatsuya Himuro**](https://myanimelist.net/character.php?q=Tatsuya%20Himuro&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
