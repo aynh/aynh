@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do I have to kill you to stop you from being foolish?"
+> "At a place where you feel most restful… Next to the person you find most dear. People's lives are repetitions of inflicting pain on each other. It's understandable to doubt others. But being unable to trust anything is the same as being unable to feel other people's love. Aren’t you, perhaps, feeling lonely? Aren’t you, perhaps, living slavishly? Are you able to laugh with an honest heart?"
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
