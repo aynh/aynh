@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Vash the Stampede... every time I observe his actions I can't help but sense something hidden deep within him, something we can't being to understand. But this much is certain: everyone who has become involved with him has somehow regained an emotion which was once lost."
+> "I'm not fighting because I want to win. I'm fighting because I have to win."
 
-&mdash; [**Meryl Stryfe**](https://myanimelist.net/character.php?q=Meryl%20Stryfe&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
