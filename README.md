@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What are you good at, what do you like… You need to show something that makes people understand who you are."
+> "Success is harder than failure for many things in this world."
 
-&mdash; [**Tatsuya Himuro**](https://myanimelist.net/character.php?q=Tatsuya%20Himuro&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
