@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are right. I have not yet introduced myself. I am Captain of the Seventh Division Komamura Sajin. And though it shames me, I am just as you say -- A meager worm of a man."
+> "People have emotions. A troublesome attribute that's not only invisible, but also changes easily. If it's friendship or love, then that's fine. But if by some trigger it changes to malice and vengeance, then that could bring forth thoughts of murder."
 
-&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
