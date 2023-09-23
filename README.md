@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate, hate, hate everyone."
+> "Ice can even stop the time of life itself. So, you'll never be able to catch up, for eternity. You'll always be stuck there, staring at the fairy's tail."
 
-&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
