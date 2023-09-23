@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's troublesome if the villain doesn't show their evil. Villains are necessary to make knights into heroes."
+> "I don't believe in anyone, nor do I believe in God. I just believe in myself."
 
-&mdash; [**Helbram**](https://myanimelist.net/character.php?q=Helbram&cat=character), [**Nanatsu no Taizai**](https://myanimelist.net/search/all?q=Nanatsu%20no%20Taizai&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
