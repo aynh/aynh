@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Remote islands are all about strange incidents, right?"
+> "[to Ichigo] I don't care if you're a human, a Soul Reaper or even a Hollow! I'll crush anybody who looks down on me! And you, Kurosaki, will be the first to go!"
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
