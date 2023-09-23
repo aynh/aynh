@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more material you possess, the harder you'll feel the loss."
+> "What a laughable attempt. You should just stay where you are, groveling at my feet."
 
-&mdash; [**Arima Teppei**](https://myanimelist.net/character.php?q=Arima%20Teppei&cat=character), [**Princess Lover!**](https://myanimelist.net/search/all?q=Princess%20Lover!&cat=all)
+&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
