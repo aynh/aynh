@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People cannot show each other their true feelings. Fear, suspicion, and resentment never subside."
+> "It's troublesome if the villain doesn't show their evil. Villains are necessary to make knights into heroes."
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
+&mdash; [**Helbram**](https://myanimelist.net/character.php?q=Helbram&cat=character), [**Nanatsu no Taizai**](https://myanimelist.net/search/all?q=Nanatsu%20no%20Taizai&cat=all)
