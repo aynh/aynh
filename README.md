@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Haruhi, when at her home*  You like strawberries, right? Here, you can have mine."
+> "I can't lose weight, I don't know how to deal with being any skinnier than I already am."
 
-&mdash; [**Takashi Morinozuka**](https://myanimelist.net/character.php?q=Takashi%20Morinozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
