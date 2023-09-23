@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(singing) A tisket, a tasket, a pokemon egg basket!"
+> "I hate, hate, hate everyone."
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
