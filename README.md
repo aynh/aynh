@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ice can even stop the time of life itself. So, you'll never be able to catch up, for eternity. You'll always be stuck there, staring at the fairy's tail."
+> "If I have the power to make a difference, I should put it to good use."
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kira Yamato**](https://myanimelist.net/character.php?q=Kira%20Yamato&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
