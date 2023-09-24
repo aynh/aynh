@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Of course! Dogs embody loyalty, they follow their master's commands above all else! Be a jerk to them and they don't complain, and they never once beg for a paycheck! Trust me Fuery, they're the great servants of man! *singing* Loyal canine how we salute thee! *laughs maniacally*"
+> "My existence was nothing more to her than a stone by the side of the road. I wasn't enough to fill her belly. Or perhaps I didn't even get reflected in her eyes. I couldn't even hate the beast that killed Teresa. It was me, overcome by fear, that I could not forgive."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Clare**](https://myanimelist.net/character.php?q=Clare&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
