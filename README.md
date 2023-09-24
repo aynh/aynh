@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have no parents, and I'm not a product of love. Therefore, I can't understand what a 'good wife' is. Even so... the love he gave me is my entire world. No one can humiliate that."
+> "People have many things pent up inside of themselves."
 
-&mdash; [**Irisviel von Einzbern**](https://myanimelist.net/character.php?q=Irisviel%20von%20Einzbern&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Tifa Lockhart**](https://myanimelist.net/character.php?q=Tifa%20Lockhart&cat=character), [**Final Fantasy VII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII&cat=all)
