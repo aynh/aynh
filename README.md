@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't lose weight, I don't know how to deal with being any skinnier than I already am."
+> "I have no parents, and I'm not a product of love. Therefore, I can't understand what a 'good wife' is. Even so... the love he gave me is my entire world. No one can humiliate that."
 
-&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Irisviel von Einzbern**](https://myanimelist.net/character.php?q=Irisviel%20von%20Einzbern&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
