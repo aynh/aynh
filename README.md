@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No need to be afraid of the end, because this world is infinite!"
+> "Leaf Village Secret-Finger Justu...1,000 Years of Death!!! *sticks his fingers up Naruto's ass*"
 
-&mdash; [**Kuroyukihime**](https://myanimelist.net/character.php?q=Kuroyukihime&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
