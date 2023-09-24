@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You must live life as long as you are still strong. Never look at your life as something insignificant."
+> "After today, tomorrow will come again. Maybe I've been taking that for granted. But now... It's not easy, huh..."
 
-&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
