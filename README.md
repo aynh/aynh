@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After today, tomorrow will come again. Maybe I've been taking that for granted. But now... It's not easy, huh..."
+> "I'm saying that practically nobody feels that they're talented. That's what makes us strive to improve. As we strive to improve, we notice the people around us improving too, which makes us work even harder. I guess you could say friends are like rivals, in a way."
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Eli Ayase**](https://myanimelist.net/character.php?q=Eli%20Ayase&cat=character), [**Love Live! School idol project**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project&cat=all)
