@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Seems appropriate for Nicol. A weapon fit for a coward."
+> "You must live life as long as you are still strong. Never look at your life as something insignificant."
 
-&mdash; [**Dearka Elsman**](https://myanimelist.net/character.php?q=Dearka%20Elsman&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
