@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pretending to get along is just hypocritical. If you don't like me, that's fine. People are free to like and hate what they want."
+> "If you think reality is just living comfortably and following your own whims, can you seriously dare to call yourself a soldier?"
 
-&mdash; [**Rachnera Arachnera**](https://myanimelist.net/character.php?q=Rachnera%20Arachnera&cat=character), [**Monster Musume no Iru Nichijou**](https://myanimelist.net/search/all?q=Monster%20Musume%20no%20Iru%20Nichijou&cat=all)
+&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
