@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What’s important is not losing sight of your path."
+> "Those who aim further for other's sake. Those who think of others before themselves. ...And those who hate themselves more than anyone. These are the qualities of a Magus. This is a contradiction you can only have if you are born broken."
 
-&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Tohsaka Rin**](https://myanimelist.net/character.php?q=Tohsaka%20Rin&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
