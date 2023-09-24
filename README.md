@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you think reality is just living comfortably and following your own whims, can you seriously dare to call yourself a soldier?"
+> "No need to be afraid of the end, because this world is infinite!"
 
-&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Kuroyukihime**](https://myanimelist.net/character.php?q=Kuroyukihime&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
