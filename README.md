@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "None of that will ever happen. I hate myself! But still, I have to keep these fantasies going! If I have a thousand of them, at least one of them might come true one day. If you stop fantasizing, you have no choice but to be crushed by reality."
+> "The moon pierced down on the diseased world. There is no cure for the disease. An entire race falls mindlessly into destruction. Not even a man of colossal power may be able to prevent the inevitable. Death no longer terrifies men. The smell of blood is as common as the smell of white plums, so he creates slavery and savagery which surpasses the horrors of dying. These can only be fought with more bloodshed and the cycle never ends. My sword is guided by the reasoning of Hiten Mitsurugi, but when all is said, a sword is a tool for destruction not salvation. The only way I can retain my humanity is to bury its victims."
 
-&mdash; [**Kidou Eita**](https://myanimelist.net/character.php?q=Kidou%20Eita&cat=character), [**Ore no Kanojo to Osananajimi ga Shuraba Sugiru**](https://myanimelist.net/search/all?q=Ore%20no%20Kanojo%20to%20Osananajimi%20ga%20Shuraba%20Sugiru&cat=all)
+&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Samurai X: Trust & Betrayal**](https://myanimelist.net/search/all?q=Samurai%20X%3A%20Trust%20%26%20Betrayal&cat=all)
