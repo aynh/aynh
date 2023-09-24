@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being rivals does not mean being an enemy."
+> "I led me by the hand, as if to fill the niches in the memories in my oozing brain fluid. Without even a destination, we kept walking. Disgusting clouds were floating in the sky. I already know what will happen to me the next time I wake up."
 
-&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
