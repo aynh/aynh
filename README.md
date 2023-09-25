@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let's have a drink. Hh shut up... The alcohol will disinfect me from the inside!"
+> "I'll drive you into a corner and make you remember that attack."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
