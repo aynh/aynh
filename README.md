@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He turned a room full of strangers into a room full of enemies with just one sentence."
+> "Let's have a drink. Hh shut up... The alcohol will disinfect me from the inside!"
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
