@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who kill too much, turn into dragons one day. Beasts that rule the land atop piles of money and fly the skies with authority. They become more and more violent, until they can no longer understand the language of men. We cannot allow dragons to remain in this world, even though we are the ones from which they are spawned. To slay a dragon is the greatest of honors."
+> "You should cry while you still can. When you get bigger, sometimes, you can't cry even if you have something you wanna cry about."
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
