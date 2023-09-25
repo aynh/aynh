@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is a word 'world'. Until about the time I was in middle school, I vaguely thought the word meant the area where the signals from my cell would reach."
+> "Even when you want to say something, there are times when you'll lose the chance to."
 
-&mdash; [**Voices of a Distant Star**](https://myanimelist.net/character.php?q=Voices%20of%20a%20Distant%20Star&cat=character), [**Voices of a Distant Star**](https://myanimelist.net/search/all?q=Voices%20of%20a%20Distant%20Star&cat=all)
+&mdash; [**Tateyama Ayano**](https://myanimelist.net/character.php?q=Tateyama%20Ayano&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
