@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You should cry while you still can. When you get bigger, sometimes, you can't cry even if you have something you wanna cry about."
+> "It seems we have an unforseen problem. A rather annoying fly buzzing around."
 
-&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
