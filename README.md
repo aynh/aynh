@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't you faint on me, you stupid girl."
+> "Skipping school for one day might not be a problem, but if you skip for three days in a row, it'd be really hard to convince yourself to go back."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Ushiromiya Ange**](https://myanimelist.net/character.php?q=Ushiromiya%20Ange&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
