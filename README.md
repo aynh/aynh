@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who aim further for other's sake. Those who think of others before themselves. ...And those who hate themselves more than anyone. These are the qualities of a Magus. This is a contradiction you can only have if you are born broken."
+> "It's not an issue of what you should do, it's an issue of what you want to do."
 
-&mdash; [**Tohsaka Rin**](https://myanimelist.net/character.php?q=Tohsaka%20Rin&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Yamamoto Tsuyoshi**](https://myanimelist.net/character.php?q=Yamamoto%20Tsuyoshi&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
