@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans love hurting others when they can´t be hurt themselves. Like killing animals, or flaming people online. And if the target makes a mistake, it fans the flames even more, and the bully gets even more fun out of it."
+> "He turned a room full of strangers into a room full of enemies with just one sentence."
 
-&mdash; [**Yozora Mikazuki**](https://myanimelist.net/character.php?q=Yozora%20Mikazuki&cat=character), [**Boku wa Tomodachi ga Sukunai**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
