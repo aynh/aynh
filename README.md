@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even when you want to say something, there are times when you'll lose the chance to."
+> "It is so painful when you lose someone you love ...To the point where your hair turns white because of grief."
 
-&mdash; [**Tateyama Ayano**](https://myanimelist.net/character.php?q=Tateyama%20Ayano&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
+&mdash; [**Astharoshe Asran**](https://myanimelist.net/character.php?q=Astharoshe%20Asran&cat=character), [**Trinity Blood**](https://myanimelist.net/search/all?q=Trinity%20Blood&cat=all)
