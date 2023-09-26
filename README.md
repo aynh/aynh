@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even I... know what it's like to be jealous. (referring to Kureno and Akito's relationship)"
+> "My only ambition is simply to kill as many people as humanly possible."
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Bankotsu**](https://myanimelist.net/character.php?q=Bankotsu&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
