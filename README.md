@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't give a rat's ass about going to hell. I guess it's because I feel like I'm already there."
+> "Nine-Tails, you are merely a momentary life, a temporary existence of coalesced energy... energy that once was a single, ultimate form! An unstable force, lacking in intelligence or sapience, you require a guide to show you purpose. That guide is the Uchiha! The tailed beasts are but slaves to those with blessed eyes. Obey!"
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
