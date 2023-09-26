@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Does losing prove that you are weak? Isn't losing difficult for all of you? A challenge where, after ending up on your hands and knees, you must see if you can stand up again? If you stay on your hands and knees, that proves that you are weak."
+> "The true evil is becoming apathetic about other people."
 
-&mdash; [**Ittetsu Takeda**](https://myanimelist.net/character.php?q=Ittetsu%20Takeda&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
