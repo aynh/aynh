@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is so painful when you lose someone you love ...To the point where your hair turns white because of grief."
+> "I'm scared to go over there!"
 
-&mdash; [**Astharoshe Asran**](https://myanimelist.net/character.php?q=Astharoshe%20Asran&cat=character), [**Trinity Blood**](https://myanimelist.net/search/all?q=Trinity%20Blood&cat=all)
+&mdash; [**Masahiro**](https://myanimelist.net/character.php?q=Masahiro&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
