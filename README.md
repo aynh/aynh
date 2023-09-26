@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am a god with a heart, but there’s one thing I cannot tolerate… people who don’t pay their proper respect to others."
+> "The people laughing are laughing at their own ignorance."
 
-&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
