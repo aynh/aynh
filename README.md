@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing good ever comes from a man interfering with women's problems."
+> "The future is not a straight line. There are many different pathways. We must try to decide that future for ourselves."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
