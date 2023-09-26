@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Learn to treasure your life because unfortunately, it can be taken away from you anytime."
+> "There are times like that music can convey more than words."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kunio Yaobi**](https://myanimelist.net/character.php?q=Kunio%20Yaobi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
