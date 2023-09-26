@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The true evil is becoming apathetic about other people."
+> "*after Joey offers him to duel* No thanks, I think I'll have much more of a challenge playing solitaire."
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Seto Kaiba**](https://myanimelist.net/character.php?q=Seto%20Kaiba&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
