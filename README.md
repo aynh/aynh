@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being hurt on the outside is better than being hurt on the inside."
+> "If you’re too lucky, people will get jealous of you."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
