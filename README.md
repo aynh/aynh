@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm scared to go over there!"
+> "Being hurt on the outside is better than being hurt on the inside."
 
-&mdash; [**Masahiro**](https://myanimelist.net/character.php?q=Masahiro&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
