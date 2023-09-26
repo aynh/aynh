@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You said she's smart, but it only means she got high marks, and she's actually a stupid woman."
+> "Learn to treasure your life because unfortunately, it can be taken away from you anytime."
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
