@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The future is not a straight line. There are many different pathways. We must try to decide that future for ourselves."
+> "Even I... know what it's like to be jealous. (referring to Kureno and Akito's relationship)"
 
-&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
