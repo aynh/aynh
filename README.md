@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't know how to give up!!"
+> "That’s just the way it is. Change is inevitable. Instead of resisting it, you’re better served simple going with the flow."
 
-&mdash; [**Tsunayoshi Sawada**](https://myanimelist.net/character.php?q=Tsunayoshi%20Sawada&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Kyouraku Shunsui**](https://myanimelist.net/character.php?q=Kyouraku%20Shunsui&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
