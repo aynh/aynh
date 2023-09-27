@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[when Rukia asks why she is in the Gotei 13] What the hell?! That's so obvious! To 'fight' and to 'protect'!"
+> "Despair… It hides away propagates, expands, and finally explodes."
 
-&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
