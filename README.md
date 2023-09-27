@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Tohru] Ever since you left I've been getting pissed off about everything, and because I couldn't understand why, it just pissed me off even more!"
+> "I believe there are many things in this world that people haven't seen yet. If you really want to see something, there's nothing you can't see. You can't see it because you're closing your eyes on purpose. Because if you use your eyes to see it, it'll be painful, and sad. That's why they're closed in the first place. I think photography is like borrowing someone else's eyes. So even if your eyes are closed... you can borrow someone else's."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Maria Oosawa**](https://myanimelist.net/character.php?q=Maria%20Oosawa&cat=character), [**CANAAN**](https://myanimelist.net/search/all?q=CANAAN&cat=all)
