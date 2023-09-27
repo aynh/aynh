@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One must take time to think! Rushing forward without considering things beforehand is the hight of foolishness. Ahh yes, that reminds me of another time when I had to consider things, that case was long ago but I remember it still. It was back when I still hung my hat on Bakers St. and called it home."
+> "So shut up about 'destiny' and...how people can't change! 'Cause... unlike me... you're not a 'failure'."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
