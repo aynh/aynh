@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A castle that vanishes at the first gust of wind is worthless. A skyscraper within your mind will never fall down."
+> "I just want the weak, who do get swept along with the flow, be considered human too."
 
-&mdash; [**Satsuki Kiryuuin**](https://myanimelist.net/character.php?q=Satsuki%20Kiryuuin&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
+&mdash; [**Annie Leonhardt**](https://myanimelist.net/character.php?q=Annie%20Leonhardt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
