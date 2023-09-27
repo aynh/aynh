@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things people can't accept, even if they do understand them."
+> "The strong don't win. The winners are the strong ones."
 
-&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Tsutomu Iwamura**](https://myanimelist.net/character.php?q=Tsutomu%20Iwamura&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
