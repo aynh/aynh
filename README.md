@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So shut up about 'destiny' and...how people can't change! 'Cause... unlike me... you're not a 'failure'."
+> "When you're sincere about doing something, you're stalked by the fear that there's no turning back."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
