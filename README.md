@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe there are many things in this world that people haven't seen yet. If you really want to see something, there's nothing you can't see. You can't see it because you're closing your eyes on purpose. Because if you use your eyes to see it, it'll be painful, and sad. That's why they're closed in the first place. I think photography is like borrowing someone else's eyes. So even if your eyes are closed... you can borrow someone else's."
+> "A castle that vanishes at the first gust of wind is worthless. A skyscraper within your mind will never fall down."
 
-&mdash; [**Maria Oosawa**](https://myanimelist.net/character.php?q=Maria%20Oosawa&cat=character), [**CANAAN**](https://myanimelist.net/search/all?q=CANAAN&cat=all)
+&mdash; [**Satsuki Kiryuuin**](https://myanimelist.net/character.php?q=Satsuki%20Kiryuuin&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
