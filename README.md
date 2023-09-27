@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just want the weak, who do get swept along with the flow, be considered human too."
+> "What must triumph here is the knight's path of chivalry that we champion. Is that not so, Heroic Spirit Arturia?"
 
-&mdash; [**Annie Leonhardt**](https://myanimelist.net/character.php?q=Annie%20Leonhardt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Lancer**](https://myanimelist.net/character.php?q=Lancer&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
