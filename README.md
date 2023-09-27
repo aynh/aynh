@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you're sincere about doing something, you're stalked by the fear that there's no turning back."
+> "A hero must be tough, strong and beautiful... As well as able to promptly and splendidly eradicate evil."
 
-&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Sweet Mask**](https://myanimelist.net/character.php?q=Sweet%20Mask&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
