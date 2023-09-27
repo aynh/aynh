@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A hero must be tough, strong and beautiful... As well as able to promptly and splendidly eradicate evil."
+> "I want you to please understand the scales of my heart will always be swaying back and forth. But there is something you should know. I will never lean to one side or the other due to the weight of gold coins."
 
-&mdash; [**Sweet Mask**](https://myanimelist.net/character.php?q=Sweet%20Mask&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
