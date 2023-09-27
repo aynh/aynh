@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That’s just the way it is. Change is inevitable. Instead of resisting it, you’re better served simple going with the flow."
+> "When you aim to reach high places, you may find yourself on narrow footing and feel disheartened. And then your confidence will falter, and you will find it ever harder to believe in yourself. If you ever feel that you can't believe in yourself, please believe in your friends."
 
-&mdash; [**Kyouraku Shunsui**](https://myanimelist.net/character.php?q=Kyouraku%20Shunsui&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sakamoto**](https://myanimelist.net/character.php?q=Sakamoto&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
