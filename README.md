@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regardless of who I was in the past or what I did, I feel like 'me' of the present should take responsibility."
+> "All I need is the power to be able to protect my comrades. So long as I can have the strength to do that, I don't care if I'm weaker than everyone else in the world."
 
-&mdash; [**Yashiro Isana**](https://myanimelist.net/character.php?q=Yashiro%20Isana&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
