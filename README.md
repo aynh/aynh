@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dying now, my breath will be erased, okay?"
+> "I'm telling you, it's just that it's soooooo lolilolilolied that it smokes. Come on, girls. One of you loan me your whistle. I'll lolly it up!"
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
