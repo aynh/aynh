@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to be the only one... who can help the one I care about."
+> "Atone for my sins? [...] I have no sins to atone for, nor have I forced such a meaningless concept on anyone."
 
-&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
