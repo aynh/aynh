@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm telling you, it's just that it's soooooo lolilolilolied that it smokes. Come on, girls. One of you loan me your whistle. I'll lolly it up!"
+> "Regardless of who I was in the past or what I did, I feel like 'me' of the present should take responsibility."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Yashiro Isana**](https://myanimelist.net/character.php?q=Yashiro%20Isana&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
