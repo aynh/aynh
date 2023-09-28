@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My only ambition is simply to kill as many people as humanly possible."
+> "At the end of my life, it was just the two of us... You told me not to leave then so I decided not to go anywhere."
 
-&mdash; [**Bankotsu**](https://myanimelist.net/character.php?q=Bankotsu&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Atsushi Shimao**](https://myanimelist.net/character.php?q=Atsushi%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
