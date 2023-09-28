@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A warrior who has lost his ability to fight is only going to be in the way."
+> "You can take control of my mind and my body, but there is one thing a Saiyan always keep… his PRIDE!"
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
