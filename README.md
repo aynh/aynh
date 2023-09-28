@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans have always spent a lot of time on love. I’m not too interested in karuta, but I’m willing to work hard for love."
+> "The Bird of the Hermes is my name, eating my wings to make me tame."
 
-&mdash; [**Sumire Hanano**](https://myanimelist.net/character.php?q=Sumire%20Hanano&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
