@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At the end of my life, it was just the two of us... You told me not to leave then so I decided not to go anywhere."
+> "How can someone who seeks a reason from another person be right? While you're forcing that reason on someone else, how can you take responsibility?"
 
-&mdash; [**Atsushi Shimao**](https://myanimelist.net/character.php?q=Atsushi%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
