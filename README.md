@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have no fear of watching you grow old while I remain young. I'll even watch you on your death bed. I am no stranger to death. But your heart is like that of an innocent child. It has always accepted everything about me, without hesitation. Because of that I am very afraid."
+> "(Her dad) He'd always tell me that family isn't about being related by blood. Living under the same roof and caring for each other is what family is all about."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Charunee Kusakabe**](https://myanimelist.net/character.php?q=Charunee%20Kusakabe&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
