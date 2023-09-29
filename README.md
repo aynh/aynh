@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(to himself, after revealing to Aang that he was the one who sent Combustion Man) Ugh, why do I have to be so stupid? How could I tell them that I sent an assassin after them? Couldn't I say that Azula did it? They would've believed that! Stupid! (Hits his head)"
+> "I don’t want to waste a single second or meter. From your first step and second of the day, I want to be with you."
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
