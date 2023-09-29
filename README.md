@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "From the perspective of others I am part of the world, but when I observe the world from my perspective I am nowhere to be found. To observe is to create perspective. I can never cease to be the point of origin from my perspective. I observe that which is not myself. This is the first principle to find."
+> "We teachers have to be role models for you students. If we can’t face you all head on, what can we teach you!"
 
-&mdash; [**Ergo Proxy**](https://myanimelist.net/character.php?q=Ergo%20Proxy&cat=character), [**Ergo Proxy**](https://myanimelist.net/search/all?q=Ergo%20Proxy&cat=all)
+&mdash; [**Nishimura Souichi**](https://myanimelist.net/character.php?q=Nishimura%20Souichi&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
