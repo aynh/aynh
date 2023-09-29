@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People's feelings can change. You may hate someone today, but you might come to love that person tomorrow."
+> "A beautiful speech, I can see it now, you truly are a prince with the royal blood of a Saiyan."
 
-&mdash; [**Naoki Irie**](https://myanimelist.net/character.php?q=Naoki%20Irie&cat=character), [**Itazura na Kiss**](https://myanimelist.net/search/all?q=Itazura%20na%20Kiss&cat=all)
+&mdash; [**Android 17**](https://myanimelist.net/character.php?q=Android%2017&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
