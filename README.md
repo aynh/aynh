@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The gush from my fountain of wisdom told me."
+> "There is one thing I've learned here. To keep doing your best, up until the very end."
 
-&mdash; [**Victorique de Blois**](https://myanimelist.net/character.php?q=Victorique%20de%20Blois&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
+&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
