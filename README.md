@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can take control of my mind and my body, but there is one thing a Saiyan always keep… his PRIDE!"
+> "(to himself, after revealing to Aang that he was the one who sent Combustion Man) Ugh, why do I have to be so stupid? How could I tell them that I sent an assassin after them? Couldn't I say that Azula did it? They would've believed that! Stupid! (Hits his head)"
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
