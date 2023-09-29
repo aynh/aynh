@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We teachers have to be role models for you students. If we can’t face you all head on, what can we teach you!"
+> "I realized that back then, the reason I wanted to become human, was that I really just wanted to have friends. Now, I just want to be a monster that can help Luffy."
 
-&mdash; [**Nishimura Souichi**](https://myanimelist.net/character.php?q=Nishimura%20Souichi&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Tony Tony Chopper**](https://myanimelist.net/character.php?q=Tony%20Tony%20Chopper&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
