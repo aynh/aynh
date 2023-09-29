@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't wear these beads just to make a fashion statement. These are my spirit beads - my link to the afterlife."
+> "People's feelings can change. You may hate someone today, but you might come to love that person tomorrow."
 
-&mdash; [**Anna Kyoyama**](https://myanimelist.net/character.php?q=Anna%20Kyoyama&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Naoki Irie**](https://myanimelist.net/character.php?q=Naoki%20Irie&cat=character), [**Itazura na Kiss**](https://myanimelist.net/search/all?q=Itazura%20na%20Kiss&cat=all)
