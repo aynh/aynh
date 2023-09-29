@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is one thing I've learned here. To keep doing your best, up until the very end."
+> "I was, I am, and I remain a soldier, sworn to devote my heart and soul to the restoration of humankind! There is no greater glory than than dying for that belief!"
 
-&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
