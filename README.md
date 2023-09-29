@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don’t want to waste a single second or meter. From your first step and second of the day, I want to be with you."
+> "No fair, sky. I'm the one who feels like crying."
 
-&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
