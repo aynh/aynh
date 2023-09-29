@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hold your tongue, the dead don't speak."
+> "From the perspective of others I am part of the world, but when I observe the world from my perspective I am nowhere to be found. To observe is to create perspective. I can never cease to be the point of origin from my perspective. I observe that which is not myself. This is the first principle to find."
 
-&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
+&mdash; [**Ergo Proxy**](https://myanimelist.net/character.php?q=Ergo%20Proxy&cat=character), [**Ergo Proxy**](https://myanimelist.net/search/all?q=Ergo%20Proxy&cat=all)
