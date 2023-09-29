@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is great value in the time spent in ones own company, but a life time of total isolation is a fate no one should endure."
+> "I have no fear of watching you grow old while I remain young. I'll even watch you on your death bed. I am no stranger to death. But your heart is like that of an innocent child. It has always accepted everything about me, without hesitation. Because of that I am very afraid."
 
-&mdash; [**Makarov**](https://myanimelist.net/character.php?q=Makarov&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
