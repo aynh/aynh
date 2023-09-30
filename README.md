@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe that 'I could have done something' is the most frustrating regret of them all."
+> "[To Orihime] I've repaid my debt to you. Now, you're gonna accompany me on a little errand."
 
-&mdash; [**Kazuki Kazami**](https://myanimelist.net/character.php?q=Kazuki%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
