@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't wear these beads just to make a fashion statement. These are my spirit beads - my link to the afterlife."
+> "The world is very boring. Everyone tries to live like a normal person without a second thought."
 
-&mdash; [**Anna Kyoyama**](https://myanimelist.net/character.php?q=Anna%20Kyoyama&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Dongtae**](https://myanimelist.net/character.php?q=Dongtae&cat=character), [**Dice: The Cube That Changes Everything**](https://myanimelist.net/search/all?q=Dice%3A%20The%20Cube%20That%20Changes%20Everything&cat=all)
