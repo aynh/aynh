@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what changes, I'll still be me. And I can be whoever I want to be."
+> "People’s feelings sometimes go astray and lead to irreversible consequences."
 
-&mdash; [**Amu Hinamori**](https://myanimelist.net/character.php?q=Amu%20Hinamori&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
