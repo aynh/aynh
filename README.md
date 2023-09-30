@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Seasons change just like the passing of time. We all have out destines and then we must move. That's they way it has always been."
+> "People aren't as complex as you think they are. They're simple, and they get sad or angry over simple things. That's how they are. They're quickly affected by the littlest things, and live without knowing where they're going to fall down. That's who people are!"
 
-&mdash; [**Clow Reed**](https://myanimelist.net/character.php?q=Clow%20Reed&cat=character), [**Cardcaptor Sakura**](https://myanimelist.net/search/all?q=Cardcaptor%20Sakura&cat=all)
+&mdash; [**Chiyuki**](https://myanimelist.net/character.php?q=Chiyuki&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
