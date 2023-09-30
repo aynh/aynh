@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People are beings where a love of what's right goes hand in hand with a desire to do all manner of evil acts."
+> "Humans have a desire for truth or they have a desire to what they know is the truth. In other words, what the truth is exactly second to that. Be careful of what is the truth and what is lie. In other words, always doubt yourself. Harbor an inner devil as you read along... and I won't forget to add that by that point, you might have already fallen into my trap."
 
-&mdash; [**Yuuki Shinjuurou**](https://myanimelist.net/character.php?q=Yuuki%20Shinjuurou&cat=character), [**Un-Go**](https://myanimelist.net/search/all?q=Un-Go&cat=all)
+&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
