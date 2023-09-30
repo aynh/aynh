@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People aren't as complex as you think they are. They're simple, and they get sad or angry over simple things. That's how they are. They're quickly affected by the littlest things, and live without knowing where they're going to fall down. That's who people are!"
+> "I believe that 'I could have done something' is the most frustrating regret of them all."
 
-&mdash; [**Chiyuki**](https://myanimelist.net/character.php?q=Chiyuki&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Kazuki Kazami**](https://myanimelist.net/character.php?q=Kazuki%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
