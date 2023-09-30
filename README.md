@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I stole a death note."
+> "Just live normally. You'll be better off if you can catch some fish. Dig up the caves so you can set sail whenever you need to. It wouldn't be easy. But you have an endless amount of time ahead of you."
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
