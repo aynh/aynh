@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It has happened many times throughout history. Resources, territory, wealth... Humans fight each other in order to gain something they don't have. It's simple. How can you be concerned with the lives of others when you're about to starve to death? You're too naive. Humans can only live by stealing what they don't have from others. If there's no future, we just take the future from others."
+> "People are beings where a love of what's right goes hand in hand with a desire to do all manner of evil acts."
 
-&mdash; [**Tooru Kazasumi**](https://myanimelist.net/character.php?q=Tooru%20Kazasumi&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
+&mdash; [**Yuuki Shinjuurou**](https://myanimelist.net/character.php?q=Yuuki%20Shinjuurou&cat=character), [**Un-Go**](https://myanimelist.net/search/all?q=Un-Go&cat=all)
