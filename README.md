@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being hurt on the outside is better than being hurt on the inside."
+> "It has happened many times throughout history. Resources, territory, wealth... Humans fight each other in order to gain something they don't have. It's simple. How can you be concerned with the lives of others when you're about to starve to death? You're too naive. Humans can only live by stealing what they don't have from others. If there's no future, we just take the future from others."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Tooru Kazasumi**](https://myanimelist.net/character.php?q=Tooru%20Kazasumi&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
