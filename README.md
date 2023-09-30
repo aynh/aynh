@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Orihime] I've repaid my debt to you. Now, you're gonna accompany me on a little errand."
+> "(thinking) I want Haru. I want all of him."
 
-&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
