@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If anybody's out there, you can come out. And if you're a monster or a ghost, you can stay where you are, and we won't bother you."
+> "You all underestimate humans. Individually, they may appear weak, but that is not the case. What we need to recognize is that humans are a single life-form comprised of millions of individuals. Besides their individual brains, humans possess a different 'brain' of enormous magnitude. The moment we act in opposition to that brain, we will lose."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Tamura Reiko**](https://myanimelist.net/character.php?q=Tamura%20Reiko&cat=character), [**Parasyte -the maxim-**](https://myanimelist.net/search/all?q=Parasyte%20-the%20maxim-&cat=all)
