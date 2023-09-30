@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is very boring. Everyone tries to live like a normal person without a second thought."
+> "So stupid! Stupid, Stupid! You're so stupid! You want to live your life scared of being ratted out?! Screw that! I'd rather let everyone know everything!! (to Yuki, Tohru, Kyo, and Momiji while destroying a classroom)"
 
-&mdash; [**Dongtae**](https://myanimelist.net/character.php?q=Dongtae&cat=character), [**Dice: The Cube That Changes Everything**](https://myanimelist.net/search/all?q=Dice%3A%20The%20Cube%20That%20Changes%20Everything&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
