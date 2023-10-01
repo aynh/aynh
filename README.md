@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is all about 'selection'. There's no such thing as a life of being pushed around by circumstances or a life of doing as one is told.  It is you who selected to be 'swept along'"
+> "If we're going to regret it either way, then let's regret doing something fun that we wanted to do."
 
-&mdash; [**Gin Kurobe**](https://myanimelist.net/character.php?q=Gin%20Kurobe&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
+&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
