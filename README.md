@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I can’t see you… Even if we are separated far apart from each other… I’ll always be watching after you. I’ll definitely watch over you forever…"
+> "From now on, Lacus Clyne will be singing the song of peace."
 
-&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
