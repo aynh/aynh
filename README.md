@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You cannot go into battle believing you will lose."
+> "Helping someone out is not a justifiable reason for you to get hurt."
 
-&mdash; [**Akisame Koetsuji**](https://myanimelist.net/character.php?q=Akisame%20Koetsuji&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
+&mdash; [**Shizuka Hiratsuka**](https://myanimelist.net/character.php?q=Shizuka%20Hiratsuka&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
