@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is a thousand years too early... for you to become worthy enough to die by my Bankai."
+> "There are things you can't turn back, even if you want to."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Jūdai Yūki**](https://myanimelist.net/character.php?q=J%C5%ABdai%20Y%C5%ABki&cat=character), [**Yu-Gi-Oh! GX**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20GX&cat=all)
