@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your guilt will be your past and that will be your God."
+> "Flowers are fragile and ephemeral... Even if you meant to protect them with a surrounding fence from wind and rain, they would die without sunlight...and a spindly fence has no power against a strong wind. Are you fully aware of that, Kudo-kun?.."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
