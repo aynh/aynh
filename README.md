@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things you can't turn back, even if you want to."
+> "It's over between Kana and me. We're not going to get back together. Even if we were together, I would only miss her... (To Shigure and Ayame)"
 
-&mdash; [**Jūdai Yūki**](https://myanimelist.net/character.php?q=J%C5%ABdai%20Y%C5%ABki&cat=character), [**Yu-Gi-Oh! GX**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20GX&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
