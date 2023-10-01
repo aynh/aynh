@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Row, row, row your boat, gently down the stream. Merrily, merrily, merrily, merrily, life is but a dream."
+> "The things I had to tell her...The things I hoped she would listen to...There were so many of them."
 
-&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Takaki Toono**](https://myanimelist.net/character.php?q=Takaki%20Toono&cat=character), [**5 Centimeters per Second**](https://myanimelist.net/search/all?q=5%20Centimeters%20per%20Second&cat=all)
