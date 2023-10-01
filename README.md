@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we're going to regret it either way, then let's regret doing something fun that we wanted to do."
+> "However far I fall as long as there's so much as a thread left I will use it to climb. I'll take hold of it. I refuse to give up while I'm still human I can do that much. But every person must decide on his own whether to grab it."
 
-&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
