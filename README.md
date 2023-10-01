@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether you walk or run, the destination won't change. So then... You might as well run there!!!"
+> "It is a thousand years too early... for you to become worthy enough to die by my Bankai."
 
-&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
