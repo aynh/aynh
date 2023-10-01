@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "From now on, Lacus Clyne will be singing the song of peace."
+> "It is the role of a parent to stand in front of their children... and protect them even if their legs were to give out at any moment."
 
-&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
