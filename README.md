@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't sit around envying other peoples worlds. You have to go out and change your own."
+> "Your guilt will be your past and that will be your God."
 
-&mdash; [**Chiaki Shinichi**](https://myanimelist.net/character.php?q=Chiaki%20Shinichi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
