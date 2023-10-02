@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Treecko! Use your Tail Slap attack!"
+> "A politician in the past once said: 'My secretaries did it all.'"
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**UNESCO Director**](https://myanimelist.net/character.php?q=UNESCO%20Director&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
