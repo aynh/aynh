@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A politician in the past once said: 'My secretaries did it all.'"
+> "It's amazing no one's locked you up yet (to Shigure)"
 
-&mdash; [**UNESCO Director**](https://myanimelist.net/character.php?q=UNESCO%20Director&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
