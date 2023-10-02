@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is called the memories of the body. When the mind forgets, the body remembers for it."
+> "That’s right. I’m nice. After everything that has happened in my life, I still haven’t gone after anyone or anything in revenge. If I were normal I would have destroyed the world by now. In a sense it makes me a savior of sorts."
 
-&mdash; [**Yūko Ichihara**](https://myanimelist.net/character.php?q=Y%C5%ABko%20Ichihara&cat=character), [**Tsubasa Reservoir Chronicles**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicles&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
