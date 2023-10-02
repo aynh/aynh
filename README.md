@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't be strong not because you can't throw away your weakness, but it's because you don't face your own weakness."
+> "It is called the memories of the body. When the mind forgets, the body remembers for it."
 
-&mdash; [**Kanoko Naedoko**](https://myanimelist.net/character.php?q=Kanoko%20Naedoko&cat=character), [**Warau Kanoko-sama**](https://myanimelist.net/search/all?q=Warau%20Kanoko-sama&cat=all)
+&mdash; [**Yūko Ichihara**](https://myanimelist.net/character.php?q=Y%C5%ABko%20Ichihara&cat=character), [**Tsubasa Reservoir Chronicles**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicles&cat=all)
