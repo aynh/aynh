@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Before becoming my Meister there is a list of 1,000 provisions you must peruse. Be sure to look through all of them, they're important. I greatly look forward to your participation in number 452 the five hour story telling party."
+> "[To Orihime] Your heart? You humans say that word so lightly. As if it were something one can hold in the palm of one's hand. But my eye sees everything -- Nothing can escape it. What it doesn't see doesn't exist. That's how I've always fought. That's how I've always lived."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
