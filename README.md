@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Orihime] Your heart? You humans say that word so lightly. As if it were something one can hold in the palm of one's hand. But my eye sees everything -- Nothing can escape it. What it doesn't see doesn't exist. That's how I've always fought. That's how I've always lived."
+> "You have gone and taken all those lives, and not even because you were thirsty! Is it fun... Huh! Is that what it takes for filth like you to get off..? Cheap little two bit terrors."
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
