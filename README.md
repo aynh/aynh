@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate talkative guys... They gross me out."
+> "It is a simple story. There is nothing that brings me happiness. It does not matter, let it be believing in people or having people believe in me. What other people called happiness did not bring me any joy."
 
-&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
