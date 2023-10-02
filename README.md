@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I may be unreliable, and I may not be able to do anything, but I’m here. I’ll always be with you. I’ll be always by your side."
+> "Hey sis, I've been wondering. How come everyone always closes their eyes when they sneeze? Is it to keep their eyes from popping out of their heads?"
 
-&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
