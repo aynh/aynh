@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm the one who is grateful. That's because you're all willing to be my friends. For that, I'm grateful."
+> "I may be unreliable, and I may not be able to do anything, but I’m here. I’ll always be with you. I’ll be always by your side."
 
-&mdash; [**Manato**](https://myanimelist.net/character.php?q=Manato&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
