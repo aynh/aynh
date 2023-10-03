@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you like, you can stay over here tonight. If you're lucky, you may see some cannibalism and that's always fun..."
+> "Quit acting like a spoiled child. What's important, the memories? The keys? The feelings of guilt? No. It's the power to save your friends. That's the power of a celestial spirit wizard."
 
-&mdash; [**Uta**](https://myanimelist.net/character.php?q=Uta&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Aquarius**](https://myanimelist.net/character.php?q=Aquarius&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
