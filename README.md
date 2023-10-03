@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now I got some common sense for you,if I wore a tie, it wouldn't change who I am, if I had no piercings it wouldn't mean I'm nice, and if my hair was black it wouldn't stop me from kicking your ass!"
+> "The way of the sword doesn't belong to any one nation. Knowledge of the arts belongs to us all."
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Piandao**](https://myanimelist.net/character.php?q=Piandao&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
