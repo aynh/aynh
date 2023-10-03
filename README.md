@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And that's precisely why it's so convenient, don't you think?"
+> "Who the hell are they? Pedophile yakuza?"
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Shimura Shinpachi**](https://myanimelist.net/character.php?q=Shimura%20Shinpachi&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
