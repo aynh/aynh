@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are too young to worry about failure. In a pinch, just muddle through. The outcome won't change, so that's best."
+> "Such a shame. I overestimated you. As a vampire, you were just a pathetic piece of shit. And now you're nothing but dog shit!"
 
-&mdash; [**Bang**](https://myanimelist.net/character.php?q=Bang&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
