@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Be not a fool, I have no such time to waste."
+> "There are always lazy people to deal with when you act as a group. Splitting into pairs and handling out jobs is more efficient."
 
-&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Kazuki Kazami**](https://myanimelist.net/character.php?q=Kazuki%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
