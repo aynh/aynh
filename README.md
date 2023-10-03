@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't know what state you wounds are in, of where you're hurting if you don't know that for yourself, there's no point in trying to share it with others, is there?"
+> "Watching messy troubles from the sidelines is a hobby of mine."
 
-&mdash; [**Hisomu Yoshiharu**](https://myanimelist.net/character.php?q=Hisomu%20Yoshiharu&cat=character), [**Kiznaiver**](https://myanimelist.net/search/all?q=Kiznaiver&cat=all)
+&mdash; [**Tomoe**](https://myanimelist.net/character.php?q=Tomoe&cat=character), [**Kamisama Hajimemashita**](https://myanimelist.net/search/all?q=Kamisama%20Hajimemashita&cat=all)
