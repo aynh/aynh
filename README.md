@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are always lazy people to deal with when you act as a group. Splitting into pairs and handling out jobs is more efficient."
+> "And that's precisely why it's so convenient, don't you think?"
 
-&mdash; [**Kazuki Kazami**](https://myanimelist.net/character.php?q=Kazuki%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
