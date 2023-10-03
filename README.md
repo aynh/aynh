@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're not remembered, then you never existed."
+> "You are too young to worry about failure. In a pinch, just muddle through. The outcome won't change, so that's best."
 
-&mdash; [**Lain Iwakura**](https://myanimelist.net/character.php?q=Lain%20Iwakura&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
+&mdash; [**Bang**](https://myanimelist.net/character.php?q=Bang&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
