@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pitiful shadow cloaked in darkness. Thy action cause men pain and suffering. Thy hollow soul drowns in thy sins. How would you like to see what death is like?"
+> "Real GAY will not be swayed no matter how cute a girl is. Please remember this: out of a hundred men... five are GAY."
 
-&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
