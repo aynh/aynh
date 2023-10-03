@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Quit acting like a spoiled child. What's important, the memories? The keys? The feelings of guilt? No. It's the power to save your friends. That's the power of a celestial spirit wizard."
+> "Once the thread of fate is tangled, it cannot be undone."
 
-&mdash; [**Aquarius**](https://myanimelist.net/character.php?q=Aquarius&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
