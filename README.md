@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The way of the sword doesn't belong to any one nation. Knowledge of the arts belongs to us all."
+> "If you don't know what state you wounds are in, of where you're hurting if you don't know that for yourself, there's no point in trying to share it with others, is there?"
 
-&mdash; [**Piandao**](https://myanimelist.net/character.php?q=Piandao&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Hisomu Yoshiharu**](https://myanimelist.net/character.php?q=Hisomu%20Yoshiharu&cat=character), [**Kiznaiver**](https://myanimelist.net/search/all?q=Kiznaiver&cat=all)
