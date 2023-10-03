@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once the thread of fate is tangled, it cannot be undone."
+> "If you're not remembered, then you never existed."
 
-&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Lain Iwakura**](https://myanimelist.net/character.php?q=Lain%20Iwakura&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
