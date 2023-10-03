@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Watching messy troubles from the sidelines is a hobby of mine."
+> "The moment you back down is the moment you lose!"
 
-&mdash; [**Tomoe**](https://myanimelist.net/character.php?q=Tomoe&cat=character), [**Kamisama Hajimemashita**](https://myanimelist.net/search/all?q=Kamisama%20Hajimemashita&cat=all)
+&mdash; [**Coach Kamogawa**](https://myanimelist.net/character.php?q=Coach%20Kamogawa&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
