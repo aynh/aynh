@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I understood that killing people was a crime. There was no other way! The world had to be fixed! A purpose given to me! Only I could do it. Who else could have done it, and come this far? Would they have kept going? The only one who can create a new world is me."
+> "There's no need to worry about trivial things like vocal rights or working together. If nobody's going to accept me, I'll make them obey me, whether it's by threat or by assassination. This is my-- our F class modus operandi."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
