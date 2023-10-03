@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I guess we won't be living together forever as gods. But still... This is forever, too."
+> "Be not a fool, I have no such time to waste."
 
-&mdash; [**Ikusaba Marco**](https://myanimelist.net/character.php?q=Ikusaba%20Marco&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
