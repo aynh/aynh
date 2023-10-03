@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no need to worry about trivial things like vocal rights or working together. If nobody's going to accept me, I'll make them obey me, whether it's by threat or by assassination. This is my-- our F class modus operandi."
+> "If you like, you can stay over here tonight. If you're lucky, you may see some cannibalism and that's always fun..."
 
-&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Uta**](https://myanimelist.net/character.php?q=Uta&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
