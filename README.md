@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing can be communicated without words but if you really care about someone, even the smallest details are important to notice."
+> "What exactly is the end? The end. The end. The end. I've seen the end over and over. What is the end?"
 
-&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
