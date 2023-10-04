@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How can you work so hard? There might be something really bad waiting for you ahead. How can you still make yourself move on despite that? The older we get...the number of annoying and troublesome things we have to face only increases- and wonderful things stop happening. In the days ahead of us... we have to bear each painful thing one at a time, conquering them...overcoming them...the power to do that just doesn't spring out of me. The power to move ahead."
+> "I may be unreliable, and I may not be able to do anything, but I’m here. I’ll always be with you. I’ll be always by your side."
 
-&mdash; [**Kai**](https://myanimelist.net/character.php?q=Kai&cat=character), [**Suicide Island**](https://myanimelist.net/search/all?q=Suicide%20Island&cat=all)
+&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
