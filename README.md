@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is great value in the time spent in ones own company, but a life time of total isolation is a fate no one should endure."
+> "Death is the end of everything. Your past and future will be lost in an instant where there will be no second chance. However as long as you live there will be a chance of pulling a win."
 
-&mdash; [**Makarov**](https://myanimelist.net/character.php?q=Makarov&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kazuma Yagami**](https://myanimelist.net/character.php?q=Kazuma%20Yagami&cat=character), [**Kaze no Stigma**](https://myanimelist.net/search/all?q=Kaze%20no%20Stigma&cat=all)
