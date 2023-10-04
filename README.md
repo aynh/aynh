@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Normally, as people love and are loved, they feel happiness. When I am hated by people, that is when I feel happiness. And then I want to tear apart and inflict unimaginable harm to the things I love. But is that really all that strange, I wonder?"
+> "If this world continues to reject me, then I shall reject the world."
 
-&mdash; [**Pariston Hill**](https://myanimelist.net/character.php?q=Pariston%20Hill&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Zeref**](https://myanimelist.net/character.php?q=Zeref&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
