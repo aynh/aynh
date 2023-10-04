@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The Bird of the Hermes is my name, eating my wings to make me tame."
+> "Humans can possibly exist without actually having to fight. But, many of us have chosen to fight. For what reason? To protect something? Protect what? Ourselves? The future? If we kill people to protect ourselves and this future, then what sort of future is it, and what will we have become? There is no future for those who have died. And what of those who did the killing? Is happiness to be found in a future that is grasped with blood stained hands? Is that the truth?"
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
