@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I may be unreliable, and I may not be able to do anything, but I’m here. I’ll always be with you. I’ll be always by your side."
+> "When people get close to death they change."
 
-&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Jin-Ie Kwon**](https://myanimelist.net/character.php?q=Jin-Ie%20Kwon&cat=character), [**The Breaker**](https://myanimelist.net/search/all?q=The%20Breaker&cat=all)
