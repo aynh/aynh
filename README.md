@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You let them take it from right under your nose."
+> "The Bird of the Hermes is my name, eating my wings to make me tame."
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
