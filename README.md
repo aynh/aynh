@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To deceive your enemy, begin with your ally."
+> "What we call the human heart... It's such a mystery, isn't it?"
 
-&mdash; [**Hattori Heiji**](https://myanimelist.net/character.php?q=Hattori%20Heiji&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Irisviel von Einzbern**](https://myanimelist.net/character.php?q=Irisviel%20von%20Einzbern&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
