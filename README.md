@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If this world continues to reject me, then I shall reject the world."
+> "An island from a dream within a dream? I could never pass up a great adventure like this!"
 
-&mdash; [**Zeref**](https://myanimelist.net/character.php?q=Zeref&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
