@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one knows what’s going to happen to the world. But I believe we have the ability to deal with that. Although we cannot change the past - we can change the future. We can change it into the world we desire."
+> "But if that’s what you want to do, you might as well try. It’s just pathetic to give up on something before you even give it a shot."
 
-&mdash; [**Saji Crossroad**](https://myanimelist.net/character.php?q=Saji%20Crossroad&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Reiko Mikami**](https://myanimelist.net/character.php?q=Reiko%20Mikami&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
