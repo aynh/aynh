@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "An island from a dream within a dream? I could never pass up a great adventure like this!"
+> "Eat Harkonnen, bitch!"
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Seras Victoria**](https://myanimelist.net/character.php?q=Seras%20Victoria&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
