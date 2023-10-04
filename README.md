@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Better to ask and be a fool once than never to ask and be a fool forever."
+> "Have you ever realized how insignificant your existence is on the planet?"
 
-&mdash; [**Yumi Iguchi**](https://myanimelist.net/character.php?q=Yumi%20Iguchi&cat=character), [**Shirobako**](https://myanimelist.net/search/all?q=Shirobako&cat=all)
+&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
