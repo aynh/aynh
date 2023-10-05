@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've got nice solid childbearing hips, so I think you're sure to have healthy babies. Uwehehehe"
+> "It's difficult to like me when I'm being myself."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Ami Kawashima**](https://myanimelist.net/character.php?q=Ami%20Kawashima&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
