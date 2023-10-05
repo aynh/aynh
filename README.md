@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Night is good. Appearances lose their meaning and get swallowed up by the darkness."
+> "Pain, suffering. It's pointless to just think about those things. The traveler (referring to 'The Most Foolish Traveler' by Natsuki Takaya) didn't. That may be stupid to some people but that's not stupid to me. Yuki... Kyo... when you close your eyes, what do you think?"
 
-&mdash; [**Yoite**](https://myanimelist.net/character.php?q=Yoite&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Sohma Momiji**](https://myanimelist.net/character.php?q=Sohma%20Momiji&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
