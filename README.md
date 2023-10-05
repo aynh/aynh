@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't be upset because of what you can't do. Do what you do best, live as carefree and optimistically as you can, because some people aren't able to do that."
+> "See, 'empty' just means you have plenty of room to take in all kinds of new things. Fun things, precious things, painful things, things you've never seen before!"
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Hana N. Fontainestand**](https://myanimelist.net/character.php?q=Hana%20N.%20Fontainestand&cat=character), [**Hanayamata**](https://myanimelist.net/search/all?q=Hanayamata&cat=all)
