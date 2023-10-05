@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't think ignorance is necessarily a bad thing. The more you know, the more problems you have."
+> "My mornings begin with a cup of coffee with cream at the cafe. My afternoon begins with hot tea with two lumps of sugar. And my evenings... In the evening I change into my pajamas."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
