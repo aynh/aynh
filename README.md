@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My mornings begin with a cup of coffee with cream at the cafe. My afternoon begins with hot tea with two lumps of sugar. And my evenings... In the evening I change into my pajamas."
+> "The more you want something, the harder it is to wait for it."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kabuto Yakushi**](https://myanimelist.net/character.php?q=Kabuto%20Yakushi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
