@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "See, 'empty' just means you have plenty of room to take in all kinds of new things. Fun things, precious things, painful things, things you've never seen before!"
+> "(thinking) I want Haru. I want all of him."
 
-&mdash; [**Hana N. Fontainestand**](https://myanimelist.net/character.php?q=Hana%20N.%20Fontainestand&cat=character), [**Hanayamata**](https://myanimelist.net/search/all?q=Hanayamata&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
