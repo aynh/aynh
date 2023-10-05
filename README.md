@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A person's mentality and feelings aren't always equal. There are times the conclusion you arrive at is completely irrational and the reason is because of that."
+> "Our contracts are completely dependent upon you agreeing to them first. I think that, in and of itself, is quite kind of us."
 
-&mdash; [**Shizuka Hiratsuka**](https://myanimelist.net/character.php?q=Shizuka%20Hiratsuka&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
