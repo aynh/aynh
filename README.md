@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Making a fuss won't fix anything."
+> "Charging from the front isn't the only way to cross a wall. If pushing doesn't work, why not try pulling? Try thinking from the opposite direction, you might be able to find a new way out."
 
-&mdash; [**Hak Son**](https://myanimelist.net/character.php?q=Hak%20Son&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Kou Kazamatsuri**](https://myanimelist.net/character.php?q=Kou%20Kazamatsuri&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
