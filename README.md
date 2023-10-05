@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Protecting someone means giving them a place to belong. Giving them a place where they can be happy."
+> "*thinking* Every day, I hang out with an alien, a time traveler, and a Esper...and I'm still as sane and objective as ever. Hmm...I wonder if that makes me special or something."
 
-&mdash; [**Rayneshia El-Arte Corwen**](https://myanimelist.net/character.php?q=Rayneshia%20El-Arte%20Corwen&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
