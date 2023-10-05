@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Kyo] Being away from everyone else may be lonely, but being away from you will be even lonelier."
+> "Night is good. Appearances lose their meaning and get swallowed up by the darkness."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Yoite**](https://myanimelist.net/character.php?q=Yoite&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
