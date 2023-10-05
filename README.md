@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The notion of set fate is ridiculous. Cause and effect can be bent through strength."
+> "Wishes shouldn't be granted. They're better off not coming true. When their wishes aren't granted, people actually put in effort. It's because they don't come true that people make progress. But if all their wishes come true, people won't be able to move forward anymore, you know?"
 
-&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Alis Color**](https://myanimelist.net/character.php?q=Alis%20Color&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
