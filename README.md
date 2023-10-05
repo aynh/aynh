@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pain, suffering. It's pointless to just think about those things. The traveler (referring to 'The Most Foolish Traveler' by Natsuki Takaya) didn't. That may be stupid to some people but that's not stupid to me. Yuki... Kyo... when you close your eyes, what do you think?"
+> "The notion of set fate is ridiculous. Cause and effect can be bent through strength."
 
-&mdash; [**Sohma Momiji**](https://myanimelist.net/character.php?q=Sohma%20Momiji&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
