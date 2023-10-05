@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*after seeing Grevil's unicorn hairstyle for the first time* I've never seen such a creative hairstyle!"
+> "You've got nice solid childbearing hips, so I think you're sure to have healthy babies. Uwehehehe"
 
-&mdash; [**Kazuya Kujō**](https://myanimelist.net/character.php?q=Kazuya%20Kuj%C5%8D&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
