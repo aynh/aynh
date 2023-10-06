@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Truly and deeply, thank you for giving, my life to me."
+> "Idiot... There's no win or lose in this, no higher or lower... There is always...only ONE truth."
 
-&mdash; [**Kanade Tachibana**](https://myanimelist.net/character.php?q=Kanade%20Tachibana&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
