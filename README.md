@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Have you been out on the window ledge all this time, in plain sight? What if the neighbors report a silver haired elementary student burglar?"
+> "As a cool guy, I'm used to seeing naked women."
 
-&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
