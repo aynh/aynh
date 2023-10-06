@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're useless, Lucy. You can't understand a woman's heart."
+> "What would you ask for if you could have your wishes granted? Would you ask to be rich? Or to have the woman you're in love with be yours?  You can wish for whatever you want, it's your business, but to have one's wishes come true always comes with a price. Every deal has a catch. You'd better be nice and careful."
 
-&mdash; [**Happy**](https://myanimelist.net/character.php?q=Happy&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Dante**](https://myanimelist.net/character.php?q=Dante&cat=character), [**Devil May Cry**](https://myanimelist.net/search/all?q=Devil%20May%20Cry&cat=all)
