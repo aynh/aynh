@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Miracles are irrational by nature."
+> "Have you been out on the window ledge all this time, in plain sight? What if the neighbors report a silver haired elementary student burglar?"
 
-&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
