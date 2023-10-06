@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What would you ask for if you could have your wishes granted? Would you ask to be rich? Or to have the woman you're in love with be yours?  You can wish for whatever you want, it's your business, but to have one's wishes come true always comes with a price. Every deal has a catch. You'd better be nice and careful."
+> "Assassination — It's the family trade. We all take it up. My folks see me as an exceptional prospect. But I don't see that I should have to live up to their expectations."
 
-&mdash; [**Dante**](https://myanimelist.net/character.php?q=Dante&cat=character), [**Devil May Cry**](https://myanimelist.net/search/all?q=Devil%20May%20Cry&cat=all)
+&mdash; [**Killua Zoldyck**](https://myanimelist.net/character.php?q=Killua%20Zoldyck&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
