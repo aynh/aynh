@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Idiot... There's no win or lose in this, no higher or lower... There is always...only ONE truth."
+> "You're useless, Lucy. You can't understand a woman's heart."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Happy**](https://myanimelist.net/character.php?q=Happy&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
