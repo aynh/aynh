@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's difficult to like me when I'm being myself."
+> "There are three things I cannot tolerate: cowardice, bad haircuts, and military insurrection. It is very unfortunate that our friend Vegeta possesses all three of these."
 
-&mdash; [**Ami Kawashima**](https://myanimelist.net/character.php?q=Ami%20Kawashima&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Frieza**](https://myanimelist.net/character.php?q=Frieza&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
