@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Failing to act, for fear of the risk, is no different than a living death. No matter what world you’re in."
+> "You're a strange one, all right. But having pride doesn't count for much if you're dead, you know?"
 
-&mdash; [**Crusty**](https://myanimelist.net/character.php?q=Crusty&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
