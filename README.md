@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Windscar!"
+> "Failing to act, for fear of the risk, is no different than a living death. No matter what world you’re in."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Crusty**](https://myanimelist.net/character.php?q=Crusty&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
