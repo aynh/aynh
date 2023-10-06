@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sadistic? I don't mind you calling me that. If you don't want to get hurt, don't attack me when I say not to."
+> "Truly and deeply, thank you for giving, my life to me."
 
-&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kanade Tachibana**](https://myanimelist.net/character.php?q=Kanade%20Tachibana&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
