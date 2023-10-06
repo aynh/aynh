@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So laugh... demon... Laugh that arrogant laugh of yours... And remember, I beat you to it..."
+> "Living your life sympathizing with others in your everyday life is more powerful, than living your life based on a religious belief or some story."
 
-&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
+&mdash; [**Akuto Sai**](https://myanimelist.net/character.php?q=Akuto%20Sai&cat=character), [**Demon King Daimao**](https://myanimelist.net/search/all?q=Demon%20King%20Daimao&cat=all)
