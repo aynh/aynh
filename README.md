@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As a cool guy, I'm used to seeing naked women."
+> "I fight to get what I need, and I kill whoever gets in my way. I always have."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
