@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, well. No matter what path they take, people without guts have nothing ahead of them."
+> "So laugh... demon... Laugh that arrogant laugh of yours... And remember, I beat you to it..."
 
-&mdash; [**Hiruma Youichi**](https://myanimelist.net/character.php?q=Hiruma%20Youichi&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
+&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
