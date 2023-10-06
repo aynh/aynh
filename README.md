@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're a strange one, all right. But having pride doesn't count for much if you're dead, you know?"
+> "They call me the 'demon child'."
 
-&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Nico Robin**](https://myanimelist.net/character.php?q=Nico%20Robin&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
