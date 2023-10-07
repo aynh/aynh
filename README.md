@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's amazing how every time you open your mouth, you manage to prove you're an idiot."
+> "Most non-NEET people in the world don't realize that human nature isn't scalar, but vectorial."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
