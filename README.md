@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The system created by the divine ones segregates every single person into his living assignment in the world, determines his roles and controls them...the melancholy voices of those born into this world have pierced the depths of my heart. I feel the need to do something for them without discriminating against anyone."
+> "I like myself. I have never once hated myself. My high specs, my half-decent looks, my pessimistic, realist point of view... I don't hate any of it at all."
 
-&mdash; [**Celestin**](https://myanimelist.net/character.php?q=Celestin&cat=character), [**Aah! Megami-Sama**](https://myanimelist.net/search/all?q=Aah!%20Megami-Sama&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
