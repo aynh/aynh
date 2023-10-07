@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you have money, life is the same no matter where you go. But if you don't have money, your life can adapt to where you are."
+> "Any time one isn't familiar with something, it all looks the same. Knowledge and education are required to properly judge a thing."
 
-&mdash; [**Balsa**](https://myanimelist.net/character.php?q=Balsa&cat=character), [**Seirei No Moribito**](https://myanimelist.net/search/all?q=Seirei%20No%20Moribito&cat=all)
+&mdash; [**Suruga Kanbaru**](https://myanimelist.net/character.php?q=Suruga%20Kanbaru&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
