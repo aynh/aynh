@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not afraid of the times I can't see him. When I feel pain in my chest, my song grows... The scenery feels closer. The next time I see you... I will, once again, fall in love."
+> "I'm not a genuine idiot like you! I'm an idiot who accepts the fact that he's an idiot!"
 
-&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Aoba Kouyou**](https://myanimelist.net/character.php?q=Aoba%20Kouyou&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
