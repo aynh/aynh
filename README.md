@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Levels are just numbers. In this world, strength is just an illusion. There are more important things."
+> "If you have money, life is the same no matter where you go. But if you don't have money, your life can adapt to where you are."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Balsa**](https://myanimelist.net/character.php?q=Balsa&cat=character), [**Seirei No Moribito**](https://myanimelist.net/search/all?q=Seirei%20No%20Moribito&cat=all)
