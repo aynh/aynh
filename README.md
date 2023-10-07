@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Any time one isn't familiar with something, it all looks the same. Knowledge and education are required to properly judge a thing."
+> "It's amazing how every time you open your mouth, you manage to prove you're an idiot."
 
-&mdash; [**Suruga Kanbaru**](https://myanimelist.net/character.php?q=Suruga%20Kanbaru&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
