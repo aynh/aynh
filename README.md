@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*referring to Winry* I didn't know she could be so cute."
+> "A sword is a weapon. The art of swordsmanship is learning how to kill. What Miss Kaoru says is nothing but sweet and innocent talk, only those whose hands have never been stained with the blood of man can believe."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
