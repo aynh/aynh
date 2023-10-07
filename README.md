@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I guess once you start doubting, there's no end to it."
+> "'... Although this won't happen instantly, as long as you have the thought, you will have a chance. Because at the moment you want to change, you have already taken the first step to changing.'"
 
-&mdash; [**Batou**](https://myanimelist.net/character.php?q=Batou&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Tachibana Hotaru**](https://myanimelist.net/character.php?q=Tachibana%20Hotaru&cat=character), [**Aoharu x Kikanjuu**](https://myanimelist.net/search/all?q=Aoharu%20x%20Kikanjuu&cat=all)
