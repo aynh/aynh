@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The only way to truly escape the mundane is for you to constantly be evolving. Whether you choose to aim high, or aim low. Enjoy each day for what it is."
+> "It's always best to believe in one's self but with a little help from others can be a great blessing!"
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
