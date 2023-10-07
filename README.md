@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(after Pikachu accidentally zaps her bike to a crisp) My bike's been barbecued!!"
+> "No matter how messed up things get, you can always figure out the best solution."
 
-&mdash; [**Haruka**](https://myanimelist.net/character.php?q=Haruka&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
