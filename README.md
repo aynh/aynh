@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's always best to believe in one's self but with a little help from others can be a great blessing!"
+> "(after Pikachu accidentally zaps her bike to a crisp) My bike's been barbecued!!"
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Haruka**](https://myanimelist.net/character.php?q=Haruka&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
