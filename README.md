@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is my darkness. Nothing anyone says can console me."
+> "People who continue to put their lives on the line to defend their faith become heroes and continue to exist on in legend."
 
-&mdash; [**Mato Kuroi**](https://myanimelist.net/character.php?q=Mato%20Kuroi&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
