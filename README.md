@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't be frightened by the waves. If we read the flow of the waves and accept them, we can overcome it. There's no wave that can't be overcome!!"
+> "I've been around longer than you have, kid. And I've seen my share of troubles. You're not the only one who knows what it's like to lose somebody. It looks like neither of us has led a charming life, have we? Still, it's not that bad. At least you and I have been lucky enough to find new comrades to help fill the void."
 
-&mdash; [**Sinbad**](https://myanimelist.net/character.php?q=Sinbad&cat=character), [**Magi: Adventure of Sinbad**](https://myanimelist.net/search/all?q=Magi%3A%20Adventure%20of%20Sinbad&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
