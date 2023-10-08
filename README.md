@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know I am not the person you expected...and I did not expect to be licked by a giant tongue just now."
+> "*to Zuko* You're looking at the rare white dragon bush. It's leaves make a tea sooo delicious, it's heartbreaking... THAT, or it's the white jade bush, which is poisonous."
 
-&mdash; [**Pathik**](https://myanimelist.net/character.php?q=Pathik&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
