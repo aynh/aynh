@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is good. It changes people, for better or for worse. You could look at it as a chance for you to change. The best kind of love helps you grow up."
+> "There probably isn't any meaning in life. Perhaps you can find something interesting to do while you are alive. Like how you found that flower. Like how I found you."
 
-&mdash; [**Misawa Mitsuyoshi**](https://myanimelist.net/character.php?q=Misawa%20Mitsuyoshi&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Orochimaru**](https://myanimelist.net/character.php?q=Orochimaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
