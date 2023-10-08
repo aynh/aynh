@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Search out the facts, then string them all together... and that's when the truth will be revealed."
+> "Love is good. It changes people, for better or for worse. You could look at it as a chance for you to change. The best kind of love helps you grow up."
 
-&mdash; [**Saji Crossroad**](https://myanimelist.net/character.php?q=Saji%20Crossroad&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Misawa Mitsuyoshi**](https://myanimelist.net/character.php?q=Misawa%20Mitsuyoshi&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
