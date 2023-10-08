@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Shut up! I did what I had to do. People lie to survive. No one is blameless."
+> "I know I am not the person you expected...and I did not expect to be licked by a giant tongue just now."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Pathik**](https://myanimelist.net/character.php?q=Pathik&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
