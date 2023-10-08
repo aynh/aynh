@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Zuko* You're looking at the rare white dragon bush. It's leaves make a tea sooo delicious, it's heartbreaking... THAT, or it's the white jade bush, which is poisonous."
+> "My name is Dracule Mihawk! Find your self, true world, become stronger! No matter how long it may take, I will wait for you in my strongest form! Surpass this sword! Surpass me! Roronoa Zoro!"
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Dracule Mihawk**](https://myanimelist.net/character.php?q=Dracule%20Mihawk&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
