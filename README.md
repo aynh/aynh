@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What takes reason a hundred years to build a bridge to only takes the wings of faith a single night to reach."
+> "Who are you again? Sorry, I have a bad memory for ugly faces."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Ayasegawa Yumichika**](https://myanimelist.net/character.php?q=Ayasegawa%20Yumichika&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
