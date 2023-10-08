@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only underlings get caught up in the matter of style and lose the battle. A captain can't afford such indulgences. Don't try to be a good kid. Whether you own somebody or they own you. The moment you start a fight, you are wrong in either way."
+> "'Loneliness' is no longer part of my vocabulary."
 
-&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
