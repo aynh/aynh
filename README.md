@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are not the man you used to be. You are stronger and wiser and freer than you ever used to be. And now you have come at the crossroads of destiny. It's time for you to choose. It's time for you to choose good."
+> "So because you think you got the ending, you're giving up on viewing the whole play? Even though it could still lead to a climax that you weren't able to predict?"
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Ushiromiya Lion**](https://myanimelist.net/character.php?q=Ushiromiya%20Lion&cat=character), [**Umineko no Naku Koro ni Chiru Episode 8: Twilight of the...**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni%20Chiru%20Episode%208%3A%20Twilight%20of%20the...&cat=all)
