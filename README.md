@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'... Although this won't happen instantly, as long as you have the thought, you will have a chance. Because at the moment you want to change, you have already taken the first step to changing.'"
+> "Have you ever realized how insignificant your existence is on the planet?"
 
-&mdash; [**Tachibana Hotaru**](https://myanimelist.net/character.php?q=Tachibana%20Hotaru&cat=character), [**Aoharu x Kikanjuu**](https://myanimelist.net/search/all?q=Aoharu%20x%20Kikanjuu&cat=all)
+&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
