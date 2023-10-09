@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I didn't say get naked, stupid. I just can't stand seeing you in those clothes."
+> "If there's someone you wish to see, then you are no longer alone."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
