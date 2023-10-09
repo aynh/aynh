@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I tried to carry on, while rejecting any relationships with others, but once you reject people, you're stuck. You lose the opportunity to meet someone and change."
+> "A woman's jealousy is blacker than the oceans deepest chasm. You may all begin screaming now."
 
-&mdash; [**Mei Tachibana**](https://myanimelist.net/character.php?q=Mei%20Tachibana&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
+&mdash; [**Ryuuguu Otohime**](https://myanimelist.net/character.php?q=Ryuuguu%20Otohime&cat=character), [**Okami-san And Her Seven Companions**](https://myanimelist.net/search/all?q=Okami-san%20And%20Her%20Seven%20Companions&cat=all)
