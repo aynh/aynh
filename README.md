@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...The act of taking is equally evil. We, from the moment of birth, continue to take. Food, connections, even fellow blood. Living to utmost. Continuing to slaughter, kill, take. Life is to constantly sin. Life is evil itself. I am aware I am evil... And so are you all. Now, come kill me. And I shall do the same!"
+> "I might be the ugly duckling of the group, but I'll make sure that I'll protect all of you with all my might."
 
-&mdash; [**Yoshimura**](https://myanimelist.net/character.php?q=Yoshimura&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Zeno**](https://myanimelist.net/character.php?q=Zeno&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
