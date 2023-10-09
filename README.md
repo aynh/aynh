@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why should I apologize for being a monster? Has anyone ever apologized for turning me into one?"
+> "I tried to carry on, while rejecting any relationships with others, but once you reject people, you're stuck. You lose the opportunity to meet someone and change."
 
-&mdash; [**Juuzou Suzuya**](https://myanimelist.net/character.php?q=Juuzou%20Suzuya&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Mei Tachibana**](https://myanimelist.net/character.php?q=Mei%20Tachibana&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
