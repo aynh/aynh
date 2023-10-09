@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I might be the ugly duckling of the group, but I'll make sure that I'll protect all of you with all my might."
+> "I’ve always been alone. The only one that can bring warmth into my life, is you."
 
-&mdash; [**Zeno**](https://myanimelist.net/character.php?q=Zeno&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Kaname Kuran**](https://myanimelist.net/character.php?q=Kaname%20Kuran&cat=character), [**Vampire Knight**](https://myanimelist.net/search/all?q=Vampire%20Knight&cat=all)
