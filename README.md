@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There won't be any pain if you don't do anything stupid."
+> "Why should I apologize for being a monster? Has anyone ever apologized for turning me into one?"
 
-&mdash; [**Himeko Inaba**](https://myanimelist.net/character.php?q=Himeko%20Inaba&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Juuzou Suzuya**](https://myanimelist.net/character.php?q=Juuzou%20Suzuya&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
