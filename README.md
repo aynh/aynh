@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't hold any regret in your choice, that means you must've made the right decision."
+> "I’ve been in your shoes. I was also given a chance. There’s no rush. You’ll get better very soon."
 
-&mdash; [**Yūzan Yoshida**](https://myanimelist.net/character.php?q=Y%C5%ABzan%20Yoshida&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Tsutomu Komano**](https://myanimelist.net/character.php?q=Tsutomu%20Komano&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
