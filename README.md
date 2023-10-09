@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Survival of the fittest is the law of nature. We deceive or we are deceived. Thus, we flourish or perish. Nothing good ever happened to me when I trusted others. That is the lesson."
+> "The past and the future are not the same, but they're not completely separate either."
 
-&mdash; [**Faye Valentine**](https://myanimelist.net/character.php?q=Faye%20Valentine&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
