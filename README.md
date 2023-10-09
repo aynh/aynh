@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you scared? I understand. The first time I saw my reflection in the mirror, even I was frightened by how BIG my reflection was."
+> "I didn't say get naked, stupid. I just can't stand seeing you in those clothes."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
