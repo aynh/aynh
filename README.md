@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A woman's jealousy is blacker than the oceans deepest chasm. You may all begin screaming now."
+> "Give a kid a smoke and he'll be happy for a day. Teach him how to smoke... he'll be happy for his whole shortened life."
 
-&mdash; [**Ryuuguu Otohime**](https://myanimelist.net/character.php?q=Ryuuguu%20Otohime&cat=character), [**Okami-san And Her Seven Companions**](https://myanimelist.net/search/all?q=Okami-san%20And%20Her%20Seven%20Companions&cat=all)
+&mdash; [**Eikichi Onizuka**](https://myanimelist.net/character.php?q=Eikichi%20Onizuka&cat=character), [**Great Teacher Onizuka**](https://myanimelist.net/search/all?q=Great%20Teacher%20Onizuka&cat=all)
