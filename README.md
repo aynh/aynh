@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My name is Dracule Mihawk! Find your self, true world, become stronger! No matter how long it may take, I will wait for you in my strongest form! Surpass this sword! Surpass me! Roronoa Zoro!"
+> "If you don't hold any regret in your choice, that means you must've made the right decision."
 
-&mdash; [**Dracule Mihawk**](https://myanimelist.net/character.php?q=Dracule%20Mihawk&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Yūzan Yoshida**](https://myanimelist.net/character.php?q=Y%C5%ABzan%20Yoshida&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
