@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You won’t know if you don’t give it a try."
+> "No matter how you look, as long as your judgement is clouded you won't find the truth."
 
-&mdash; [**Takeshi Yamamoto**](https://myanimelist.net/character.php?q=Takeshi%20Yamamoto&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Igor Neuhaus**](https://myanimelist.net/character.php?q=Igor%20Neuhaus&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
