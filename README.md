@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whenever we pray for someone's happiness, someone else must be cursed in exchange."
+> "Do you dislike that someone you once knew has become someone new without your knowing?"
 
-&mdash; [**Sayaka Miki**](https://myanimelist.net/character.php?q=Sayaka%20Miki&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Minato**](https://myanimelist.net/character.php?q=Minato&cat=character), [**Houkago no Pleiades**](https://myanimelist.net/search/all?q=Houkago%20no%20Pleiades&cat=all)
