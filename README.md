@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no way someone who can't even protect himself can protect anyone else, is there?"
+> "I'm not lazy, I'm just conserving energy."
 
-&mdash; [**Touka Kirishima**](https://myanimelist.net/character.php?q=Touka%20Kirishima&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
