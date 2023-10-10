@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dressing up on the outside won’t change what’s on the inside."
+> "Forget about revenge. The fate of those who seek revenge is grim. It's tragic, You will end up suffering and hurting yourself even more. Even if you do succeed in getting revenge, the only thing that remains is emptiness."
 
-&mdash; [**Uka-no-Mitama-no-Kami**](https://myanimelist.net/character.php?q=Uka-no-Mitama-no-Kami&cat=character), [**Inari Kon Kon**](https://myanimelist.net/search/all?q=Inari%20Kon%20Kon&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
