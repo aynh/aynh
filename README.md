@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm bothered by the very fact that people exist, but you're an exception."
+> "*about Katsura, who apparently got his head hit very hard* Forget his name, this guy's questioning his own existence!"
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
