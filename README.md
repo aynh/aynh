@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Forget about revenge. The fate of those who seek revenge is grim. It's tragic, You will end up suffering and hurting yourself even more. Even if you do succeed in getting revenge, the only thing that remains is emptiness."
+> "Humans who would dare to play God must pay a steep price for their arrogance, that is Truth."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Father**](https://myanimelist.net/character.php?q=Father&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
