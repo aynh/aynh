@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're always positive, good luck will eventually find you."
+> "By depending on others and letting them depend on you, people can exceed what they can do as individuals."
 
-&mdash; [**Fe-chan**](https://myanimelist.net/character.php?q=Fe-chan&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
+&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
