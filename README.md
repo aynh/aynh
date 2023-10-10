@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has changed. That's not it. The one who's changed the most, is me."
+> "Life and death come and go like marionettes dancing on a table. Once their stings are cut, they easily crumble."
 
-&mdash; [**Jinta Yadomi**](https://myanimelist.net/character.php?q=Jinta%20Yadomi&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
+&mdash; [**Ghost in the Shell 2: Innocence**](https://myanimelist.net/character.php?q=Ghost%20in%20the%20Shell%202%3A%20Innocence&cat=character), [**Ghost in the Shell 2: Innocence**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell%202%3A%20Innocence&cat=all)
