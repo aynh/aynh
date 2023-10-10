@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*about Katsura, who apparently got his head hit very hard* Forget his name, this guy's questioning his own existence!"
+> "Dressing up on the outside won’t change what’s on the inside."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Uka-no-Mitama-no-Kami**](https://myanimelist.net/character.php?q=Uka-no-Mitama-no-Kami&cat=character), [**Inari Kon Kon**](https://myanimelist.net/search/all?q=Inari%20Kon%20Kon&cat=all)
