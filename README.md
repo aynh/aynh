@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "By depending on others and letting them depend on you, people can exceed what they can do as individuals."
+> "People have emotions. A troublesome attribute that's not only invisible, but also changes easily. If it's friendship or love, then that's fine. But if by some trigger it changes to malice and vengeance, then that could bring forth thoughts of murder."
 
-&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
