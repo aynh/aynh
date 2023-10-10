@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The most precious thing is different for every human. They resist and kill each other because of their difference. It has nothing to do with the inability to sense the other's most important thing."
+> "If you're always positive, good luck will eventually find you."
 
-&mdash; [**Shijima Kurookano**](https://myanimelist.net/character.php?q=Shijima%20Kurookano&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Fe-chan**](https://myanimelist.net/character.php?q=Fe-chan&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
