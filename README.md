@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’ve always been alone. The only one that can bring warmth into my life, is you."
+> "People who aren't doing anything themselves, shouldn't be so quick to tell others what to do!"
 
-&mdash; [**Kaname Kuran**](https://myanimelist.net/character.php?q=Kaname%20Kuran&cat=character), [**Vampire Knight**](https://myanimelist.net/search/all?q=Vampire%20Knight&cat=all)
+&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
