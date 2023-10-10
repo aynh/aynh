@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How weak the mind is when it wants to forget. Maybe you didn't forget. Maybe you're lying. Is it a lie you tell everyone around you, or perhaps a lie you tell yourself?"
+> "I'll help you... But not by death, this world has enough of that. You can keep your life as long as you change the way you live it. It's never too late, believe me."
 
-&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
