@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Romance can strengthen people, but it can also make them useless."
+> "The most precious thing is different for every human. They resist and kill each other because of their difference. It has nothing to do with the inability to sense the other's most important thing."
 
-&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Shijima Kurookano**](https://myanimelist.net/character.php?q=Shijima%20Kurookano&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
