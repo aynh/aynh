@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't be too negative. You haven't become ashes just yet. You have your flesh and blood, and your bones are supporting you."
+> "If failure is the hallmark of being young, like they say. then someone who has failed to make friends must be at the peak of his youth, right? However, I'm sure they will disagree. All of this is just their double standards at play and nothing else. Here's the bottom line: Fools that enjoy their youth should go kill themselves."
 
-&mdash; [**Sakurako Kujō**](https://myanimelist.net/character.php?q=Sakurako%20Kuj%C5%8D&cat=character), [**Sakurako-san no Ashioto ni wa Shitai ga Umatteiru**](https://myanimelist.net/search/all?q=Sakurako-san%20no%20Ashioto%20ni%20wa%20Shitai%20ga%20Umatteiru&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
