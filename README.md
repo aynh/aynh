@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It will be alright, have faith in yourself. Crona, you will be a Kishin."
+> "The real world is scary. It’s pain to deal with other people."
 
-&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Shiori Shiomiya**](https://myanimelist.net/character.php?q=Shiori%20Shiomiya&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
