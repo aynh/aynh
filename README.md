@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You want me to roll over like a dog? Give up, and accept defeat.. Ha! That seems to be the sort of language that your kind is used to using. Language for cowards who forfeited their humanity, because they were too weak to survive as such. Don’t look down on humans, you monsters. Come on. I’ll send you all to hell."
+> "Ah, Kurosaki. I'm glad to see you've finally realized the importance of a cape."
 
-&mdash; [**Integra Hellsing**](https://myanimelist.net/character.php?q=Integra%20Hellsing&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
