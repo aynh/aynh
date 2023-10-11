@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life will someday extinguish. Why don't you start burning it now?"
+> "When I told him my feelings, he understood. When I said I wasn't lying, he believed me."
 
-&mdash; [**Scorpio Kardia**](https://myanimelist.net/character.php?q=Scorpio%20Kardia&cat=character), [**Saint Seiya: The Lost Canvas**](https://myanimelist.net/search/all?q=Saint%20Seiya%3A%20The%20Lost%20Canvas&cat=all)
+&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
