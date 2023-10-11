@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Perfection is a fairly nonexistent thing. If you couldn’t do it, it was probably impossible for anybody else, too."
+> "His soul was as pure as snow."
 
-&mdash; [**Reinhard von Lohengramm**](https://myanimelist.net/character.php?q=Reinhard%20von%20Lohengramm&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Zabuza Momochi**](https://myanimelist.net/character.php?q=Zabuza%20Momochi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
