@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*points to Jet*Don't give me that art of war crap! And you!*points to the other man*You take too long to take a sh*t!"
+> "[crashing through the gate on his motor scooter] Thanks for the support! Here come the real heros!"
 
-&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
