@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[crashing through the gate on his motor scooter] Thanks for the support! Here come the real heros!"
+> "Perfection is a fairly nonexistent thing. If you couldn’t do it, it was probably impossible for anybody else, too."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Reinhard von Lohengramm**](https://myanimelist.net/character.php?q=Reinhard%20von%20Lohengramm&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
