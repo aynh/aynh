@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I told him my feelings, he understood. When I said I wasn't lying, he believed me."
+> "It's difficult to make a girl smile, even as a grown-up. But you should never, ever, make a girl cry. And if you ever see a girl crying, help her. You might not be able to make her smile, but they'll know how you feel."
 
-&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Yokodera Youto**](https://myanimelist.net/character.php?q=Yokodera%20Youto&cat=character), [**Hentai Ouji To Warawanai Neko**](https://myanimelist.net/search/all?q=Hentai%20Ouji%20To%20Warawanai%20Neko&cat=all)
