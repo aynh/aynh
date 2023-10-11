@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A Gun is Good. Unlike A sword or a knife, it doesn't leave the feeling of a person dying in your hands."
+> "All of the Arrancar follow me... because they see me as fearless and the only individual who can actually bring forth the new world... the new future where you can belong. Without me, that dream can't be fulfilled and without me the gotei 13 will destroy you all...  Do you see it now from my point of view?"
 
-&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
