@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We fail. We make mistakes. But each time we do, I think we become stronger."
+> "A Gun is Good. Unlike A sword or a knife, it doesn't leave the feeling of a person dying in your hands."
 
-&mdash; [**Kyouka Katagiri**](https://myanimelist.net/character.php?q=Kyouka%20Katagiri&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
+&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
