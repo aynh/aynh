@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we understood how other people felt, then nobody would ever start wars!"
+> "When someone does something nice for you… shut up and accept it!"
 
-&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Tsugumi**](https://myanimelist.net/character.php?q=Tsugumi&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
