@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "His soul was as pure as snow."
+> "The scenery is so peaceful, you'd never think that wars were happening and people were dying around the world. If only this scenery could continue forever. But even if a time should come when I can no longer enjoy this scenery, as long as everyone is with me, I'll be fine. That's what I think today."
 
-&mdash; [**Zabuza Momochi**](https://myanimelist.net/character.php?q=Zabuza%20Momochi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Meiko Inoue**](https://myanimelist.net/character.php?q=Meiko%20Inoue&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
