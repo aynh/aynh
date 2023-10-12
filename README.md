@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The school takes no responsibility of your future! You are fully responsible for your own future! That is why you have to find what you want to do! You are all free!"
+> "Give a kid a smoke and he'll be happy for a day. Teach him how to smoke... he'll be happy for his whole shortened life."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Eikichi Onizuka**](https://myanimelist.net/character.php?q=Eikichi%20Onizuka&cat=character), [**Great Teacher Onizuka**](https://myanimelist.net/search/all?q=Great%20Teacher%20Onizuka&cat=all)
