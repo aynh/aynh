@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being alone is more painful than getting hurt."
+> "You should enjoy the little detours. To the fullest. Because that's where you'll find the things more important than what you want."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Ging Freecss**](https://myanimelist.net/character.php?q=Ging%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
