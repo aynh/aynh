@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[talking to Kiba, who is being held in a cage] Man, you really screwed up. I mean, I've seen one of us get hurt before, but never this badly. And you're caught, too."
+> "I was... relieved. I realized that, compared to the cat, I had it easy. (To kyo)"
 
-&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
