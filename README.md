@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is actually more difficult to trust those who have no talent for scheming."
+> "You’re about to find out what it’s like to fight a real super saiyan… and I’m not talking about Goku."
 
-&mdash; [**Lemrina Vers Envers**](https://myanimelist.net/character.php?q=Lemrina%20Vers%20Envers&cat=character), [**Aldnoah.Zero 2nd Season**](https://myanimelist.net/search/all?q=Aldnoah.Zero%202nd%20Season&cat=all)
+&mdash; [**Trunks**](https://myanimelist.net/character.php?q=Trunks&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
