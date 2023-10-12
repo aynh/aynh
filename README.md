@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because we can’t understand each other, it makes us want to make things clear even more."
+> "[talking to Kiba, who is being held in a cage] Man, you really screwed up. I mean, I've seen one of us get hurt before, but never this badly. And you're caught, too."
 
-&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
