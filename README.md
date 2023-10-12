@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Spoiling stories... is an unforgivable sin in this world."
+> "Someone has to be cursed to balance out a wish for someone else's happiness. That's how we, magical girls, work."
 
-&mdash; [**Leo Baskerville**](https://myanimelist.net/character.php?q=Leo%20Baskerville&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Sayaka Miki**](https://myanimelist.net/character.php?q=Sayaka%20Miki&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
