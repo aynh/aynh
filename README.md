@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My name is Duck. Yes, like the bird. Take it up with my parents. They never loved me!"
+> "But is it necessary to keep stroking my leg while you talk. *to Miroku*"
 
-&mdash; [**Ahiru Arima**](https://myanimelist.net/character.php?q=Ahiru%20Arima&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
+&mdash; [**Sango**](https://myanimelist.net/character.php?q=Sango&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
