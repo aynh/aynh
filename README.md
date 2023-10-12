@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Here, my armies once rode across the land. The place all the heroes who stood with me, through joy and sorrow, will never forget. I can make this world real because it still exists within our hearts! Behold my endless armies! Their bodies destroyed, and their souls offered to the world as Heroic Spirits. And still, these legendary heroes pledge their loyalty to me! My bond with them is my greatest treasure, my path of kingship! The ultimate Noble Phantasm that I, Iskandar, possess. Ionian Hetairoi!"
+> "My name is Duck. Yes, like the bird. Take it up with my parents. They never loved me!"
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Ahiru Arima**](https://myanimelist.net/character.php?q=Ahiru%20Arima&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
