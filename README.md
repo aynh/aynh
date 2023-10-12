@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pride is an eminent trait, but too much will cause arrogance. That is when it becomes disgusting."
+> "No, not yet, now that you've made me this serious. Regret as much as you damn well want!!"
 
-&mdash; [**Duke Tōgō**](https://myanimelist.net/character.php?q=Duke%20T%C5%8Dg%C5%8D&cat=character), [**Golgo 13**](https://myanimelist.net/search/all?q=Golgo%2013&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
