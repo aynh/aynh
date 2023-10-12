@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You should enjoy the little detours. To the fullest. Because that's where you'll find the things more important than what you want."
+> "Spoiling stories... is an unforgivable sin in this world."
 
-&mdash; [**Ging Freecss**](https://myanimelist.net/character.php?q=Ging%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Leo Baskerville**](https://myanimelist.net/character.php?q=Leo%20Baskerville&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
