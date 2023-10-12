@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All of the Arrancar follow me... because they see me as fearless and the only individual who can actually bring forth the new world... the new future where you can belong. Without me, that dream can't be fulfilled and without me the gotei 13 will destroy you all...  Do you see it now from my point of view?"
+> "A pig who doesn't fly is just an ordinary pig."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Porco Rosso**](https://myanimelist.net/character.php?q=Porco%20Rosso&cat=character), [**Porco Rosso**](https://myanimelist.net/search/all?q=Porco%20Rosso&cat=all)
