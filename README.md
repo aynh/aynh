@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how gifted you are... You, alone, cannot change the world."
+> "We've got no light of hope in our future! Nothing is going to happen! Our lives will be as dull as rocks! Maybe it's a life of boring happiness! But I don't want to be an adult who pretends to be satisfied with it!"
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
