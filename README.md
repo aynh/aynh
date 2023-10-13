@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Doesn't matter if you're weak. If you struggle hard enough, you can make a miracle happen."
+> "It's overpriced, but that's okay, HERE'S YOUR CHANGE!"
 
-&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Touji Suzuhara**](https://myanimelist.net/character.php?q=Touji%20Suzuhara&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
