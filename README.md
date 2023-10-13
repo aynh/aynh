@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you afraid? You don’t want to die, do you? Not just Abarai, if anyone… acts upon the thought of not wanting you to die, you will suddenly begin to fear your impending death, right?"
+> "Don't act because something is interesting, but act because you want to find something more interesting! In this world, there are so much interesting things. Do something that you don't want to do, you don't have even a second for it."
 
-&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
