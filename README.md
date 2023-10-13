@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If someone didn't have any pride, wouldn't they also be lacking in self-confidence? If someone was free of greed, wouldn't they have trouble supporting their family? And if people didn't envy one another, wouldn't they stop inventing new things?"
+> "Even if I lose my 'voice'. Even if everyone else doesn't turn up to hear me sing — as long as you're there, then, that's enough. If it comes to that… I will sing, just for you."
 
-&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Izayoi Miku**](https://myanimelist.net/character.php?q=Izayoi%20Miku&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
