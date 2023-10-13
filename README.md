@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bonds that are too strong create flaws over time."
+> "Is a reason nesessary? I don't know why you would kill someone. But as for saving someone... A logical mind isn't needed, right?"
 
-&mdash; [**Road Kamelot**](https://myanimelist.net/character.php?q=Road%20Kamelot&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
