@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Play to the last note, and leave no regrets."
+> "Bonds that are too strong create flaws over time."
 
-&mdash; [**Kiyora Miki**](https://myanimelist.net/character.php?q=Kiyora%20Miki&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
+&mdash; [**Road Kamelot**](https://myanimelist.net/character.php?q=Road%20Kamelot&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
