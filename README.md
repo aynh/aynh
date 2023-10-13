@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regardless of the color of eyes or skin, the color of blood is the same for everyone, isn’t it?"
+> "I am a supporting actor, a shadow. But a shadow will become darker if the light is stronger and it will make the white of the light stand out. As the shadow of the main actor, I will make you, the light, the number one in Japan."
 
-&mdash; [**Oskar von Reuenthal**](https://myanimelist.net/character.php?q=Oskar%20von%20Reuenthal&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
