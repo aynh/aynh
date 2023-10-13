@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's overpriced, but that's okay, HERE'S YOUR CHANGE!"
+> "I tried to carry on, while rejecting any relationships with others, but once you reject people, you're stuck. You lose the opportunity to meet someone and change."
 
-&mdash; [**Touji Suzuhara**](https://myanimelist.net/character.php?q=Touji%20Suzuhara&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Mei Tachibana**](https://myanimelist.net/character.php?q=Mei%20Tachibana&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
