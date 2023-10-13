@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The only one who can beat me, is me!"
+> "We're nothing like God. Not only do we have limited powers, but sometimes we're driven to become the devil himself."
 
-&mdash; [**Daiki Aomine**](https://myanimelist.net/character.php?q=Daiki%20Aomine&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
