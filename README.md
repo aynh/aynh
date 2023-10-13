@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am a supporting actor, a shadow. But a shadow will become darker if the light is stronger and it will make the white of the light stand out. As the shadow of the main actor, I will make you, the light, the number one in Japan."
+> "Are you afraid? You don’t want to die, do you? Not just Abarai, if anyone… acts upon the thought of not wanting you to die, you will suddenly begin to fear your impending death, right?"
 
-&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
