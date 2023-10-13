@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I tried to carry on, while rejecting any relationships with others, but once you reject people, you're stuck. You lose the opportunity to meet someone and change."
+> "Play to the last note, and leave no regrets."
 
-&mdash; [**Mei Tachibana**](https://myanimelist.net/character.php?q=Mei%20Tachibana&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
+&mdash; [**Kiyora Miki**](https://myanimelist.net/character.php?q=Kiyora%20Miki&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
