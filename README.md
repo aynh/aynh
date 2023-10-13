@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When boys get to a certain age, family becomes a bother. That's how they become independent."
+> "Is there really a god? If there is one, why does he keep me confined in here?"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
