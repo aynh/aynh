@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A king must live a life more vivid than any other and be figure for all to admire! The king is the one who collects the envy of all his heroes and stands as their guide! Therefore, the king is not alone! For his will equals that of all his followers combined!"
+> "Now I feel that maybe knowing who I actually am is the key to reach perfection. Because that means knowing what I can and cannot do."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
