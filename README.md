@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is great satisfaction in fighting for the sake of gaining power, but it’s joyless to fight for the sake of maintaining it."
+> "If we continue on the same path, we are likely to meet again."
 
-&mdash; [**Reinhard von Lohengramm**](https://myanimelist.net/character.php?q=Reinhard%20von%20Lohengramm&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Handa Seishū**](https://myanimelist.net/character.php?q=Handa%20Seish%C5%AB&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
