@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We would not have met, and the flowers will protect you. Kiba, because you protected this one, the flowers will return and bloom once more. So when the world is reborn, and Paradise opens, we will meet again. This one will be waiting for you. Find this one. And this time, the Paradise you hoped for will be..."
+> "No matter how much he wants it, he can't be a normal human anymore. *about Rin*"
 
-&mdash; [**Cheza**](https://myanimelist.net/character.php?q=Cheza&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Yukio Okumura**](https://myanimelist.net/character.php?q=Yukio%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
