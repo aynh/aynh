@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know… When something bad happens, I don’t like thinking it was someone else’s fault. See, if it’s someone else’s fault, then there’s nothing I, personally, can do about it. I want to think it’s all up to me. If that’s the case, then I can do something about the things that go wrong. Then I can always run and always fly."
+> "We are Partners. If you are a Witch, then I am a Warlock."
 
-&mdash; [**Arata Kohata**](https://myanimelist.net/character.php?q=Arata%20Kohata&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
