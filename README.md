@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have a lot of different words desperately trying to get my message across. However, you, were able to pass on what you wanted to say with just a few of them."
+> "Being rivals does not mean being an enemy."
 
-&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
