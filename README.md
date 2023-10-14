@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being rivals does not mean being an enemy."
+> "A king must live a life more vivid than any other and be figure for all to admire! The king is the one who collects the envy of all his heroes and stands as their guide! Therefore, the king is not alone! For his will equals that of all his followers combined!"
 
-&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
