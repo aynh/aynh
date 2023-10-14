@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This blank space represents infinite potential. One day, it may become anything."
+> "I have a lot of different words desperately trying to get my message across. However, you, were able to pass on what you wanted to say with just a few of them."
 
-&mdash; [**No Game No Life**](https://myanimelist.net/character.php?q=No%20Game%20No%20Life&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
