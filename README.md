@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unfortunately, in reality there is no situation where one can win merely by following the rules. There will be knights that break the rules, and even chess pieces that betray him."
+> "Don't worry about being so considerate of adults. You can only be a kid for so long, so you might as well enjoy it."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Charles Beams**](https://myanimelist.net/character.php?q=Charles%20Beams&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
