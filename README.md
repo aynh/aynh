@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But once you grow old, you become afraid of even losing things without any value."
+> "Humans are suspicious and jealous creatures. When they see something perfect, they wanna find a flaw."
 
-&mdash; [**Yuichi Onodera**](https://myanimelist.net/character.php?q=Yuichi%20Onodera&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Hattori Heiji**](https://myanimelist.net/character.php?q=Hattori%20Heiji&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
