@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe I got something wrong, but it doesn't matter because the thought of wanting to help others definitely isn't wrong."
+> "Excuse me... I'm not a microphone! I'm a chain scythe."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
