@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are suspicious and jealous creatures. When they see something perfect, they wanna find a flaw."
+> "There's always someone better. That's why I can't stop fighting."
 
-&mdash; [**Hattori Heiji**](https://myanimelist.net/character.php?q=Hattori%20Heiji&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Hidetora Toujo**](https://myanimelist.net/character.php?q=Hidetora%20Toujo&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
