@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Excuse me... I'm not a microphone! I'm a chain scythe."
+> "Everyone's carrying something that matters. You just don't realize when you're carrying it. It's only after it slips out of your hand that you realize how heavy it was in the first place. So many times I thought that I'd never carry a load like that ever again. And yet, before I realized it, I was carrying it again. I'd feel so much better if I just got rid of it. But I just can't bring myself to do it."
 
-&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
