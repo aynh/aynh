@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tests are a good thing. The knowledge gained from a night of cramming will be all but forgotten once you hit adulthood. And that's fine. The experience you gain through competition, having sharpened your skills and broadened your minds all under the same set of rules? That's the real treasure."
+> "I think that what people who've committed crimes need isn't punishment, but rather the knowledge of the pain of being forgiven."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Isogi Toshio**](https://myanimelist.net/character.php?q=Isogi%20Toshio&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
