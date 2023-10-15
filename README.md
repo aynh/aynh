@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can catch a mouse that's shut in a cage. However, catching a mouse in a field is like trying to catch a cloud."
+> "Brilliant people shine more brightly than ordinary ones. They never regret or agonize over what they've done."
 
-&mdash; [**Beatrice**](https://myanimelist.net/character.php?q=Beatrice&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night: Unlimited Blade Works TV**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night%3A%20Unlimited%20Blade%20Works%20TV&cat=all)
