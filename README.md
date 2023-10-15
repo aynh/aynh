@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "First, we are born in the same galaxy. Born of the same species. Our lifetimes overlap. The meetings between humans are so unlikely as to be miraculous. To laugh, to cry, and to fall in love... Everyone is made up of a collection of 1% chances. Thus, I'm dazzled by the fact that there are so many miracles in this world."
+> "You don’t need something from someone else. What you need is to make your heart stronger. If you act naturally, people will naturally like you. And I’d like you more that way too."
 
-&mdash; [**Kou Ichinomiya**](https://myanimelist.net/character.php?q=Kou%20Ichinomiya&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
+&mdash; [**Yokodera Youto**](https://myanimelist.net/character.php?q=Yokodera%20Youto&cat=character), [**Hentai Ouji To Warawanai Neko**](https://myanimelist.net/search/all?q=Hentai%20Ouji%20To%20Warawanai%20Neko&cat=all)
