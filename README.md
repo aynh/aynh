@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Kenpachi Zaraki, after Tosen's senses-robbing Bankai still does not discourage the Eleventh Division Captain from fighting] I see. It's understandable. You are a demon. You belong in the darkness. So of course you do not fear it."
+> "You can catch a mouse that's shut in a cage. However, catching a mouse in a field is like trying to catch a cloud."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Beatrice**](https://myanimelist.net/character.php?q=Beatrice&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
