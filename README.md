@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nice speech, Azula! It was pretty and poetic, but also scary in a good way!"
+> "[to Kenpachi Zaraki, after Tosen's senses-robbing Bankai still does not discourage the Eleventh Division Captain from fighting] I see. It's understandable. You are a demon. You belong in the darkness. So of course you do not fear it."
 
-&mdash; [**Ty Lee**](https://myanimelist.net/character.php?q=Ty%20Lee&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
