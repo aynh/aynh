@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our contracts are completely dependent upon you agreeing to them first. I think that, in and of itself, is quite kind of us."
+> "Tests are a good thing. The knowledge gained from a night of cramming will be all but forgotten once you hit adulthood. And that's fine. The experience you gain through competition, having sharpened your skills and broadened your minds all under the same set of rules? That's the real treasure."
 
-&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
