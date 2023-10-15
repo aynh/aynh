@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think that what people who've committed crimes need isn't punishment, but rather the knowledge of the pain of being forgiven."
+> "Sympathy only gets people hurt."
 
-&mdash; [**Isogi Toshio**](https://myanimelist.net/character.php?q=Isogi%20Toshio&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Tsugumi**](https://myanimelist.net/character.php?q=Tsugumi&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
