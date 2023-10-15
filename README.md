@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yes, I have no reason to take part in the Absurd and Unreasonable real world."
+> "Our contracts are completely dependent upon you agreeing to them first. I think that, in and of itself, is quite kind of us."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
