@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I should use a cheerful joke to lighten the mood. Would you like a snack? Or, maybe I should snack on you instead?"
+> "The cold tears of a vampire, whose body is without warmth..."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Yuuki Natsuno**](https://myanimelist.net/character.php?q=Yuuki%20Natsuno&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
