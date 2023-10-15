@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Seek not beauty in battle. Seek not beauty in death. Consider not your own life. If you wish to protect that which must be protected, then strike while your opponent's back is turned."
+> "No matter how strong, for a human to fight a monster means he has submerged his humanity and transformed himself into a greater monster."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Schierke**](https://myanimelist.net/character.php?q=Schierke&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
