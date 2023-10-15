@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Brilliant people shine more brightly than ordinary ones. They never regret or agonize over what they've done."
+> "Yes, I have no reason to take part in the Absurd and Unreasonable real world."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night: Unlimited Blade Works TV**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night%3A%20Unlimited%20Blade%20Works%20TV&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
