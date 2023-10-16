@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They call me the 'demon child'."
+> "I can't lose against myself. There's no element that would make me lose if our powers are equal. To admit defeat against such an enemy is to declare that I'm wrong."
 
-&mdash; [**Nico Robin**](https://myanimelist.net/character.php?q=Nico%20Robin&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
