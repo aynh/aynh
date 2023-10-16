@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A skilled dictator is much more beneficial to humanity than a democracy of ignorant people."
+> "They say the tongue is the root of all misfortune."
 
-&mdash; [**Gene Smilas**](https://myanimelist.net/character.php?q=Gene%20Smilas&cat=character), [**Code Geass: Boukoku No Akito**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Boukoku%20No%20Akito&cat=all)
+&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
