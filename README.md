@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We cannot direct the wind, but we can adjust the sails."
+> "You vile beast. I despise you. You loathsome half man."
 
-&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
