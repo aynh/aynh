@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I like you. I came here to get rejected properly. To end this, so I can move forward. To make me convinced of this broken heart, I want to get rejected properly."
+> "New eras don't come about because of swords, they're created by the people who wield them."
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
