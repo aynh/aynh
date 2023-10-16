@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I'm not at my limit, means I'm not trying as hard as I can!"
+> "'Those who believe will be saved'. It's just that I wanted to find out whether you'll be saved if you believed. If such a thing were true, I feel like I can change myself too."
 
-&mdash; [**Naru**](https://myanimelist.net/character.php?q=Naru&cat=character), [**Girl Friends**](https://myanimelist.net/search/all?q=Girl%20Friends&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
