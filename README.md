@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If all life is so important, then the most evil of all beings on this earth are without a doubt humans. If there weren't any people on earth, the environment and conditions that all living things live in would be drastically better. Even if there were no school to teach us the stuff we know, it would still be obvious to everyone, wouldn't it? Just think of all that's happened to the earth due to our desires and ego."
+> "Everyone wants to think like this: 'It can't be helped if I lose against someone with talent'. Like that, be it consciously or unconsciously... People put a lid on their hearts. They want to protect their pride, self-esteem... or whatever."
 
-&mdash; [**Kai**](https://myanimelist.net/character.php?q=Kai&cat=character), [**Suicide Island**](https://myanimelist.net/search/all?q=Suicide%20Island&cat=all)
+&mdash; [**Jōichirō Yukihira**](https://myanimelist.net/character.php?q=J%C5%8Dichir%C5%8D%20Yukihira&cat=character), [**Shokugeki no Sōma**](https://myanimelist.net/search/all?q=Shokugeki%20no%20S%C5%8Dma&cat=all)
