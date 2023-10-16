@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yusuke Urameshi, age 14. Survived by his mom and everybody. After going through a big ordeal to get his life back, Yusuke had a brief second chance until he was eaten by a fish! That's right! No heroic death! No fighting evil villans! Fish food!"
+> "That is why I prefer using you two pistols. There is symmetry to wielding you two, right? (Getting aggravated) But when you two are in human form, your hairstyles and your heights are completely different... (Grabs their breasts) Even your cup sizes are completely different!"
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
