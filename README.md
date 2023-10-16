@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hinata, untie the ropes before you faint."
+> "They call me the 'demon child'."
 
-&mdash; [**Kiba Inuzuka**](https://myanimelist.net/character.php?q=Kiba%20Inuzuka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Nico Robin**](https://myanimelist.net/character.php?q=Nico%20Robin&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
