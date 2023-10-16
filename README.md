@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one's going to give you a map. You've got to walk your own path."
+> "No matter how ugly something is, if you look at it in a cute way, it'll seem dear somehow."
 
-&mdash; [**Hilda**](https://myanimelist.net/character.php?q=Hilda&cat=character), [**Outlaw Star**](https://myanimelist.net/search/all?q=Outlaw%20Star&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
