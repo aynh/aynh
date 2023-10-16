@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who try to step over someone else and go up higher... are actually only running away from some fear that they cannot see. Trying to step over someone is an cowardly action. It means you're not confident enough to face the opponent and speak to them with the same viewpoint. It doesn't matter how much power I have in me. By using that 'power' that's taking over you. I do not want to become such a cowardly person. I will fight and get hurt in order to survive...."
+> "I never wanted anybody to hate me. I don't belong to any groups, and I have to fight and struggle to build myself up. In the end, all I want is just to not be hated by everyone."
 
-&mdash; [**Twenty-Fifth Baam**](https://myanimelist.net/character.php?q=Twenty-Fifth%20Baam&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
+&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
