@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never wanted anybody to hate me. I don't belong to any groups, and I have to fight and struggle to build myself up. In the end, all I want is just to not be hated by everyone."
+> "Yusuke Urameshi, age 14. Survived by his mom and everybody. After going through a big ordeal to get his life back, Yusuke had a brief second chance until he was eaten by a fish! That's right! No heroic death! No fighting evil villans! Fish food!"
 
-&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
