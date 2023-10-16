@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you simply obey orders without question to protect your master, that isn't your greatest wish, but your greatest tragedy."
+> "Hinata, untie the ropes before you faint."
 
-&mdash; [**Jae-ha**](https://myanimelist.net/character.php?q=Jae-ha&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Kiba Inuzuka**](https://myanimelist.net/character.php?q=Kiba%20Inuzuka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
