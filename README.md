@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how strong, for a human to fight a monster means he has submerged his humanity and transformed himself into a greater monster."
+> "If you simply obey orders without question to protect your master, that isn't your greatest wish, but your greatest tragedy."
 
-&mdash; [**Schierke**](https://myanimelist.net/character.php?q=Schierke&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Jae-ha**](https://myanimelist.net/character.php?q=Jae-ha&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
