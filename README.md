@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no meaning if you win alone!"
+> "If anyone does not love the Lord Jesus Christ, let them be accursed at His coming. God save you from your fate. Amen!"
 
-&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
