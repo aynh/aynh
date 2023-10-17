@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The others taught me something. That one needn't fear the future. That one needn't hate the world. From now on, the world will not simply be my fantasy. It will be our one and only, real future."
+> "Yo...time to pay the piper rat boy...I'm here to collect"
 
-&mdash; [**Kozakura Marry**](https://myanimelist.net/character.php?q=Kozakura%20Marry&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
