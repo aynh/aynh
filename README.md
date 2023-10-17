@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not bad, for an early prototype."
+> "Wouldn't it be nice to have a strong mind, one that can get rid of the fear you feel?"
 
-&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Little Demon**](https://myanimelist.net/character.php?q=Little%20Demon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
