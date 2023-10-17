@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether it's disappointing or not depends on the person. Things like uneasiness or indecision are in everyone's lives. What's important is to appreciate and grow from every kind of result. If you can grow from them, you can understand that all events are for the purpose of growing and you can appreciate them."
+> "Love is not necessary, power is the only true necessity."
 
-&mdash; [**Coco**](https://myanimelist.net/character.php?q=Coco&cat=character), [**Toriko**](https://myanimelist.net/search/all?q=Toriko&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
