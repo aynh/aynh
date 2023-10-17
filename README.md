@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Where's the fun in it if everything is going just as planned?"
+> "The only one who should decide which path to follow is yourself."
 
-&mdash; [**Takeshi Tatsumi**](https://myanimelist.net/character.php?q=Takeshi%20Tatsumi&cat=character), [**Giant Killing**](https://myanimelist.net/search/all?q=Giant%20Killing&cat=all)
+&mdash; [**Zen Wistalia**](https://myanimelist.net/character.php?q=Zen%20Wistalia&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
