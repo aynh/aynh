@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know the truth of the battlefield? Kill a man normally, and it's considered a crime. But kill many on the battlefield and you become a hero!"
+> "Whether it's disappointing or not depends on the person. Things like uneasiness or indecision are in everyone's lives. What's important is to appreciate and grow from every kind of result. If you can grow from them, you can understand that all events are for the purpose of growing and you can appreciate them."
 
-&mdash; [**Luciano Bradley**](https://myanimelist.net/character.php?q=Luciano%20Bradley&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Coco**](https://myanimelist.net/character.php?q=Coco&cat=character), [**Toriko**](https://myanimelist.net/search/all?q=Toriko&cat=all)
