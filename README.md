@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to grant your own wish, then you should clear your own path to it."
+> "I'll ward off the water from above, can you handle the water on the ground? We'll work together, it's a good thing there are two of us here. This plan would be impossible alone. Quite an obstacle."
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
