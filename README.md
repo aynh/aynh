@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now watch closely, everyone. I'm going to show you how to kill a god. A god of life and death. The trick is not to fear him."
+> "Willpower alone isn't enough in battle."
 
-&mdash; [**Lady Eboshi**](https://myanimelist.net/character.php?q=Lady%20Eboshi&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
