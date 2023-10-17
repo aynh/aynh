@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yo...time to pay the piper rat boy...I'm here to collect"
+> "Listen, Haku. I don’t remember it, but my mom told me... Once, when I was little, I fell into a river. She said they’d drained it and built things on top. But I’ve just remembered. The river was called the Kohaku River. Your real name is... Kohaku."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Chihiro Ogino**](https://myanimelist.net/character.php?q=Chihiro%20Ogino&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
