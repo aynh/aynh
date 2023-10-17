@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The only one who should decide which path to follow is yourself."
+> "Now watch closely, everyone. I'm going to show you how to kill a god. A god of life and death. The trick is not to fear him."
 
-&mdash; [**Zen Wistalia**](https://myanimelist.net/character.php?q=Zen%20Wistalia&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
+&mdash; [**Lady Eboshi**](https://myanimelist.net/character.php?q=Lady%20Eboshi&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
