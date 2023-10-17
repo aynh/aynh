@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm watching a dream I'll never wake up from."
+> "Where's the fun in it if everything is going just as planned?"
 
-&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Takeshi Tatsumi**](https://myanimelist.net/character.php?q=Takeshi%20Tatsumi&cat=character), [**Giant Killing**](https://myanimelist.net/search/all?q=Giant%20Killing&cat=all)
