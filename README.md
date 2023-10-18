@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't care how pathetic or embarassing I look in front of everyone. My love for him...only that...is my bitter sweet treasure."
+> "We will have lost only the moment humans give up and stop fighting. As long as they keep on fighting, our defeat is not certain."
 
-&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Mike Zacharias**](https://myanimelist.net/character.php?q=Mike%20Zacharias&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
