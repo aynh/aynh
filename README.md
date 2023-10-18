@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Phones, the internet - having the means alone doesn't lead to communication."
+> "I didn't come here to fight! I came here to hack at you violently!"
 
-&mdash; [**Saitō-sensei**](https://myanimelist.net/character.php?q=Sait%C5%8D-sensei&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
