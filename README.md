@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who seek out the truth must not be arrogant. You must not laugh at miracles just because they cannot be explained scientifically. You must not turn away from the beauty of this world."
+> "You know, Okabe, whether time is slow or fast, depends on perception. Theory of relativity is so romantic."
 
-&mdash; [**Ichinose Kotomi**](https://myanimelist.net/character.php?q=Ichinose%20Kotomi&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
