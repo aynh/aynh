@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My name is Dracule Mihawk! Find your self, true world, become stronger! No matter how long it may take, I will wait for you in my strongest form! Surpass this sword! Surpass me! Roronoa Zoro!"
+> "I don't care how pathetic or embarassing I look in front of everyone. My love for him...only that...is my bitter sweet treasure."
 
-&mdash; [**Dracule Mihawk**](https://myanimelist.net/character.php?q=Dracule%20Mihawk&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
