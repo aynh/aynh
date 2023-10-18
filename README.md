@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We can't let the past be mere water under the bridge. Even so, there's no reason that we can't come together."
+> "You pansy! What kind of girly punch is that? I didn't even feel it! (to Kyo)"
 
-&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
