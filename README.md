@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen, girls like guys who are strong and can protect them. So if you keep working hard and get stronger, she just might like you back."
+> "*referring to Azula* She can shoot all the lightning she wants at me, I'm not going into that wall sludge juice. [shudders]"
 
-&mdash; [**Eina Tulle**](https://myanimelist.net/character.php?q=Eina%20Tulle&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
+&mdash; [**Mai**](https://myanimelist.net/character.php?q=Mai&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
