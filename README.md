@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fools who don't respect the past are likely to repeat it."
+> "Regardless of whether your friends believe, you still care for them, correct? Isn't that why you feel so sad?"
 
-&mdash; [**Nico Robin**](https://myanimelist.net/character.php?q=Nico%20Robin&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Harumi Sakuraba**](https://myanimelist.net/character.php?q=Harumi%20Sakuraba&cat=character), [**Rokujouma no Shinryakusha!?**](https://myanimelist.net/search/all?q=Rokujouma%20no%20Shinryakusha!%3F&cat=all)
