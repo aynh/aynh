@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, Okabe, whether time is slow or fast, depends on perception. Theory of relativity is so romantic."
+> "Phones, the internet - having the means alone doesn't lead to communication."
 
-&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Saitō-sensei**](https://myanimelist.net/character.php?q=Sait%C5%8D-sensei&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
