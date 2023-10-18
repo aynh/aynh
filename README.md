@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's time I started living my own life."
+> "A man, slave to gold, holds a whip...And beats the slave he bought with that gold as if to claim HE is the master. He just doesn't see it for himself. Every living human being is a slave to something"
 
-&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Askeladd**](https://myanimelist.net/character.php?q=Askeladd&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
