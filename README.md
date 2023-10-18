@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regardless of whether your friends believe, you still care for them, correct? Isn't that why you feel so sad?"
+> "Sometimes you must hurt in order to know, fall in order to grow, lose in order to gain because life's greatest lessons are learned through pain."
 
-&mdash; [**Harumi Sakuraba**](https://myanimelist.net/character.php?q=Harumi%20Sakuraba&cat=character), [**Rokujouma no Shinryakusha!?**](https://myanimelist.net/search/all?q=Rokujouma%20no%20Shinryakusha!%3F&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
