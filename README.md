@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans constantly feel pain in their hearts. Because the heart is so sensitive to pain, humans also feel that to live is to suffer."
+> "Fools who don't respect the past are likely to repeat it."
 
-&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Nico Robin**](https://myanimelist.net/character.php?q=Nico%20Robin&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
