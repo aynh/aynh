@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And without any buildup or fanfare, we now see Nagato Yuki. Even if she were ordinary, she sure doesn't look like a normal person and naturally, she was actually an evil magician. And an alien on top of that."
+> "To realize a mistake. To not lie. To love one another. To not kill. Those are very simple things, but these times won't allow for them. There is no green on this planet, even though we want it... though we want it so badly. A place where we can live peaceful days with no wars nor stealing. A sacred place where people can live as people. Yes there, that place is called Paradise."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
