@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Can you stop guessing if they got the question right based on the amount of time left when they cut to commercial!?"
+> "Can we really be proud of our own survival that's predicated on sacrificing our own? There lives aren't all we lose."
 
-&mdash; [**Kagami Hiiragi**](https://myanimelist.net/character.php?q=Kagami%20Hiiragi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
+&mdash; [**Ikoma**](https://myanimelist.net/character.php?q=Ikoma&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
