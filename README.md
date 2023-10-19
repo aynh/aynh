@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just give up already. Or do you want my other knife to slice your throat?"
+> "This scheme of yours is beneath me.  Should it fail, Jaken, you will die."
 
-&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
