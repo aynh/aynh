@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't know everything. I just know what I know."
+> "Do evil, get caught, then claim demons were brainwashing you. A common way that human politicians evade responsibility."
 
-&mdash; [**Tsubasa Hanekawa**](https://myanimelist.net/character.php?q=Tsubasa%20Hanekawa&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
