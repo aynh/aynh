@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When it comes to catching Spinda, we sure are the Winda!"
+> "I don't know everything. I just know what I know."
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Tsubasa Hanekawa**](https://myanimelist.net/character.php?q=Tsubasa%20Hanekawa&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
