@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Celebrations are more fun if there are more people."
+> "Just give up already. Or do you want my other knife to slice your throat?"
 
-&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
