@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was trying to take the easy way out by running away from everything. No matter the pain, I will keep living. So when I die, I'll feel I did the best I could."
+> "Besides, miracles don't exist in this world. There are only inevitabilities and accidents, and what you're going to do. That's it."
 
-&mdash; [**Koala**](https://myanimelist.net/character.php?q=Koala&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Himura Yuu**](https://myanimelist.net/character.php?q=Himura%20Yuu&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
