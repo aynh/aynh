@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The words you've said cannot be taken back. So you must take action to paint over what you have already said."
+> "As long as our love is stronger than the hatred within us, we can keep it sealed away."
 
-&mdash; [**Dyne Woodwonder**](https://myanimelist.net/character.php?q=Dyne%20Woodwonder&cat=character), [**Overlord**](https://myanimelist.net/search/all?q=Overlord&cat=all)
+&mdash; [**Yayoi Kanbara**](https://myanimelist.net/character.php?q=Yayoi%20Kanbara&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
