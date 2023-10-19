@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You never appreciate the irreplaceable things in life until they're gone. Like summer vacation... or brothers."
+> "When it comes to catching Spinda, we sure are the Winda!"
 
-&mdash; [**Umaru Doma**](https://myanimelist.net/character.php?q=Umaru%20Doma&cat=character), [**Himouto! Umaru-chan**](https://myanimelist.net/search/all?q=Himouto!%20Umaru-chan&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
