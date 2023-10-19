@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do evil, get caught, then claim demons were brainwashing you. A common way that human politicians evade responsibility."
+> "What's so fun about firing at targets that aren't moving?"
 
-&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
+&mdash; [**Yzak Joule**](https://myanimelist.net/character.php?q=Yzak%20Joule&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
