@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's nothing more satisfying than conquering all types of girls."
+> "'Obey the ones with power'. That's the true meaning of the law of the jungle. If you don't wish to be bound by that, obtain greater power. Because there's always times one must fight power with power."
 
-&mdash; [**Mikoto Mikoshiba**](https://myanimelist.net/character.php?q=Mikoto%20Mikoshiba&cat=character), [**Gekkan Shoujo Nozaki-kun**](https://myanimelist.net/search/all?q=Gekkan%20Shoujo%20Nozaki-kun&cat=all)
+&mdash; [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/character.php?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
