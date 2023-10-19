@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Different people have different perspective. So, I won’t deny the fact that some people are annoyed with the way I am. In exchange for those negative feelings, I just want to be the person that I am in love with the most."
+> "The words you've said cannot be taken back. So you must take action to paint over what you have already said."
 
-&mdash; [**Yuuri Makita**](https://myanimelist.net/character.php?q=Yuuri%20Makita&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Dyne Woodwonder**](https://myanimelist.net/character.php?q=Dyne%20Woodwonder&cat=character), [**Overlord**](https://myanimelist.net/search/all?q=Overlord&cat=all)
