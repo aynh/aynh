@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't exactly fight a war with a big smile on my face."
+> "You never appreciate the irreplaceable things in life until they're gone. Like summer vacation... or brothers."
 
-&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Umaru Doma**](https://myanimelist.net/character.php?q=Umaru%20Doma&cat=character), [**Himouto! Umaru-chan**](https://myanimelist.net/search/all?q=Himouto!%20Umaru-chan&cat=all)
