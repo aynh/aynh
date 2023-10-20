@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to run from your past, fine. But whatever you do, don't run away from your present or worse, your future."
+> "To climb a hill on a difficult road, you need to be walking steadily."
 
-&mdash; [**Kyohei Kadota**](https://myanimelist.net/character.php?q=Kyohei%20Kadota&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
