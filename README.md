@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's troublesome if the villain doesn't show their evil. Villains are necessary to make knights into heroes."
+> "You sure can talk the talk, but you're not quite ready to walk the walk. Time's up, it's my turn."
 
-&mdash; [**Helbram**](https://myanimelist.net/character.php?q=Helbram&cat=character), [**Nanatsu no Taizai**](https://myanimelist.net/search/all?q=Nanatsu%20no%20Taizai&cat=all)
+&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
