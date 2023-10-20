@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To climb a hill on a difficult road, you need to be walking steadily."
+> "Tomorrow's promise will never come. I wonder how many of tomorrow's promises have disappeared as though they have never existed."
 
-&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
