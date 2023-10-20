@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I described him in one word, it'd be di*k[beep]!"
+> "You'll discover that problems have a way of working themselves out if you talk to your friends."
 
-&mdash; [**Chika Akatsuki**](https://myanimelist.net/character.php?q=Chika%20Akatsuki&cat=character), [**Zombie-Loan**](https://myanimelist.net/search/all?q=Zombie-Loan&cat=all)
+&mdash; [**Ryuuzen Gotou**](https://myanimelist.net/character.php?q=Ryuuzen%20Gotou&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
