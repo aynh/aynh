@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To create something that appeals to the emotions of users, you need to make something that sways your own heart. You can't move others hearts, unless you can move your own."
+> "I'm scared. Or should I borrow your words and say this is exciting?"
 
-&mdash; [**Kazuki Fujisawa**](https://myanimelist.net/character.php?q=Kazuki%20Fujisawa&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Waver Velvet**](https://myanimelist.net/character.php?q=Waver%20Velvet&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
