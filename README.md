@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only those who have suffered long, can see the light within the shadows"
+> "I have a friend who has helped me realize something. He's helped me see that a Camellia does have a fragrance!"
 
-&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
