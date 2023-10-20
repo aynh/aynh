@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have a friend who has helped me realize something. He's helped me see that a Camellia does have a fragrance!"
+> "It may be better to go and regret it rather than staying here and regretting it. If you don’t move forward, you can’t gain anything."
 
-&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Futaki Kanata**](https://myanimelist.net/character.php?q=Futaki%20Kanata&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
