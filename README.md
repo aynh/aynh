@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Can we really be proud of our own survival that's predicated on sacrificing our own? There lives aren't all we lose."
+> "From the moment I first saw you, you’ve looked so sad. Your face shows so much pain. Your eyes were like mine. They looked so sad, so hurt, so lonely… as if you couldn’t stand it."
 
-&mdash; [**Ikoma**](https://myanimelist.net/character.php?q=Ikoma&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
+&mdash; [**Claymore**](https://myanimelist.net/character.php?q=Claymore&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
