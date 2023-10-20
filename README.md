@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Girls could never understand the passionate bonds that we men share. Male friendship is a bond that runs thicker than blood!"
+> "This is the impenetrable wall of Jericho third child. Take one step over this wall, and you will be a dead man."
 
-&mdash; [**Kiyotaka Ishimaru**](https://myanimelist.net/character.php?q=Kiyotaka%20Ishimaru&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Souryuu Asuka Langley**](https://myanimelist.net/character.php?q=Souryuu%20Asuka%20Langley&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
