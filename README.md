@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I do want to die. But I want to die happily. Like I have for others, I want someone to wave me off. My friends, my wife, and my children... Making them mourn for me, making them long for me, and leaving things that I should have done behind... That is how I want to die."
+> "Only those who have suffered long, can see the light within the shadows"
 
-&mdash; [**Hampnie Hambart**](https://myanimelist.net/character.php?q=Hampnie%20Hambart&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
+&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
