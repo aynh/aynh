@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There isn't just one truth out there, everyone carries their own form of it"
+> "Children aren't sweet or innocent. The weird ones are left unchecked. It's rare to find anyone you can trust!"
 
-&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Y**](https://myanimelist.net/character.php?q=Y&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
