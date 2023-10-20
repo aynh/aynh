@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I guess, as long as I have life, all I can do is fight with all my might."
+> "I do want to die. But I want to die happily. Like I have for others, I want someone to wave me off. My friends, my wife, and my children... Making them mourn for me, making them long for me, and leaving things that I should have done behind... That is how I want to die."
 
-&mdash; [**Subaru Natsuki**](https://myanimelist.net/character.php?q=Subaru%20Natsuki&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
+&mdash; [**Hampnie Hambart**](https://myanimelist.net/character.php?q=Hampnie%20Hambart&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
