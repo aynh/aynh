@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Children aren't sweet or innocent. The weird ones are left unchecked. It's rare to find anyone you can trust!"
+> "I'm gonna slit your stomach, take out your guts, and put them in a bowl. By the time I'm through with you, you're going to wish it was you who was dead."
 
-&mdash; [**Y**](https://myanimelist.net/character.php?q=Y&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
