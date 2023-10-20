@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You'll discover that problems have a way of working themselves out if you talk to your friends."
+> "There isn't just one truth out there, everyone carries their own form of it"
 
-&mdash; [**Ryuuzen Gotou**](https://myanimelist.net/character.php?q=Ryuuzen%20Gotou&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
