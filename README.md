@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm gonna slit your stomach, take out your guts, and put them in a bowl. By the time I'm through with you, you're going to wish it was you who was dead."
+> "If you want to run from your past, fine. But whatever you do, don't run away from your present or worse, your future."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Kyohei Kadota**](https://myanimelist.net/character.php?q=Kyohei%20Kadota&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
