@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At night the moon shines with daylight. Our dreams are an ocean… each wave is the dream of an individual. The tide is controlled by the pull of the moon… it illuminates our dreams. If you open the moon, you will discover the path to dreams. When one finds death, they are submerged in the ocean of dreams. At the end of life’s path is a door that leads us to this ocean. Our dreams transcend the self to reach this sea… connecting us all within its lunar tide."
+> "That is why I prefer using you two pistols. There is symmetry to wielding you two, right? (Getting aggravated) But when you two are in human form, your hairstyles and your heights are completely different... (Grabs their breasts) Even your cup sizes are completely different!"
 
-&mdash; [**Gen Fudou**](https://myanimelist.net/character.php?q=Gen%20Fudou&cat=character), [**Sousei no Aquarion**](https://myanimelist.net/search/all?q=Sousei%20no%20Aquarion&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
