@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to see and understand the world outside. I don't want to die inside these walls without knowing what's out there!"
+> "Without strength, you won't be able to save anyone."
 
-&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Kizaru**](https://myanimelist.net/character.php?q=Kizaru&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
