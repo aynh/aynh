@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'My heart controls the world.' But who can I control if I'm the only one living in this world?"
+> "I want to see and understand the world outside. I don't want to die inside these walls without knowing what's out there!"
 
-&mdash; [**Yuyuka Nekota**](https://myanimelist.net/character.php?q=Yuyuka%20Nekota&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
