@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What you speak of at greatest length is what interests you the most."
+> "True beauty lies in things that last forever, never rotting or fading."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Sasori**](https://myanimelist.net/character.php?q=Sasori&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
