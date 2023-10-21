@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wasn’t scared that I’d be rejected, I was scared that if I said how I felt, all of our relationships would change."
+> "I always say what exactly what I'm feeling, and if they don't like me, that's fine! It doesn't change the fact that I was close to their hearts."
 
-&mdash; [**Chisaki Hiradaira**](https://myanimelist.net/character.php?q=Chisaki%20Hiradaira&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
+&mdash; [**Konno Yuuki**](https://myanimelist.net/character.php?q=Konno%20Yuuki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
