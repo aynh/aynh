@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A hero must be tough, strong and beautiful... As well as able to promptly and splendidly eradicate evil."
+> "I always cursed my own life. The anxiety, anger and hatred I couldn't suppress. However, when I stopped to look at the sky... I realized just how small I am. There is an endless world spreading before me."
 
-&mdash; [**Sweet Mask**](https://myanimelist.net/character.php?q=Sweet%20Mask&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Ultear Milkovich**](https://myanimelist.net/character.php?q=Ultear%20Milkovich&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
