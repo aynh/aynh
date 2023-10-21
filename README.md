@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you have your reasons and there are things you can't tell me, no matter what, I'm on your side."
+> "A hero must be tough, strong and beautiful... As well as able to promptly and splendidly eradicate evil."
 
-&mdash; [**Historia Reiss**](https://myanimelist.net/character.php?q=Historia%20Reiss&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Sweet Mask**](https://myanimelist.net/character.php?q=Sweet%20Mask&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
