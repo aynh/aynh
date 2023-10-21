@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "True beauty lies in things that last forever, never rotting or fading."
+> "You won't survive if you just let your boiling blood dictate your actions."
 
-&mdash; [**Sasori**](https://myanimelist.net/character.php?q=Sasori&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Bulat**](https://myanimelist.net/character.php?q=Bulat&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
