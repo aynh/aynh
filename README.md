@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the drive behind one's actions is the thought for another, then it is never meaningless."
+> "You can't see the whole picture until you look at it from the outside."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Trafalgar Law**](https://myanimelist.net/character.php?q=Trafalgar%20Law&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
