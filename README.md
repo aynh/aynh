@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Without strength, you won't be able to save anyone."
+> "I wasn’t scared that I’d be rejected, I was scared that if I said how I felt, all of our relationships would change."
 
-&mdash; [**Kizaru**](https://myanimelist.net/character.php?q=Kizaru&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Chisaki Hiradaira**](https://myanimelist.net/character.php?q=Chisaki%20Hiradaira&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
