@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone thinks at some point if what they are doing has any meaning or not. Will the day come when I get what's coming to me, or not? How much influence does my existence have on the world at all, or doesn't it?"
+> "A conscience grows, just like the body. It's bred within your heart. That's why the shape of people's kindness is so different."
 
-&mdash; [**William Macbeth**](https://myanimelist.net/character.php?q=William%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
