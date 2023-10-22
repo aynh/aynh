@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They'll learn that a man without reason is no different from an animal who defecates wherever it pleases."
+> "Seriously, enslavement is funny..."
 
-&mdash; [**Marlowe Sand**](https://myanimelist.net/character.php?q=Marlowe%20Sand&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
