@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[clenches Fist] No matter how intelligent or how strong they are still nothing but vampire trash."
+> "Loneliness is a sickness that leads to death."
 
-&mdash; [**Integra Hellsing**](https://myanimelist.net/character.php?q=Integra%20Hellsing&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
