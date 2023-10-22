@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Athrun] What is it you believe in? What is it you're fighting for now? Is it for that medal you received? Or your father's orders?"
+> "[clenches Fist] No matter how intelligent or how strong they are still nothing but vampire trash."
 
-&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Integra Hellsing**](https://myanimelist.net/character.php?q=Integra%20Hellsing&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
