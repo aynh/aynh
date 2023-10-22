@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't remember saying that I would kill you because I'm a Soul Reaper. The reason I am killing you is simple. It's because you aimed your blade at my only pride."
+> "If you can never get angry at anything, that probably means you have nothing that you like, either."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
