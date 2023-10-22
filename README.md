@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The day before yesterday, I saw a rabbit. Yesterday, it was a deer. And today, it’s you."
+> "Fail to strike the enemy once you know their location, and it'll be too late to even regret having missed the chance."
 
-&mdash; [**Ichinose Kotomi**](https://myanimelist.net/character.php?q=Ichinose%20Kotomi&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
