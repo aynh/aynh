@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Without you, all my plans are suddenly possible. I have a vision for the future, Roku."
+> "What takes reason a hundred years to build a bridge to only takes the wings of faith a single night to reach."
 
-&mdash; [**Sozin**](https://myanimelist.net/character.php?q=Sozin&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
