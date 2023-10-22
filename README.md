@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It may be hard right now... But you must silence those thoughts! Stop counting only those things that you have lost! What is gone, is gone! So ask yourself this: What is there... that still remains to you?!"
+> "The day before yesterday, I saw a rabbit. Yesterday, it was a deer. And today, it’s you."
 
-&mdash; [**Jinbei**](https://myanimelist.net/character.php?q=Jinbei&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Ichinose Kotomi**](https://myanimelist.net/character.php?q=Ichinose%20Kotomi&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
