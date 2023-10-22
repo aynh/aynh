@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fail to strike the enemy once you know their location, and it'll be too late to even regret having missed the chance."
+> "If you wanna climb a mountain, you obviously aim for the top, but you gotta enjoy the scenery too."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
