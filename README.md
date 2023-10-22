@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My name is VASH THE STAMPEDE!! Forgive the lack of warning, but it's time for my daily massacre! If you do not believe I am the real thing, take a good look at me and start freaking out!!"
+> "They'll learn that a man without reason is no different from an animal who defecates wherever it pleases."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Marlowe Sand**](https://myanimelist.net/character.php?q=Marlowe%20Sand&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
