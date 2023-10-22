@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Total victory is scoring an easy win by doing what you always do."
+> "Without you, all my plans are suddenly possible. I have a vision for the future, Roku."
 
-&mdash; [**Karma Akabane**](https://myanimelist.net/character.php?q=Karma%20Akabane&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Sozin**](https://myanimelist.net/character.php?q=Sozin&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
