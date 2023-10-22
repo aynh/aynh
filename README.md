@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You won't survive if you just let your boiling blood dictate your actions."
+> "Neither one nor the other, not a demon, but not a human either, no place no belong… I thought the only way was to carve out your own place, by force; that’s how I survived. And by the time I knew what was happening, I was all alone…"
 
-&mdash; [**Bulat**](https://myanimelist.net/character.php?q=Bulat&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
