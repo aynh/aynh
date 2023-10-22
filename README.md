@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't worry fool, we've entered into an alliance and I'm not the type to break it. Of course, after we win the tournament I can't guarantee anything."
+> "People are beings where a love of what's right goes hand in hand with a desire to do all manner of evil acts."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Yuuki Shinjuurou**](https://myanimelist.net/character.php?q=Yuuki%20Shinjuurou&cat=character), [**Un-Go**](https://myanimelist.net/search/all?q=Un-Go&cat=all)
