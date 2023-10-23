@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, it's necessary to look back at the past in order to move on to the future."
+> "The moment a soldier dons his uniform, he accepts that he might be buried in it."
 
-&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
