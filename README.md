@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you keep saving butterflies, spiders will starve to death! But... wanting to save them both is a contradiction. What would you rather do? Keep deliberating? The butterfly will be eaten in the meantime."
+> "If sorry could solve anything, we wouldn't have a need for the police."
 
-&mdash; [**Millions Knives**](https://myanimelist.net/character.php?q=Millions%20Knives&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Hiruma Youichi**](https://myanimelist.net/character.php?q=Hiruma%20Youichi&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
