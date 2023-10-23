@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A garden retains its beauty as long as it is tended to and cared for. Life in general, is the same. Once it becomes pretty, it mustn't go back to being the primitive mess it started out as."
+> "The Devil's finest trick is to persuade you that he does not exist."
 
-&mdash; [**Kotori Kanbe**](https://myanimelist.net/character.php?q=Kotori%20Kanbe&cat=character), [**Rewrite**](https://myanimelist.net/search/all?q=Rewrite&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
