@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm so stupid. At that time, I thought I could escape. I thought I'd be taken somewhere out of this world. I got my hopes up a little. But that's impossible isn't it? I'm not playing by the rules. As if anyone would just take me away when I wanted them to. I'm so stupid."
+> "That, I don't want to do. You may feel that I'm currently an abnormal Nagato Yuki. That judgement is correct. But I myself cannot accept that I am abnormal... because if I do, I'll become alone. I was scared, so I tried to hide it."
 
-&mdash; [**Mishima Lisa**](https://myanimelist.net/character.php?q=Mishima%20Lisa&cat=character), [**Terror in Resonance**](https://myanimelist.net/search/all?q=Terror%20in%20Resonance&cat=all)
+&mdash; [**Yuki Nagato**](https://myanimelist.net/character.php?q=Yuki%20Nagato&cat=character), [**The Disappearance of Nagato Yuki-chan**](https://myanimelist.net/search/all?q=The%20Disappearance%20of%20Nagato%20Yuki-chan&cat=all)
