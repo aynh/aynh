@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If sorry could solve anything, we wouldn't have a need for the police."
+> "Sometimes, it's necessary to look back at the past in order to move on to the future."
 
-&mdash; [**Hiruma Youichi**](https://myanimelist.net/character.php?q=Hiruma%20Youichi&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
+&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
