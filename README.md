@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That, I don't want to do. You may feel that I'm currently an abnormal Nagato Yuki. That judgement is correct. But I myself cannot accept that I am abnormal... because if I do, I'll become alone. I was scared, so I tried to hide it."
+> "Broken promises, regardless of how horrid transform into rage that stinks to the ocean floor. Through those bonds, we're drawn together countless times."
 
-&mdash; [**Yuki Nagato**](https://myanimelist.net/character.php?q=Yuki%20Nagato&cat=character), [**The Disappearance of Nagato Yuki-chan**](https://myanimelist.net/search/all?q=The%20Disappearance%20of%20Nagato%20Yuki-chan&cat=all)
+&mdash; [**Narumi Fujishima**](https://myanimelist.net/character.php?q=Narumi%20Fujishima&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
