@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't have to be reasonable when you're in love."
+> "A garden retains its beauty as long as it is tended to and cared for. Life in general, is the same. Once it becomes pretty, it mustn't go back to being the primitive mess it started out as."
 
-&mdash; [**Emi Yusa**](https://myanimelist.net/character.php?q=Emi%20Yusa&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
+&mdash; [**Kotori Kanbe**](https://myanimelist.net/character.php?q=Kotori%20Kanbe&cat=character), [**Rewrite**](https://myanimelist.net/search/all?q=Rewrite&cat=all)
