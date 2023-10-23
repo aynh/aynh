@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't give up! There's no shame in falling down! True shame is to not stand up again!"
+> "There was no place for me, so I had to make one for myself, and then I realized, I had a place, but I was the only one in it. I didn't know any other way to live."
 
-&mdash; [**Midorima Shintarou**](https://myanimelist.net/character.php?q=Midorima%20Shintarou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
