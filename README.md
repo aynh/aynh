@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The Devil's finest trick is to persuade you that he does not exist."
+> "I'm so stupid. At that time, I thought I could escape. I thought I'd be taken somewhere out of this world. I got my hopes up a little. But that's impossible isn't it? I'm not playing by the rules. As if anyone would just take me away when I wanted them to. I'm so stupid."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Mishima Lisa**](https://myanimelist.net/character.php?q=Mishima%20Lisa&cat=character), [**Terror in Resonance**](https://myanimelist.net/search/all?q=Terror%20in%20Resonance&cat=all)
