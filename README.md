@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don’t hesitate to cut the enemy. Don’t falter to finish them off. Much less heal their wounds. That’s unspeakable, nino. Leave the chocolate here. Become a demon, nino. As strong as a demon. As wicked as a demon. You have to learn that the only way to stand up against ruthlessness, is to become ruthless yourself."
+> "Well, dying for honor isn't such a bad thing. Because it's hard to survive and live in misery."
 
-&mdash; [**Dordonii Alessandro Del Socacchio**](https://myanimelist.net/character.php?q=Dordonii%20Alessandro%20Del%20Socacchio&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kouichirou Marito**](https://myanimelist.net/character.php?q=Kouichirou%20Marito&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
