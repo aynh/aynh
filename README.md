@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll do what I can, because I'm desperate."
+> "Mom taught me that people's differences are something to celebrate. When I thought of all the different shapes of human kindness -- imagining them as round or square...I got really excited. Your kindness is like a candle Sohma-kun. I can feel it light up, and I just want to smile. It's that kind of kindness."
 
-&mdash; [**Kai Miyagusuku**](https://myanimelist.net/character.php?q=Kai%20Miyagusuku&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
