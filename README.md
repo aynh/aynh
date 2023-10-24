@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mom taught me that people's differences are something to celebrate. When I thought of all the different shapes of human kindness -- imagining them as round or square...I got really excited. Your kindness is like a candle Sohma-kun. I can feel it light up, and I just want to smile. It's that kind of kindness."
+> "Well, who you love depends on the person. Isn't everything fine as long as it's someone who's fun to be with? Being with someone doesn't require any permission as long as the two people accept each other. If you worry about your parents or your family, then you lose. Don't forget that. You can't go out with someone with incomplete feelings."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Ushiromiya Battler**](https://myanimelist.net/character.php?q=Ushiromiya%20Battler&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
