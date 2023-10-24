@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At times, the truth can be cruel."
+> "Love is brightest in the dark."
 
-&mdash; [**Shin Fukuhara**](https://myanimelist.net/character.php?q=Shin%20Fukuhara&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
