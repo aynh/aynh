@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You men. All of you, you're horrible. Cheating on every woman. But you, you I actually decided to trust. I put my faith in you. I can't believe this. I wish that all of you would just die!"
+> "There's no shortcut to victory. You have to climb that steep mountain one step at a time. There's an abyss down below and it never ends. Your only choice is to keep climbing!"
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ryuuichi Kazama**](https://myanimelist.net/character.php?q=Ryuuichi%20Kazama&cat=character), [**Ping Pong The Animation**](https://myanimelist.net/search/all?q=Ping%20Pong%20The%20Animation&cat=all)
