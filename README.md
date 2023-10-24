@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no shortcut to victory. You have to climb that steep mountain one step at a time. There's an abyss down below and it never ends. Your only choice is to keep climbing!"
+> "Don’t hesitate to cut the enemy. Don’t falter to finish them off. Much less heal their wounds. That’s unspeakable, nino. Leave the chocolate here. Become a demon, nino. As strong as a demon. As wicked as a demon. You have to learn that the only way to stand up against ruthlessness, is to become ruthless yourself."
 
-&mdash; [**Ryuuichi Kazama**](https://myanimelist.net/character.php?q=Ryuuichi%20Kazama&cat=character), [**Ping Pong The Animation**](https://myanimelist.net/search/all?q=Ping%20Pong%20The%20Animation&cat=all)
+&mdash; [**Dordonii Alessandro Del Socacchio**](https://myanimelist.net/character.php?q=Dordonii%20Alessandro%20Del%20Socacchio&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
