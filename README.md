@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop pitying yourself. Pity yourself, and life becomes an endless nightmare."
+> "Humans cannot reject temptation. When they are plunged into the depths of despair, likened to hell, they will hold on to anything that may help them escape from the situation they are in, even if it's merely a spider's thread, no matter what sort of humans they are."
 
-&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
