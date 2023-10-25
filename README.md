@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment you say a word of parting, you've already parted. So long as you and I are both somewhere in this world, we haven’t parted. So long as you don’t say it, you haven’t parted."
+> "What's wrong with wanting to keep the man you love out of harm's way?"
 
-&mdash; [**Satone Shichimiya**](https://myanimelist.net/character.php?q=Satone%20Shichimiya&cat=character), [**Chuunibyou Demo Koi Ga Shitai!**](https://myanimelist.net/search/all?q=Chuunibyou%20Demo%20Koi%20Ga%20Shitai!&cat=all)
+&mdash; [**Hakaze Kusaribe**](https://myanimelist.net/character.php?q=Hakaze%20Kusaribe&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
