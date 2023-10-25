@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Any harm that comes to me because of you is harm that I need. I want to share your pain. So I want you to let me fight. With you."
+> "I don't want other people to mention my 'self'. Besides, if I can be changed with a few words, then that wouldn't be my 'self', would it?"
 
-&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
