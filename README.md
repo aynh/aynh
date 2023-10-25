@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[in front of an execution squad] I don't give a rat's ass about going to hell. Guess I feel like I'm already there. What I do mind is the thought of being killed by you ugly bastards. I've gone my whole life without being helped by anyone else, and I'll be damned if I'm gonna let you help me into my grave."
+> "There are many different ways to solve a problem. But once it's solved, we must live our lives. Which means we should choose not the simplest solution, but the one that will allow us to feel the most at peace once it's done."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
