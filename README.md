@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are many different ways to solve a problem. But once it's solved, we must live our lives. Which means we should choose not the simplest solution, but the one that will allow us to feel the most at peace once it's done."
+> "That is why I prefer using you two pistols. There is symmetry to wielding you two, right? (Getting aggravated) But when you two are in human form, your hairstyles and your heights are completely different... (Grabs their breasts) Even your cup sizes are completely different!"
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
