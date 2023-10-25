@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I feel like I'm watching a sitcom."
+> "I want to become a man who treasures his friends."
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Rogue Cheney**](https://myanimelist.net/character.php?q=Rogue%20Cheney&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
