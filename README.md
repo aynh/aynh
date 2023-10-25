@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ah, Kurosaki. I'm glad to see you've finally realized the importance of a cape."
+> "Please don't tell people our bakery's motorbike ran you over."
 
-&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Haruko Haruhara**](https://myanimelist.net/character.php?q=Haruko%20Haruhara&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
