@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm sure it's not wrong for people to want to understand each other. And even if it is, I want us to understand each other."
+> "Ah, Kurosaki. I'm glad to see you've finally realized the importance of a cape."
 
-&mdash; [**Chiyuki**](https://myanimelist.net/character.php?q=Chiyuki&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
