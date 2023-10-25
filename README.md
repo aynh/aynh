@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Please don't tell people our bakery's motorbike ran you over."
+> "I feel like I'm watching a sitcom."
 
-&mdash; [**Haruko Haruhara**](https://myanimelist.net/character.php?q=Haruko%20Haruhara&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
