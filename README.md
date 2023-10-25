@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Risking my life for European politics would make me grassy!"
+> "You have gone and taken all those lives, and not even because you were thirsty! Is it fun... Huh! Is that what it takes for filth like you to get off..? Cheap little two bit terrors."
 
-&mdash; [**Poland**](https://myanimelist.net/character.php?q=Poland&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
