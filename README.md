@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as it's for the right cause, there's nothing wrong with playing dirty."
+> "Risking my life for European politics would make me grassy!"
 
-&mdash; [**Kureo Mado**](https://myanimelist.net/character.php?q=Kureo%20Mado&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Poland**](https://myanimelist.net/character.php?q=Poland&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
