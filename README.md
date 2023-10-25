@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to become a man who treasures his friends."
+> "As long as it's for the right cause, there's nothing wrong with playing dirty."
 
-&mdash; [**Rogue Cheney**](https://myanimelist.net/character.php?q=Rogue%20Cheney&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kureo Mado**](https://myanimelist.net/character.php?q=Kureo%20Mado&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
