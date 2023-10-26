@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One victory greedily demands the next set of victories from the victor, until his death."
+> "Destiny is what you create with your own will."
 
-&mdash; [**Legend of the Galactic Heroes**](https://myanimelist.net/character.php?q=Legend%20of%20the%20Galactic%20Heroes&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Shinguji Sakura**](https://myanimelist.net/character.php?q=Shinguji%20Sakura&cat=character), [**Sakura Taisen**](https://myanimelist.net/search/all?q=Sakura%20Taisen&cat=all)
