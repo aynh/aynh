@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being alive...is a sign of strength!"
+> "My name is Krad. But you do not have to remember it, because here you will die."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Krad**](https://myanimelist.net/character.php?q=Krad&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
