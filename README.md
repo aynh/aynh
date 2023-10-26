@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you feel the ends justify the means, how does that make you different from us demons, exactly?"
+> "I never feel more human than when I'm fighting real monsters."
 
-&mdash; [**Maou Sadao**](https://myanimelist.net/character.php?q=Maou%20Sadao&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
