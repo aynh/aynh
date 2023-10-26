@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look what happens when you're not fast enough! You get CUT! It's more fun when it hurts a little bit though, isn't it?"
+> "Readers betray their authors."
 
-&mdash; [**Grell Sutcliff**](https://myanimelist.net/character.php?q=Grell%20Sutcliff&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Miu Asakura**](https://myanimelist.net/character.php?q=Miu%20Asakura&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
