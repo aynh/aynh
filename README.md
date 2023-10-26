@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how small the problem is, how small the thing is, it always affects the people around you."
+> "Don’t give up! There’s no shame in falling down! True shame is to not stand up again!"
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Midorima Shintarou**](https://myanimelist.net/character.php?q=Midorima%20Shintarou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
