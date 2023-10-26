@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this crazy-ass world, there's no point in playing the blame game."
+> "Look what happens when you're not fast enough! You get CUT! It's more fun when it hurts a little bit though, isn't it?"
 
-&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Grell Sutcliff**](https://myanimelist.net/character.php?q=Grell%20Sutcliff&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
