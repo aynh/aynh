@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Incomprehensibility is a part of human life. But what does this mean? I just can't understand it."
+> "If you don't hold any regret in your choice, that means you must've made the right decision."
 
-&mdash; [**Graham Specter**](https://myanimelist.net/character.php?q=Graham%20Specter&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Yūzan Yoshida**](https://myanimelist.net/character.php?q=Y%C5%ABzan%20Yoshida&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
