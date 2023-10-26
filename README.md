@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "....Would you consider dying together 'Teamwork' as well?"
+> "He turned a room full of strangers into a room full of enemies with just one sentence."
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
