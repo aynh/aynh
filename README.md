@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "With Roku gone and the Great Comet returning, the timing was perfect to change the world. I knew the next Avatar would be born an Air Nomad so I wiped out the Air Temples, but somehow the new Avatar eluded me. I wasted the remainder of my life searching in vain. I know he's hiding out there somewhere: the Fire Nation's greatest threat, the last Airbender."
+> "Being alive...is a sign of strength!"
 
-&mdash; [**Sozin**](https://myanimelist.net/character.php?q=Sozin&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
