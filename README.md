@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't hold any regret in your choice, that means you must've made the right decision."
+> "No matter how small the problem is, how small the thing is, it always affects the people around you."
 
-&mdash; [**Yūzan Yoshida**](https://myanimelist.net/character.php?q=Y%C5%ABzan%20Yoshida&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
