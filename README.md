@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He turned a room full of strangers into a room full of enemies with just one sentence."
+> "Incomprehensibility is a part of human life. But what does this mean? I just can't understand it."
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Graham Specter**](https://myanimelist.net/character.php?q=Graham%20Specter&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
