@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Come on now. Is that anyway to talk to your new boss, landlord, and all-around overseer?"
+> "My hands can cultivate the earth. They can plant trees and sow seeds. They can even carry the manager. But will I ever be able to make her smile like that?"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Ryōsuke Hazuki**](https://myanimelist.net/character.php?q=Ry%C5%8Dsuke%20Hazuki&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
