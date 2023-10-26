@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Destiny is what you create with your own will."
+> "If you feel the ends justify the means, how does that make you different from us demons, exactly?"
 
-&mdash; [**Shinguji Sakura**](https://myanimelist.net/character.php?q=Shinguji%20Sakura&cat=character), [**Sakura Taisen**](https://myanimelist.net/search/all?q=Sakura%20Taisen&cat=all)
+&mdash; [**Maou Sadao**](https://myanimelist.net/character.php?q=Maou%20Sadao&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
