@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There was no reason for me to stay in the real world any longer. In the real world, it didn't matter if I was there or not. When I realized that, I was no longer afraid of losing my body."
+> "If anybody's out there, you can come out. And if you're a monster or a ghost, you can stay where you are, and we won't bother you."
 
-&mdash; [**Chisa Yomoda**](https://myanimelist.net/character.php?q=Chisa%20Yomoda&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
