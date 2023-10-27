@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how much is in your heart, if you don’t tell that person, then it’s meaningless."
+> "Sometimes good people make bad choices. It doesn't mean they are bad people. It means they're human."
 
-&mdash; [**Junjou Romantica**](https://myanimelist.net/character.php?q=Junjou%20Romantica&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Kishou Arima**](https://myanimelist.net/character.php?q=Kishou%20Arima&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
