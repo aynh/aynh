@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes good people make bad choices. It doesn't mean they are bad people. It means they're human."
+> "Everyone has their own talents, and strong wills that won't lose to anyone else."
 
-&mdash; [**Kishou Arima**](https://myanimelist.net/character.php?q=Kishou%20Arima&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
