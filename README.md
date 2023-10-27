@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how cold and distant people may become, on the inside something warm and precious always remains, something that never changes. To me, that’s what family is like."
+> "Trunks, I never hugged you as a baby… let me hug you."
 
-&mdash; [**Sakagami Tomoyo**](https://myanimelist.net/character.php?q=Sakagami%20Tomoyo&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
