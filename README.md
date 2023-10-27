@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who cares about snow? Snow can't touch me, I could be naked out here and it wouldn't bother me at all."
+> "Our relationship has already been formed. No matter how trivial a meeting and the incidents that follow may seem, a relationship is made. Even if it is just for a short amount of time, a knot that has been tied does not unravel. It means that during your lifetime, every incident that passes has meaning. The meeting between you and I also has meaning, so remember it."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
