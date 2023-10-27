@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you think it's possible to send Flame Alchemy through the phone and burn someones ears off?"
+> "I think the only time people really have value is when they act according to their own will."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
