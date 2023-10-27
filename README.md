@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You taught me what it means to love, and for that I will be eternally grateful."
+> "A poor choice seals our fate."
 
-&mdash; [**Gajeel Redfox**](https://myanimelist.net/character.php?q=Gajeel%20Redfox&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
