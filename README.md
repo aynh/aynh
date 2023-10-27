@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trunks, I never hugged you as a baby… let me hug you."
+> "Who cares about snow? Snow can't touch me, I could be naked out here and it wouldn't bother me at all."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
