@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But that's enough. If there is overwhelming power and speed, there is no room for technique. Techniques are something humans invented to compensate for their weaknesses."
+> "I would rather be a brainless monkey than a heartless monster."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Goku**](https://myanimelist.net/character.php?q=Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
