@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The final curtain falls at the very moment a person gives up."
+> "You taught me what it means to love, and for that I will be eternally grateful."
 
-&mdash; [**Miwa Ichigen**](https://myanimelist.net/character.php?q=Miwa%20Ichigen&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
+&mdash; [**Gajeel Redfox**](https://myanimelist.net/character.php?q=Gajeel%20Redfox&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
