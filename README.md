@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are only two times when a man can cry in public: when he loses his wallet and when his mother dies. And even if you cry in private, there's a severe restriction. Shed tears for others. The only thing you should be shedding for yourself is sweat. Remember that."
+> "Because my time is limited, I don't have any time to waste hesitating. That is why I can walk straight ahead. That is why I never stop."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Rosette Christopher**](https://myanimelist.net/character.php?q=Rosette%20Christopher&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
