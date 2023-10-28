@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just killing time until the world ends."
+> "Kindness is weakness. Your weakness will delay the trigger by a moment. This world doesn't treat kindness kindly."
 
-&mdash; [**Furude Rika**](https://myanimelist.net/character.php?q=Furude%20Rika&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
+&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
