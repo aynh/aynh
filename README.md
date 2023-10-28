@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The subtle light that is born when people's feelings come together. That light embraces felicity, evil, sin, and happiness. The light blazes forth... illuminating the whole truth."
+> "No, she's hiding something. But what could it be? Snacks? Guitar? Wait, maybe ton-chan."
 
-&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Sawako Yamanaka**](https://myanimelist.net/character.php?q=Sawako%20Yamanaka&cat=character), [**K-ON!**](https://myanimelist.net/search/all?q=K-ON!&cat=all)
