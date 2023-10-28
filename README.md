@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Choosing another way of life means throwing away all you've done so far and becoming a new self..."
+> "[to Sesshoumaru after he steals the Tetsuaiga] Blah, blah, blah. A guy gets his hands on a new sword, and already he's lookin' for a soap box to stand on and preach it to the world!"
 
-&mdash; [**Konan**](https://myanimelist.net/character.php?q=Konan&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
