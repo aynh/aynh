@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate perfection. To be perfect is to be unable to improve any further."
+> "In essence, language accounts for a mere 30% of human communication. The other 70% is made up of information collected from eye movements and other body language. With that, even a loner who never takes part in conversation can pull off 70% of what we consider communication."
 
-&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
