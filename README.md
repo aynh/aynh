@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No, she's hiding something. But what could it be? Snacks? Guitar? Wait, maybe ton-chan."
+> "But I have a fear stronger than the fear of losing. It's the fear of boredom. I fear those days full of boredom."
 
-&mdash; [**Sawako Yamanaka**](https://myanimelist.net/character.php?q=Sawako%20Yamanaka&cat=character), [**K-ON!**](https://myanimelist.net/search/all?q=K-ON!&cat=all)
+&mdash; [**Berserker**](https://myanimelist.net/character.php?q=Berserker&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
