@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as no one got hurt, it's all good. Who cares who saved who?"
+> "I hate perfection. To be perfect is to be unable to improve any further."
 
-&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
