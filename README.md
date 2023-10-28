@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kindness is weakness. Your weakness will delay the trigger by a moment. This world doesn't treat kindness kindly."
+> "Life is all about 'selection'. There's no such thing as a life of being pushed around by circumstances or a life of doing as one is told.  It is you who selected to be 'swept along'"
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Gin Kurobe**](https://myanimelist.net/character.php?q=Gin%20Kurobe&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
