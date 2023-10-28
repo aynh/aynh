@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we had spent more time together, maybe I would have seen another side of him. I wish I knew him more. I wish I knew more about what kind of person he was. I wanted more time. If we had more time, we would've gone through things together. Maybe we would've gotten annoyed at each other and fight. Maybe we would've disliked each other, or liked each other more."
+> "What do you know of death?!! Have you ever died?!! You think death will preserve your cause forever?!! Ridiculous!! Death leaves nothing behind!! Once a person passes on, nothing remains but dead bones!! If there is one thing I can’t stand, it is a person with no respect for life!!"
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
