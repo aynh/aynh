@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not whether you can or not. You just do it."
+> "I just want to relieve my sexual frustrations. All I feel towards a cat eared high school girl in her underwear... is lust."
 
-&mdash; [**Kitahara Haruki**](https://myanimelist.net/character.php?q=Kitahara%20Haruki&cat=character), [**White Album 2**](https://myanimelist.net/search/all?q=White%20Album%202&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
