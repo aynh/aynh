@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't give alcohol to minors!"
+> "Once you see a guy ignore the light in order to cross the street, you just can't stand still."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kato Kenichi**](https://myanimelist.net/character.php?q=Kato%20Kenichi&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
