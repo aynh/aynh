@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All meetings must end with partings."
+> "Right now, I'm afraid of losing you. Although my life hasn't been very fortunate until now, I'm glad if I caught your eye because of that misfortune. Because of that, I was able to fall for you. So we'll definitely do something, but I want to wait just a bit. So, right now, the last thing I can offer you... Is this starry sky."
 
-&mdash; [**Dera Mochimazzi**](https://myanimelist.net/character.php?q=Dera%20Mochimazzi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
