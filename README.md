@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you have faith, your dreams will surely come true."
+> "It's not whether you can or not. You just do it."
 
-&mdash; [**Katsura Kotarou**](https://myanimelist.net/character.php?q=Katsura%20Kotarou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kitahara Haruki**](https://myanimelist.net/character.php?q=Kitahara%20Haruki&cat=character), [**White Album 2**](https://myanimelist.net/search/all?q=White%20Album%202&cat=all)
