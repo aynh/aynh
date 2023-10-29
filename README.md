@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you see a guy ignore the light in order to cross the street, you just can't stand still."
+> "All meetings must end with partings."
 
-&mdash; [**Kato Kenichi**](https://myanimelist.net/character.php?q=Kato%20Kenichi&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Dera Mochimazzi**](https://myanimelist.net/character.php?q=Dera%20Mochimazzi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
