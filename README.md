@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just want to relieve my sexual frustrations. All I feel towards a cat eared high school girl in her underwear... is lust."
+> "A lone warrior surviving hundreds of battles, when it comes to losing, I'm the strongest."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Comedy wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Comedy%20wa%20Machigatteiru&cat=all)
