@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not that you don't know how to interact with people. It's just that no one ever came to interact with you."
+> "Before the heart of truth, there is no need for words."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Nico Robin**](https://myanimelist.net/character.php?q=Nico%20Robin&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
