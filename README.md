@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Right now, I'm afraid of losing you. Although my life hasn't been very fortunate until now, I'm glad if I caught your eye because of that misfortune. Because of that, I was able to fall for you. So we'll definitely do something, but I want to wait just a bit. So, right now, the last thing I can offer you... Is this starry sky."
+> "A fair warning... we ninja of the Sand aren't as easygoing as those of the Leaf. But getting close to Kuroari so carelessly...isn't good!"
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Kankuro**](https://myanimelist.net/character.php?q=Kankuro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
