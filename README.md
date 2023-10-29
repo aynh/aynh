@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Please tell me you're here because the Firelord is a big wimp and you didn't need to take him down."
+> "No! Bad Fire Nation baby!"
 
 &mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
