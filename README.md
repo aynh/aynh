@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't seem to get my head on straight."
+> "I see. So basically, you're a shinigami? And you came all the way from some place called Soul Society to vanquish evil spirits? Which means that monster earlier was one of those evil spirits? And it attacked that little girl? Okay, I belie- NO WAY I'LL BELIEVE THAT, DUMBASS!"
 
-&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
