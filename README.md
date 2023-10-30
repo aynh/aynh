@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But the mass we call 'world' keeps turning, ignoring our individual desires."
+> "You’re wrong! None of that makes any sense! Grief and suffering isn’t something that can be taken away by dying in a fight! You have to resolve your problems by talking and explaining your points of view. Relying on others for it is wrong!"
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Mato Kuroi**](https://myanimelist.net/character.php?q=Mato%20Kuroi&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
