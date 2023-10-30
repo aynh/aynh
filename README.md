@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone loses sight of themselves sometimes. Don't worry about it."
+> "It is actually more difficult to trust those who have no talent for scheming."
 
-&mdash; [**Ichinose Hayato**](https://myanimelist.net/character.php?q=Ichinose%20Hayato&cat=character), [**Uta No Prince Sama**](https://myanimelist.net/search/all?q=Uta%20No%20Prince%20Sama&cat=all)
+&mdash; [**Lemrina Vers Envers**](https://myanimelist.net/character.php?q=Lemrina%20Vers%20Envers&cat=character), [**Aldnoah.Zero 2nd Season**](https://myanimelist.net/search/all?q=Aldnoah.Zero%202nd%20Season&cat=all)
