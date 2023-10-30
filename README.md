@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whoever invented stew is brilliant! It has milk in it and it still tastes good."
+> "I do not fear this new challenge, rather like a true warrior I will rise to meet it."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
