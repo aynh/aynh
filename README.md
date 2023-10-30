@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't put me on their level. I don't care about looking interesting. I'm just self-conscious."
+> "You have no effect on me because you are flat chested!"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Laharl**](https://myanimelist.net/character.php?q=Laharl&cat=character), [**Disgaea**](https://myanimelist.net/search/all?q=Disgaea&cat=all)
