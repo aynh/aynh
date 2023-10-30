@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have already fulfilled my expectations. It appears that you’re still hiding a wealth of potential. I was watching you while your Guardians struggled to overcome their trials, and I could tell from your behavior and actions that you were always putting them first. And that didn’t change when Daemon set his trap. I witnessed your resolve to protect your Family, and I was impressed. Your Guardians also responded similarly. Sawada Tsunayoshi, I deem you worthy as boss of the tenth-generation Vongola Family"
+> "I'm alright. All I did was lose a love. Even without George, this city is still overflowing with people. My days are busy. Nothing will change. But... why do the lights look like they're in black-and-white? Just because one person isn't here."
 
-&mdash; [**Vongola Primo Giotto**](https://myanimelist.net/character.php?q=Vongola%20Primo%20Giotto&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Yukari Hayasaka**](https://myanimelist.net/character.php?q=Yukari%20Hayasaka&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
