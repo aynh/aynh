@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I realized why I was lost. It's not because I didn't have a map... It was because I didn't have a destination."
+> "The reason doesn't matter. As long as tiny bit of hope exists, that's all that matters."
 
-&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
