@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, we have to look beyond what we want and do what’s best."
+> "I've decided to take this unrequited love, and quietly put it away in a corner of my heart as a bittersweet page of my youth."
 
-&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
