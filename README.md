@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have no effect on me because you are flat chested!"
+> "The aura of offensive smell has come to such a strong extent that you can even see it!!"
 
-&mdash; [**Laharl**](https://myanimelist.net/character.php?q=Laharl&cat=character), [**Disgaea**](https://myanimelist.net/search/all?q=Disgaea&cat=all)
+&mdash; [**Misaki Ayuzawa**](https://myanimelist.net/character.php?q=Misaki%20Ayuzawa&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
