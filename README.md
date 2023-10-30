@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I do not fear this new challenge, rather like a true warrior I will rise to meet it."
+> "Get over here, Zuko. Being part of the group also means being part of group hugs."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
