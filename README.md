@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Get over here, Zuko. Being part of the group also means being part of group hugs."
+> "You have already fulfilled my expectations. It appears that you’re still hiding a wealth of potential. I was watching you while your Guardians struggled to overcome their trials, and I could tell from your behavior and actions that you were always putting them first. And that didn’t change when Daemon set his trap. I witnessed your resolve to protect your Family, and I was impressed. Your Guardians also responded similarly. Sawada Tsunayoshi, I deem you worthy as boss of the tenth-generation Vongola Family"
 
-&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Vongola Primo Giotto**](https://myanimelist.net/character.php?q=Vongola%20Primo%20Giotto&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
