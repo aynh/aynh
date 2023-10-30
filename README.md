@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've decided to take this unrequited love, and quietly put it away in a corner of my heart as a bittersweet page of my youth."
+> "Whoever invented stew is brilliant! It has milk in it and it still tastes good."
 
-&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
