@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no sense in going out of your way just to get somebody to like you."
+> "The mistakes people make are eventually labeled as experience. But with a true mistake, there will be no experience to be gained. Because the mistake you made taking me as your opponent will leave you with no future."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Hades**](https://myanimelist.net/character.php?q=Hades&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
