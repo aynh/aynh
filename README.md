@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The last time I let you do my eyebrows it took you a month."
+> "Embrace your dreams...and whatever happens, protect your honor...AS SOLDIER!"
 
-&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Zack Fair**](https://myanimelist.net/character.php?q=Zack%20Fair&cat=character), [**Final Fantasy VII: Crisis Core**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Crisis%20Core&cat=all)
