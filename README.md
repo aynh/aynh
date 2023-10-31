@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The present will always be different from the past. That's what makes life good and at the same time sad. That sadness in turn gives our everyday life some flavor. Just like coffee."
+> "No matter where you are, you have to have the energy to keep on doing the things that you like until the final moment."
 
-&mdash; [**Tamako Love Story**](https://myanimelist.net/character.php?q=Tamako%20Love%20Story&cat=character), [**Tamako Love Story**](https://myanimelist.net/search/all?q=Tamako%20Love%20Story&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
