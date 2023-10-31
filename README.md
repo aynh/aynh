@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If your failing, then keep trying until you don't."
+> "All humans die the same, the place they go after death isn't decided upon by a god it is Mu (nothingness)."
 
-&mdash; [**Kintarō Tōyama**](https://myanimelist.net/character.php?q=Kintar%C5%8D%20T%C5%8Dyama&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
