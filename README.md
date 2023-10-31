@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just because you want other people to think of you as someone who'd literally die for another... dragging someone else to his death just for that... only a bad girl would do that, right?"
+> "I have no parents, and I'm not a product of love. Therefore, I can't understand what a 'good wife' is. Even so... the love he gave me is my entire world. No one can humiliate that."
 
-&mdash; [**Ymir**](https://myanimelist.net/character.php?q=Ymir&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Irisviel von Einzbern**](https://myanimelist.net/character.php?q=Irisviel%20von%20Einzbern&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
