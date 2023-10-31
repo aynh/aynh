@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All humans die the same, the place they go after death isn't decided upon by a god it is Mu (nothingness)."
+> "The last time I let you do my eyebrows it took you a month."
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
