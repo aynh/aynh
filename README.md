@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I finished Hige off. I don't want to move any more either. I knew it from the beginning, I knew it somewhere in my heart. That's why I led a spontaneous life. I was confident after having met you... that I wasn't the one who would open Paradise. [groans]"
+> "There are those people who are born aloof and prefer to stay away from groups. In such a case, others should just leave those people alone. It's not a matter of sympathy."
 
-&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Shin Meguro**](https://myanimelist.net/character.php?q=Shin%20Meguro&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
