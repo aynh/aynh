@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For as long as human history goes on, the past will continue to accumulate. History isn’t just records of the past. It’s also proof that civilization has continued to advance to the present. Our present civilization is the result of our past."
+> "If your failing, then keep trying until you don't."
 
-&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Kintarō Tōyama**](https://myanimelist.net/character.php?q=Kintar%C5%8D%20T%C5%8Dyama&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
