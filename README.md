@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(to Kagura) Sorry that's your cue to say 'Shigure you perv' and roll your eyes, slap me, whatever."
+> "We will not just fade away, thought there's no way to know how long it may last. We WILL leave our mark on this world!"
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Katakura Kojūrō**](https://myanimelist.net/character.php?q=Katakura%20Koj%C5%ABr%C5%8D&cat=character), [**Sengoku Basara**](https://myanimelist.net/search/all?q=Sengoku%20Basara&cat=all)
