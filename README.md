@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one dies alone. When someone dies, the part of them that lives inside someone else also dies. You already live inside me."
+> "I finished Hige off. I don't want to move any more either. I knew it from the beginning, I knew it somewhere in my heart. That's why I led a spontaneous life. I was confident after having met you... that I wasn't the one who would open Paradise. [groans]"
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
+&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
