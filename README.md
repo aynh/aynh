@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, life is like the weather. It can be sunny or cloudy. Sometimes it rains, and sometimes it storms."
+> "It was like you brought color to my life. You changed my life, all by yourself."
 
-&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
