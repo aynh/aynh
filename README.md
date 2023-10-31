@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know... you really are something... (to Tohru)"
+> "No one dies alone. When someone dies, the part of them that lives inside someone else also dies. You already live inside me."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
