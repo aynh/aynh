@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are those people who are born aloof and prefer to stay away from groups. In such a case, others should just leave those people alone. It's not a matter of sympathy."
+> "[after finding his stolen boomerang] Boomerang! You do always come back!"
 
-&mdash; [**Shin Meguro**](https://myanimelist.net/character.php?q=Shin%20Meguro&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
