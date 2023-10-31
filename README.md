@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can kill anything that exists - even if it's a god."
+> "For as long as human history goes on, the past will continue to accumulate. History isn’t just records of the past. It’s also proof that civilization has continued to advance to the present. Our present civilization is the result of our past."
 
-&mdash; [**Ryougi Shiki**](https://myanimelist.net/character.php?q=Ryougi%20Shiki&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
