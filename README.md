@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He's thanking me? That can't be good. *about Inuyasha*"
+> "*about Katsura, who apparently got his head hit very hard* Forget his name, this guy's questioning his own existence!"
 
-&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
