@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Think you're pretty smart, you old hag. (to Kaede)"
+> "It's better trusting someone than to die doubting people altogether."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
