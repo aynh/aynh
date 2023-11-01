@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*about Katsura, who apparently got his head hit very hard* Forget his name, this guy's questioning his own existence!"
+> "A soul naturally seeks pleasure, consciously or not."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
