@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have no parents, and I'm not a product of love. Therefore, I can't understand what a 'good wife' is. Even so... the love he gave me is my entire world. No one can humiliate that."
+> "I don't need someone as unreliable as you for a partner! (To Tohru)"
 
-&mdash; [**Irisviel von Einzbern**](https://myanimelist.net/character.php?q=Irisviel%20von%20Einzbern&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
