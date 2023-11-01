@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For those who love another... To disobey, to rage, to curse, to fight, to kill... None of these disproves that love. A love that's too strong may even make those more likely."
+> "What value does your will have? I asked you what price it carries. If money is enough, is your will for sale? A will that can be bought with money... what's the meaning of that? If your will can be bought with money... then it will vanish along with that money. Am I wrong?"
 
-&mdash; [**Khamsin Nbh'w**](https://myanimelist.net/character.php?q=Khamsin%20Nbh'w&cat=character), [**Shakugan no Shana III**](https://myanimelist.net/search/all?q=Shakugan%20no%20Shana%20III&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
