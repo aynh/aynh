@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When the world is filled with red lights signaling danger, the world is safer than usual. But when it's filled with green lights signaling safety, it creates a place more dangerous than anywhere."
+> "They say that fools learn from their experiences, while the wise learn from history. I hope you're not a fool."
 
-&mdash; [**Ougi Oshino**](https://myanimelist.net/character.php?q=Ougi%20Oshino&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
