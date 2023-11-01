@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't need someone as unreliable as you for a partner! (To Tohru)"
+> "Such words are wasted on someone like me."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
