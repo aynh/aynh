@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The bully always says it's a joke. But to the one being bullied, it's dead serious!"
+> "C'mon, there is no such thing as gross stuff in this world...  Except for GROSSLY CUTE things."
 
-&mdash; [**Fujisaki Yusuke**](https://myanimelist.net/character.php?q=Fujisaki%20Yusuke&cat=character), [**Sket Dance**](https://myanimelist.net/search/all?q=Sket%20Dance&cat=all)
+&mdash; [**Fuura Kafuka**](https://myanimelist.net/character.php?q=Fuura%20Kafuka&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
