@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say that fools learn from their experiences, while the wise learn from history. I hope you're not a fool."
+> "Whether you walk or run, the destination won't change. So then... You might as well run there!!!"
 
-&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
