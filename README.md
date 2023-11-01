@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Celebrating Mr. Jesus's birthday (Christmas) was fun, why don't we celebrate Buddha's and Muhammad's birthday next time?"
+> "Sticking through with a lie to protect someone, is probably harder than telling the truth."
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
