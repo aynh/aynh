@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is short, so fall in love, dear maiden, before your youthful ardor cools off, for there is no tomorrow."
+> "Our lives become a reality through the most meticulous calculations. Doing our best to continue living is a resolution ingrained in all of us. And this shapes the right future for us. You could say it is life’s greatest mystery. I want to observe the destination reached by the many lives that are created."
 
-&mdash; [**Atsushi Shimao**](https://myanimelist.net/character.php?q=Atsushi%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
+&mdash; [**Akari**](https://myanimelist.net/character.php?q=Akari&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
