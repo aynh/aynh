@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's better trusting someone than to die doubting people altogether."
+> "Life is short, so fall in love, dear maiden, before your youthful ardor cools off, for there is no tomorrow."
 
-&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Atsushi Shimao**](https://myanimelist.net/character.php?q=Atsushi%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
