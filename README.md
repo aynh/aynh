@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sticking through with a lie to protect someone, is probably harder than telling the truth."
+> "Think you're pretty smart, you old hag. (to Kaede)"
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
