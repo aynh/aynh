@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I see. So basically, you're a shinigami? And you came all the way from some place called Soul Society to vanquish evil spirits? Which means that monster earlier was one of those evil spirits? And it attacked that little girl? Okay, I belie- NO WAY I'LL BELIEVE THAT, DUMBASS!"
+> "They call certain methods of fighting good and others evil, acting as if there were some nobility to the battlefield. Such illusions, perpetrated by heroes throughout history, have led countless young men to their bloody deaths, all for the sake of this valor and glory."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
