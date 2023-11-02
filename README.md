@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A dream isn't something that someone tells you to go for. It's something you fulfill of your own will."
+> "Even if my left arm can transform into a monstrous claw and can destroy Akuma, im just a normal person with a promise..."
 
-&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Allen Walker**](https://myanimelist.net/character.php?q=Allen%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
