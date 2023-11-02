@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Please don't worry, Mister, I only came here to obliterate you – not rob you."
+> "I was wondering. Do souls taste good? You seem to like 'em."
 
-&mdash; [**Excel**](https://myanimelist.net/character.php?q=Excel&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
