@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People respect it when someone they are distant from is boring and harmless. However, they only like that person because he or she doesn't get in their way. No human would want to hang around a boring person."
+> "Playing is more important. You can work any time."
 
-&mdash; [**Featherine Augustus Aurora**](https://myanimelist.net/character.php?q=Featherine%20Augustus%20Aurora&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
