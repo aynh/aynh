@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even a dim star is sending light somewhere."
+> "You want to walk into a Fire Nation town when they're all fired up with their, you know, fire?"
 
-&mdash; [**Imizu Asuhi**](https://myanimelist.net/character.php?q=Imizu%20Asuhi&cat=character), [**Mikagura School Suite**](https://myanimelist.net/search/all?q=Mikagura%20School%20Suite&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
