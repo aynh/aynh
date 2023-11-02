@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Rules make the world work. They don't protect you."
+> "Even a dim star is sending light somewhere."
 
-&mdash; [**Osamu Mikumo**](https://myanimelist.net/character.php?q=Osamu%20Mikumo&cat=character), [**World Trigger**](https://myanimelist.net/search/all?q=World%20Trigger&cat=all)
+&mdash; [**Imizu Asuhi**](https://myanimelist.net/character.php?q=Imizu%20Asuhi&cat=character), [**Mikagura School Suite**](https://myanimelist.net/search/all?q=Mikagura%20School%20Suite&cat=all)
