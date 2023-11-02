@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Behind this mask is...Another mask! Pretty cool, huh?"
+> "No matter how hard someone's heart is, if you keep on talking to them, little by little, it'll eventually start to crack! I believe it! I believe that useless effort doesn't exist in this world!"
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ushiromiya Jessica**](https://myanimelist.net/character.php?q=Ushiromiya%20Jessica&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
