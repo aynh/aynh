@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's not possible. With your ability, you couldn't even make one of my knees touch the ground."
+> "You got away with just physical damage, but I'm going to take CRITICAL MENTAL DAMAGE!"
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ooyama**](https://myanimelist.net/character.php?q=Ooyama&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
