@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was wondering. Do souls taste good? You seem to like 'em."
+> "That's not possible. With your ability, you couldn't even make one of my knees touch the ground."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
