@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We don't know if trying our best will help, but we do know, that if we don't try our best, it won't help for sure!"
+> "People respect it when someone they are distant from is boring and harmless. However, they only like that person because he or she doesn't get in their way. No human would want to hang around a boring person."
 
-&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Featherine Augustus Aurora**](https://myanimelist.net/character.php?q=Featherine%20Augustus%20Aurora&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
