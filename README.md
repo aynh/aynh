@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you are still determined to take your own life, please do so outside... *To Grell*"
+> "If you’ve got time to point fingers, then how about using your head to figure out what you want to do about it?"
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Karma Akabane**](https://myanimelist.net/character.php?q=Karma%20Akabane&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
