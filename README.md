@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're not the first person I went out with... But you're my first love."
+> "Man seeks peace, yet at the same time yearning for war... Those are the two realms belonging solely to man. Thinking of peace whilst spilling blood is something that only humans could do. They're two sides of the same coin... to protect something... another must be sacrificed."
 
-&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
