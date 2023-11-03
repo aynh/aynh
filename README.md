@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Girls' hearts are reflected by their underwear's color...!!"
+> "I called you an idiot, idiot!"
 
-&mdash; [**Miyamura Toranosuke**](https://myanimelist.net/character.php?q=Miyamura%20Toranosuke&cat=character), [**Yamada-kun to 7-nin no Majo**](https://myanimelist.net/search/all?q=Yamada-kun%20to%207-nin%20no%20Majo&cat=all)
+&mdash; [**Kiba Inuzuka**](https://myanimelist.net/character.php?q=Kiba%20Inuzuka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
