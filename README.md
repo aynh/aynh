@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you’ve got time to point fingers, then how about using your head to figure out what you want to do about it?"
+> "I just...    ...want to make the woman I love happy."
 
-&mdash; [**Karma Akabane**](https://myanimelist.net/character.php?q=Karma%20Akabane&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
