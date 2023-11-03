@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The most important thing when fighting and running away is to defend. It is not about beating the enemy in front of them, but to retreat while buying time for their comrades to retreat."
+> "Survival of the fittest is the law of nature. We deceive or we are deceived. Thus, we flourish or perish. Nothing good ever happened to me when I trusted others. That is the lesson."
 
-&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Faye Valentine**](https://myanimelist.net/character.php?q=Faye%20Valentine&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
