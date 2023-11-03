@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People do not cease to exist immediately after dying, as long as there are people who remember them."
+> "God spares no salvation to those who would beg for it. Nor is he merciful to those who would beseech his benevolence. These petty requests are no invocation to god. They are your death."
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
