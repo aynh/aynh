@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey... They say it's five centimeters per second. *Takaki asks her what she means by that* The speed at which the sakura blossom petals fall... Five centimeters per second."
+> "People do not cease to exist immediately after dying, as long as there are people who remember them."
 
-&mdash; [**Akari Shinohara**](https://myanimelist.net/character.php?q=Akari%20Shinohara&cat=character), [**5 Centimeters per Second**](https://myanimelist.net/search/all?q=5%20Centimeters%20per%20Second&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
