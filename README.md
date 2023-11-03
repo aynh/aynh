@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey, Oz. what are you lazing around for?"
+> "Hate is a place, where a man who can't stand sadness, goes."
 
-&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Godo**](https://myanimelist.net/character.php?q=Godo&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
