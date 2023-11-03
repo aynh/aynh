@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just...    ...want to make the woman I love happy."
+> "You're not the first person I went out with... But you're my first love."
 
-&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
