@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's been so long that I forgot the pain of not having a name. Everyone had a name that friends use to call them, but I didn't. That pain."
+> "Well, life is like the weather. It can be sunny or cloudy. Sometimes it rains, and sometimes it storms."
 
-&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
