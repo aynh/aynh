@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, life is like the weather. It can be sunny or cloudy. Sometimes it rains, and sometimes it storms."
+> "Hey, Oz. what are you lazing around for?"
 
-&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
