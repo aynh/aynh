@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can’t stop fighting to play. Once you've lost that drive, you’ll start to lose your edge."
+> "It's been so long that I forgot the pain of not having a name. Everyone had a name that friends use to call them, but I didn't. That pain."
 
-&mdash; [**Yuusei Nishida**](https://myanimelist.net/character.php?q=Yuusei%20Nishida&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
