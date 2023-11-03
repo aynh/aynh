@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no one the world would be better off without."
+> "If I were the rain, that binds together the heavens and the earth, whom in all eternity will never mingle, would I be able to bind two hearts together?"
 
-&mdash; [**Arata Hinohara**](https://myanimelist.net/character.php?q=Arata%20Hinohara&cat=character), [**Arata Kangatari**](https://myanimelist.net/search/all?q=Arata%20Kangatari&cat=all)
+&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
