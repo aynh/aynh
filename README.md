@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hmm... *puts on a happy face* Delectable tea... *changes to serious face* or deadly poison?.."
+> "I wouldn't learn German just to apologize, that would be too much work."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Asaba Yuki**](https://myanimelist.net/character.php?q=Asaba%20Yuki&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
