@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why do people have to work? I just want to eat and sleep. I should have born as a panda at the zoo."
+> "Are you telling me to go back and put a corpse on trial?"
 
-&mdash; [**Kazuya Hiramaru**](https://myanimelist.net/character.php?q=Kazuya%20Hiramaru&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
