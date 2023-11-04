@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When receiving an illogical favor from others, one should do the same to return the illogical favor."
+> "Ichigo...I know this is shameful, but I'm begging you -- Rukia...Please save Rukia!!"
 
-&mdash; [**Frontier Setter**](https://myanimelist.net/character.php?q=Frontier%20Setter&cat=character), [**Rakuen Tsuihō - Expelled from Paradise**](https://myanimelist.net/search/all?q=Rakuen%20Tsuih%C5%8D%20-%20Expelled%20from%20Paradise&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
