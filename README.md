@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who cares? Who cares if they're human or if they're something else? If they have boobs, what's the problem?"
+> "You probably do lose a lot, but that just means you need to fill what you lost with new things."
 
-&mdash; [**Sakurai Tomozo**](https://myanimelist.net/character.php?q=Sakurai%20Tomozo&cat=character), [**Sora no Otoshimono: Forte**](https://myanimelist.net/search/all?q=Sora%20no%20Otoshimono%3A%20Forte&cat=all)
+&mdash; [**Tsumugu Kihara**](https://myanimelist.net/character.php?q=Tsumugu%20Kihara&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
