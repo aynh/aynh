@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No human beings, regardless of who they might be, want to look directly at their own shortcomings."
+> "You can run away, but that'll just make it worse!"
 
-&mdash; [**Satou Tatsuhiro**](https://myanimelist.net/character.php?q=Satou%20Tatsuhiro&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
+&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
