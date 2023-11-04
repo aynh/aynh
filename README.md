@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can always tell when you’re lying. I also know that you cannot tell me why you do so. So there is no need to convince me, or wrap everything in lies, or try to take the blame on yourself like that. Because I have complete faith in you, Subaru-kun."
+> "No human beings, regardless of who they might be, want to look directly at their own shortcomings."
 
-&mdash; [**Rem (re:zero)**](https://myanimelist.net/character.php?q=Rem%20(re%3Azero)&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
+&mdash; [**Satou Tatsuhiro**](https://myanimelist.net/character.php?q=Satou%20Tatsuhiro&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
