@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everything doesn't have to be decided by life and death. Just think about the future."
+> "Strength that knows no boundaries is merely violence."
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Bismarck Waldstein**](https://myanimelist.net/character.php?q=Bismarck%20Waldstein&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
