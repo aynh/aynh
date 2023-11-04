@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I... Despise the way you fight. Without ever lifting your own hand... To steal bonds of camraderie and torture opponents is the height of cowardice. It is a lack of shame deserving of death. I am here. Strike me down. I shall kill you and cast you aside... Before you finish swinging your blade."
+> "When receiving an illogical favor from others, one should do the same to return the illogical favor."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Frontier Setter**](https://myanimelist.net/character.php?q=Frontier%20Setter&cat=character), [**Rakuen Tsuihō - Expelled from Paradise**](https://myanimelist.net/search/all?q=Rakuen%20Tsuih%C5%8D%20-%20Expelled%20from%20Paradise&cat=all)
