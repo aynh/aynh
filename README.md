@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Strength that knows no boundaries is merely violence."
+> "You stinker! I took it easy on you!"
 
-&mdash; [**Bismarck Waldstein**](https://myanimelist.net/character.php?q=Bismarck%20Waldstein&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Blue**](https://myanimelist.net/character.php?q=Blue&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
