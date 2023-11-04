@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You probably do lose a lot, but that just means you need to fill what you lost with new things."
+> "Everything doesn't have to be decided by life and death. Just think about the future."
 
-&mdash; [**Tsumugu Kihara**](https://myanimelist.net/character.php?q=Tsumugu%20Kihara&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
