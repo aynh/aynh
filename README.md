@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's a mystery. Just because of a simple sentence... I get shaken... or I get happy. Kyo-kun is mysterious indeed. (After Kyo says, 'You wanna kill some time... with me?')"
+> "Hmm... *puts on a happy face* Delectable tea... *changes to serious face* or deadly poison?.."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
