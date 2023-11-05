@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not even your closest friends get to see your true blade."
+> "People... are not born equal. That's the hard truth I learned at age four. But that... was my first and last setback."
 
-&mdash; [**Kaede Kayano**](https://myanimelist.net/character.php?q=Kaede%20Kayano&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Midoriya Izuku**](https://myanimelist.net/character.php?q=Midoriya%20Izuku&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
