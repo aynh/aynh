@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment you find the courage to give up your life for someone... Would be the moment you understand love."
+> "*referring to Ichigo* I see. So I still haven't reached you..."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Zangetsu**](https://myanimelist.net/character.php?q=Zangetsu&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
