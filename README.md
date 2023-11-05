@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why did you run away, Chitoge-chan? No... I don't want this... I won't be happy with you just giving up... To end up liking the same person. It's painful, for sure but Chitoge-chan, you like him enough to not be able to face him again after that, don't you? Regardless of who ends up with him, I want to be satisfied when it happens. I thought for sure that you think the same way. Is there a reason why that can't happen? Tell me Chitoge-chan..."
+> "There are two types of people in this world - those who do what they're told and those who stay true to themselves. Most people think you're supposed to follow a predetermined path, keep your head down, obey the rules, do whatever's popular. But some prefer to follow their own path in life."
 
-&mdash; [**Onodera Kosaki**](https://myanimelist.net/character.php?q=Onodera%20Kosaki&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Yuji Sakurai**](https://myanimelist.net/character.php?q=Yuji%20Sakurai&cat=character), [**Beck**](https://myanimelist.net/search/all?q=Beck&cat=all)
