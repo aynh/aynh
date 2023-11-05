@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The weak can never break out of their own mold. They cry piteously within their cells, while they try to kick down anyone who strives to break free."
+> "A good book is always good, no matter how many times you’ve already read it."
 
-&mdash; [**Moral**](https://myanimelist.net/character.php?q=Moral&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
+&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
