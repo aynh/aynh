@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All I ever gained from abandoning something and running away were regrets I couldn't do anything about, and a version of myself that could only resent others. If I come to hate myself, even living becomes a sin. Remorse alone will become my punishment. That's why I've decided to take action of my own free will, so I'll never have the same regrets again."
+> "No one's going to give you a map. You've got to walk your own path."
 
-&mdash; [**Amane Suou**](https://myanimelist.net/character.php?q=Amane%20Suou&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
+&mdash; [**Hilda**](https://myanimelist.net/character.php?q=Hilda&cat=character), [**Outlaw Star**](https://myanimelist.net/search/all?q=Outlaw%20Star&cat=all)
