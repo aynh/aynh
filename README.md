@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You appearing before me was the best thing that’s ever happened in my life. The worst was when you left my sight. …And depending on your reply now, I might have a new best or worst."
+> "The weak can never break out of their own mold. They cry piteously within their cells, while they try to kick down anyone who strives to break free."
 
-&mdash; [**Kusonoki**](https://myanimelist.net/character.php?q=Kusonoki&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
+&mdash; [**Moral**](https://myanimelist.net/character.php?q=Moral&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
