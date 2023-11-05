@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When people reach the halfway mark of a long ordeal, how do they feel? Does being only halfway there make them despair? Or do they feel relief at making it halfway there? Most people have to feel one way or the other, and both emotions create an opening in their hearts. That's why I pushed myself this far."
+> "It's impossible to share everything. No one can become someone else. It's natural to envy someone who's more wealthy or who has higher standing. That's how conflicts begin. However, being blissfully unaware of this, relying on whatever someone provided without thinking, and only seeing things as 'black' or 'white' with such overly simplified thinking... Isn't that a sin as well? People need to think for themselves. For this reason, someone 'grey', someone between 'black' and 'white' is essential. I will not gloss over the flaws in my ideals. It's not possible for all of mankind to share the same kind of thoughts. However, everyone is capable of thought. Everyone can learn, share, and decide with their own strength. A world built upon an understanding of that. If this is a 'dream', if I don't realize it, who will?"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Sinbad**](https://myanimelist.net/character.php?q=Sinbad&cat=character), [**Magi: Adventure of Sinbad**](https://myanimelist.net/search/all?q=Magi%3A%20Adventure%20of%20Sinbad&cat=all)
