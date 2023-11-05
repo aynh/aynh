@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What am I to you anyway? You get all teary eyed whenever it suits you but you never stop to think about my feelings and how you might be messing with my heart. You want some nice guy to be a part of your life but only if its on your terms. All this talk of just being friends with a guy... don't make me laugh!"
+> "Look Goku, you can go out in public and have your hair sticking out in every direction if you want to, but not me!"
 
-&mdash; [**Shoji Endo**](https://myanimelist.net/character.php?q=Shoji%20Endo&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Bulma Briefs**](https://myanimelist.net/character.php?q=Bulma%20Briefs&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
