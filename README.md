@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A good book is always good, no matter how many times you’ve already read it."
+> "Colors and lies both get blacker as you add more. Add enough red, and it'll turn black too."
 
-&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
