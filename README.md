@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As a leader, you need to learn from the mistakes of others, not your own."
+> "What is important to survival isn't the ability to hide and protect yourself, it is to stand up and fight the Kabane."
 
-&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Biba Amatori**](https://myanimelist.net/character.php?q=Biba%20Amatori&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
