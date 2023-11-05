@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are two types of people in this world - those who do what they're told and those who stay true to themselves. Most people think you're supposed to follow a predetermined path, keep your head down, obey the rules, do whatever's popular. But some prefer to follow their own path in life."
+> "What am I to you anyway? You get all teary eyed whenever it suits you but you never stop to think about my feelings and how you might be messing with my heart. You want some nice guy to be a part of your life but only if its on your terms. All this talk of just being friends with a guy... don't make me laugh!"
 
-&mdash; [**Yuji Sakurai**](https://myanimelist.net/character.php?q=Yuji%20Sakurai&cat=character), [**Beck**](https://myanimelist.net/search/all?q=Beck&cat=all)
+&mdash; [**Shoji Endo**](https://myanimelist.net/character.php?q=Shoji%20Endo&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
