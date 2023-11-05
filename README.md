@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People... are not born equal. That's the hard truth I learned at age four. But that... was my first and last setback."
+> "This is straining my heartstrings."
 
-&mdash; [**Midoriya Izuku**](https://myanimelist.net/character.php?q=Midoriya%20Izuku&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
+&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
