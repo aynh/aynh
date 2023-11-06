@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm sorry for not saying this to you, Akihisa-kun. I know I shouldn't hide this from you, but I was wondering whether I should tell you this. Because if I told you that, you'll definitely tell me 'you should go', or something like that. I understand you'll say that for my sake, but I don't wish to hear you say anything like a farewell to me, Akihisa-kun. Because-- I like you, Akihisa-kun!"
+> "Success is harder than failure for many things in this world."
 
-&mdash; [**Himeji Mizuki**](https://myanimelist.net/character.php?q=Himeji%20Mizuki&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
