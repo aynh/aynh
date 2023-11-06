@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Araragi* A creature like you having a brain residing in his skull...is already a miracle in and of itself."
+> "Certain individuals can change the entire outlook of the team with their overwhelming abilities."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Mark Kluger**](https://myanimelist.net/character.php?q=Mark%20Kluger&cat=character), [**Inazuma Eleven**](https://myanimelist.net/search/all?q=Inazuma%20Eleven&cat=all)
