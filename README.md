@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no meaningful difference between a real and a virtual world. It's pointless to ask anyone who they really are. All you can do is accept and believe in them, because whoever they are in your mind, is their true identity."
+> "If all you're good for is breathing in and out, then even an AC unit is more useful than you."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Yukino Yukinoshita**](https://myanimelist.net/character.php?q=Yukino%20Yukinoshita&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
