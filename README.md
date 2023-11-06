@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we have time to get upset, we should have used that time to move on… Even if just one step forward!"
+> "It doesn't do any good to pretend you can't see what's going on."
 
-&mdash; [**Kise Ryouta**](https://myanimelist.net/character.php?q=Kise%20Ryouta&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Yuuya Mochizuki**](https://myanimelist.net/character.php?q=Yuuya%20Mochizuki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
