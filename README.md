@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone wants to have someone else's attention, and to be noticed. But the same thing goes for the other person too."
+> "Though possessing two eyes, most creatures can see but a single thing at a time."
 
-&mdash; [**Nanana Ryuugajou**](https://myanimelist.net/character.php?q=Nanana%20Ryuugajou&cat=character), [**Ryuugajou Nanana No Maizoukin**](https://myanimelist.net/search/all?q=Ryuugajou%20Nanana%20No%20Maizoukin&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
