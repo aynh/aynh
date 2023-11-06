@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's important, is to know fear and yet take a step forward."
+> "We are all farsighted, we give importance to those things that are far from us, while neglecting the things that are close to us... only to realize their value later, when they are out-of-reach again."
 
-&mdash; [**Rosette Christopher**](https://myanimelist.net/character.php?q=Rosette%20Christopher&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
+&mdash; [**Kawamura Sachiko**](https://myanimelist.net/character.php?q=Kawamura%20Sachiko&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
