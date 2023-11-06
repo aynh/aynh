@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Though possessing two eyes, most creatures can see but a single thing at a time."
+> "Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one's heart."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
