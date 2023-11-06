@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Assassins Rule Number Two - Transpositional Thinking: Analyze the target in order to predict his thoughts and movements."
+> "It is important to draw wisdom from different places. If you take it from only one place, it becomes rigid and stale."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
