@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If all you're good for is breathing in and out, then even an AC unit is more useful than you."
+> "Someone who could shed tears for their friends... could never be rejected from Fairy Tail!"
 
-&mdash; [**Yukino Yukinoshita**](https://myanimelist.net/character.php?q=Yukino%20Yukinoshita&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
