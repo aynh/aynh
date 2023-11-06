@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someone who could shed tears for their friends... could never be rejected from Fairy Tail!"
+> "The popular will win, the hated will lose, it's such a tragedy. Then I won't lose to anyone. I will become the strongest monster ever and change this scenario."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Garou**](https://myanimelist.net/character.php?q=Garou&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
