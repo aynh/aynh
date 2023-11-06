@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is important to draw wisdom from different places. If you take it from only one place, it becomes rigid and stale."
+> "There's no meaningful difference between a real and a virtual world. It's pointless to ask anyone who they really are. All you can do is accept and believe in them, because whoever they are in your mind, is their true identity."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
