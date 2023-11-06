@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one's heart."
+> "If we have time to get upset, we should have used that time to move on… Even if just one step forward!"
 
-&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kise Ryouta**](https://myanimelist.net/character.php?q=Kise%20Ryouta&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
