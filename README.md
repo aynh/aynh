@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one's going to give you a map. You've got to walk your own path."
+> "Only fools wage war."
 
-&mdash; [**Hilda**](https://myanimelist.net/character.php?q=Hilda&cat=character), [**Outlaw Star**](https://myanimelist.net/search/all?q=Outlaw%20Star&cat=all)
+&mdash; [**Charles Zi Britannia**](https://myanimelist.net/character.php?q=Charles%20Zi%20Britannia&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
