@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We have to live a life of no regrets."
+> "Those who are bound, are bound wherever they go. And those who are free, are always free. Whoever you serve and wherever you live, if they are your own choices, you are free."
 
-&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Sanada Yukimura**](https://myanimelist.net/character.php?q=Sanada%20Yukimura&cat=character), [**Brave 10**](https://myanimelist.net/search/all?q=Brave%2010&cat=all)
