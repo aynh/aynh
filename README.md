@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't wanna see your face ever again. Keep that helmet on until you die."
+> "It's difficult to change the world on your own, but twisting it a little might not be all that hard."
 
-&mdash; [**Kurogane**](https://myanimelist.net/character.php?q=Kurogane&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
