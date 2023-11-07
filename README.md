@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is simply an electrical bug in the human neural circuit."
+> "The time known as 'LIFE', cannot be rewound."
 
-&mdash; [**Akasaka Ryuunosuke**](https://myanimelist.net/character.php?q=Akasaka%20Ryuunosuke&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Ultear Milkovich**](https://myanimelist.net/character.php?q=Ultear%20Milkovich&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
