@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Schools are facilities where human society secludes the troublesome children by age criteria."
+> "I want to survive...And see her again. As a person, I'm really lower than shit...But she knows that, and she smiles kindly at me anyway."
 
-&mdash; [**Hampnie Hambart**](https://myanimelist.net/character.php?q=Hampnie%20Hambart&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
+&mdash; [**Ymir**](https://myanimelist.net/character.php?q=Ymir&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
