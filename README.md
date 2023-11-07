@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What?! Unbelievable! I picked the wrong Pokémon!"
+> "Another story of Fruits Basket manga has begun. I have something very important to tell everyone. Yuki is actually...A GIRL!"
 
-&mdash; [**Blue**](https://myanimelist.net/character.php?q=Blue&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
