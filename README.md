@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just...    ...want to make the woman I love happy."
+> "Even if it’s a coincidence, it’s wonderful when someone understands how you feel."
 
-&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Norie Okazaki**](https://myanimelist.net/character.php?q=Norie%20Okazaki&cat=character), [**Tamayura**](https://myanimelist.net/search/all?q=Tamayura&cat=all)
