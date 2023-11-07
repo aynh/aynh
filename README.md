@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[about his Hollow group prior to them becoming Arancar as he eats pieces of them] You sicken me. You're all just a bunch of bloody cowards. Alright, I'll eat all of you. You'll see how it feels on the next level, as a part of my own flesh. I am... I am the king!"
+> "In some ways, the more one thinks, the closer one feels to getting the answer...but in the end, it's hard to tell what is really the safe answer. I started to dislike being like that at one point, and my motto is, 'make quick decisions and act fast.' I choose the first answer that feels 'right' to me."
 
-&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Shirasagi Yuki**](https://myanimelist.net/character.php?q=Shirasagi%20Yuki&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
