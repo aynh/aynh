@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Using a rescued civilian as a hostage? So do you still feel justified in fighting by their side with these cowards? Kira?"
+> "I don't wanna see your face ever again. Keep that helmet on until you die."
 
-&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Kurogane**](https://myanimelist.net/character.php?q=Kurogane&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
