@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am a complete opposite of Ryuk."
+> "[about his Hollow group prior to them becoming Arancar as he eats pieces of them] You sicken me. You're all just a bunch of bloody cowards. Alright, I'll eat all of you. You'll see how it feels on the next level, as a part of my own flesh. I am... I am the king!"
 
-&mdash; [**Rem (Death Note)**](https://myanimelist.net/character.php?q=Rem%20(Death%20Note)&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
