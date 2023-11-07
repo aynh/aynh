@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to survive...And see her again. As a person, I'm really lower than shit...But she knows that, and she smiles kindly at me anyway."
+> "The weakness that had accepted death now became the strength of wanting to live."
 
-&mdash; [**Ymir**](https://myanimelist.net/character.php?q=Ymir&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
