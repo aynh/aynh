@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There're a lot of people who want to be in despair just so they can pity themselves... But I think it's a waste of time, that's all. After all, you're the one who wishes to be left alone and refuses to share your pain with anyone else."
+> "The best way to remove your lies is to make them come true."
 
-&mdash; [**Sachi Nanjou**](https://myanimelist.net/character.php?q=Sachi%20Nanjou&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Suzaku Kururugi**](https://myanimelist.net/character.php?q=Suzaku%20Kururugi&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
