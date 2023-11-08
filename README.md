@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And that's precisely why it's so convenient, don't you think?"
+> "If people scrutinize you, just ignore them and do whatever you want to do."
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Zen Wistalia**](https://myanimelist.net/character.php?q=Zen%20Wistalia&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
