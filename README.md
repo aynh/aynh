@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Yoh* Because I aim to be the First Lady of the shaman world... You will become Shaman King, whether you want to or not."
+> "The sounds you find pretty, and the sounds the other members find pretty... Are they really the same?"
 
-&mdash; [**Anna Kyoyama**](https://myanimelist.net/character.php?q=Anna%20Kyoyama&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Len Tsukimori**](https://myanimelist.net/character.php?q=Len%20Tsukimori&cat=character), [**Kiniro no Corda: Blue♪Sky**](https://myanimelist.net/search/all?q=Kiniro%20no%20Corda%3A%20Blue%E2%99%AASky&cat=all)
