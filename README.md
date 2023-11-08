@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The weight of my sword is the weight of my pride. The wound from my battle with you is an honor, not a fetter."
+> "The others taught me something. That one needn't fear the future. That one needn't hate the world. From now on, the world will not simply be my fantasy. It will be our one and only, real future."
 
-&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Kozakura Marry**](https://myanimelist.net/character.php?q=Kozakura%20Marry&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
