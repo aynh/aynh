@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The others taught me something. That one needn't fear the future. That one needn't hate the world. From now on, the world will not simply be my fantasy. It will be our one and only, real future."
+> "Mages of Fairy Tail... specialize in property damage!"
 
-&mdash; [**Kozakura Marry**](https://myanimelist.net/character.php?q=Kozakura%20Marry&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
