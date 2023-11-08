@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm sure it's not wrong for people to want to understand each other. And even if it is, I want us to understand each other."
+> "Don't look back. If you got something to do, then only look forward."
 
-&mdash; [**Chiyuki**](https://myanimelist.net/character.php?q=Chiyuki&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Kurogane**](https://myanimelist.net/character.php?q=Kurogane&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
