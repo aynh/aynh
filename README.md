@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Have you ever realized how insignificant your existence is on the planet?"
+> "The way of the sword doesn't belong to any one nation. Knowledge of the arts belongs to us all."
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Piandao**](https://myanimelist.net/character.php?q=Piandao&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
