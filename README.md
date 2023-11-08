@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nature itself is absurd. Humans are the only ones who whine about it."
+> "The weaker person is the more he gets hung up on other people's pain and then he self-destructs"
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
