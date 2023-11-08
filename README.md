@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The sounds you find pretty, and the sounds the other members find pretty... Are they really the same?"
+> "The closer you get to the sun, the darker your shadow will be."
 
-&mdash; [**Len Tsukimori**](https://myanimelist.net/character.php?q=Len%20Tsukimori&cat=character), [**Kiniro no Corda: Blue♪Sky**](https://myanimelist.net/search/all?q=Kiniro%20no%20Corda%3A%20Blue%E2%99%AASky&cat=all)
+&mdash; [**Aria Link**](https://myanimelist.net/character.php?q=Aria%20Link&cat=character), [**Tegami Bachi**](https://myanimelist.net/search/all?q=Tegami%20Bachi&cat=all)
