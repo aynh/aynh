@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If people had wings... They'd be monsters."
+> "I'm sure it's not wrong for people to want to understand each other. And even if it is, I want us to understand each other."
 
-&mdash; [**Zack Fair**](https://myanimelist.net/character.php?q=Zack%20Fair&cat=character), [**Final Fantasy VII: Advent Children**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Advent%20Children&cat=all)
+&mdash; [**Chiyuki**](https://myanimelist.net/character.php?q=Chiyuki&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
