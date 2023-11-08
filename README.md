@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Keep on living your life in such a way that love doesn't fade away. I shall work... so that love may shine brightly, even today."
+> "The weight of my sword is the weight of my pride. The wound from my battle with you is an honor, not a fetter."
 
-&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
