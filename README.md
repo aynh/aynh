@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The closer you get to the sun, the darker your shadow will be."
+> "Let's have a drink. Hh shut up... The alcohol will disinfect me from the inside!"
 
-&mdash; [**Aria Link**](https://myanimelist.net/character.php?q=Aria%20Link&cat=character), [**Tegami Bachi**](https://myanimelist.net/search/all?q=Tegami%20Bachi&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
