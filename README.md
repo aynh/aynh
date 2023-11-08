@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment of one's confession, is the moment of another's dumping."
+> "Misfortune… that is my symbol. Unluckiness… that is my identity. I am a woman who looks best dressed in solitude and misfortune. That is who I am."
 
-&mdash; [**Kenji Harima**](https://myanimelist.net/character.php?q=Kenji%20Harima&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
+&mdash; [**Hong Lihua**](https://myanimelist.net/character.php?q=Hong%20Lihua&cat=character), [**Sousei no Aquarion**](https://myanimelist.net/search/all?q=Sousei%20no%20Aquarion&cat=all)
