@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Help can come from unexpected corners."
+> "If people had wings... They'd be monsters."
 
-&mdash; [**Kokoro Yome**](https://myanimelist.net/character.php?q=Kokoro%20Yome&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
+&mdash; [**Zack Fair**](https://myanimelist.net/character.php?q=Zack%20Fair&cat=character), [**Final Fantasy VII: Advent Children**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Advent%20Children&cat=all)
