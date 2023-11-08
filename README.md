@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Misfortune… that is my symbol. Unluckiness… that is my identity. I am a woman who looks best dressed in solitude and misfortune. That is who I am."
+> "Help can come from unexpected corners."
 
-&mdash; [**Hong Lihua**](https://myanimelist.net/character.php?q=Hong%20Lihua&cat=character), [**Sousei no Aquarion**](https://myanimelist.net/search/all?q=Sousei%20no%20Aquarion&cat=all)
+&mdash; [**Kokoro Yome**](https://myanimelist.net/character.php?q=Kokoro%20Yome&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
