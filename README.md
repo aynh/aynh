@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Knowing what it feels to be in pain, is exactly why we try to be kind to others."
+> "You can't achieve anything if you don't make a move. Love is an all-out assault."
 
-&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
