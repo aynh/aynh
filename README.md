@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And the one person who I thought understood me was just using me all along. No one ever treated me as an equal. Adults are all trash. They didn't listen when I said that it hurt. They didn't listen when I told them to stop. They didn't listen to anything I said!"
+> "Each person has his or her own way of having fun."
 
-&mdash; [**Chris Yukine**](https://myanimelist.net/character.php?q=Chris%20Yukine&cat=character), [**Senki Zesshō Symphogear**](https://myanimelist.net/search/all?q=Senki%20Zessh%C5%8D%20Symphogear&cat=all)
+&mdash; [**Itsuki Koizumi**](https://myanimelist.net/character.php?q=Itsuki%20Koizumi&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
