@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am a supporting actor, a shadow. But a shadow will become darker if the light is stronger and it will make the white of the light stand out. As the shadow of the main actor, I will make you, the light, the number one in Japan."
+> "'My heart controls the world.' But who can I control if I'm the only one living in this world?"
 
-&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Yuyuka Nekota**](https://myanimelist.net/character.php?q=Yuyuka%20Nekota&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
