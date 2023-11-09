@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Spoiling stories... is an unforgivable sin in this world."
+> "Moving on doesn't mean you forget about things. It just means you have to accept what's happened and continue living."
 
-&mdash; [**Leo Baskerville**](https://myanimelist.net/character.php?q=Leo%20Baskerville&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
