@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You said that she's no different from us, right? So if we don't try to get to know her, she won't try to get to know us either. If we don't treat her as a friend, she won't treat us as her friends either, right?"
+> "Finally I saw... A world so bright I almost wanted to cry... It was then, that my consciousness was engulfed in darkness."
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
