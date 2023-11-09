@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no such thing as a limit on being the best. You can always go for more. That's what it means to be human. No... That's what it means to be me."
+> "You said that she's no different from us, right? So if we don't try to get to know her, she won't try to get to know us either. If we don't treat her as a friend, she won't treat us as her friends either, right?"
 
-&mdash; [**Claire Stanfield**](https://myanimelist.net/character.php?q=Claire%20Stanfield&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
