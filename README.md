@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To me, the world is not only the shape on the map. On the battle field, all I see are the faces of the order and my friends... I am an awful person aren't I? Instead of the real world, all I care about is my friends. That's because they are my whole world... Even if just one of my friends dies, to me, it's the same thing as part of the world being destroyed."
+> "The legendary super-skill of the Scythe-Meister! Witch Hunter!"
 
-&mdash; [**Lenalee Lee**](https://myanimelist.net/character.php?q=Lenalee%20Lee&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
