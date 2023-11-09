@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't be too negative. You haven't become ashes just yet. You have your flesh and blood, and your bones are supporting you."
+> "Spoiling stories... is an unforgivable sin in this world."
 
-&mdash; [**Sakurako Kujō**](https://myanimelist.net/character.php?q=Sakurako%20Kuj%C5%8D&cat=character), [**Sakurako-san no Ashioto ni wa Shitai ga Umatteiru**](https://myanimelist.net/search/all?q=Sakurako-san%20no%20Ashioto%20ni%20wa%20Shitai%20ga%20Umatteiru&cat=all)
+&mdash; [**Leo Baskerville**](https://myanimelist.net/character.php?q=Leo%20Baskerville&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
