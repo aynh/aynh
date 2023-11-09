@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What would you ask a grave, which can never reply? What do you pray for? Saying anything after someone's death is far too late."
+> "And the one person who I thought understood me was just using me all along. No one ever treated me as an equal. Adults are all trash. They didn't listen when I said that it hurt. They didn't listen when I told them to stop. They didn't listen to anything I said!"
 
-&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Chris Yukine**](https://myanimelist.net/character.php?q=Chris%20Yukine&cat=character), [**Senki Zesshō Symphogear**](https://myanimelist.net/search/all?q=Senki%20Zessh%C5%8D%20Symphogear&cat=all)
