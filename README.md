@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We teachers have to be role models for you students. If we can’t face you all head on, what can we teach you!"
+> "I am a supporting actor, a shadow. But a shadow will become darker if the light is stronger and it will make the white of the light stand out. As the shadow of the main actor, I will make you, the light, the number one in Japan."
 
-&mdash; [**Nishimura Souichi**](https://myanimelist.net/character.php?q=Nishimura%20Souichi&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
