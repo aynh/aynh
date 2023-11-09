@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Moving on doesn't mean you forget about things. It just means you have to accept what's happened and continue living."
+> "Knowing what it feels to be in pain, is exactly why we try to be kind to others."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
