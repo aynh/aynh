@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't achieve anything if you don't make a move. Love is an all-out assault."
+> "We teachers have to be role models for you students. If we can’t face you all head on, what can we teach you!"
 
-&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Nishimura Souichi**](https://myanimelist.net/character.php?q=Nishimura%20Souichi&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
