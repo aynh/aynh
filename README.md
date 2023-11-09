@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's all it is: information. Even a simulated experience or a dream; simultaneous reality and fantasy. Any way you look at it, all the information that a person accumulates in a lifetime is just a drop in the bucket."
+> "When you aim to reach high places, you may find yourself on narrow footing and feel disheartened. And then your confidence will falter, and you will find it ever harder to believe in yourself. If you ever feel that you can't believe in yourself, please believe in your friends."
 
-&mdash; [**Batou**](https://myanimelist.net/character.php?q=Batou&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Sakamoto**](https://myanimelist.net/character.php?q=Sakamoto&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
