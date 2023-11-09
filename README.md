@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you aim to reach high places, you may find yourself on narrow footing and feel disheartened. And then your confidence will falter, and you will find it ever harder to believe in yourself. If you ever feel that you can't believe in yourself, please believe in your friends."
+> "Looks like Long Feng is long gone! (laughs) Oh, I've been waiting to use that one!"
 
-&mdash; [**Sakamoto**](https://myanimelist.net/character.php?q=Sakamoto&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
