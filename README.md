@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Looks like Long Feng is long gone! (laughs) Oh, I've been waiting to use that one!"
+> "Ah, that's right. Me hating that her hard work wouldn't be rewarded was just my secondary reason. My motivation was actually much simpler-- from the first time I met this girl, I just wanted to see her smiling face."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
