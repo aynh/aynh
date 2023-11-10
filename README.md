@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether here or in the real world, you can cry when it hurts. There's no rule that you can't show feelings just because it's a game."
+> "All suffering in the world is born from an individual's incompetence."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Yakumo Oomori**](https://myanimelist.net/character.php?q=Yakumo%20Oomori&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
