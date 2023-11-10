@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I no longer even dream, for I no longer sleep. So I had this golden enclosed garden made. However, now the only place where I can be myself is in this room. And my wealth is just this one glass of water."
+> "After all this time, after being by your side and always looking after you I failed to make a place for myself deep within your heart."
 
-&mdash; [**The Count of Monte Cristo**](https://myanimelist.net/character.php?q=The%20Count%20of%20Monte%20Cristo&cat=character), [**Gankutsuou: The Count of Monte Cristo**](https://myanimelist.net/search/all?q=Gankutsuou%3A%20The%20Count%20of%20Monte%20Cristo&cat=all)
+&mdash; [**Masafumi Takeuchi**](https://myanimelist.net/character.php?q=Masafumi%20Takeuchi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
