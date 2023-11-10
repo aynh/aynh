@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't give up, the beginning is always the hardest, so let's keep on going till the very end."
+> "To master the bending disciplines you must first master discipline itself, but you have no interest in this so I have no interest in you."
 
-&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Jeong Jeong**](https://myanimelist.net/character.php?q=Jeong%20Jeong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
