@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't like how things turned out, then try to change it. And then if it still doesn't work out, that's when you can be depressed."
+> "My place really was here. I was too foolish and stubborn to notice. But, what I truly hoped for then was here. Why do I always realize it... when I've already lost it."
 
-&mdash; [**Nanana Ryuugajou**](https://myanimelist.net/character.php?q=Nanana%20Ryuugajou&cat=character), [**Ryuugajou Nanana No Maizoukin**](https://myanimelist.net/search/all?q=Ryuugajou%20Nanana%20No%20Maizoukin&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
