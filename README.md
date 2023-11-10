@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You shouldn't talk to yourself. People will wonder."
+> "He can't dance in my world right now. Don't let me cry!"
 
-&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
