@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To master the bending disciplines you must first master discipline itself, but you have no interest in this so I have no interest in you."
+> "I envy you. You've been betrayed and hurt, yet you can still forgive each other. I envy you for having such a great friend."
 
-&mdash; [**Jeong Jeong**](https://myanimelist.net/character.php?q=Jeong%20Jeong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kuroyukihime**](https://myanimelist.net/character.php?q=Kuroyukihime&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
