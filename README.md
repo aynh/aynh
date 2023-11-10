@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things you can't see unless you change your standing."
+> "Time is something no one can escape. It delivers us all to the same end."
 
-&mdash; [**Trafalgar Law**](https://myanimelist.net/character.php?q=Trafalgar%20Law&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Pharos**](https://myanimelist.net/character.php?q=Pharos&cat=character), [**Persona 3**](https://myanimelist.net/search/all?q=Persona%203&cat=all)
