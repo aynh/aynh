@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The legendary super-skill of the Scythe-Meister! Witch Hunter!"
+> "When you love someone, I think it's only natural to worry about what they love."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
