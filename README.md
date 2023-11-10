@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Each one of them has something to improve. Victory doesn't come from technique or power alone. In the end, what's needed is a heart that won't give up. The only question is -- Do they have what it takes to push beyond their limits?"
+> "Whether here or in the real world, you can cry when it hurts. There's no rule that you can't show feelings just because it's a game."
 
-&mdash; [**Soujuu Matsushita**](https://myanimelist.net/character.php?q=Soujuu%20Matsushita&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
