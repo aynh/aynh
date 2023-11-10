@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no such thing as parents who don’t think about their children. But there are few children who understand their parents feelings."
+> "You shouldn't talk to yourself. People will wonder."
 
-&mdash; [**Ichi Terakado**](https://myanimelist.net/character.php?q=Ichi%20Terakado&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
