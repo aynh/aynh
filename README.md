@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is eternal? ...Eternal life. Eternal love. Eternal flow of time. Instinctively, they all seem wonderful, but in reality, they are also cruel."
+> "....Would you consider dying together 'Teamwork' as well?"
 
-&mdash; [**Yuki Saegusa**](https://myanimelist.net/character.php?q=Yuki%20Saegusa&cat=character), [**Dance in the Vampire Bund**](https://myanimelist.net/search/all?q=Dance%20in%20the%20Vampire%20Bund&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
