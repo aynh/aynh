@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Showing your back in a battle? You've become a fool Yoruichi!"
+> "Are our enemies the kobolds? No, our real enemies are our overly weak selves."
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
