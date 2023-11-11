@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry, but I hate people who act innocent but are actually opportunists."
+> "Somewhere along the line, I had decided that I can't interact with others. That I have no choice but to be alone, but I've found a new reason to stay. It's because everyone is alone, senpai. Everyone is all alone."
 
-&mdash; [**Nai**](https://myanimelist.net/character.php?q=Nai&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
+&mdash; [**Mirai Kuriyama**](https://myanimelist.net/character.php?q=Mirai%20Kuriyama&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
