@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He can't dance in my world right now. Don't let me cry!"
+> "Some people want power and they get mad when they don't get it. They take their fury out on everyone else. You don't want it, it becomes you."
 
-&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
