@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I envy you. You've been betrayed and hurt, yet you can still forgive each other. I envy you for having such a great friend."
+> "If I sit like a normal person my investigative abilities are only working at 50% efficiency."
 
-&mdash; [**Kuroyukihime**](https://myanimelist.net/character.php?q=Kuroyukihime&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
