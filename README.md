@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "....Would you consider dying together 'Teamwork' as well?"
+> "Showing your back in a battle? You've become a fool Yoruichi!"
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
