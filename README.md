@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All right! Team Avatar is back! Air, water, earth, fire- (grabs a bunch of leaves) fan, and sword! (his leaf limps)"
+> "What is eternal? ...Eternal life. Eternal love. Eternal flow of time. Instinctively, they all seem wonderful, but in reality, they are also cruel."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Yuki Saegusa**](https://myanimelist.net/character.php?q=Yuki%20Saegusa&cat=character), [**Dance in the Vampire Bund**](https://myanimelist.net/search/all?q=Dance%20in%20the%20Vampire%20Bund&cat=all)
