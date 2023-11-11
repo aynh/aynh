@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Somewhere along the line, I had decided that I can't interact with others. That I have no choice but to be alone, but I've found a new reason to stay. It's because everyone is alone, senpai. Everyone is all alone."
+> "It's over between Kana and me. We're not going to get back together. Even if we were together, I would only miss her... (To Shigure and Ayame)"
 
-&mdash; [**Mirai Kuriyama**](https://myanimelist.net/character.php?q=Mirai%20Kuriyama&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
