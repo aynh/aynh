@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Attaining happiness is quite simple. All you have to do is cast away your humanity."
+> "Humans are weak... but we want to live. Even if we're wounded... or tortured... we feel the pain."
 
-&mdash; [**Akihiko Chuuzenji**](https://myanimelist.net/character.php?q=Akihiko%20Chuuzenji&cat=character), [**Mouryou No Hako**](https://myanimelist.net/search/all?q=Mouryou%20No%20Hako&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
