@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The Other Side of the Other Side of the Other Side would be the Other Side."
+> "All right! Team Avatar is back! Air, water, earth, fire- (grabs a bunch of leaves) fan, and sword! (his leaf limps)"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
