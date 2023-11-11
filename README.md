@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are wounds that even magic can't heal, but... even though it was painful to hear you talk about it, it was okay. That part was okay."
+> "If I win, promise you won’t destroy the earth."
 
-&mdash; [**Mary**](https://myanimelist.net/character.php?q=Mary&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Goku**](https://myanimelist.net/character.php?q=Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
