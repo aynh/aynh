@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Some people want power and they get mad when they don't get it. They take their fury out on everyone else. You don't want it, it becomes you."
+> "The Other Side of the Other Side of the Other Side would be the Other Side."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
