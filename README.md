@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I win, promise you won’t destroy the earth."
+> "You should just steal the things you want."
 
-&mdash; [**Goku**](https://myanimelist.net/character.php?q=Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Five**](https://myanimelist.net/character.php?q=Five&cat=character), [**Terror in Resonance**](https://myanimelist.net/search/all?q=Terror%20in%20Resonance&cat=all)
