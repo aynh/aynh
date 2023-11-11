@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's impossible for humans to forget their emotions."
+> "Attaining happiness is quite simple. All you have to do is cast away your humanity."
 
-&mdash; [**Wolfgang Grimmer**](https://myanimelist.net/character.php?q=Wolfgang%20Grimmer&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Akihiko Chuuzenji**](https://myanimelist.net/character.php?q=Akihiko%20Chuuzenji&cat=character), [**Mouryou No Hako**](https://myanimelist.net/search/all?q=Mouryou%20No%20Hako&cat=all)
