@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Araragi* I'm suprised you know such useless things. This is the first time since birth that I've admired you."
+> "It's impossible for humans to forget their emotions."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Wolfgang Grimmer**](https://myanimelist.net/character.php?q=Wolfgang%20Grimmer&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
