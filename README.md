@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are our enemies the kobolds? No, our real enemies are our overly weak selves."
+> "What do you think it means to be the strongest man in the world? The strongest man in the world has power, skill, wisdom, heart, and luck."
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Adlet Mayer**](https://myanimelist.net/character.php?q=Adlet%20Mayer&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
