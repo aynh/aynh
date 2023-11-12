@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People can have lovers. They can have friends. They can be together. But when you think about it, you'll see that originally, we're alone."
+> "My soul wave length just got taken away. I'm gonna miss it."
 
-&mdash; [**Nana Osaki**](https://myanimelist.net/character.php?q=Nana%20Osaki&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
