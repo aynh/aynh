@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are weak... but we want to live. Even if we're wounded... or tortured... we feel the pain."
+> "People can have lovers. They can have friends. They can be together. But when you think about it, you'll see that originally, we're alone."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Nana Osaki**](https://myanimelist.net/character.php?q=Nana%20Osaki&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
