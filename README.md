@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This strength doesn't make any sense. It's not fair. It's like he's made up of the world's unfairness. As if he is the personification of justice... of course. Didn't I already know? This world is unfair. Justice and evil are decided by others. That's how the world is. To oppose the unfair power known as justice, I have to obtain the unfair power known as evil. To defeat the unfair beings known as heroes I have to become an unfair being myself!"
+> "You yourself have to change first, or nothing will change for you."
 
-&mdash; [**Garou**](https://myanimelist.net/character.php?q=Garou&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
