@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A perfect plan doesn't mean having everything go within expectations. A perfect plan is achieved when it has the plasticity needed to flexibly deal with troubles."
+> "This strength doesn't make any sense. It's not fair. It's like he's made up of the world's unfairness. As if he is the personification of justice... of course. Didn't I already know? This world is unfair. Justice and evil are decided by others. That's how the world is. To oppose the unfair power known as justice, I have to obtain the unfair power known as evil. To defeat the unfair beings known as heroes I have to become an unfair being myself!"
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Garou**](https://myanimelist.net/character.php?q=Garou&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
