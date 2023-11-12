@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "While I was with you guys, I became more human. I didn't like that. I even have a family and started to like living on earth."
+> "Foolish alchemists who have turned their backs on the ways of God...shall all be punished."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Scar**](https://myanimelist.net/character.php?q=Scar&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
