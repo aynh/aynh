@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you let the fly live, the spider is going to die. You can't save both without one suffering."
+> "Memories of someone who’s passed away remains beautiful forever and a person’s heart will linger over them, they say."
 
-&mdash; [**Millions Knives**](https://myanimelist.net/character.php?q=Millions%20Knives&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
