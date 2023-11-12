@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My soul wave length just got taken away. I'm gonna miss it."
+> "If you let the fly live, the spider is going to die. You can't save both without one suffering."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Millions Knives**](https://myanimelist.net/character.php?q=Millions%20Knives&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
