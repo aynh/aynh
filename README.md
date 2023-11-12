@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You were ready to kill another creature, yet you’re scared of being killed yourself. Don’t you think that is strange? When you point a gun at a living thing… this is what that act means."
+> "My existence was nothing more to her than a stone by the side of the road. I wasn't enough to fill her belly. Or perhaps I didn't even get reflected in her eyes. I couldn't even hate the beast that killed Teresa. It was me, overcome by fear, that I could not forgive."
 
-&mdash; [**Kurumi Tokisaki**](https://myanimelist.net/character.php?q=Kurumi%20Tokisaki&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
+&mdash; [**Clare**](https://myanimelist.net/character.php?q=Clare&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
