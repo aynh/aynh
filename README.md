@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In order to measure a person’s worth, you must do more than push them. The real way to test their worth is to give them power. When they gain the freedom to act outside the boundaries of law and ethics, you can sometimes see their souls. When the weak become strong... When good citizens become free to engage in violence... I'm interested to see what is the outcome of that."
+> "Our lives become a reality through the most meticulous calculations. Doing our best to continue living is a resolution ingrained in all of us. And this shapes the right future for us. You could say it is life’s greatest mystery. I want to observe the destination reached by the many lives that are created."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Akari**](https://myanimelist.net/character.php?q=Akari&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
