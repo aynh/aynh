@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My existence was nothing more to her than a stone by the side of the road. I wasn't enough to fill her belly. Or perhaps I didn't even get reflected in her eyes. I couldn't even hate the beast that killed Teresa. It was me, overcome by fear, that I could not forgive."
+> "Pain isn't something you have to feel, it's something you have to express."
 
-&mdash; [**Clare**](https://myanimelist.net/character.php?q=Clare&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Mikiya Kokutō**](https://myanimelist.net/character.php?q=Mikiya%20Kokut%C5%8D&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
