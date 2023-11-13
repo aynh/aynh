@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A half moon. A bright half and a dark half. Just like me."
+> "Don't move. Oh, my bad. I mean, you can move if you want, but it'd be very dangerous."
 
-&mdash; [**Gasai Yuno**](https://myanimelist.net/character.php?q=Gasai%20Yuno&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
