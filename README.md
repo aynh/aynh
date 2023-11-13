@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Inuyasha* Your stupidity knows no boundaries. Run and hide while you can."
+> "Giraffe! Giraffe! I love Giraffes!"
 
-&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
