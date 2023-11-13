@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans who would dare to play God must pay a steep price for their arrogance, that is Truth."
+> "You need to accept the fact that you're not the best and have all the will to strive to be better than anyone you face."
 
-&mdash; [**Father**](https://myanimelist.net/character.php?q=Father&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
