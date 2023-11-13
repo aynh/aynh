@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are taught never to shed tears. For to shed tears means that the body has been defeated by emotion. And to us, this simple act of crying proves, without question, that the existence of emotion is nothing but a burden."
+> "I'll sooner die than become burden."
 
-&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
