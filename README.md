@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm going to become the best manga editor anyone's ever seen! And then you can kiss your job goodbye!"
+> "No matter how you look, as long as your judgement is clouded you won't find the truth."
 
-&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Igor Neuhaus**](https://myanimelist.net/character.php?q=Igor%20Neuhaus&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
