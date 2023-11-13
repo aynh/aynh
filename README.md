@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's the sky...that allows the clouds to move about freely."
+> "Humans who would dare to play God must pay a steep price for their arrogance, that is Truth."
 
-&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Father**](https://myanimelist.net/character.php?q=Father&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
