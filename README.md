@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yudan sezu ni ikkou."
+> "[after finding his stolen boomerang] Boomerang! You do always come back!"
 
-&mdash; [**Tezuka Kunimitsu**](https://myanimelist.net/character.php?q=Tezuka%20Kunimitsu&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
