@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Last words] All right then, I'll put you out of your misery. [Her hands are sliced off] Eh?"
+> "The ability to understand others just by touching definitely exists. There might not be any reason to be afraid of touching and being touched by others, or hugging and being hugged by others."
 
-&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
