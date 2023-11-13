@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stake your lives on this fight! Our survival demands that we stake our lives on this fight! And to survive, is to be victorious!"
+> "A half moon. A bright half and a dark half. Just like me."
 
-&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Gasai Yuno**](https://myanimelist.net/character.php?q=Gasai%20Yuno&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
