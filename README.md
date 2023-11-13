@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how much this world may change, I shall always remain myself."
+> "If you want to be strong, smile! He who can smile, even when he's so sad that he wants to die, when it's so painful that he wants to give it all up and run away, is the one who becomes strong."
 
-&mdash; [**Jurai Andou**](https://myanimelist.net/character.php?q=Jurai%20Andou&cat=character), [**Inou-Battle wa Nichijou-kei no Naka de**](https://myanimelist.net/search/all?q=Inou-Battle%20wa%20Nichijou-kei%20no%20Naka%20de&cat=all)
+&mdash; [**Atro Spiker**](https://myanimelist.net/character.php?q=Atro%20Spiker&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
