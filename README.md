@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "ou know you're a real wise ass, you know that?! (to Yuki)"
+> "Geniuses don't understand the feelings of people who aren't able to do something."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Akatsuki no Yona**](https://myanimelist.net/character.php?q=Akatsuki%20no%20Yona&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
