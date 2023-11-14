@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even the mightiest warriors experience fears. What makes them a true warrior is the courage that they posses to overcome their fears."
+> "I just told you what I think, now say something DAMMIT!"
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
