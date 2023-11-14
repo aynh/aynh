@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Justice without a great cause begets nothing more than slaughter. That same slaughter in a great cause...Is Justice."
+> "Who cares? Who cares if they're human or if they're something else? If they have boobs, what's the problem?"
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sakurai Tomozo**](https://myanimelist.net/character.php?q=Sakurai%20Tomozo&cat=character), [**Sora no Otoshimono: Forte**](https://myanimelist.net/search/all?q=Sora%20no%20Otoshimono%3A%20Forte&cat=all)
