@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Readiness and sincerity, qualities that are indispensible in order to accomplish anything. Qualities you are well provided with."
+> "It is a shame for a knight to have one's trust in him withdrawn halfway."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Gray Co Aldo**](https://myanimelist.net/character.php?q=Gray%20Co%20Aldo&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
