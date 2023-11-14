@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't move. Oh, my bad. I mean, you can move if you want, but it'd be very dangerous."
+> "Even the mightiest warriors experience fears. What makes them a true warrior is the courage that they posses to overcome their fears."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
