@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We shouldn't blame ourselves for bad things that happened to us. Sometimes, no matter what we do, we are victims of the circumstances. We should just have to pull ourselves out."
+> "Why do I want to win so much...? Everyone takes up soccer for different reasons. But we all have a passion for the sport... That drive carries us through a game, even if we lose. If we win, it pushes us forward to the next game. The winners of the game honour the losers by playing with everything they have... and until we hit a wall, until a better team beats us, we should try our best, instead of running away. That's what I want to do!"
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Shō Kazamatsuri**](https://myanimelist.net/character.php?q=Sh%C5%8D%20Kazamatsuri&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
