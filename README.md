@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just told you what I think, now say something DAMMIT!"
+> "Oh, you're one of those guys... You don't care if somebody beats the crap out of you, but if someone lays a finger on a family member, you completely freak out. What a waste..."
 
-&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
