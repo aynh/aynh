@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone in this world carries around their own sins, and they never go away...but that doesn't change the fact that we do what we must."
+> "Justice without a great cause begets nothing more than slaughter. That same slaughter in a great cause...Is Justice."
 
-&mdash; [**Wolfgang Grimmer**](https://myanimelist.net/character.php?q=Wolfgang%20Grimmer&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
