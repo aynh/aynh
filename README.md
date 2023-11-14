@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why do I want to win so much...? Everyone takes up soccer for different reasons. But we all have a passion for the sport... That drive carries us through a game, even if we lose. If we win, it pushes us forward to the next game. The winners of the game honour the losers by playing with everything they have... and until we hit a wall, until a better team beats us, we should try our best, instead of running away. That's what I want to do!"
+> "If you come across an event that's too good to be true, it's probably poison."
 
-&mdash; [**Shō Kazamatsuri**](https://myanimelist.net/character.php?q=Sh%C5%8D%20Kazamatsuri&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
