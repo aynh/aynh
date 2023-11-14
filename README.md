@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Geniuses don't understand the feelings of people who aren't able to do something."
+> "Have faith in your inspiration. Feel the imagination!"
 
-&mdash; [**Akatsuki no Yona**](https://myanimelist.net/character.php?q=Akatsuki%20no%20Yona&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
