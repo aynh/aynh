@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you come across an event that's too good to be true, it's probably poison."
+> "The time known as 'LIFE', cannot be rewound."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Ultear Milkovich**](https://myanimelist.net/character.php?q=Ultear%20Milkovich&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
