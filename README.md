@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We aren't flying away from everyone to leave them, but rather so we might see them again someday."
+> "WHO ARE YOU CALLING A MOUSY LITTLE PIPSQUEAK?!"
 
-&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
