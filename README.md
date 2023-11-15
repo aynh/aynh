@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I did win, it was boring. How can it be interesting unless you win in an interesting way?"
+> "Embrace that feeling. Love’s never rational."
 
-&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Suzuura Natsuki**](https://myanimelist.net/character.php?q=Suzuura%20Natsuki&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
