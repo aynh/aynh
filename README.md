@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I’m shown something so pure and innocent, I’m forced to see the filthy part of myself even more and it pisses me off."
+> "I have to accept that who I want to become and who I can actually become are different."
 
-&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
