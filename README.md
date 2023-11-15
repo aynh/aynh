@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "WHO ARE YOU CALLING A MOUSY LITTLE PIPSQUEAK?!"
+> "I hate perfection. To be perfect is to be unable to improve any further."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
