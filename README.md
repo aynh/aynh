@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life happens wherever you are, whether you make it or not."
+> "There will come a time in a man's life, when he must accomplish something at the risk of his life."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Suguru Daimon**](https://myanimelist.net/character.php?q=Suguru%20Daimon&cat=character), [**Digimon Savers**](https://myanimelist.net/search/all?q=Digimon%20Savers&cat=all)
