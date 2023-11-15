@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "True Change cannot be made if it is bound by laws and limitations, predictions and imagination."
+> "Even if I did win, it was boring. How can it be interesting unless you win in an interesting way?"
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
