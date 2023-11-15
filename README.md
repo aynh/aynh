@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Schools are facilities where human society secludes the troublesome children by age criteria."
+> "I'm not your weapon, demon king, or savior! I'm Rin Okumura! And when I'm done, I'm going to be the best exorcist you ever laid your eyes on!"
 
-&mdash; [**Hampnie Hambart**](https://myanimelist.net/character.php?q=Hampnie%20Hambart&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
+&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
