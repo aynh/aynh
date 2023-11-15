@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There will come a time in a man's life, when he must accomplish something at the risk of his life."
+> "London bridge is falling down dude!"
 
-&mdash; [**Suguru Daimon**](https://myanimelist.net/character.php?q=Suguru%20Daimon&cat=character), [**Digimon Savers**](https://myanimelist.net/search/all?q=Digimon%20Savers&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
