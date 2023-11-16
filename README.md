@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Strive to consistently maintain the proper flow. That is the Tohsaka family motto. It means always remaining reserved and elegant."
+> "People do peculiar things when it comes to love... Our own safety doesn't seem so important."
 
-&mdash; [**Tohsaka Tokiomi**](https://myanimelist.net/character.php?q=Tohsaka%20Tokiomi&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Fay D. Flourite**](https://myanimelist.net/character.php?q=Fay%20D.%20Flourite&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
