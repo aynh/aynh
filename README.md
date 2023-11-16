@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But its power goes beyond what is necessary... Does one really need the power to destroy everything?"
+> "Strive to consistently maintain the proper flow. That is the Tohsaka family motto. It means always remaining reserved and elegant."
 
-&mdash; [**Fei Fong Wong**](https://myanimelist.net/character.php?q=Fei%20Fong%20Wong&cat=character), [**Xenogears**](https://myanimelist.net/search/all?q=Xenogears&cat=all)
+&mdash; [**Tohsaka Tokiomi**](https://myanimelist.net/character.php?q=Tohsaka%20Tokiomi&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
