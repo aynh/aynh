@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter if you grew up without parents, and it doesn't matter if you don't believe in God. There's someone out there watching over you."
+> "Why don't we drink to me and my reflection in your lovely eyes?"
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Andy Von De Oniyate**](https://myanimelist.net/character.php?q=Andy%20Von%20De%20Oniyate&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
