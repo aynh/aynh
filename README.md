@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone lives their own way. Whether you live for yourself or live for others... that is your own decision. A life of earnestly protecting and tending to someone isn't bad either. Though it's not that glorious of a life."
+> "DEATH is so unfair. It comes to those who don't need it. But not the people who are asking for it."
 
-&mdash; [**Naoto Inaba**](https://myanimelist.net/character.php?q=Naoto%20Inaba&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
+&mdash; [**Yuu Otosaka**](https://myanimelist.net/character.php?q=Yuu%20Otosaka&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
