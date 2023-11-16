@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People do peculiar things when it comes to love... Our own safety doesn't seem so important."
+> "Everyone lives their own way. Whether you live for yourself or live for others... that is your own decision. A life of earnestly protecting and tending to someone isn't bad either. Though it's not that glorious of a life."
 
-&mdash; [**Fay D. Flourite**](https://myanimelist.net/character.php?q=Fay%20D.%20Flourite&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Naoto Inaba**](https://myanimelist.net/character.php?q=Naoto%20Inaba&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
