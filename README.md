@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm Black Star. I'm on a whole different level than you. I'm a big man! I beat death! Who else can say that?!"
+> "Guys are simple creatures. Just by talking to them, they get the wrong idea."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
