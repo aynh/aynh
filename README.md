@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I understand the pain of losing a comrade. I've experienced it, too. Please do not forget the pain. You will move forward while holding on to that pain. Please treasure the comrades you have now. Once they are gone, they will not return. Usually, you don't realize this until afterwards."
+> "Just give up already. Or do you want my other knife to slice your throat?"
 
-&mdash; [**Shinohara**](https://myanimelist.net/character.php?q=Shinohara&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
