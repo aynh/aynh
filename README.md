@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "DEATH is so unfair. It comes to those who don't need it. But not the people who are asking for it."
+> "But the big difference is who I work for. I'd rather die than be a yes-man to someone I don't even like."
 
-&mdash; [**Yuu Otosaka**](https://myanimelist.net/character.php?q=Yuu%20Otosaka&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
+&mdash; [**Shalnark**](https://myanimelist.net/character.php?q=Shalnark&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
