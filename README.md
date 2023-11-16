@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether you walk or run, the destination won't change. So then... You might as well run there!!!"
+> "It's not like we lost anything when there was nothing between us to start with. We could never really be equals. I've always been alone."
 
-&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Izumiko Suzuhara**](https://myanimelist.net/character.php?q=Izumiko%20Suzuhara&cat=character), [**RDG: Red Data Girl**](https://myanimelist.net/search/all?q=RDG%3A%20Red%20Data%20Girl&cat=all)
