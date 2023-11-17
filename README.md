@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've never seen a hero fall down stairs, cry, and get first aid from demons."
+> "You couldn't save your mom because you... weren't strong enough. I didn't face the Titan... because I wasn't brave enough."
 
-&mdash; [**Maou Sadao**](https://myanimelist.net/character.php?q=Maou%20Sadao&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
+&mdash; [**Hannes**](https://myanimelist.net/character.php?q=Hannes&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
