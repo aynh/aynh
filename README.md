@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My goal isn't your death. I will just torture you, make you awaken and then make you my friends!"
+> "You don't stand a single chance to win, unless you fight."
 
-&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
