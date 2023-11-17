@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you are facing a bitter aspect of life... Drugs and murder are foul, without any excuse. Deserve a red card, for a loser."
+> "Even if I am to carry all the evils of this world, it won't matter. If that can save the world, then I'd gladly accept it."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
