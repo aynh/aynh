@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He told me...that which is incomplete seeks completion... yet...that which is incomplete is no better than that which is complete. Do you understand?"
+> "I don't want fear for a future, that may not even come, to stop me from acting today."
 
-&mdash; [**Argentine**](https://myanimelist.net/character.php?q=Argentine&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Simon**](https://myanimelist.net/character.php?q=Simon&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
