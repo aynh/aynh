@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being strong on your own is meaningless. To have power you need other people, and they need a world where they can be at their best."
+> "From a different perspective, an imposing wall is just a large door."
 
-&mdash; [**Shiroe**](https://myanimelist.net/character.php?q=Shiroe&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
