@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anyone may claim that he will act in the direst times, yet only a brave man acts in times great and small."
+> "[after drawing the infinity symbol] I thought of it myself, it stands for... Mugen."
 
-&mdash; [**Cloud Strife**](https://myanimelist.net/character.php?q=Cloud%20Strife&cat=character), [**Final Fantasy VII: Advent Children**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Advent%20Children&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
