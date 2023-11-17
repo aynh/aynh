@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have yet to see what form your soul has taken. That's what it actually means when you claim that you lack joy in your life."
+> "Being strong on your own is meaningless. To have power you need other people, and they need a world where they can be at their best."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Shiroe**](https://myanimelist.net/character.php?q=Shiroe&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
