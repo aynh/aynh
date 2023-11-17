@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want fear for a future, that may not even come, to stop me from acting today."
+> "I despise you with my last breath. My spirit will not forget that all consuming hatred.  So long that you live, my spirit can not be free. *to Inuyasha*"
 
-&mdash; [**Simon**](https://myanimelist.net/character.php?q=Simon&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
