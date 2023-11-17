@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I am to carry all the evils of this world, it won't matter. If that can save the world, then I'd gladly accept it."
+> "When the hunger seemed to kill me, I was wondering if the world hates me. I can't explain it, but I still love the world."
 
-&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Johnathan Mar**](https://myanimelist.net/character.php?q=Johnathan%20Mar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
