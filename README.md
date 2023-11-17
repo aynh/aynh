@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's dangerous here. If you stare at the stars long enough, you start thinking you could grab one, and you get this feeling like all your dreams will come true."
+> "Power is not the only connection you can have.  This world is filled with much warmer things."
 
-&mdash; [**Shinichi Okazaki**](https://myanimelist.net/character.php?q=Shinichi%20Okazaki&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Minerva Orland**](https://myanimelist.net/character.php?q=Minerva%20Orland&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
