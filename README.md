@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...Without love, it cannot be seen? ...Hah. That's backwards... Because of love, you end up seeing things that don't even exist."
+> "If you truly loved her, you'd save her even if you were weak or it would be painful. That's the pride of a man"
 
-&mdash; [**Furudo Erika**](https://myanimelist.net/character.php?q=Furudo%20Erika&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
