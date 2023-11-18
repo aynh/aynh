@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, well, if it isn't the holy monk."
+> "If you're looking at a single withered tree, it can seem like a big wound to the forest. But from the forest's perspective, that tree's remains will nourish other plants, acting for the good of the whole forest. If you change your perspective, a situation right in front of you, can reverse itself."
 
-&mdash; [**Naraku**](https://myanimelist.net/character.php?q=Naraku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
