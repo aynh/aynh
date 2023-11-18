@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If training hard can make you number one, then how many number one do you think this world will have!?"
+> "...Without love, it cannot be seen? ...Hah. That's backwards... Because of love, you end up seeing things that don't even exist."
 
-&mdash; [**Kazuma Mikura**](https://myanimelist.net/character.php?q=Kazuma%20Mikura&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Furudo Erika**](https://myanimelist.net/character.php?q=Furudo%20Erika&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
