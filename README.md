@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's stupid to talk about things you're not. Be yourself and you'll be fine."
+> "[as he prepares to fire on the Eternal with Lacus Clyne on board] It's a shame really, I did enjoy your songs. But the real world isn't as kind as the one in pop songs!"
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
