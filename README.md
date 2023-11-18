@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Senpai, take me to the art museum again. Next time, I'll carefully listen to what you say. Please feed me worms!"
+> "And while you're waiting for us to kill you, we highly recommend p!1849!ng yourself, Followed by a course of praying to your impudent god. And cowarding in the corner and begging, always good. But if you act now, there's still time for an old-fashioned suicide!! Thank you London! We love you! Goodnight!"
 
-&mdash; [**Noda Megumi**](https://myanimelist.net/character.php?q=Noda%20Megumi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
+&mdash; [**Jan Valentine**](https://myanimelist.net/character.php?q=Jan%20Valentine&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
