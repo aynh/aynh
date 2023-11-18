@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And while you're waiting for us to kill you, we highly recommend p!1849!ng yourself, Followed by a course of praying to your impudent god. And cowarding in the corner and begging, always good. But if you act now, there's still time for an old-fashioned suicide!! Thank you London! We love you! Goodnight!"
+> "If you have time to think of a beautiful end, then live beautifully until the end."
 
-&mdash; [**Jan Valentine**](https://myanimelist.net/character.php?q=Jan%20Valentine&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
