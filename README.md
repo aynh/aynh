@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[as he prepares to fire on the Eternal with Lacus Clyne on board] It's a shame really, I did enjoy your songs. But the real world isn't as kind as the one in pop songs!"
+> "It's just... a love that's continued for many years without straying is something that, to anyone who sees it, is beautiful and impossible to fault. But... Though it may be short, and it may be something that's become crooked and bent partway through, if they're serious about the way they feel... then I don't think that's something that isn't beautiful."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
