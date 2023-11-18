@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Laugh at love and love will make you cry."
+> "There are some things you can gain by letting some things go. Happiness isn't just what you have here and now."
 
-&mdash; [**Yasushi Takagi**](https://myanimelist.net/character.php?q=Yasushi%20Takagi&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Kunio Yaobi**](https://myanimelist.net/character.php?q=Kunio%20Yaobi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
