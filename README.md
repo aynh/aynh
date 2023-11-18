@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Aren't we all monsters inside?"
+> "It's stupid to talk about things you're not. Be yourself and you'll be fine."
 
-&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
