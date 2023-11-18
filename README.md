@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The little man is having trouble holding his sword. *to Inuyasha*"
+> "If training hard can make you number one, then how many number one do you think this world will have!?"
 
-&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Kazuma Mikura**](https://myanimelist.net/character.php?q=Kazuma%20Mikura&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
