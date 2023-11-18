@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When the hunger seemed to kill me, I was wondering if the world hates me. I can't explain it, but I still love the world."
+> "Aren't we all monsters inside?"
 
-&mdash; [**Johnathan Mar**](https://myanimelist.net/character.php?q=Johnathan%20Mar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
