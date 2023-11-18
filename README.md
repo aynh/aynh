@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's just... a love that's continued for many years without straying is something that, to anyone who sees it, is beautiful and impossible to fault. But... Though it may be short, and it may be something that's become crooked and bent partway through, if they're serious about the way they feel... then I don't think that's something that isn't beautiful."
+> "Children, this is the only gift I can give you right now. A formless gift you call a memory. I don’t have any money and I can’t give you something tangible. But even so, even if it isn’t tangible, a memory is something that will continue to be with you. That is what I believe…"
 
-&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
