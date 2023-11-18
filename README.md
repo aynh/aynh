@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's past is past. I cannot redo it, nor go back to it. I have escaped from that scene and still continue to live. All I can do is look forward."
+> "The weaker you are the louder you bark."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Tenten**](https://myanimelist.net/character.php?q=Tenten&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
