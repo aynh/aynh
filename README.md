@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not sure why I've decided to do this. I'm not any stronger than I was, and nothing else has changed. But all the same, this time I'm not going to run away. It's okay to feel weak sometimes. It's okay to be afraid. The important thing is that we face our fears. That's... that's what makes us strong."
+> "Do you think I can shoulder everyone's lives and not feel any weight? I don't want to be indifferent. I want to be worthy of everyone's feelings."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
