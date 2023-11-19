@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This might come a little late but... you people make me sick."
+> "Don't remind me. I'm mad enough to hurt somebody and pounding you just might be the therapy I need."
 
-&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
