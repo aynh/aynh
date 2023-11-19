@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans can lie with words. And they can deceive with actions. You can't trust their eyes, voices, or expressions. But when they're about to die, their faces show the truth, no matter what."
+> "I’d rather fight and regret it than not fight and regret it."
 
-&mdash; [**Hans Humpty**](https://myanimelist.net/character.php?q=Hans%20Humpty&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
+&mdash; [**Reinhard von Lohengramm**](https://myanimelist.net/character.php?q=Reinhard%20von%20Lohengramm&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
