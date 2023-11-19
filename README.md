@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No amount of passion can overcome a lack of technical expertise."
+> "If I try to deny my past, I'm denying the person I've become. I don't want to do that."
 
-&mdash; [**Fuyumi Irisu**](https://myanimelist.net/character.php?q=Fuyumi%20Irisu&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
