@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All truth is meaningless. In the end, 'meaning' comes from the mind of each individual human. Even when there is a single truth, it can mean different things to different individuals. The truth has no meaning in itself!"
+> "Hijikata-san. I forgot my flute at the headquarters, so I'm gonna go back and get it real quick."
 
-&mdash; [**Furudo Erika**](https://myanimelist.net/character.php?q=Furudo%20Erika&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
