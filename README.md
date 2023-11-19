@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't care if it is fortunate or unfortunate that Light picked up the Death Note. However... It is generally bad luck for a person to be followed by a God of Death."
+> "This might come a little late but... you people make me sick."
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
