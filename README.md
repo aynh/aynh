@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hijikata-san. I forgot my flute at the headquarters, so I'm gonna go back and get it real quick."
+> "There isn’t just one truth. That truth only exists because a few people saw it. If you don’t believe what the books say, then you should go see the world for yourself."
 
-&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
