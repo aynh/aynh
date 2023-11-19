@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you guys weren't here, I don't know what would have happened to me. You can't live in this world alone, no matter how you look at it."
+> "Humans can lie with words. And they can deceive with actions. You can't trust their eyes, voices, or expressions. But when they're about to die, their faces show the truth, no matter what."
 
-&mdash; [**Manato**](https://myanimelist.net/character.php?q=Manato&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Hans Humpty**](https://myanimelist.net/character.php?q=Hans%20Humpty&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
