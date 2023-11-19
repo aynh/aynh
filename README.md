@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I try to deny my past, I'm denying the person I've become. I don't want to do that."
+> "Your voice sounds so lovely when you're whimpering in agony."
 
-&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
