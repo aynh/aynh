@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your home is the place where you can be yourself."
+> "It doesn't matter where I look, it's always idiots as far as the eye can see."
 
-&mdash; [**Wataru Kurozuma**](https://myanimelist.net/character.php?q=Wataru%20Kurozuma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
