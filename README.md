@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't remind me. I'm mad enough to hurt somebody and pounding you just might be the therapy I need."
+> "Your home is the place where you can be yourself."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Wataru Kurozuma**](https://myanimelist.net/character.php?q=Wataru%20Kurozuma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
