@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We're basically developing at this point, and we don't know the limits of our potential. Even if we felt those limits we would still keep aiming higher."
+> "I'm not stupid. I'm just too lazy to show how smart I am."
 
-&mdash; [**Daichi Sawamura**](https://myanimelist.net/character.php?q=Daichi%20Sawamura&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
