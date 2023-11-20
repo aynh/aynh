@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People fear death because they don't 'understand' it, and we're afraid of strangers because we don't 'know' them. Not being able to understand the one you love... is the worst fear of all."
+> "I actually don't think something like perfection exists. That is I think why we are born able to absorb things... and by comparing ourselves with something else we can finally head in a good direction."
 
-&mdash; [**Mitsuzaki Yosuga**](https://myanimelist.net/character.php?q=Mitsuzaki%20Yosuga&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
