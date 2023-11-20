@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one knows what the future holds. That's why its potential is infinite."
+> "Doesn't it ever get boring always being on the winning side?"
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Thorkell**](https://myanimelist.net/character.php?q=Thorkell&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
