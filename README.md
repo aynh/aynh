@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I actually don't think something like perfection exists. That is I think why we are born able to absorb things... and by comparing ourselves with something else we can finally head in a good direction."
+> "Every moment hesitated is a moment gone from life."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
