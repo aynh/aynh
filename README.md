@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop trying to change things that can't be changed. The past is the past and you have to let it go and embrace the future."
+> "Listen up, you lowlifes who will never amount to anything!"
 
-&mdash; [**Jack Atlas**](https://myanimelist.net/character.php?q=Jack%20Atlas&cat=character), [**Yu-Gi-Oh! 5D's**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%205D's&cat=all)
+&mdash; [**Himari Takakura**](https://myanimelist.net/character.php?q=Himari%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
