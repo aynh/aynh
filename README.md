@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is DUUUMMMBBB!!!!!!"
+> "You'll never be able to go anywhere unless you learn how to let go."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Mishakuji Yukari**](https://myanimelist.net/character.php?q=Mishakuji%20Yukari&cat=character), [**K: Missing Kings**](https://myanimelist.net/search/all?q=K%3A%20Missing%20Kings&cat=all)
