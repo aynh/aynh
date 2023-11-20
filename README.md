@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The best way to escape reality without running is smiling even if it is obviously fake."
+> "All humans are loved by another and build up emotions with them. That's nature's providence. There's no way around it. And it's pointless to question it. A bug with wings has no idea why, but it can't help but want to fly. When two people can't help but seek one another out, I think, in essence, it's exactly the same scenario."
 
-&mdash; [**Sai**](https://myanimelist.net/character.php?q=Sai&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Isshin Saitō**](https://myanimelist.net/character.php?q=Isshin%20Sait%C5%8D&cat=character), [**Psychic Detective Yakumo**](https://myanimelist.net/search/all?q=Psychic%20Detective%20Yakumo&cat=all)
