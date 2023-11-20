@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't believe in the me that believe in you, don't believe in the you that believes in me, believe in yourself who believes in you!"
+> "People fear death because they don't 'understand' it, and we're afraid of strangers because we don't 'know' them. Not being able to understand the one you love... is the worst fear of all."
 
-&mdash; [**Kamina**](https://myanimelist.net/character.php?q=Kamina&cat=character), [**Gurren Lagann**](https://myanimelist.net/search/all?q=Gurren%20Lagann&cat=all)
+&mdash; [**Mitsuzaki Yosuga**](https://myanimelist.net/character.php?q=Mitsuzaki%20Yosuga&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
