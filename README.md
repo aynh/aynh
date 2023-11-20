@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it's the army's job to end a war, it's the king's job to find a place for it to end."
+> "Stop trying to change things that can't be changed. The past is the past and you have to let it go and embrace the future."
 
-&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
+&mdash; [**Jack Atlas**](https://myanimelist.net/character.php?q=Jack%20Atlas&cat=character), [**Yu-Gi-Oh! 5D's**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%205D's&cat=all)
