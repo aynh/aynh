@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Doesn't it ever get boring always being on the winning side?"
+> "We're basically developing at this point, and we don't know the limits of our potential. Even if we felt those limits we would still keep aiming higher."
 
-&mdash; [**Thorkell**](https://myanimelist.net/character.php?q=Thorkell&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Daichi Sawamura**](https://myanimelist.net/character.php?q=Daichi%20Sawamura&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
