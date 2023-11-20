@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The best way to succeed is to use your own abilities to the fullest."
+> "Don't believe in the me that believe in you, don't believe in the you that believes in me, believe in yourself who believes in you!"
 
-&mdash; [**Yukio Okumura**](https://myanimelist.net/character.php?q=Yukio%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Kamina**](https://myanimelist.net/character.php?q=Kamina&cat=character), [**Gurren Lagann**](https://myanimelist.net/search/all?q=Gurren%20Lagann&cat=all)
