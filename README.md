@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen up, you lowlifes who will never amount to anything!"
+> "If there's any possibility that I might visit this city again...Then I challenge you to a duel.  I wish to speak with you head-on, to within an inch of my life...To actually experience the joy of existing in this world...that is my desire."
 
-&mdash; [**Himari Takakura**](https://myanimelist.net/character.php?q=Himari%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Vorona**](https://myanimelist.net/character.php?q=Vorona&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
