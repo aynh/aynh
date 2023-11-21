@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*guilty voice* Because of my carelessness Araragi-kun realized that his brain is slower than others."
+> "I'm Black Star. I'm on a whole different level than you. I'm a big man! I beat death! Who else can say that?!"
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
