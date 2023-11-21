@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Smiles and laughter are always good, but never forget your Poker Face!"
+> "Don’t give up! There’s no shame in falling down! True shame is to not stand up again!"
 
-&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Midorima Shintarou**](https://myanimelist.net/character.php?q=Midorima%20Shintarou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
