@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone's reality is freight with some degree of pain. What's wrong with seeing what makes you happy in your dreams?"
+> "*guilty voice* Because of my carelessness Araragi-kun realized that his brain is slower than others."
 
-&mdash; [**Natsume**](https://myanimelist.net/character.php?q=Natsume&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
