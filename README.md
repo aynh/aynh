@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ash will never really be alone cause he's got... me."
+> "No matter what painful things happens, even when it looks like you'll lose... when no one else in the world believes in you... when you don't even believe in yourself... I will believe in you!"
 
-&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Rem (re:zero)**](https://myanimelist.net/character.php?q=Rem%20(re%3Azero)&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
