@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once the kiln is opened and the pottery inspected, all that are crooked or bear cracks are fated to be smashed. If all that awaited us was the fate of smashed pottery, then we decided we would rather run away in the hopes of finding a different future."
+> "Hmmm...how do I put this? My first impression of this group...you're a bunch of idiots!"
 
-&mdash; [**Maria Akitsuki**](https://myanimelist.net/character.php?q=Maria%20Akitsuki&cat=character), [**Shinsekai Yori**](https://myanimelist.net/search/all?q=Shinsekai%20Yori&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
