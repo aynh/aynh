@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The ones who do what they want and enjoy the most of their lives are the ones who win in the end."
+> "*To Kaoru* Even if I searched the world over, no one could compare to you."
 
-&mdash; [**Charlie Staz**](https://myanimelist.net/character.php?q=Charlie%20Staz&cat=character), [**Blood Lad**](https://myanimelist.net/search/all?q=Blood%20Lad&cat=all)
+&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
