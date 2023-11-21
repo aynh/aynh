@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But I wasn't slacking at all. I practiced till I passed out. I gave my all. And if I still turned in a sloppy performance after all that, then... That's who I am now. It's the current me, playing with everything I've got."
+> "I love you!! Even if you go bald or like underage girls, I can handle it! I'm crazy with love!! (Young Kyoko talking to Tohru's fatherher husband)"
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
