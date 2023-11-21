@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Kaoru* Even if I searched the world over, no one could compare to you."
+> "Skilled only at making excuses that justify nothing, he is someone whose life has no value. The same goes for me. I have the right to stop you because I'm just like you."
 
-&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
