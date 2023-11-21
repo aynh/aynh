@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hmmm...how do I put this? My first impression of this group...you're a bunch of idiots!"
+> "Don't tell me he wants to conquer the world? Can't he come up with something more original?"
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
