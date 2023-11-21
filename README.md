@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A journey of a thousand miles begins with a single step. Even though each step is small, you never know if you'll end up achieving your major goal."
+> "The longer you keep a secret, the harder it becomes to say it."
 
-&mdash; [**Ensei Rou**](https://myanimelist.net/character.php?q=Ensei%20Rou&cat=character), [**The Story of Saiunkoku**](https://myanimelist.net/search/all?q=The%20Story%20of%20Saiunkoku&cat=all)
+&mdash; [**Taishi Ichimiya**](https://myanimelist.net/character.php?q=Taishi%20Ichimiya&cat=character), [**Servant X Service**](https://myanimelist.net/search/all?q=Servant%20X%20Service&cat=all)
