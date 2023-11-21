@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only I could do it! I was well aware that killing people is crime in itself! Yet at that point it was the only way to make things right! I thought to myself that someday people will come to realize this as much, and regard it as an act of justice! I had no choice but to act as Kira… it was the destiny given to me. I was chosen to renew this rotten world, to bring about true peace – a utopia."
+> "The ones who do what they want and enjoy the most of their lives are the ones who win in the end."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Charlie Staz**](https://myanimelist.net/character.php?q=Charlie%20Staz&cat=character), [**Blood Lad**](https://myanimelist.net/search/all?q=Blood%20Lad&cat=all)
