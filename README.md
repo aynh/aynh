@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someday, my memories of her will fade. Her voice, her actions – I might forget them as well. But even then, I will always remember that I loved her."
+> "Stories are better when they have an ending, are they not?"
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
