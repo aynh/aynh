@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The longer you keep a secret, the harder it becomes to say it."
+> "Once the kiln is opened and the pottery inspected, all that are crooked or bear cracks are fated to be smashed. If all that awaited us was the fate of smashed pottery, then we decided we would rather run away in the hopes of finding a different future."
 
-&mdash; [**Taishi Ichimiya**](https://myanimelist.net/character.php?q=Taishi%20Ichimiya&cat=character), [**Servant X Service**](https://myanimelist.net/search/all?q=Servant%20X%20Service&cat=all)
+&mdash; [**Maria Akitsuki**](https://myanimelist.net/character.php?q=Maria%20Akitsuki&cat=character), [**Shinsekai Yori**](https://myanimelist.net/search/all?q=Shinsekai%20Yori&cat=all)
