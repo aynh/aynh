@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm Black Star. I'm on a whole different level than you. I'm a big man! I beat death! Who else can say that?!"
+> "Someday, my memories of her will fade. Her voice, her actions – I might forget them as well. But even then, I will always remember that I loved her."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
