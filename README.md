@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't tell me he wants to conquer the world? Can't he come up with something more original?"
+> "Ash will never really be alone cause he's got... me."
 
-&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
+&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
