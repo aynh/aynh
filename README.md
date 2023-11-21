@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[upon arriving at Szayel Aporro Grantz's location] Arrancar, Arrancar, Arrancar... Espada! Hueco Mundo is quite the treasure trove."
+> "Everyone's reality is freight with some degree of pain. What's wrong with seeing what makes you happy in your dreams?"
 
-&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Natsume**](https://myanimelist.net/character.php?q=Natsume&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
