@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I love you!! Even if you go bald or like underage girls, I can handle it! I'm crazy with love!! (Young Kyoko talking to Tohru's fatherher husband)"
+> "Admiration is the furthest thing from understanding."
 
-&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
