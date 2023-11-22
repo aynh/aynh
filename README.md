@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're not a good-for-nothing person. I think that being able to try your hardest to be something is a talent by itself."
+> "A pig that doesn't fly is just a pig."
 
-&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Porco Rosso**](https://myanimelist.net/character.php?q=Porco%20Rosso&cat=character), [**Porco Rosso**](https://myanimelist.net/search/all?q=Porco%20Rosso&cat=all)
