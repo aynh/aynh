@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our injuries will heal as long as we're alive. But the scars will remain."
+> "The only lucky item you'll need is already within - CONFIDENCE."
 
-&mdash; [**Allen Walker**](https://myanimelist.net/character.php?q=Allen%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Midorima Shintarou**](https://myanimelist.net/character.php?q=Midorima%20Shintarou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
