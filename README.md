@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't stand that witch, stupid snake woman."
+> "Very well. Then krieg(German for 'war') is what you shall have. We are a clenched fist, ready to strike down all who oppose us with our might. But, after enduring over half a century wallowing in the darkness, for us, a simple, 'ordinary' war will no longer be sufficient. We need a massive war! A war beyond any other that man's history has ever known! We are but a single battalion, the remnants of a defeated army numbering less than a thousand strong. However, I believe that each of you old warriors is worth a thousand of their sickly soft children! We represent a force that could easily defeat an army of a million and one men!"
 
-&mdash; [**Eruka Frog**](https://myanimelist.net/character.php?q=Eruka%20Frog&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Montana Max**](https://myanimelist.net/character.php?q=Montana%20Max&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
