@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Some people want power and they get mad when they don't get it. They take their fury out on everyone else. You don't want it, it becomes you."
+> "Nothing can be communicated without words but if you really care about someone, even the smallest details are important to notice."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
