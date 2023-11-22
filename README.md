@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The curtain that falls at the end...shall be pulled down by the blade of my sword."
+> "But what's important isn't the Magic, it's the heart of the wielder who uses it."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
