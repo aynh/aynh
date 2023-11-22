@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you hurt me, then so be it. Do you think that there is any human in all the world who has never hurt another? You are all so kind...It hurts you to hurt others. That is why I had been hiding my pain, as well."
+> "Freedom is something that you need to actively acquire. It's not something that's given with no strings attached. To be free means to take responsibility, and to prepare yourself for what's to come."
 
-&mdash; [**Bishamonten**](https://myanimelist.net/character.php?q=Bishamonten&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Charles Beams**](https://myanimelist.net/character.php?q=Charles%20Beams&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
