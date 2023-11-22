@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't really like people who go around brandishing the banner of justice. No matter the reason, where human's are involved, there is no black or white, no justice or evil. There is only our will."
+> "You're not a good-for-nothing person. I think that being able to try your hardest to be something is a talent by itself."
 
-&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
