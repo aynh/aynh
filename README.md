@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing can be communicated without words but if you really care about someone, even the smallest details are important to notice."
+> "There are two kinds of fights. As long as we place ourselves in battle, we must always know the difference, a fight to defend life or a fight to defend pride."
 
-&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
