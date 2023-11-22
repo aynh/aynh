@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no need for any proof. There is no need to create any. We just have to live every second to the fullest, and the traces of the path we lived will burn into the ground. That will serve as proof of our existence."
+> "Our names are given to us by God. I have betrayed God, and so I no longer have a name."
 
-&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Scar**](https://myanimelist.net/character.php?q=Scar&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
