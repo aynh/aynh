@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you going to keep staring at me because it's ticking me off. If you got something to say, say it."
+> "You are too young to worry about failure. In a pinch, just muddle through. The outcome won't change, so that's best."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Bang**](https://myanimelist.net/character.php?q=Bang&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
