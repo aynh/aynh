@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Risa is a bitch."
+> "People can wish for anything. Happiness or unhappiness. No matter what kind of choice you made, it was the result you chose... As long as you're not regretting the result, it is all right."
 
-&mdash; [**Krad**](https://myanimelist.net/character.php?q=Krad&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
