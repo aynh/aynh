@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wish I could rewrite my past.. but I can't. If I could, I'd do all I could if it would stop you from crying. But.. that's impossible. My past won't change. That's why we need to make my past pale in comparison to our present."
+> "Risa is a bitch."
 
-&mdash; [**Motoharu Yano**](https://myanimelist.net/character.php?q=Motoharu%20Yano&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Krad**](https://myanimelist.net/character.php?q=Krad&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
