@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The harder you try to see the good in people the easier it is to fake you out."
+> "Everyone exists for a reason. As small as it can be. I'm sure you have a meaning too."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!×2 Ten**](https://myanimelist.net/search/all?q=Durarara!!%C3%972%20Ten&cat=all)
+&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
