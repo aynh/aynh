@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end, aren't they just a bunch of weaklings?"
+> "Even a piece of garbage has its pride."
 
-&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
