@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our names are given to us by God. I have betrayed God, and so I no longer have a name."
+> "Choosing your calling based solely on your talents won't always guarantee you happiness."
 
-&mdash; [**Scar**](https://myanimelist.net/character.php?q=Scar&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kaminski Natalia**](https://myanimelist.net/character.php?q=Kaminski%20Natalia&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
