@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone exists for a reason. As small as it can be. I'm sure you have a meaning too."
+> "People started growing crops because going hunting without knowing if you'd catch anything was a pain. People dug wells because going all the way to the river was a pain. Laziness is the mother of human progress."
 
-&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Ikta Solork**](https://myanimelist.net/character.php?q=Ikta%20Solork&cat=character), [**Alderamin on the Sky**](https://myanimelist.net/search/all?q=Alderamin%20on%20the%20Sky&cat=all)
