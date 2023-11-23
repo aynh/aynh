@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate these horns."
+> "Every human has another personality that they keep hidden from others."
 
-&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Yakumo Saitō**](https://myanimelist.net/character.php?q=Yakumo%20Sait%C5%8D&cat=character), [**Psychic Detective Yakumo**](https://myanimelist.net/search/all?q=Psychic%20Detective%20Yakumo&cat=all)
