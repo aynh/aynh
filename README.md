@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Choosing your calling based solely on your talents won't always guarantee you happiness."
+> "'If I do this, I can stop the rebellion”, “if I do that, I can stop the rebellion”... Open your eyes, princess! Your zealous idealism disgusts me! Ideals can only be spoken by those powerful enough to carry them out. And that excludes you!"
 
-&mdash; [**Kaminski Natalia**](https://myanimelist.net/character.php?q=Kaminski%20Natalia&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Crocodile**](https://myanimelist.net/character.php?q=Crocodile&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
