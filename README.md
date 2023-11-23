@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People started growing crops because going hunting without knowing if you'd catch anything was a pain. People dug wells because going all the way to the river was a pain. Laziness is the mother of human progress."
+> "Don't be frightened by the waves. If we read the flow of the waves and accept them, we can overcome it. There's no wave that can't be overcome!!"
 
-&mdash; [**Ikta Solork**](https://myanimelist.net/character.php?q=Ikta%20Solork&cat=character), [**Alderamin on the Sky**](https://myanimelist.net/search/all?q=Alderamin%20on%20the%20Sky&cat=all)
+&mdash; [**Sinbad**](https://myanimelist.net/character.php?q=Sinbad&cat=character), [**Magi: Adventure of Sinbad**](https://myanimelist.net/search/all?q=Magi%3A%20Adventure%20of%20Sinbad&cat=all)
