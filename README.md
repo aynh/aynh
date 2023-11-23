@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll admit that you're stronger than before. But because of that, you seem to have lost sight of what's truly important. Now listen carefully. The people of the village, who once abhorred you, have begun to admire you. They think of you as a comrade. It's because you fought hard for their acceptance. You once said it was everyone who cares about you who helped you get where you are now. If you forget others because you have power, and become arrogant and egotistical, you'll eventually become just like Madara. No matter how powerful you become, do not try to shoulder everything alone. Becoming the Hokage doesn't mean people will acknowledge you. But when the people acknowledge you, you can become Hokage. Never forget your friends!"
+> "People started growing crops because going hunting without knowing if you'd catch anything was a pain. People dug wells because going all the way to the river was a pain. Laziness is the mother of human progress."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ikta Solork**](https://myanimelist.net/character.php?q=Ikta%20Solork&cat=character), [**Alderamin on the Sky**](https://myanimelist.net/search/all?q=Alderamin%20on%20the%20Sky&cat=all)
