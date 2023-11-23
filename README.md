@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To us, you are more valuable than any jewel. Would you be at ease if you left your most treasured valuable outside the bounds of your own home? A treasure is something you keep with you at all times. It is common sense."
+> "In the end, aren't they just a bunch of weaklings?"
 
-&mdash; [**Claude**](https://myanimelist.net/character.php?q=Claude&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
