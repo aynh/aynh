@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every human has another personality that they keep hidden from others."
+> "To us, you are more valuable than any jewel. Would you be at ease if you left your most treasured valuable outside the bounds of your own home? A treasure is something you keep with you at all times. It is common sense."
 
-&mdash; [**Yakumo Saitō**](https://myanimelist.net/character.php?q=Yakumo%20Sait%C5%8D&cat=character), [**Psychic Detective Yakumo**](https://myanimelist.net/search/all?q=Psychic%20Detective%20Yakumo&cat=all)
+&mdash; [**Claude**](https://myanimelist.net/character.php?q=Claude&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
