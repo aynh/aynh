@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't believe in history... Just believe in the world you see with your own eyes."
+> "It was an egg-cident! Get it? 'Egg?"
 
-&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
