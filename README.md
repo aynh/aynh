@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Haven't you ever thought that life would be better if it was a game?"
+> "If you don't believe in history... Just believe in the world you see with your own eyes."
 
-&mdash; [**Dong Taebin**](https://myanimelist.net/character.php?q=Dong%20Taebin&cat=character), [**Dice: The Cube That Changes Everything**](https://myanimelist.net/search/all?q=Dice%3A%20The%20Cube%20That%20Changes%20Everything&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
