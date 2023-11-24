@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love and hate are two sides of the same coin."
+> "[Shinpachi is tied up, hanging from a tree, and the rope is held by the client] What kind of training is this? What kind of potential does he have?"
 
-&mdash; [**Hisoka**](https://myanimelist.net/character.php?q=Hisoka&cat=character), [**Hunter x Hunter 2011**](https://myanimelist.net/search/all?q=Hunter%20x%20Hunter%202011&cat=all)
+&mdash; [**Shimura Shinpachi**](https://myanimelist.net/character.php?q=Shimura%20Shinpachi&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
