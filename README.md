@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How sad it would be if laughter should disappear."
+> "If you turn your back on something you wanted, you don't deserve to call yourself greed!"
 
-&mdash; [**Undertaker**](https://myanimelist.net/character.php?q=Undertaker&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Ling Yao**](https://myanimelist.net/character.php?q=Ling%20Yao&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
