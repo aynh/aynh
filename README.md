@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Real strength only reveals itself when one is faced with great turmoil! Therefore, I shall always tread a thorny path!"
+> "Romance can strengthen people, but it can also make them useless."
 
-&mdash; [**Aoi Asahina**](https://myanimelist.net/character.php?q=Aoi%20Asahina&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
