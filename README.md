@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You give up your future, lose your dream, are stained with despair... yet at the same time, you shake off you past, fight reality, and never lose your nobility."
+> "When you’re in love, you start to worry about the most trivial details. It should feel really restrictive, but worrying about this kind of thing makes me really happy instead."
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
