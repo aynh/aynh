@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You better watch out! I can break your neck!"
+> "Haven't you ever thought that life would be better if it was a game?"
 
-&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Dong Taebin**](https://myanimelist.net/character.php?q=Dong%20Taebin&cat=character), [**Dice: The Cube That Changes Everything**](https://myanimelist.net/search/all?q=Dice%3A%20The%20Cube%20That%20Changes%20Everything&cat=all)
