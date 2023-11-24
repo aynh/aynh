@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It was an egg-cident! Get it? 'Egg?"
+> "I hate people with a big heart. All they do is look down on you from above. They don’t give a damn about the petty struggles of the people serving under them. If that’s what it means to be a king, then that’s just sad and pathetic."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Saruhiko Fushimi**](https://myanimelist.net/character.php?q=Saruhiko%20Fushimi&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
