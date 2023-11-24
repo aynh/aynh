@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen midget! I'm going to curse you and make you shrink 1 cm everyday, and in only 156 days you'll vanish completely!!"
+> "You'll never know what's right or wrong until everything is over."
 
-&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
+&mdash; [**Soldier Blue**](https://myanimelist.net/character.php?q=Soldier%20Blue&cat=character), [**Terra E**](https://myanimelist.net/search/all?q=Terra%20E&cat=all)
