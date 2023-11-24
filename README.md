@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has different faces."
+> "Listen midget! I'm going to curse you and make you shrink 1 cm everyday, and in only 156 days you'll vanish completely!!"
 
-&mdash; [**Taichi Yaegashi**](https://myanimelist.net/character.php?q=Taichi%20Yaegashi&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
