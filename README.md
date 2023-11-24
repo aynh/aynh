@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you turn your back on something you wanted, you don't deserve to call yourself greed!"
+> "Why should I apologize for being a monster? Has anyone ever apologized for turning me into one?"
 
-&mdash; [**Ling Yao**](https://myanimelist.net/character.php?q=Ling%20Yao&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Juuzou Suzuya**](https://myanimelist.net/character.php?q=Juuzou%20Suzuya&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
