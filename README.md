@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Leave her out of this... who we let in this house is really none of your concern. You're the one who doesn't belong here. (to Kyo)"
+> "There are people in this world who don't understand that what they consider a harmless prank can deeply hurt someone else."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Mio Nishizono**](https://myanimelist.net/character.php?q=Mio%20Nishizono&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
