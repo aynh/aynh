@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People normally say that mood and body have a close relationship. As the heart becomes weaker, the body will fall ill; and as the body falls ill, the heart becomes weaker. Thus, when humans are weak, they will have negative thoughts."
+> "I couldn't confess my feelings for you, so I watched you from afar, being happy with someone else."
 
-&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
