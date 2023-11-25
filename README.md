@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll help you... But not by death, this world has enough of that. You can keep your life as long as you change the way you live it. It's never too late, believe me."
+> "If you want to get to know someone, find out what makes them angry."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Gon Freecss**](https://myanimelist.net/character.php?q=Gon%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
