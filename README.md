@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't risk your life, you can't create a future. Right?"
+> "(thinking) I can't stand up...on my own. I can't go...any further. Not...all by myself."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
