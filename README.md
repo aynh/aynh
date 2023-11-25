@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The sun may be wonderful but can you live on that alone? We all live because of the wind, the clouds, and the rain. They're not things you can throw out just because they're temporarily inconvenient, right?"
+> "My mind is being eaten away... Kaji-san, it's unravelling my mind! What do I do? It's defiling my mind!"
 
-&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Souryuu Asuka Langley**](https://myanimelist.net/character.php?q=Souryuu%20Asuka%20Langley&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
