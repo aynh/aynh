@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't have have much time. It's not that I'm busy, but I'm only willing to give you about two and a half more minutes of my life!"
+> "You don't need a reason to love someone."
 
-&mdash; [**Shizuo Heiwajima**](https://myanimelist.net/character.php?q=Shizuo%20Heiwajima&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Makoto Isshiki**](https://myanimelist.net/character.php?q=Makoto%20Isshiki&cat=character), [**Chuunibyo Demo Koi ga Shitai!**](https://myanimelist.net/search/all?q=Chuunibyo%20Demo%20Koi%20ga%20Shitai!&cat=all)
