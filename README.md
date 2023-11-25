@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I couldn't confess my feelings for you, so I watched you from afar, being happy with someone else."
+> "Well, I wonder what the prince would do if he knew, you authorized Planet Vegeta’s destruction from the start?"
 
-&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Whis**](https://myanimelist.net/character.php?q=Whis&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
