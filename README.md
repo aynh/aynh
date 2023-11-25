@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't need a reason to love someone."
+> "I am who I am now because of everything that's happened. If I try to deny my past, I'm denying the person I've become. I don't want to do that."
 
-&mdash; [**Makoto Isshiki**](https://myanimelist.net/character.php?q=Makoto%20Isshiki&cat=character), [**Chuunibyo Demo Koi ga Shitai!**](https://myanimelist.net/search/all?q=Chuunibyo%20Demo%20Koi%20ga%20Shitai!&cat=all)
+&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
