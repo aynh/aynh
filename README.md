@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to get to know someone, find out what makes them angry."
+> "I don't have have much time. It's not that I'm busy, but I'm only willing to give you about two and a half more minutes of my life!"
 
-&mdash; [**Gon Freecss**](https://myanimelist.net/character.php?q=Gon%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Shizuo Heiwajima**](https://myanimelist.net/character.php?q=Shizuo%20Heiwajima&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
