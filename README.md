@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Having happy and beautiful memories won't always bring you salvation. The more beautiful a memory is, the more painful it can become. It can even become terrifying. Both for the one who's leaving... And for the one left behind."
+> "Does the world hate me or something? I've always rejected it in an exceedingly friendly manner."
 
-&mdash; [**Isla**](https://myanimelist.net/character.php?q=Isla&cat=character), [**Plastic Memories**](https://myanimelist.net/search/all?q=Plastic%20Memories&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
