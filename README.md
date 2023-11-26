@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Does the world hate me or something? I've always rejected it in an exceedingly friendly manner."
+> "Of the days that I have lived, only those I spent with you seemed real."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop: The Movie**](https://myanimelist.net/search/all?q=Cowboy%20Bebop%3A%20The%20Movie&cat=all)
