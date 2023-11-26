@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[a giant satellite bomb is headed towards the city] If that thing hits, do you think we'll have school tomorrow?"
+> "Heroic Spirits... I want you to find a path to victory."
 
-&mdash; [**Mamimi Samejima**](https://myanimelist.net/character.php?q=Mamimi%20Samejima&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
