@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even in moments of the deepest despair... I guess we can still find hope, huh?"
+> "The wish of wanting everyone to be happy is merely a fairy tale!"
 
-&mdash; [**Hange Zoe**](https://myanimelist.net/character.php?q=Hange%20Zoe&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
