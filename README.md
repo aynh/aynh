@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no more trusted observer than someone who suspects you."
+> "If I follow my dream and it shatters - I can accept having to regret that. But I don't want to regret not pursuing it in the first place."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Akito Takagi**](https://myanimelist.net/character.php?q=Akito%20Takagi&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
