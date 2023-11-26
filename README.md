@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm still a man too, I wanted to look calm and composed in front of everyone. Especially in front of the one I'm in love with."
+> "Konoha's Uchiha clan and the Mist's Seven Shinobi-gatana seem petty before his name."
 
-&mdash; [**Ooga Kazuomi**](https://myanimelist.net/character.php?q=Ooga%20Kazuomi&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Kisame Hoshigaki**](https://myanimelist.net/character.php?q=Kisame%20Hoshigaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
