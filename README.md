@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Konoha's Uchiha clan and the Mist's Seven Shinobi-gatana seem petty before his name."
+> "Because people don't have wings... We look for ways to fly."
 
-&mdash; [**Kisame Hoshigaki**](https://myanimelist.net/character.php?q=Kisame%20Hoshigaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ukai Keishin**](https://myanimelist.net/character.php?q=Ukai%20Keishin&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
