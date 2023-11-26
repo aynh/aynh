@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The wish of wanting everyone to be happy is merely a fairy tale!"
+> "No, not yet, now that you've made me this serious. Regret as much as you damn well want!!"
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
