@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder what sort of criteria you use to divide people into good and evil."
+> "You're about to find out what it's like to fight a real super saiyan...and I'm not talking about Goku."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Trunks Brief**](https://myanimelist.net/character.php?q=Trunks%20Brief&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
