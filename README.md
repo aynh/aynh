@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No, not yet, now that you've made me this serious. Regret as much as you damn well want!!"
+> "[a giant satellite bomb is headed towards the city] If that thing hits, do you think we'll have school tomorrow?"
 
-&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Mamimi Samejima**](https://myanimelist.net/character.php?q=Mamimi%20Samejima&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
