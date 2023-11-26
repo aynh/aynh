@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're about to find out what it's like to fight a real super saiyan...and I'm not talking about Goku."
+> "I'm still a man too, I wanted to look calm and composed in front of everyone. Especially in front of the one I'm in love with."
 
-&mdash; [**Trunks Brief**](https://myanimelist.net/character.php?q=Trunks%20Brief&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Ooga Kazuomi**](https://myanimelist.net/character.php?q=Ooga%20Kazuomi&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
