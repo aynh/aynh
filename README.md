@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I follow my dream and it shatters - I can accept having to regret that. But I don't want to regret not pursuing it in the first place."
+> "Just look at it Liz, Patti, just look at how the clouds are! Flowing right towards the sun! It's so beautiful, even the sky is symmetrical!"
 
-&mdash; [**Akito Takagi**](https://myanimelist.net/character.php?q=Akito%20Takagi&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
