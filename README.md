@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Heroic Spirits... I want you to find a path to victory."
+> "You still haven’t noticed that something precious to you has been replaced."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
