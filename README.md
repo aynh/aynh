@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how crazy it may be, or how dangerous it may be, even if it's something personal, it doesn't matter! Anything that you're worried about, I'll worry right along with you and think of a solution! Just like you did for me all those times!"
+> "When the world is filled with red lights signaling danger, the world is safer than usual. But when it's filled with green lights signaling safety, it creates a place more dangerous than anywhere."
 
-&mdash; [**Alibaba Saluja**](https://myanimelist.net/character.php?q=Alibaba%20Saluja&cat=character), [**Magi - The Kingdom of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Kingdom%20of%20Magic&cat=all)
+&mdash; [**Ougi Oshino**](https://myanimelist.net/character.php?q=Ougi%20Oshino&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
