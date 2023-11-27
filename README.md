@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Kyo] Perhaps if you'd just die you'd be reincarnated as something more pleasant."
+> "When people make a mistake, it is nice to give them advice, but... if they don’t listen, just leave them alone. Otherwise you'll do yourself a disservice by wasting your time and effort."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
