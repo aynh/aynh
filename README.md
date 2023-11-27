@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A wedding is a man's grave."
+> "I'm home. What, are you greeting me in an apron? You look pretty good in it."
 
-&mdash; [**Kouta Tsuchiya**](https://myanimelist.net/character.php?q=Kouta%20Tsuchiya&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
