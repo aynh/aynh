@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The essence of good deeds and evil is the same. They're both no more than a person's actions to make up for a defect in themselves."
+> "Do you have any idea how stupid we are? Don't underestimate us!!!"
 
-&mdash; [**Yashiro Gaku**](https://myanimelist.net/character.php?q=Yashiro%20Gaku&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
+&mdash; [**Gintama**](https://myanimelist.net/character.php?q=Gintama&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
