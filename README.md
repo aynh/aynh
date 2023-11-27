@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He feared sleep. He'd say that his soul would slip down into nothing. They say that man never dreamt after the day he cut his pillow."
+> "If you do evil out of a hatred for evil, that rage and hate will merely birth new conflict."
 
-&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
