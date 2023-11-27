@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are no convenient miracles, and there is logic that should be inviolable."
+> "You were wrong on two counts. Even the hardest substance can be broken, when crashed into itself. And the ability to feel pain is not a weakness. It’s a strength. Pain tells a creature its vulnerabilities, and not you expose them to attack. Your robot is dead. And so, I’m afraid, are you."
 
-&mdash; [**Hakaze Kusaribe**](https://myanimelist.net/character.php?q=Hakaze%20Kusaribe&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
