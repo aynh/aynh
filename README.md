@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My eyes can see the death of everything. I can cut the lines as long as I understand the death behind it. This means I can kill anything, even if that thing is God."
+> "If you keep lying like that, no one, not even yourself, will believe you anymore."
 
-&mdash; [**Ryougi Shiki**](https://myanimelist.net/character.php?q=Ryougi%20Shiki&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Aladdin**](https://myanimelist.net/character.php?q=Aladdin&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
