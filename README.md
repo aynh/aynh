@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I HATE LEEKS!!!"
+> "He feared sleep. He'd say that his soul would slip down into nothing. They say that man never dreamt after the day he cut his pillow."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
