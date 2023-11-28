@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think that no one wants to see others' sins."
+> "It's pretty hard just to survive as a human being. The world's a big place and there's a lot of stuff I don't understand, but I think there must be something important out there. I mean, that's what I want to believe. If I keep believing that while playing music, then maybe I'll be able to change the world just a bit."
 
-&mdash; [**Yuusuke Kanda**](https://myanimelist.net/character.php?q=Yuusuke%20Kanda&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
