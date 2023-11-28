@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you're in the darkness, you only sink deeper into it. Keep the light shining."
+> "It is the path you have chosen. Take pride in it."
 
-&mdash; [**Kenzo Tenma**](https://myanimelist.net/character.php?q=Kenzo%20Tenma&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
