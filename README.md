@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A lie is truth, until you recognize it as a lie. To see the truth behind those lies is probably the right thing to do. However, it may not necessarily bring happiness. Lies are Happiness."
+> "Goodbyes aren't a one-sided affair!"
 
-&mdash; [**Hoody**](https://myanimelist.net/character.php?q=Hoody&cat=character), [**Ergo Proxy**](https://myanimelist.net/search/all?q=Ergo%20Proxy&cat=all)
+&mdash; [**Tetsudō Hisakawa**](https://myanimelist.net/character.php?q=Tetsud%C5%8D%20Hisakawa&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
