@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...There are two ways to change a country. Destroy it from the outside, or correct it from the inside."
+> "If you realize you made a mistake with the way you've been living your life, you just have to take the next moment and start over."
 
-&mdash; [**Run**](https://myanimelist.net/character.php?q=Run&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
