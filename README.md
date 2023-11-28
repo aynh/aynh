@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let me tell you an incomprehensible story! What is it for the actions of men to be incomprehensible? It would seem to me that if it can't be comprehended, one should not even bother trying. It is useless to even think about it, I think. That said, I don't know exactly what's going on but may we continue fighting please?"
+> "[to Luppi] Hyourinmaru is the strongest of all ice-type Zanpakutoes. Your weapon may have eight arms, but mine is all the water in the atmosphere! Sennen Hyourou!! [causes several pillars of ice to form, before using them to crush Luppi] Sorry. Eight wasn't enough."
 
-&mdash; [**Graham Specter**](https://myanimelist.net/character.php?q=Graham%20Specter&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
