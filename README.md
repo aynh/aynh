@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry. Our world isn't as nice a place as yours. When it comes to war and killing, we have far more expertise than you do."
+> "The moment you challenged me, you had already lost."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
