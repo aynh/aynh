@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tragic he said. I'm tragic?"
+> "Strive to consistently maintain the proper flow. That is the Tohsaka family motto. It means always remaining reserved and elegant."
 
-&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Tohsaka Tokiomi**](https://myanimelist.net/character.php?q=Tohsaka%20Tokiomi&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
