@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you resent me? If you do, then keep on living and come kill me. I'll remember you. I'll never forget you."
+> "When you're in the darkness, you only sink deeper into it. Keep the light shining."
 
-&mdash; [**Ogami Rei**](https://myanimelist.net/character.php?q=Ogami%20Rei&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
+&mdash; [**Kenzo Tenma**](https://myanimelist.net/character.php?q=Kenzo%20Tenma&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
