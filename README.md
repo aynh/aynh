@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regardless of the color of eyes or skin, the color of blood is the same for everyone, isn’t it?"
+> "Run? Is that how you speak to a hero? How little you understand. Allow me to educate you. If a hero were to run from battle... the children could no longer call him a hero."
 
-&mdash; [**Oskar von Reuenthal**](https://myanimelist.net/character.php?q=Oskar%20von%20Reuenthal&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Don Kanonji**](https://myanimelist.net/character.php?q=Don%20Kanonji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
