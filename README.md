@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Goodbyes aren't a one-sided affair!"
+> "Do you resent me? If you do, then keep on living and come kill me. I'll remember you. I'll never forget you."
 
-&mdash; [**Tetsudō Hisakawa**](https://myanimelist.net/character.php?q=Tetsud%C5%8D%20Hisakawa&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
+&mdash; [**Ogami Rei**](https://myanimelist.net/character.php?q=Ogami%20Rei&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
