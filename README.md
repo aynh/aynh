@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "True, I've given up on the real world. However, I haven't given up on myself."
+> "It's not the fun and games you think. It's bizarre... sinister... cursed. (speaking of the curse to Tohru)"
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
