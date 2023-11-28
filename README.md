@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not the fun and games you think. It's bizarre... sinister... cursed. (speaking of the curse to Tohru)"
+> "It's true that you're lacking in ability. That's because you don't work at it. However, you have a natural potential. That's why I chose you."
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Koichiro Oota**](https://myanimelist.net/character.php?q=Koichiro%20Oota&cat=character), [**Gunbuster**](https://myanimelist.net/search/all?q=Gunbuster&cat=all)
