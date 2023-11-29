@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is like a mirror that reflects your bad side. Especially when it’s unrequited, you get envious, jealous, prejudiced, and resentful. You have to face all sorts of emotions, but there’s no reason to find that shameful. It shows how serious you are. Oh yeah, do you want me to tell you how to break that mirror? It’s not anything hard, understand the other person. That’s all. Don’t make any quick judgment and let them do the same."
+> "Revenge is a rite that restores one’s spirit after it has been ravaged by the anger and hatred of loss. That is the only way to heal one's soul and stand up again to face reality. That is the only way we can have a tomorrow."
 
-&mdash; [**Margery Daw**](https://myanimelist.net/character.php?q=Margery%20Daw&cat=character), [**Shakugan no Shana**](https://myanimelist.net/search/all?q=Shakugan%20no%20Shana&cat=all)
+&mdash; [**Yao Ro Ducy**](https://myanimelist.net/character.php?q=Yao%20Ro%20Ducy&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
