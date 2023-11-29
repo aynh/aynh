@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's because Sakura loves Sasuke that she doesn't want him to sink any lower. It's because she loves him that she wants to rescue him from the evil path he currently walks. Even if the only way to do it is to kill him with her own two hands, I believe, she's prepared to do it because she loves him."
+> "Love is like a mirror that reflects your bad side. Especially when it’s unrequited, you get envious, jealous, prejudiced, and resentful. You have to face all sorts of emotions, but there’s no reason to find that shameful. It shows how serious you are. Oh yeah, do you want me to tell you how to break that mirror? It’s not anything hard, understand the other person. That’s all. Don’t make any quick judgment and let them do the same."
 
-&mdash; [**Sai**](https://myanimelist.net/character.php?q=Sai&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Margery Daw**](https://myanimelist.net/character.php?q=Margery%20Daw&cat=character), [**Shakugan no Shana**](https://myanimelist.net/search/all?q=Shakugan%20no%20Shana&cat=all)
