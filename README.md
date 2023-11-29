@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can't get along without putting someone else down, it can't be real friendship."
+> "Those who forgive themselves, and are able to accept their true nature... They are the strong ones!"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
