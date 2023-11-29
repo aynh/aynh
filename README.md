@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My name is Krad. But you do not have to remember it, because here you will die."
+> "Traditions that don't benefit people today are worthless."
 
-&mdash; [**Krad**](https://myanimelist.net/character.php?q=Krad&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Tachibana Chika**](https://myanimelist.net/character.php?q=Tachibana%20Chika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
