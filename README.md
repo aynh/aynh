@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you confess your feelings, you should do a proper job."
+> "Heroes might be lonely, but they aren't fighting alone."
 
-&mdash; [**Oogumo**](https://myanimelist.net/character.php?q=Oogumo&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
