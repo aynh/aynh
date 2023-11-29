@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Revenge is a rite that restores one’s spirit after it has been ravaged by the anger and hatred of loss. That is the only way to heal one's soul and stand up again to face reality. That is the only way we can have a tomorrow."
+> "I've liked him for so long. So long. But Mayama likes someone else. But I wanna hear his voice. I want to hold his hand. I feel like this."
 
-&mdash; [**Yao Ro Ducy**](https://myanimelist.net/character.php?q=Yao%20Ro%20Ducy&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
