@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world just exists to hurt people and to be conquered. To survive, you mow down your enemies and take what you want."
+> "The reason the Yamadas get along fine is because all three adults are nuts. If one of you were normal it would unbalance the rest."
 
-&mdash; [**Livius Orvinus Ifrikia**](https://myanimelist.net/character.php?q=Livius%20Orvinus%20Ifrikia&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Noboru Yamada**](https://myanimelist.net/character.php?q=Noboru%20Yamada&cat=character), [**My Neighbors the Yamadas**](https://myanimelist.net/search/all?q=My%20Neighbors%20the%20Yamadas&cat=all)
