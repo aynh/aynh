@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay. There's no pain. [something snaps inside Morty] Oops! [grins maniacally at Yoh] I'm sorry."
+> "A low possibility means it's not zero."
 
-&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
