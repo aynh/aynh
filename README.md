@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Heroes might be lonely, but they aren't fighting alone."
+> "[Shinpachi is tied up, hanging from a tree, and the rope is held by the client] What kind of training is this? What kind of potential does he have?"
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Shimura Shinpachi**](https://myanimelist.net/character.php?q=Shimura%20Shinpachi&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
