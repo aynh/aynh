@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our injuries will heal as long as we're alive. But the scars will remain."
+> "And yet, at the end of the day, we are just like tree leaves dancing in a whirlpool. No matter how we dance, we are only swallowed by the whirlpool and disappear..."
 
-&mdash; [**Allen Walker**](https://myanimelist.net/character.php?q=Allen%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Claire Bernardus**](https://myanimelist.net/character.php?q=Claire%20Bernardus&cat=character), [**Umineko no Naku Koro ni Chiru Episode 7: Requiem of the...**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni%20Chiru%20Episode%207%3A%20Requiem%20of%20the...&cat=all)
