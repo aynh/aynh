@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Traditions that don't benefit people today are worthless."
+> "When you confess your feelings, you should do a proper job."
 
-&mdash; [**Tachibana Chika**](https://myanimelist.net/character.php?q=Tachibana%20Chika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Oogumo**](https://myanimelist.net/character.php?q=Oogumo&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
