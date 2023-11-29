@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to do damage to the other ship you have to ram them in the middle! Now do it again!"
+> "The world just exists to hurt people and to be conquered. To survive, you mow down your enemies and take what you want."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Livius Orvinus Ifrikia**](https://myanimelist.net/character.php?q=Livius%20Orvinus%20Ifrikia&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
