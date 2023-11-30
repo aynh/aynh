@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll back off for now. Next time I won't hesitate to destroy you. Take this time to make your tombstone..."
+> "You're too loud, Police Girl. I don't care if you're a vampire, you're still English. Have some manners."
 
-&mdash; [**Yuki Nagato**](https://myanimelist.net/character.php?q=Yuki%20Nagato&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Integra Hellsing**](https://myanimelist.net/character.php?q=Integra%20Hellsing&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
