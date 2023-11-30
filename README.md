@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do not lose to the obstacles that you will meet in the future. I have my own set of goals but do not pursue them because of my laziness."
+> "Girls who are pretty and pure only exist in fantasies."
 
-&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Rentarou Kurahashi**](https://myanimelist.net/character.php?q=Rentarou%20Kurahashi&cat=character), [**Love Lab**](https://myanimelist.net/search/all?q=Love%20Lab&cat=all)
