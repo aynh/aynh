@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Near and the others told me that this woman was supposed to be the second Kira. But could it really be this unbelievably stupid girl?.."
+> "If something has a strong core, it won't break. That's true for both - swords and people."
 
-&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Hamrio Musica**](https://myanimelist.net/character.php?q=Hamrio%20Musica&cat=character), [**Rave Master**](https://myanimelist.net/search/all?q=Rave%20Master&cat=all)
