@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A way for the weak to stay weak, but still defeat the strong. A way to stay who you are but surpass your limits. To soar through the sky, even if you can't fly. He's always found a way, inside despair, suffering and darkness."
+> "Near and the others told me that this woman was supposed to be the second Kira. But could it really be this unbelievably stupid girl?.."
 
-&mdash; [**Kurami Zell**](https://myanimelist.net/character.php?q=Kurami%20Zell&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
