@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If something has a strong core, it won't break. That's true for both - swords and people."
+> "Even if I can't see you... No matter how far away you may be... I will always be watching you."
 
-&mdash; [**Hamrio Musica**](https://myanimelist.net/character.php?q=Hamrio%20Musica&cat=character), [**Rave Master**](https://myanimelist.net/search/all?q=Rave%20Master&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
