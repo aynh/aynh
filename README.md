@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trust me, you don't want to make the whole world your enemy. At the very least, you have a friend in me."
+> "Dictatorship itself isn't absolutely evil, it's just another form of government. The point is how you can run it for the benefit of society."
 
-&mdash; [**Abel Nightroad**](https://myanimelist.net/character.php?q=Abel%20Nightroad&cat=character), [**Trinity Blood**](https://myanimelist.net/search/all?q=Trinity%20Blood&cat=all)
+&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
