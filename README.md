@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dictatorship itself isn't absolutely evil, it's just another form of government. The point is how you can run it for the benefit of society."
+> "I'm not going there to die. I'm going there to find out if I'm really alive."
 
-&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
