@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Girls who are pretty and pure only exist in fantasies."
+> "There's nothing happy about having your fate decided for you! You have to grab your own happiness!"
 
-&mdash; [**Rentarou Kurahashi**](https://myanimelist.net/character.php?q=Rentarou%20Kurahashi&cat=character), [**Love Lab**](https://myanimelist.net/search/all?q=Love%20Lab&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
