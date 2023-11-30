@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you telling me to exploit an opening for the likes of you? Do not speak out of your league, boy."
+> "Everyone loses sight of themselves sometimes. Don't worry about it."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ichinose Hayato**](https://myanimelist.net/character.php?q=Ichinose%20Hayato&cat=character), [**Uta No Prince Sama**](https://myanimelist.net/search/all?q=Uta%20No%20Prince%20Sama&cat=all)
