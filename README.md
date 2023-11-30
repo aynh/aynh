@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We simply cannot see the world as it is. The world people see is nothing more than how our brains translate it. In other words, it's subjective."
+> "There is no encounter without meaning. I've encountered many people on my journey, and those meetings meant something."
 
-&mdash; [**Alis Color**](https://myanimelist.net/character.php?q=Alis%20Color&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
+&mdash; [**Cardfight!! Vanguard G**](https://myanimelist.net/character.php?q=Cardfight!!%20Vanguard%20G&cat=character), [**Cardfight!! Vanguard G**](https://myanimelist.net/search/all?q=Cardfight!!%20Vanguard%20G&cat=all)
