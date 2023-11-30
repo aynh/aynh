@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no encounter without meaning. I've encountered many people on my journey, and those meetings meant something."
+> "Are you telling me to exploit an opening for the likes of you? Do not speak out of your league, boy."
 
-&mdash; [**Cardfight!! Vanguard G**](https://myanimelist.net/character.php?q=Cardfight!!%20Vanguard%20G&cat=character), [**Cardfight!! Vanguard G**](https://myanimelist.net/search/all?q=Cardfight!!%20Vanguard%20G&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
