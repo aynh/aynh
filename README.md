@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I can't see. Even if I can't hear. I have light inside me. The path I walked with my friends, is bringing light to my future. I don't fear anything! This isn't even worthy of being called pain! The worst pain is.. The pain of losing your light."
+> "[Talking to Riki] We've spent time together that made our hearts dance. But every story has to come to an end. No one can stay a kid forever. Time passes, and people grow up. There will come a day when we will no longer be together."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
