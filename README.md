@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We want the ones we can't have and ignore the ones that want us but then, we end up with none in the end."
+> "People are beings where a love of what's right goes hand in hand with a desire to do all manner of evil acts."
 
-&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Yuuki Shinjuurou**](https://myanimelist.net/character.php?q=Yuuki%20Shinjuurou&cat=character), [**Un-Go**](https://myanimelist.net/search/all?q=Un-Go&cat=all)
