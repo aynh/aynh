@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I can't see you... No matter how far away you may be... I will always be watching you."
+> "This might come a little late but... you people make me sick."
 
-&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
