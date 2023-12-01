@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This might come a little late but... you people make me sick."
+> "All those times I got hurt, all the crying I did, all the pain I felt, all the fighting I did with my life at stake... And my reward was her name and a single smile. Jeez... Talk about unequal compensation."
 
-&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Subaru Natsuki**](https://myanimelist.net/character.php?q=Subaru%20Natsuki&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
