@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even a piece of garbage has its pride."
+> "Courage is a word that gives you the strength to do what's right, you should not use it as an excuse to murder someone."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
