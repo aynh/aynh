@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But maybe life isn't about counting all the things you've lost."
+> "Even if I can't see. Even if I can't hear. I have light inside me. The path I walked with my friends, is bringing light to my future. I don't fear anything! This isn't even worthy of being called pain! The worst pain is.. The pain of losing your light."
 
-&mdash; [**Tsukamoto Tsukushi**](https://myanimelist.net/character.php?q=Tsukamoto%20Tsukushi&cat=character), [**Days TV**](https://myanimelist.net/search/all?q=Days%20TV&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
