@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't you faint on me, you stupid girl."
+> "Who cares about snow? Snow can't touch me, I could be naked out here and it wouldn't bother me at all."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
