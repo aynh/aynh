@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To the me back then, you don’t need to worry. You’ll soon find something you can do, something you can set your heart on."
+> "Destiny? What would a boy know of destiny? If a fish lives its whole life in this river, does he know the river's destiny? No! Only that it runs on and on out of his control. He may follow where it flows, but he cannot see the end. He cannot imagine the ocean."
 
-&mdash; [**Yui Hirasawa**](https://myanimelist.net/character.php?q=Yui%20Hirasawa&cat=character), [**K-ON!**](https://myanimelist.net/search/all?q=K-ON!&cat=all)
+&mdash; [**Jeong Jeong**](https://myanimelist.net/character.php?q=Jeong%20Jeong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
