@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do not live bowing down. You must die standing up."
+> "We want the ones we can't have and ignore the ones that want us but then, we end up with none in the end."
 
-&mdash; [**Shigekuni Yamamoto-Genryusai**](https://myanimelist.net/character.php?q=Shigekuni%20Yamamoto-Genryusai&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
