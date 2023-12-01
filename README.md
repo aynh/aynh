@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People are beings where a love of what's right goes hand in hand with a desire to do all manner of evil acts."
+> "There is a word 'world'. Until about the time I was in middle school, I vaguely thought the word meant the area where the signals from my cell would reach."
 
-&mdash; [**Yuuki Shinjuurou**](https://myanimelist.net/character.php?q=Yuuki%20Shinjuurou&cat=character), [**Un-Go**](https://myanimelist.net/search/all?q=Un-Go&cat=all)
+&mdash; [**Voices of a Distant Star**](https://myanimelist.net/character.php?q=Voices%20of%20a%20Distant%20Star&cat=character), [**Voices of a Distant Star**](https://myanimelist.net/search/all?q=Voices%20of%20a%20Distant%20Star&cat=all)
