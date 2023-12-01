@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Talking to Riki] We've spent time together that made our hearts dance. But every story has to come to an end. No one can stay a kid forever. Time passes, and people grow up. There will come a day when we will no longer be together."
+> "Ah, Kurosaki. I'm glad to see you've finally realized the importance of a cape."
 
-&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
