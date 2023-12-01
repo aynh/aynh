@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who cares about snow? Snow can't touch me, I could be naked out here and it wouldn't bother me at all."
+> "Death and pain are just a small price to pay for the enjoyment of battle!"
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
