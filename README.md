@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world doesn't get to decide whether my life is boring, fun, or ordinary, because that's my decision to make. As long as I have the will, nothing is impossible!"
+> "To the me back then, you don’t need to worry. You’ll soon find something you can do, something you can set your heart on."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Yui Hirasawa**](https://myanimelist.net/character.php?q=Yui%20Hirasawa&cat=character), [**K-ON!**](https://myanimelist.net/search/all?q=K-ON!&cat=all)
