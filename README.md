@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...Yes, the desire to protect something... is, at the same time, none other than the wish for something to violate it."
+> "But maybe life isn't about counting all the things you've lost."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Tsukamoto Tsukushi**](https://myanimelist.net/character.php?q=Tsukamoto%20Tsukushi&cat=character), [**Days TV**](https://myanimelist.net/search/all?q=Days%20TV&cat=all)
