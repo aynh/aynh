@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Courage is a word that gives you the strength to do what's right, you should not use it as an excuse to murder someone."
+> "If we understood how other people felt, then nobody would ever start wars!"
 
-&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
