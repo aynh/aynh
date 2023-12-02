@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans and spirits. We're indeed different beings, but that is why understanding each other is meaningful."
+> "You - Idiot! Go ahead and cry! When I'm with you, you don't have to hold back. *Usagi runs into his arms, sobbing*"
 
-&mdash; [**Tatara Phoron**](https://myanimelist.net/character.php?q=Tatara%20Phoron&cat=character), [**Shinkyoku Soukai Polyphonica**](https://myanimelist.net/search/all?q=Shinkyoku%20Soukai%20Polyphonica&cat=all)
+&mdash; [**Mamoru Chiba**](https://myanimelist.net/character.php?q=Mamoru%20Chiba&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
