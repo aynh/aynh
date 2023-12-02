@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Although Punpun didn’t really want to think about what the point of having dreams that could never come true was… To have dreams and worries that you could talk frankly about… In a way, that was probably a more fulfilling lifestyle than his own, Punpun admitted. Being cool was merely a paper-thin difference away from being empty."
+> "You can go anywhere you want in this world with a single blade. This may be a virtual world, but I feel more alive here than in the real world."
 
-&mdash; [**Oyasumi Punpun**](https://myanimelist.net/character.php?q=Oyasumi%20Punpun&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
