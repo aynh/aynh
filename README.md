@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you are down, how do you pick yourself up? People fall into two categories... depending on how they pick themselves up. The first one sees somebody who is worse off and thinks, 'Hey! I am better off than that guy.' And the second kind of guy sees a challenge and tries to raise himself to it."
+> "As long as humans are not virtuous beings, desire will always win over the fear of punishment. What’s necessary is not punishment, but to deal with that desire."
 
-&mdash; [**Gintama**](https://myanimelist.net/character.php?q=Gintama&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**William Twining**](https://myanimelist.net/character.php?q=William%20Twining&cat=character), [**Makai Ouji : Devils And Realist**](https://myanimelist.net/search/all?q=Makai%20Ouji%20%3A%20Devils%20And%20Realist&cat=all)
