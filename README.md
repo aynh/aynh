@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You - Idiot! Go ahead and cry! When I'm with you, you don't have to hold back. *Usagi runs into his arms, sobbing*"
+> "It's stupid to talk about things you're not. Be yourself and you'll be fine."
 
-&mdash; [**Mamoru Chiba**](https://myanimelist.net/character.php?q=Mamoru%20Chiba&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
