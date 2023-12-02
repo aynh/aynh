@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Becoming an adult is such a sad thing. If you have something dear to protect, you may end up at odds with yourself."
+> "I just want to keep looking at her."
 
-&mdash; [**Cthuko**](https://myanimelist.net/character.php?q=Cthuko&cat=character), [**Haiyore! Nyaruko-san**](https://myanimelist.net/search/all?q=Haiyore!%20Nyaruko-san&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
