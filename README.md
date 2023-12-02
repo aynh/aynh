@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't like to be treated like a kid, then why don't you try showing how much you have grown up."
+> "Whenever I get up in the morning, I always think to myself, 'Am I really the same person I was yesterday?' For example, just as a computer loads its OS into memory and boots up each time it restarts, is it possible I'm just booting up the person called 'Saikawa Sohuei' each morning and trying to play that role?"
 
-&mdash; [**Fujimoto Shirou**](https://myanimelist.net/character.php?q=Fujimoto%20Shirou&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Souhei Saikawa**](https://myanimelist.net/character.php?q=Souhei%20Saikawa&cat=character), [**Subete ga F ni Naru**](https://myanimelist.net/search/all?q=Subete%20ga%20F%20ni%20Naru&cat=all)
