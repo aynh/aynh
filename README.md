@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life and death are the very basis of all things. They intensify every emotion. Or, to put it in a rather different way, there is nothing quite so dull as 'life'."
+> "Getting close to someone half-heartedly can cause you suffering."
 
-&mdash; [**Jellal Fernandes**](https://myanimelist.net/character.php?q=Jellal%20Fernandes&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Tsukiko Tsutsukakushi**](https://myanimelist.net/character.php?q=Tsukiko%20Tsutsukakushi&cat=character), [**Hentai Ouji To Warawanai Neko**](https://myanimelist.net/search/all?q=Hentai%20Ouji%20To%20Warawanai%20Neko&cat=all)
