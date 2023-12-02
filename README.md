@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as humans are not virtuous beings, desire will always win over the fear of punishment. What’s necessary is not punishment, but to deal with that desire."
+> "Hey hun! I’ve got a great idea, let’s trade! Yo take my spot and I’ll fight Hercule!"
 
-&mdash; [**William Twining**](https://myanimelist.net/character.php?q=William%20Twining&cat=character), [**Makai Ouji : Devils And Realist**](https://myanimelist.net/search/all?q=Makai%20Ouji%20%3A%20Devils%20And%20Realist&cat=all)
+&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
