@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Freedom, isn’t something earned through suffering or pushing yourself. You must accept yourself just as you are and live according to the flow of things; that is true freedom."
+> "I don’t want to waste a single second or meter. From your first step and second of the day, I want to be with you."
 
-&mdash; [**Monk Zuikou**](https://myanimelist.net/character.php?q=Monk%20Zuikou&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
