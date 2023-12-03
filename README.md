@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The phony peace that heroes create will dye people with evil. That's why I'm doing this. I will be the Count Devil that plunges humanity into terror! In a world with no room for survival, evil will disappear. And so will bullying, and discrimination, even war! What this world needs is not biased Justice but unbiased, absolute Evil! I'm fighting for world peace. No justice will be able to overthrow me. I will be stronger than anyone! I will be an absolute MONSTER!"
+> "When there is evil in this world that justice cannot defeat, would you taint your hands with evil to defeat evil? Or would you remain steadfast and righteous even if it means surrendering to evil?"
 
-&mdash; [**Garou**](https://myanimelist.net/character.php?q=Garou&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
