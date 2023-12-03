@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To someone who bears responsibility, there's no greater treasure than experience."
+> "Tomorrow's promise will never come. I wonder how many of tomorrow's promises have disappeared as though they have never existed."
 
-&mdash; [**Litonar**](https://myanimelist.net/character.php?q=Litonar&cat=character), [**Suisei no Gargantia**](https://myanimelist.net/search/all?q=Suisei%20no%20Gargantia&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
