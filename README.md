@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In order to learn you may have to risk your life... no, even your soul."
+> "Freedom, isn’t something earned through suffering or pushing yourself. You must accept yourself just as you are and live according to the flow of things; that is true freedom."
 
-&mdash; [**Chun-Woo Han**](https://myanimelist.net/character.php?q=Chun-Woo%20Han&cat=character), [**The Breaker**](https://myanimelist.net/search/all?q=The%20Breaker&cat=all)
+&mdash; [**Monk Zuikou**](https://myanimelist.net/character.php?q=Monk%20Zuikou&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
