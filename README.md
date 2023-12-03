@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether you're a monster or human there's no difference in the value of someone's life."
+> "That’s right. Worried about being discovered, living in fear. It’s a painful thing."
 
-&mdash; [**Mizore Shirayuki**](https://myanimelist.net/character.php?q=Mizore%20Shirayuki&cat=character), [**Rosario Vampire**](https://myanimelist.net/search/all?q=Rosario%20Vampire&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
