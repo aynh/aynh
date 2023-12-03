@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you can't walk or stand and even if you can't have kids, I'll still marry you, I'll always stay by your side."
+> "But maybe life isn't about counting all the things you've lost."
 
-&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Tsukamoto Tsukushi**](https://myanimelist.net/character.php?q=Tsukamoto%20Tsukushi&cat=character), [**Days TV**](https://myanimelist.net/search/all?q=Days%20TV&cat=all)
