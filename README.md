@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing can stay unchanged. Fun things… Happy things… They can’t possibly remain the same."
+> "This much I know, my blood is black."
 
-&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
