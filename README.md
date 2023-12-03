@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That’s right. Worried about being discovered, living in fear. It’s a painful thing."
+> "I never rely on luck. It's all my own choice. It leads me to the future."
 
-&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Kagura Mikazuchi**](https://myanimelist.net/character.php?q=Kagura%20Mikazuchi&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
