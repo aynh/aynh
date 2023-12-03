@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Children don't grow up looking at perfect parents. Rather, using their imperfect parents as anti-teachers, children nourish a spirit of independence."
+> "To someone who bears responsibility, there's no greater treasure than experience."
 
-&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Litonar**](https://myanimelist.net/character.php?q=Litonar&cat=character), [**Suisei no Gargantia**](https://myanimelist.net/search/all?q=Suisei%20no%20Gargantia&cat=all)
