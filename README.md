@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ephemeral and brilliant one, fall to my embrace. That is my decision."
+> "In order to learn you may have to risk your life... no, even your soul."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Chun-Woo Han**](https://myanimelist.net/character.php?q=Chun-Woo%20Han&cat=character), [**The Breaker**](https://myanimelist.net/search/all?q=The%20Breaker&cat=all)
