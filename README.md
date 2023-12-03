@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don’t want to waste a single second or meter. From your first step and second of the day, I want to be with you."
+> "Stop laughing hamster legs!"
 
-&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
