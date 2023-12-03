@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not bad, for an early prototype."
+> "Whether you're a monster or human there's no difference in the value of someone's life."
 
-&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Mizore Shirayuki**](https://myanimelist.net/character.php?q=Mizore%20Shirayuki&cat=character), [**Rosario Vampire**](https://myanimelist.net/search/all?q=Rosario%20Vampire&cat=all)
