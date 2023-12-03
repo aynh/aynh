@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tomorrow's promise will never come. I wonder how many of tomorrow's promises have disappeared as though they have never existed."
+> "People become themselves through their encounters. With different things, people, and emotions."
 
-&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Joutarou Kawasumi**](https://myanimelist.net/character.php?q=Joutarou%20Kawasumi&cat=character), [**Inu X Boku SS**](https://myanimelist.net/search/all?q=Inu%20X%20Boku%20SS&cat=all)
