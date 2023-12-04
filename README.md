@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How do you know that the person you were one second ago, is the same person that you are right now?"
+> "Rejection makes a man stronger."
 
-&mdash; [**Eri Ochiai**](https://myanimelist.net/character.php?q=Eri%20Ochiai&cat=character), [**Perfect Blue**](https://myanimelist.net/search/all?q=Perfect%20Blue&cat=all)
+&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
