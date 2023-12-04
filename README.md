@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Effort is nothing but a means to an end. Being proud of the fact that you tried is just putting the carriage before the horse."
+> "All we can do is live while losing things."
 
-&mdash; [**Yoshii Akira**](https://myanimelist.net/character.php?q=Yoshii%20Akira&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Renji Yomo**](https://myanimelist.net/character.php?q=Renji%20Yomo&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
