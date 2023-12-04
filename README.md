@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Rejection makes a man stronger."
+> "[Singing to Yammy] Aizen-sama will get maaaad at youuuu!"
 
-&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
