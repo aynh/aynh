@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We're going to explore the outside world someday, right? Far beyond these walls, there's flaming water, land made of ice, and fields of sand spread wide. It's the world my parents wanted to go to."
+> "I highly recommend pissing yourself followed by a course of praying to your impotent god."
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Walter C. Dornez**](https://myanimelist.net/character.php?q=Walter%20C.%20Dornez&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
