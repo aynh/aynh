@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you miss the opportunity to say something, the words become increasingly toxic. The best thing to do is to just say everything."
+> "To be able to forgive those who have wronged you... only the truly strong can do that."
 
-&mdash; [**Hayashida Nana**](https://myanimelist.net/character.php?q=Hayashida%20Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Kanako Watanabe**](https://myanimelist.net/character.php?q=Kanako%20Watanabe&cat=character), [**Star Driver**](https://myanimelist.net/search/all?q=Star%20Driver&cat=all)
