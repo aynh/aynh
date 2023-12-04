@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Kaoru* Even if I searched the world over, no one could compare to you."
+> "[in reference to Mizuho Asano, Keigo's sister] I owe this crazy woman."
 
-&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
