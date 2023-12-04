@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Singing to Yammy] Aizen-sama will get maaaad at youuuu!"
+> "People don't fall in love based on looks. And that's a scientific fact."
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ichijou Kagetsu**](https://myanimelist.net/character.php?q=Ichijou%20Kagetsu&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
