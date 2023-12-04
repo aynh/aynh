@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I have the power to make a difference, I should put it to good use."
+> "Effort is nothing but a means to an end. Being proud of the fact that you tried is just putting the carriage before the horse."
 
-&mdash; [**Kira Yamato**](https://myanimelist.net/character.php?q=Kira%20Yamato&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Yoshii Akira**](https://myanimelist.net/character.php?q=Yoshii%20Akira&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
