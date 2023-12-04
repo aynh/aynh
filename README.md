@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I highly recommend pissing yourself followed by a course of praying to your impotent god."
+> "Even if I'm an outsider, even if I'm hers for only a moment, I wanted to become someone special to her. Just by being together with me, just for a little while, I wanted her to be happy."
 
-&mdash; [**Walter C. Dornez**](https://myanimelist.net/character.php?q=Walter%20C.%20Dornez&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Daiki Mamura**](https://myanimelist.net/character.php?q=Daiki%20Mamura&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
