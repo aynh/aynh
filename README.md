@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All right! Team Avatar is back! Air, water, earth, fire- (grabs a bunch of leaves) fan, and sword! (his leaf limps)"
+> "*To Kaoru* Even if I searched the world over, no one could compare to you."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
