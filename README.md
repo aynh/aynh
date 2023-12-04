@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The  pain on these wounds will last only a second. The pain of your death would last a lifetime."
+> "Once you miss the opportunity to say something, the words become increasingly toxic. The best thing to do is to just say everything."
 
-&mdash; [**Kenshiro**](https://myanimelist.net/character.php?q=Kenshiro&cat=character), [**Fist of the North Star**](https://myanimelist.net/search/all?q=Fist%20of%20the%20North%20Star&cat=all)
+&mdash; [**Hayashida Nana**](https://myanimelist.net/character.php?q=Hayashida%20Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
