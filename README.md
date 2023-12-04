@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To be able to forgive those who have wronged you... only the truly strong can do that."
+> "If I have the power to make a difference, I should put it to good use."
 
-&mdash; [**Kanako Watanabe**](https://myanimelist.net/character.php?q=Kanako%20Watanabe&cat=character), [**Star Driver**](https://myanimelist.net/search/all?q=Star%20Driver&cat=all)
+&mdash; [**Kira Yamato**](https://myanimelist.net/character.php?q=Kira%20Yamato&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
