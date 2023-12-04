@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I had a dream where I fell into a surreal world with a girl I knew, and then ended up kissing her! A dream so easy to understand that even Sigmund Freud would laugh out loud."
+> "The  pain on these wounds will last only a second. The pain of your death would last a lifetime."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Kenshiro**](https://myanimelist.net/character.php?q=Kenshiro&cat=character), [**Fist of the North Star**](https://myanimelist.net/search/all?q=Fist%20of%20the%20North%20Star&cat=all)
