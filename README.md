@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When people reach the halfway mark of a long ordeal, how do they feel? Does being only halfway there make them despair? Or do they feel relief at making it halfway there? Most people have to feel one way or the other, and both emotions create an opening in their hearts. That's why I pushed myself this far."
+> "I had a dream where I fell into a surreal world with a girl I knew, and then ended up kissing her! A dream so easy to understand that even Sigmund Freud would laugh out loud."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
