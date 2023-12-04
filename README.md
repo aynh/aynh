@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People don't fall in love based on looks. And that's a scientific fact."
+> "Everything happens for a reason. The daily tragedies and misfortunes are all meaningful events, leading toward an ideal conclusion. With that in mind, there probably isn't really any meaningless misfortune."
 
-&mdash; [**Ichijou Kagetsu**](https://myanimelist.net/character.php?q=Ichijou%20Kagetsu&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
+&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
