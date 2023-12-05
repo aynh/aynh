@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I can get my target to move as I want, I've succeeded as a Hunter."
+> "*to Inuyasha* I quite miss you as well, little brother."
 
-&mdash; [**Ging Freecss**](https://myanimelist.net/character.php?q=Ging%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
