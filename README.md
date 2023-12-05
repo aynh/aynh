@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Man this guy is stupid, ugly and a bad shooter."
+> "Who are you again? Sorry, I have a bad memory for ugly faces."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ayasegawa Yumichika**](https://myanimelist.net/character.php?q=Ayasegawa%20Yumichika&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
