@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You see everyone wants everything, that's the way the world is. But I just might actually get it."
+> "Man this guy is stupid, ugly and a bad shooter."
 
-&mdash; [**Jigo**](https://myanimelist.net/character.php?q=Jigo&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
