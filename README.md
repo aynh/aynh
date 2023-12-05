@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who are you again? Sorry, I have a bad memory for ugly faces."
+> "All that for a memory and a dead mortal girl. If I've known that this is all it took to make you fight, I would have killed her sooner. (to Inuyasha)"
 
-&mdash; [**Ayasegawa Yumichika**](https://myanimelist.net/character.php?q=Ayasegawa%20Yumichika&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
