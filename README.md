@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't kid yourself, Mustang. You know how humans love to watch other people suffer while making fools of themselves. I mean, why else would you constantly be at war with each other?"
+> "[to Choe Neng Poww, as the giant Arrancar charges a Cero after making a comment on Komamura's strength] I see...Then I shall stop that yawn in its tracks. Bankai."
 
-&mdash; [**Envy**](https://myanimelist.net/character.php?q=Envy&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
