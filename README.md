@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All that for a memory and a dead mortal girl. If I've known that this is all it took to make you fight, I would have killed her sooner. (to Inuyasha)"
+> "We think the flower on the precipice is beautiful, because our fear makes our feet stop at its edge, instead of stepping forward into the sky, like that flower."
 
-&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
