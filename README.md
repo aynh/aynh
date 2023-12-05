@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Choe Neng Poww, as the giant Arrancar charges a Cero after making a comment on Komamura's strength] I see...Then I shall stop that yawn in its tracks. Bankai."
+> "Pikachu, you're a Pika-pal!"
 
-&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
