@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You won't know if you don't give it a try."
+> "Irony abounds in warfare."
 
-&mdash; [**Takeshi Yamamoto**](https://myanimelist.net/character.php?q=Takeshi%20Yamamoto&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
