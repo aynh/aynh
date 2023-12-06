@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The one hundred years we were apart were meant to bring me power and make you weak! Yoruichi!"
+> "You know, in the end, people come home to the people they love most."
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Karan**](https://myanimelist.net/character.php?q=Karan&cat=character), [**No.6**](https://myanimelist.net/search/all?q=No.6&cat=all)
