@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is eternal? ...Eternal life. Eternal love. Eternal flow of time. Instinctively, they all seem wonderful, but in reality, they are also cruel."
+> "Rely on your Instinct, rather than Logic."
 
-&mdash; [**Yuki Saegusa**](https://myanimelist.net/character.php?q=Yuki%20Saegusa&cat=character), [**Dance in the Vampire Bund**](https://myanimelist.net/search/all?q=Dance%20in%20the%20Vampire%20Bund&cat=all)
+&mdash; [**Takeshi Yamamoto**](https://myanimelist.net/character.php?q=Takeshi%20Yamamoto&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
