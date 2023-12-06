@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Resenting the past won't change anything. It just makes me want to kill myself! I have some control over my future, but there's no changing the past! I'll simply do what I can right now."
+> "If someone says it's wrong to hope, I will tell them that they're wrong every time. I could tell them that countless times!"
 
-&mdash; [**Tomoko Kuroki**](https://myanimelist.net/character.php?q=Tomoko%20Kuroki&cat=character), [**WATAMOTE**](https://myanimelist.net/search/all?q=WATAMOTE&cat=all)
+&mdash; [**Madoka Kaname**](https://myanimelist.net/character.php?q=Madoka%20Kaname&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
