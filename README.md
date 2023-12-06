@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look, I hate to be the wet blanket here, but since Katara's busy, I guess it's up to me."
+> "There's no law that says you can't go after someone just because he's already in love with someone else."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Ruri Miyamoto**](https://myanimelist.net/character.php?q=Ruri%20Miyamoto&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
