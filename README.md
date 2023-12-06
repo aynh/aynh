@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, in the end, people come home to the people they love most."
+> "Saying humans can't be trusted, please never use such words again!"
 
-&mdash; [**Karan**](https://myanimelist.net/character.php?q=Karan&cat=character), [**No.6**](https://myanimelist.net/search/all?q=No.6&cat=all)
+&mdash; [**Kanzaki Nao**](https://myanimelist.net/character.php?q=Kanzaki%20Nao&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
