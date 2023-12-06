@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why is it that I'm anxious when I love him?.. No. I love him, that's why I'm anxious. It's because I love you that even if I take off the armor I've worn all my life, I'll still chase after you."
+> "I read in some book that sad and painful things are the spices of an enjoyable life... But I seem to get nothing but spices!"
 
-&mdash; [**Yoh Miyagi**](https://myanimelist.net/character.php?q=Yoh%20Miyagi&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Tomoko Kuroki**](https://myanimelist.net/character.php?q=Tomoko%20Kuroki&cat=character), [**WATAMOTE**](https://myanimelist.net/search/all?q=WATAMOTE&cat=all)
