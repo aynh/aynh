@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Haruhi, when at her home*  You like strawberries, right? Here, you can have mine."
+> "Why is it that I'm anxious when I love him?.. No. I love him, that's why I'm anxious. It's because I love you that even if I take off the armor I've worn all my life, I'll still chase after you."
 
-&mdash; [**Takashi Morinozuka**](https://myanimelist.net/character.php?q=Takashi%20Morinozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Yoh Miyagi**](https://myanimelist.net/character.php?q=Yoh%20Miyagi&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
