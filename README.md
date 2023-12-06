@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sooo... Korra. There they go, here we are, all alone in the gym... just you and me... TWO, alone people. Together. Alone."
+> "It doesn't matter if you grew up without parents, and it doesn't matter if you don't believe in God. There's someone out there watching over you."
 
-&mdash; [**Bolin**](https://myanimelist.net/character.php?q=Bolin&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
