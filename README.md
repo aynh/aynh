@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no law that says you can't go after someone just because he's already in love with someone else."
+> "What is eternal? ...Eternal life. Eternal love. Eternal flow of time. Instinctively, they all seem wonderful, but in reality, they are also cruel."
 
-&mdash; [**Ruri Miyamoto**](https://myanimelist.net/character.php?q=Ruri%20Miyamoto&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Yuki Saegusa**](https://myanimelist.net/character.php?q=Yuki%20Saegusa&cat=character), [**Dance in the Vampire Bund**](https://myanimelist.net/search/all?q=Dance%20in%20the%20Vampire%20Bund&cat=all)
