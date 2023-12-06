@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Saying humans can't be trusted, please never use such words again!"
+> "Resenting the past won't change anything. It just makes me want to kill myself! I have some control over my future, but there's no changing the past! I'll simply do what I can right now."
 
-&mdash; [**Kanzaki Nao**](https://myanimelist.net/character.php?q=Kanzaki%20Nao&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Tomoko Kuroki**](https://myanimelist.net/character.php?q=Tomoko%20Kuroki&cat=character), [**WATAMOTE**](https://myanimelist.net/search/all?q=WATAMOTE&cat=all)
