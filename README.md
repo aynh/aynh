@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I read in some book that sad and painful things are the spices of an enjoyable life... But I seem to get nothing but spices!"
+> "It's not like something is going to happen because I believe in it.  Sometimes you end up worse off because you believed in something too much. There are times it's tough to believe in something."
 
-&mdash; [**Tomoko Kuroki**](https://myanimelist.net/character.php?q=Tomoko%20Kuroki&cat=character), [**WATAMOTE**](https://myanimelist.net/search/all?q=WATAMOTE&cat=all)
+&mdash; [**Eureka**](https://myanimelist.net/character.php?q=Eureka&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
