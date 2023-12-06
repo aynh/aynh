@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you forced someone to do something they didn’t want to do, they’d just end up hating life."
+> "Living forever means that the suffering of life also continues forever."
 
-&mdash; [**Chihiro Sengoku**](https://myanimelist.net/character.php?q=Chihiro%20Sengoku&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Sakura Hiraga**](https://myanimelist.net/character.php?q=Sakura%20Hiraga&cat=character), [**Masquerade**](https://myanimelist.net/search/all?q=Masquerade&cat=all)
