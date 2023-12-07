@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We fall into a routine and make careless mistakes because of that. Maybe it'd be good for us to have some excitement or be under pressure once in a while."
+> "Sorry, but I hate people who act innocent but are actually opportunists."
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Nai**](https://myanimelist.net/character.php?q=Nai&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
