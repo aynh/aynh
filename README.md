@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are all sorts of mysteries in this world, like snacks and candy and sweets falling from the sky!"
+> "Humans shouldn't just disregard something they cannot comprehend while also trying to define it."
 
-&mdash; [**Komari Kamikita**](https://myanimelist.net/character.php?q=Komari%20Kamikita&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
