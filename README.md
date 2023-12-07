@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In order to achieve something there are some things that you have to be unsatisfied with in the first place. Having a complex is the source to greatness."
+> "You're free to like or hate whoever you want."
 
-&mdash; [**Takane Saibara**](https://myanimelist.net/character.php?q=Takane%20Saibara&cat=character), [**Takane to Hana**](https://myanimelist.net/search/all?q=Takane%20to%20Hana&cat=all)
+&mdash; [**Rachnera Arachnera**](https://myanimelist.net/character.php?q=Rachnera%20Arachnera&cat=character), [**Monster Musume no Iru Nichijou**](https://myanimelist.net/search/all?q=Monster%20Musume%20no%20Iru%20Nichijou&cat=all)
