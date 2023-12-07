@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen up, I don't care what you punks do around the universe. But with this, my sword… anywhere it can reach, is part of my country! Asses who blunder in and violate my things… whether it be a Shogun, whether it be space pirates, whether it be a meteorite - I'll destroy them!!"
+> "There are all sorts of mysteries in this world, like snacks and candy and sweets falling from the sky!"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Komari Kamikita**](https://myanimelist.net/character.php?q=Komari%20Kamikita&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
