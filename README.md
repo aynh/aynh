@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is there... somebody precious to you?"
+> "People like you walk your paths, believing that something you desire is waiting for you. I walk it to confirm that there is nothing there."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
