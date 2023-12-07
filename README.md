@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you ever reach the point where you need to pray, you're already a failure of a man."
+> "In order to achieve something there are some things that you have to be unsatisfied with in the first place. Having a complex is the source to greatness."
 
-&mdash; [**Hyoudou Kazutaka**](https://myanimelist.net/character.php?q=Hyoudou%20Kazutaka&cat=character), [**Gyakkyou Burai Kaiji: Hakairoku Hen**](https://myanimelist.net/search/all?q=Gyakkyou%20Burai%20Kaiji%3A%20Hakairoku%20Hen&cat=all)
+&mdash; [**Takane Saibara**](https://myanimelist.net/character.php?q=Takane%20Saibara&cat=character), [**Takane to Hana**](https://myanimelist.net/search/all?q=Takane%20to%20Hana&cat=all)
