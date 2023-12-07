@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry, but I hate people who act innocent but are actually opportunists."
+> "If you can't see what's important, then it's because you're too ashamed to open your eyes."
 
-&mdash; [**Nai**](https://myanimelist.net/character.php?q=Nai&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
+&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
