@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why..? How can she say things like that so easily? If we hear that from our parents, what are we supposed to do? Rin thinks that she's been 'bad'. But who do you think is the one who's being 'bad' here!?! Having people take their anger out on us, being laughed at, not being taken seriously. We kids get hurt just like you do! Why can't you understand something so simple?! Apologize! APOLOGIZE! APOLOGIZE TO RIN!! [Rin's mom shuts the door] HEY!! I TOLD YOU TO APOLOGIZE!!"
+> "When I was a child, whenever it snowed, I would play and make snowballs. When you start rolling a snowball, someone will always appear out of nowhere and help you make it bigger and in the end, everyone goes home satisfied. It was then that I suddenly thought “This is what I want to grow up to be like”."
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Alicia Florence**](https://myanimelist.net/character.php?q=Alicia%20Florence&cat=character), [**Aria The Natural**](https://myanimelist.net/search/all?q=Aria%20The%20Natural&cat=all)
