@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stealing someone's name is never all right. It means you're unwilling to recognize them as human."
+> "We want the ones we can't have and ignore the ones that want us but then, we end up with none in the end."
 
-&mdash; [**Shiroe**](https://myanimelist.net/character.php?q=Shiroe&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
