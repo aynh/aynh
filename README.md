@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't be stupid. You're just a human. So back off, shut up, and butt out. *to Kagome*"
+> "Listen up, I don't care what you punks do around the universe. But with this, my sword… anywhere it can reach, is part of my country! Asses who blunder in and violate my things… whether it be a Shogun, whether it be space pirates, whether it be a meteorite - I'll destroy them!!"
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
