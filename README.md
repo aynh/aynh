@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We want the ones we can't have and ignore the ones that want us but then, we end up with none in the end."
+> "Don't be stupid. You're just a human. So back off, shut up, and butt out. *to Kagome*"
 
-&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
