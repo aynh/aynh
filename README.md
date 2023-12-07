@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't need to make a hundred friends. Just make real friends that you care about a hundred times as much. Even if you only have one, so long as they’re a friend you really care about."
+> "I would no longer fight against my feelings because I realized how useless and ineffective it was to fight them."
 
-&mdash; [**Yozora Mikazuki**](https://myanimelist.net/character.php?q=Yozora%20Mikazuki&cat=character), [**Boku wa Tomodachi ga Sukunai**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai&cat=all)
+&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
