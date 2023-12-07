@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The curtain that falls at the end...shall be pulled down by the blade of my sword."
+> "To master the bending disciplines you must first master discipline itself, but you have no interest in this so I have no interest in you."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Jeong Jeong**](https://myanimelist.net/character.php?q=Jeong%20Jeong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
