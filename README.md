@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The heart moves where the heart wills."
+> "Laws exist only for those who cannot live without clinging to them."
 
-&mdash; [**Twenty-Fifth Baam**](https://myanimelist.net/character.php?q=Twenty-Fifth%20Baam&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
