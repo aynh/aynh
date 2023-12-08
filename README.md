@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The fact that I’m standing here means that I’m resolved to fight for my guild. I do not need your sympathy. As long as I’m still standing, please come at me with all you’ve got! Please do!"
+> "There are people who can't act unless they're faced with a problem. Unless they find their reason. All I was left with was the sinking suspicion that I'd gone horribly wrong."
 
-&mdash; [**Wendy Marvell**](https://myanimelist.net/character.php?q=Wendy%20Marvell&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
