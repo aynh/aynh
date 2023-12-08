@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry. I don't believe in fate. I explore my future with my own strength. Good or bad, it's my own choice."
+> "The fact that I’m standing here means that I’m resolved to fight for my guild. I do not need your sympathy. As long as I’m still standing, please come at me with all you’ve got! Please do!"
 
-&mdash; [**Manjoume Jun**](https://myanimelist.net/character.php?q=Manjoume%20Jun&cat=character), [**Yu-Gi-Oh! Duel Monsters GX**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Duel%20Monsters%20GX&cat=all)
+&mdash; [**Wendy Marvell**](https://myanimelist.net/character.php?q=Wendy%20Marvell&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
