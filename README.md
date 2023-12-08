@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the limited time we have between our births and our deaths, we live life with everything we've got."
+> "However, I can't be happy. I feel I can't have that experience, I can't assume I will have that experience. I'm free, but feeling lonely and disheartened. I hope there's happiness out there. Besides, the future is approaching and waiting for me. In the future, I will be a part of the world. I will finally live my life."
 
-&mdash; [**Ushiromiya Battler**](https://myanimelist.net/character.php?q=Ushiromiya%20Battler&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Sohma Momiji**](https://myanimelist.net/character.php?q=Sohma%20Momiji&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
