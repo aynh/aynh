@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*referring to Yoh* [annoyed] Why does he always seem so carefree? He doesn't study... He listens to his favorite music... He even watches the rivers and stars!.. I wish I could live like that..."
+> "Never trust anyone too much, remember the devil was once an angel."
 
-&mdash; [**Manta Oyamada**](https://myanimelist.net/character.php?q=Manta%20Oyamada&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
