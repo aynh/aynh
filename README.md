@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "God doesn't give us trials we can't surmount. So someday all your wounds will heal and the day will come when you've surmounted all your pain."
+> "It's not the face that makes someone a monster, it's the choices they make with their lives."
 
-&mdash; [**Mikage Celestine**](https://myanimelist.net/character.php?q=Mikage%20Celestine&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
