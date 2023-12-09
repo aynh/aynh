@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment between life and death is where a true man shows his color."
+> "Because I wished for everyone to live, I did everything I could."
 
-&mdash; [**Shio Sakaki**](https://myanimelist.net/character.php?q=Shio%20Sakaki&cat=character), [**KenIchi the Mightiest Disciple**](https://myanimelist.net/search/all?q=KenIchi%20the%20Mightiest%20Disciple&cat=all)
+&mdash; [**Sakura Kinomoto**](https://myanimelist.net/character.php?q=Sakura%20Kinomoto&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
