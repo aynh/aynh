@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you get all worked up yourself, you’ll always get someone who’ll rebel. Being too eager brings negative results."
+> "No one's going to give you a map. You've got to walk your own path."
 
-&mdash; [**Sagara Misae**](https://myanimelist.net/character.php?q=Sagara%20Misae&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Hilda**](https://myanimelist.net/character.php?q=Hilda&cat=character), [**Outlaw Star**](https://myanimelist.net/search/all?q=Outlaw%20Star&cat=all)
