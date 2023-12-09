@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not the face that makes someone a monster, it's the choices they make with their lives."
+> "I've already made up my mind, to the statement: 'The most important thing in life is money'. I answered 'No'."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
