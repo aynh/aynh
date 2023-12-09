@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When surviving today is so simple and matter-of-fact people tend to forget. They forget what it means to eat a pig. They say all life is equal, but how much life is consumed to keep them alive everyday?"
+> "Caring for things brings a lot of trouble."
 
-&mdash; [**Tanaka Misumi**](https://myanimelist.net/character.php?q=Tanaka%20Misumi&cat=character), [**Bokurano**](https://myanimelist.net/search/all?q=Bokurano&cat=all)
+&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
