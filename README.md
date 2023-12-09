@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I really liked him I should hope for his happiness. But like you said in the car, I actually hoped they would break up."
+> "It seems Saiyans have changed since the last time I saw them. They have become cowardly."
 
-&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
