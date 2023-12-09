@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's fine, I'll come to save you as much as you want. I'll make you fall for me as much as you wish. Leave this to your master."
+> "If you get all worked up yourself, you’ll always get someone who’ll rebel. Being too eager brings negative results."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Sagara Misae**](https://myanimelist.net/character.php?q=Sagara%20Misae&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
