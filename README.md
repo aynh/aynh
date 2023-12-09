@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay. There's no pain. [something snaps inside Morty] Oops! [grins maniacally at Yoh] I'm sorry."
+> "If I really liked him I should hope for his happiness. But like you said in the car, I actually hoped they would break up."
 
-&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
