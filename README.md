@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Red is supposed to be the color of fate, right? Even if its annoying right now, it might connect to something good when you least expect it."
+> "Get over here, Zuko. Being part of the group also means being part of group hugs."
 
-&mdash; [**Zen Wistalia**](https://myanimelist.net/character.php?q=Zen%20Wistalia&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
+&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
