@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Get over here, Zuko. Being part of the group also means being part of group hugs."
+> "No matter how severe the situation is, if you continue to stay there, you'll accept everything as a everyday life."
 
-&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
