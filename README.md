@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Caring for things brings a lot of trouble."
+> "You don't need to make a hundred friends. Just make real friends that you care about a hundred times as much. Even if you only have one, so long as they’re a friend you really care about."
 
-&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Yozora Mikazuki**](https://myanimelist.net/character.php?q=Yozora%20Mikazuki&cat=character), [**Boku wa Tomodachi ga Sukunai**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai&cat=all)
