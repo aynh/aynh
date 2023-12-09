@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've already made up my mind, to the statement: 'The most important thing in life is money'. I answered 'No'."
+> "...a man without fear cannot be wise."
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
