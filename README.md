@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because I wished for everyone to live, I did everything I could."
+> "God doesn't give us trials we can't surmount. So someday all your wounds will heal and the day will come when you've surmounted all your pain."
 
-&mdash; [**Sakura Kinomoto**](https://myanimelist.net/character.php?q=Sakura%20Kinomoto&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Mikage Celestine**](https://myanimelist.net/character.php?q=Mikage%20Celestine&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
