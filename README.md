@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're going to be all right. You just stumbled over a stone in the road. It means nothing. Your goal lies far beyond this. Doesn't it? I'm sure you'll overcome this. You'll walk again... soon."
+> "Giving people what they want only results in temporary delight, and that you can only make a select few people happy that way."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Otonashi Aya**](https://myanimelist.net/character.php?q=Otonashi%20Aya&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
