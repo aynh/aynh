@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A choice isn't something someone gives you, it's something you make for yourself."
+> "A person grows up when he's able to overcome hardships. Protection is important, but there are some things that a person must learn on his own."
 
-&mdash; [**Papillon**](https://myanimelist.net/character.php?q=Papillon&cat=character), [**Busou Renkin**](https://myanimelist.net/search/all?q=Busou%20Renkin&cat=all)
+&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
