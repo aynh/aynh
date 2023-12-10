@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can never get angry at anything, that probably means you have nothing that you like, either."
+> "Look, I hate to be the wet blanket here, but since Katara's busy, I guess it's up to me."
 
-&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
