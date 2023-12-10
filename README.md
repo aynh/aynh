@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's quite educational, seeing the thought process of someone in charge."
+> "If it is because of what you call a heart, then it is the heart that causes you humans pain. It is because of your heart that you will die."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
