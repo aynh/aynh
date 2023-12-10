@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Giving people what they want only results in temporary delight, and that you can only make a select few people happy that way."
+> "If you can never get angry at anything, that probably means you have nothing that you like, either."
 
-&mdash; [**Otonashi Aya**](https://myanimelist.net/character.php?q=Otonashi%20Aya&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
