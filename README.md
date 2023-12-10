@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life can bring lots of hardships, but it's always important to keep in mind that there are people around you who care for you, and are willing to help you through whatever you're dealing with."
+> "You need to learn how to make mistakes before you grow up. When you are young, you can recover quickly when hurt. When you get older it's harder to make mistakes. The more responsibilities, the less mistakes you are allowed to make."
 
-&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Junko Kaname**](https://myanimelist.net/character.php?q=Junko%20Kaname&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
