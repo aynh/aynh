@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Canaan is still alive. Her existence is shining so brightly. Too bright for the naked eyes to look at directly... I'm a bit scared, but I want to touch it. I want to touch her radiance."
+> "A writer once said that 'a designer knows he has achieved perfection not when he has nothing left to add, but when he has nothing left to take away'."
 
-&mdash; [**Maria Oosawa**](https://myanimelist.net/character.php?q=Maria%20Oosawa&cat=character), [**CANAAN**](https://myanimelist.net/search/all?q=CANAAN&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
