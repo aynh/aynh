@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I coulda been a contendah..."
+> "If a man will not work, he shall not eat."
 
-&mdash; [**Joey Wheeler**](https://myanimelist.net/character.php?q=Joey%20Wheeler&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Olivier Mira Armstrong**](https://myanimelist.net/character.php?q=Olivier%20Mira%20Armstrong&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
