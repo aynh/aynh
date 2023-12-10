@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your grievance shall be avenged."
+> "A choice isn't something someone gives you, it's something you make for yourself."
 
-&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
+&mdash; [**Papillon**](https://myanimelist.net/character.php?q=Papillon&cat=character), [**Busou Renkin**](https://myanimelist.net/search/all?q=Busou%20Renkin&cat=all)
