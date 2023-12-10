@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has a past they wish to erase."
+> "It's a foolish thing, the human heart. Sometimes we fail to operate logically, and act on emotions."
 
-&mdash; [**Kaoru Kamiya**](https://myanimelist.net/character.php?q=Kaoru%20Kamiya&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Ichijiku Chisato**](https://myanimelist.net/character.php?q=Ichijiku%20Chisato&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
