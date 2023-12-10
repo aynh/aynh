@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's a foolish thing, the human heart. Sometimes we fail to operate logically, and act on emotions."
+> "I'd be lying if I said things are going according to my plan... but beggars can't be choosers, right?"
 
-&mdash; [**Ichijiku Chisato**](https://myanimelist.net/character.php?q=Ichijiku%20Chisato&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
