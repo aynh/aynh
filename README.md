@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's always like this. The only things I can ever do for Naruto are the little things anyone could do..."
+> "[as a child] Why should I be sad?! My parents died protecting the village from the monster fox. They're heroes, and I'm the son of those heroes! If I cry, it's because I'm happy! I'm not even sad that they went and left me all alone..."
 
-&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
