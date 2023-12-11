@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even at a time like this there's not a single word of rescue from the one you worship. You see? That is the truth of this world. He doesn't watch anything and doesn't save anyone."
+> "Indeed. I wanted to see Oceanus with my own eyes. Unfortunately, my dream never came true. Oceanus is still my final destination. A dream that never ends. Go ahead and laugh. Two thousand years later, and I still have the same dream. Every bit the fool as well. And so boy... a pact with a fellow idiot seems ideal."
 
-&mdash; [**Aion**](https://myanimelist.net/character.php?q=Aion&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
