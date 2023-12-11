@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't think I'm cut out for manual labor. I need to get a more creative job, like saving the whales."
+> "We are nothingness. Our head is a void. And without anything around us, we are nothing. We become what we perceive."
 
-&mdash; [**Tenma Tsukamoto**](https://myanimelist.net/character.php?q=Tenma%20Tsukamoto&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
