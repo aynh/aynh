@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are human, are you not? You are allowed to make mistakes."
+> "Is he living his dreams in death? Or.. is death the end of dreams?"
 
-&mdash; [**Bishamonten**](https://myanimelist.net/character.php?q=Bishamonten&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
