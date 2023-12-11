@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Looking back on the past is a dangerous thing. It's nothing more than an attachment."
+> "It's always like this. The only things I can ever do for Naruto are the little things anyone could do..."
 
-&mdash; [**Fukase**](https://myanimelist.net/character.php?q=Fukase&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
+&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
