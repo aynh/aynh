@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who wouldn't want their friends to be happy? That's just normal, man. It's nothing amazing."
+> "You are human, are you not? You are allowed to make mistakes."
 
-&mdash; [**Makoto Sunakawa**](https://myanimelist.net/character.php?q=Makoto%20Sunakawa&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
+&mdash; [**Bishamonten**](https://myanimelist.net/character.php?q=Bishamonten&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
