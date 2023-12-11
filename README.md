@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone's reality is freight with some degree of pain. What's wrong with seeing what makes you happy in your dreams?"
+> "If you cling to life, you live in fear of death. And that fear will cloud your judgment."
 
-&mdash; [**Natsume**](https://myanimelist.net/character.php?q=Natsume&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
+&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
