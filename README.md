@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are nothingness. Our head is a void. And without anything around us, we are nothing. We become what we perceive."
+> "Well, hurting girls isn't one of my hobbies. That's why I'll make it my hobby... to stomp on their cell phones. Hahahahahaha!"
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
