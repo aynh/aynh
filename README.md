@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human potential for evolution is limitless."
+> "Who wouldn't want their friends to be happy? That's just normal, man. It's nothing amazing."
 
-&mdash; [**Netero**](https://myanimelist.net/character.php?q=Netero&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Makoto Sunakawa**](https://myanimelist.net/character.php?q=Makoto%20Sunakawa&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
