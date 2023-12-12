@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I thought that I was, to a certain degree, an intelligent person. When I realized I was an idiot, I was really shocked!"
+> "Listen, Haku. I don’t remember it, but my mom told me... Once, when I was little, I fell into a river. She said they’d drained it and built things on top. But I’ve just remembered. The river was called the Kohaku River. Your real name is... Kohaku."
 
-&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Chihiro Ogino**](https://myanimelist.net/character.php?q=Chihiro%20Ogino&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
