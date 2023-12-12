@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Discouraging, isn't it? It's always easier to tear down than to build... And much more difficult to tie than to untie."
+> "Why shouldn't you quit, if that's what you really want to do? Everything will work out somehow."
 
-&mdash; [**Ayasegawa Yumichika**](https://myanimelist.net/character.php?q=Ayasegawa%20Yumichika&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
