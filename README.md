@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The only one who can beat me, is me!"
+> "The writing end when the writing ends... No... Accurately said, it is not written to an end. If you write a story to a certain point, can you say it is fully written? This has been paining me in all those long years as someone who writes. The journeys of humans make for such interesting stories, yet... But where does the journey start and where does it end... Even I do not know an answer to this..."
 
-&mdash; [**Daiki Aomine**](https://myanimelist.net/character.php?q=Daiki%20Aomine&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Featherine Augustus Aurora**](https://myanimelist.net/character.php?q=Featherine%20Augustus%20Aurora&cat=character), [**Umineko no Naku Koro ni Chiru Episode 8: Twilight of the...**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni%20Chiru%20Episode%208%3A%20Twilight%20of%20the...&cat=all)
