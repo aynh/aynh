@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are three conditions to terrify someone: One, the monster can't speak. Two, the monster has to be unidentifiable. Three, it's meaningless if the monster can die."
+> "I thought that I was, to a certain degree, an intelligent person. When I realized I was an idiot, I was really shocked!"
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
