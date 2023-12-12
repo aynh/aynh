@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dying now, my breath will be erased, okay?"
+> "There are three conditions to terrify someone: One, the monster can't speak. Two, the monster has to be unidentifiable. Three, it's meaningless if the monster can die."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
