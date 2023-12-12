@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone is alone. Everyone is empty. People no longer have need of others. You can always find a spare for any replacement. Any relationship can be replaced."
+> "The only one who can beat me, is me!"
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Daiki Aomine**](https://myanimelist.net/character.php?q=Daiki%20Aomine&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
