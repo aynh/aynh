@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You'll never know what's right or wrong until everything is over."
+> "I like fish, biiiig FISH. I also have a crap haircut, kinda like Naruto."
 
-&mdash; [**Soldier Blue**](https://myanimelist.net/character.php?q=Soldier%20Blue&cat=character), [**Terra E**](https://myanimelist.net/search/all?q=Terra%20E&cat=all)
+&mdash; [**Umibouzu**](https://myanimelist.net/character.php?q=Umibouzu&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
