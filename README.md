@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I like fish, biiiig FISH. I also have a crap haircut, kinda like Naruto."
+> "Everyone is alone. Everyone is empty. People no longer have need of others. You can always find a spare for any replacement. Any relationship can be replaced."
 
-&mdash; [**Umibouzu**](https://myanimelist.net/character.php?q=Umibouzu&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
