@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's like I'd want to ask what justice is doing right now if it existed in this world. Well, justice is empty and ineffectual."
+> "Discouraging, isn't it? It's always easier to tear down than to build... And much more difficult to tie than to untie."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Ayasegawa Yumichika**](https://myanimelist.net/character.php?q=Ayasegawa%20Yumichika&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
