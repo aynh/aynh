@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[About Omashu] There really is no fathoming the depths of my hatred for this place."
+> "But I want to play around before some noisy people come!"
 
-&mdash; [**Mai**](https://myanimelist.net/character.php?q=Mai&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kankuro**](https://myanimelist.net/character.php?q=Kankuro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
