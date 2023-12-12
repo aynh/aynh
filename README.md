@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even when our eyes are closed, there's a whole world out there that lives outside ourselves and our dreams."
+> "You'll never know what's right or wrong until everything is over."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Soldier Blue**](https://myanimelist.net/character.php?q=Soldier%20Blue&cat=character), [**Terra E**](https://myanimelist.net/search/all?q=Terra%20E&cat=all)
