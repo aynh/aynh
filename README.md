@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't stand that witch, stupid snake woman."
+> "My will is society's will. My eyes are society's eyes. Since you vowed to respect the law, you cannot deny me... no matter how much you despise latent criminals."
 
-&mdash; [**Eruka Frog**](https://myanimelist.net/character.php?q=Eruka%20Frog&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Sakuya Tougane**](https://myanimelist.net/character.php?q=Sakuya%20Tougane&cat=character), [**Psycho-Pass 2**](https://myanimelist.net/search/all?q=Psycho-Pass%202&cat=all)
