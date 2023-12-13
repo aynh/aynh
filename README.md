@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Compared to the 'righteous' greed of the rulers, the criminals of the world seem much more honorable. When scum rules the world, only more scum is born."
+> "We all have the right to choose our own future. We should be able to walk the paths that we choose, not the future youÂ´ve decided for us."
 
-&mdash; [**Eustass Kid**](https://myanimelist.net/character.php?q=Eustass%20Kid&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
