@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who’ll give up when it comes to such a mere setback? We haven’t lost yet! We’ll kneel on the floor and regret only after all possibilities are exhausted!"
+> "I envy you just for having someone who's worried about you."
 
-&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Mayu**](https://myanimelist.net/character.php?q=Mayu&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
