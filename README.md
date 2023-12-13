@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're gonna hit it, hit it until it breaks!"
+> "Don't worry about being so considerate of adults. You can only be a kid for so long, so you might as well enjoy it."
 
-&mdash; [**Tooru Oikawa**](https://myanimelist.net/character.php?q=Tooru%20Oikawa&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Charles Beams**](https://myanimelist.net/character.php?q=Charles%20Beams&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
