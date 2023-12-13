@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I envy you just for having someone who's worried about you."
+> "Sometimes, we have to look beyond what we want and do what’s best."
 
-&mdash; [**Mayu**](https://myanimelist.net/character.php?q=Mayu&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
