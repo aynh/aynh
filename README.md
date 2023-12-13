@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not because I'm lazy, it's just because I don't care."
+> "Stop Whining! All I did was cut off your stupid legs! Summon your demons! Transform yourself! Regenerate your legs! Stand up! Pick up your gun and attack me! Do something! The night is still so young, and the real fun is yet to start! Hurry, hurry, hurry, HURRY!!!"
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
