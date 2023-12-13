@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't worry about being so considerate of adults. You can only be a kid for so long, so you might as well enjoy it."
+> "It's not because I'm lazy, it's just because I don't care."
 
-&mdash; [**Charles Beams**](https://myanimelist.net/character.php?q=Charles%20Beams&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
