@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The weak are destined to lie beneath the boots of the strong. If that angers you, overcome your deficits."
+> "Don't worry. When people break their old selves they embark a journey to find their new selves."
 
-&mdash; [**Esdeath**](https://myanimelist.net/character.php?q=Esdeath&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
