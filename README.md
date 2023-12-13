@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So, who should we hold responsible? Compensation. Punishment. If you didn't want any problems you shouldn't have taken risks."
+> "Compared to the 'righteous' greed of the rulers, the criminals of the world seem much more honorable. When scum rules the world, only more scum is born."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Eustass Kid**](https://myanimelist.net/character.php?q=Eustass%20Kid&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
