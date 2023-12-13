@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We all have the right to choose our own future. We should be able to walk the paths that we choose, not the future youÂ´ve decided for us."
+> "Embrace your dreams...and whatever happens, protect your honor...AS SOLDIER!"
 
-&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Zack Fair**](https://myanimelist.net/character.php?q=Zack%20Fair&cat=character), [**Final Fantasy VII: Crisis Core**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Crisis%20Core&cat=all)
