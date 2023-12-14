@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A king is no king without his people. But people without a king are lost as well!"
+> "Accomplishing a shared goal under tense circumstances causes distance between people to naturally close."
 
-&mdash; [**Lan Fan**](https://myanimelist.net/character.php?q=Lan%20Fan&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Sakamoto**](https://myanimelist.net/character.php?q=Sakamoto&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
