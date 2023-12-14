@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The year may end, but some things never do. You may not see them with your eyes, but when you look with your heart, you can."
+> "Sometimes the person who tries to keep everyone happy is the the most lonely one."
 
-&mdash; [**Dera Mochimazzi**](https://myanimelist.net/character.php?q=Dera%20Mochimazzi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
+&mdash; [**Makoto Ōgami**](https://myanimelist.net/character.php?q=Makoto%20%C5%8Cgami&cat=character), [**Ghost Hound**](https://myanimelist.net/search/all?q=Ghost%20Hound&cat=all)
