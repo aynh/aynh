@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What could that creep possibly be thinking sending sexy underwear to his own daughter."
+> "We all have the right to choose our own future. We should be able to walk the paths that we choose, not the future youÂ´ve decided for us."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
