@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't know how to give up!!"
+> "A king is no king without his people. But people without a king are lost as well!"
 
-&mdash; [**Tsunayoshi Sawada**](https://myanimelist.net/character.php?q=Tsunayoshi%20Sawada&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Lan Fan**](https://myanimelist.net/character.php?q=Lan%20Fan&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
