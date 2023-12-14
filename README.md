@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We all have the right to choose our own future. We should be able to walk the paths that we choose, not the future youÂ´ve decided for us."
+> "Go ahead! I'll just turn you into the police for assaulting a minor! (To Kyo)"
 
-&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
