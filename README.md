@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I went with raven for a long bathroom break."
+> "Arrogance can plant a seed of sin. And loneliness can serve as its nursery."
 
-&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Shinsekai Yori**](https://myanimelist.net/character.php?q=Shinsekai%20Yori&cat=character), [**Shinsekai Yori**](https://myanimelist.net/search/all?q=Shinsekai%20Yori&cat=all)
