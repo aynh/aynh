@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen up! Youth doesn't last all that long! These precious three years of your youth will zip by and you'll be left with nothing but regrets if you spend them running away in delusions and fantasies, so you have to make it clear whether you like someone or not!"
+> "There's nothing happy about having your fate decided for you! You have to grab your own happiness!"
 
-&mdash; [**Akira Fujieda**](https://myanimelist.net/character.php?q=Akira%20Fujieda&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
