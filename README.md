@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's nothing happy about having your fate decided for you! You have to grab your own happiness!"
+> "But am I... am I normal? I have strength. I can kill with my bare hands. I bleed red, but the pain always goes away quickly. Sometimes I see things in my head that never happened. I am a cyborg. I'll never be useful as anything else."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Henrietta**](https://myanimelist.net/character.php?q=Henrietta&cat=character), [**Gunslinger Girl**](https://myanimelist.net/search/all?q=Gunslinger%20Girl&cat=all)
