@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Arrogance can plant a seed of sin. And loneliness can serve as its nursery."
+> "I don't understand the feelings of the weak. The law of the world is survival at its fittest. Its how the weak are weeded out. It just means those people that died were too weak. Its only natural for the weak to perish."
 
-&mdash; [**Shinsekai Yori**](https://myanimelist.net/character.php?q=Shinsekai%20Yori&cat=character), [**Shinsekai Yori**](https://myanimelist.net/search/all?q=Shinsekai%20Yori&cat=all)
+&mdash; [**Esdeath**](https://myanimelist.net/character.php?q=Esdeath&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
