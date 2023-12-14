@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But am I... am I normal? I have strength. I can kill with my bare hands. I bleed red, but the pain always goes away quickly. Sometimes I see things in my head that never happened. I am a cyborg. I'll never be useful as anything else."
+> "What could that creep possibly be thinking sending sexy underwear to his own daughter."
 
-&mdash; [**Henrietta**](https://myanimelist.net/character.php?q=Henrietta&cat=character), [**Gunslinger Girl**](https://myanimelist.net/search/all?q=Gunslinger%20Girl&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
