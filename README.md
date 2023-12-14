@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't worry. When people break their old selves they embark a journey to find their new selves."
+> "Open your eyes. 'God' is nothing more than a construct created by man to inspire fear and promote order."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
