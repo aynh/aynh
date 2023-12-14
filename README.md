@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Open your eyes. 'God' is nothing more than a construct created by man to inspire fear and promote order."
+> "I went with raven for a long bathroom break."
 
-&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
