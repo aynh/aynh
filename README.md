@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Their mistakes were simple ones. Gouki's mistake was being overconfident and Kurama's... sympathy for his human prey."
+> "You can use whatever technique you like, but now that I said I will kill you... your death tonight has been assured."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
