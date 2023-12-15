@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter whether this world is crazy or not. It doesn't matter if this absurdity is real. It doesn't matter how messed up this place may be... I want to survive."
+> "If there's a start, there's a finish. There's no rain that doesn't stop falling at some point. Not as long as you're alive anyway."
 
-&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Ryōsuke Hazuki**](https://myanimelist.net/character.php?q=Ry%C5%8Dsuke%20Hazuki&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
