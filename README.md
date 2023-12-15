@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't face each other with honesty, what kind of family is this?"
+> "Don't you ever worry about it? Wonder if there's something wrong with you? When you're always alone... you start comparing yourself with others. You want to make sure you're normal. But... when you're around lots of people, you don't compare yourself with them. You want to be yourself. It's okay to be weird... You want to be special. That's how it balances out."
 
-&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Miyaichi Rio**](https://myanimelist.net/character.php?q=Miyaichi%20Rio&cat=character), [**Ana Satsujin**](https://myanimelist.net/search/all?q=Ana%20Satsujin&cat=all)
