@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You'll never know what's right or wrong until everything is over."
+> "Hmhmhmhm, I think I will play with you a bit before killing you!"
 
-&mdash; [**Soldier Blue**](https://myanimelist.net/character.php?q=Soldier%20Blue&cat=character), [**Terra E**](https://myanimelist.net/search/all?q=Terra%20E&cat=all)
+&mdash; [**Kisame Hoshigaki**](https://myanimelist.net/character.php?q=Kisame%20Hoshigaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
