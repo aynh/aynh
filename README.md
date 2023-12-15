@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can use whatever technique you like, but now that I said I will kill you... your death tonight has been assured."
+> "May those who accept their fate be granted Happiness, may those who defy their fate be granted Glory."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Edel**](https://myanimelist.net/character.php?q=Edel&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
