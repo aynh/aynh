@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there's a start, there's a finish. There's no rain that doesn't stop falling at some point. Not as long as you're alive anyway."
+> "Everyone has different faces."
 
-&mdash; [**Ryōsuke Hazuki**](https://myanimelist.net/character.php?q=Ry%C5%8Dsuke%20Hazuki&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
+&mdash; [**Taichi Yaegashi**](https://myanimelist.net/character.php?q=Taichi%20Yaegashi&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
