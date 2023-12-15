@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even though you like someone already, your partner is decided for you... and you can't do anything about that crush. Because everyone keeps getting in the way... and saying you can't... But... when you're the one in love... the only thing that feels true... is that feeling."
+> "There's always something one can't explain even if one has experience with it."
 
-&mdash; [**Nejima Yukari**](https://myanimelist.net/character.php?q=Nejima%20Yukari&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
+&mdash; [**Shirogane**](https://myanimelist.net/character.php?q=Shirogane&cat=character), [**Monochrome Factor**](https://myanimelist.net/search/all?q=Monochrome%20Factor&cat=all)
