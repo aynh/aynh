@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't you ever worry about it? Wonder if there's something wrong with you? When you're always alone... you start comparing yourself with others. You want to make sure you're normal. But... when you're around lots of people, you don't compare yourself with them. You want to be yourself. It's okay to be weird... You want to be special. That's how it balances out."
+> "It doesn't matter whether this world is crazy or not. It doesn't matter if this absurdity is real. It doesn't matter how messed up this place may be... I want to survive."
 
-&mdash; [**Miyaichi Rio**](https://myanimelist.net/character.php?q=Miyaichi%20Rio&cat=character), [**Ana Satsujin**](https://myanimelist.net/search/all?q=Ana%20Satsujin&cat=all)
+&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
