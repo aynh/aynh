@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you want to scream or cry, I’ll be there. I’ll share your feelings and stay with you."
+> "Perhaps living without sin is a sin in itself."
 
-&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Furude Rika**](https://myanimelist.net/character.php?q=Furude%20Rika&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
