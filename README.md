@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am who I am and there is nothing wrong with that. The days continue like they always have, bringing neither excessive desire nor despair, nothing's changed. Yet I'm overwhelmed by this sense of fulfillment. I'm over here, you're over there. If I'm your savior, then you're mine."
+> "Don't give up, the beginning is always the hardest, so let's keep on going till the very end."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
