@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has different faces."
+> "But don't forget... as long as you're in my division, I'm on your side until death and beyond."
 
-&mdash; [**Taichi Yaegashi**](https://myanimelist.net/character.php?q=Taichi%20Yaegashi&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
