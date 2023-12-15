@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hmhmhmhm, I think I will play with you a bit before killing you!"
+> "Did you know? The world is full of hate and there isn't any reason for it?"
 
-&mdash; [**Kisame Hoshigaki**](https://myanimelist.net/character.php?q=Kisame%20Hoshigaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Anemone**](https://myanimelist.net/character.php?q=Anemone&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
