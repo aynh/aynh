@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The root of all evil is the kotatsu."
+> "When you want to scream or cry, I’ll be there. I’ll share your feelings and stay with you."
 
-&mdash; [**Chiaki Shinichi**](https://myanimelist.net/character.php?q=Chiaki%20Shinichi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
+&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
