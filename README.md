@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The role of the young is to break new ground without fear of failure. Remain in memories, not record books! Lose the battle, win the war!"
+> "They say when you fall, it's best to fall straight to the bottom, and the farther you have to crawl back up, the stronger and greater you'll be as a result."
 
-&mdash; [**Kawafuji Takao**](https://myanimelist.net/character.php?q=Kawafuji%20Takao&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
+&mdash; [**Hiyono Yuizaki**](https://myanimelist.net/character.php?q=Hiyono%20Yuizaki&cat=character), [**Spiral**](https://myanimelist.net/search/all?q=Spiral&cat=all)
