@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are the sum of our memories. Erasing the memories edged in oneself is the same as loosing oneself."
+> "You couldn't save your mom because you... weren't strong enough. I didn't face the Titan... because I wasn't brave enough."
 
-&mdash; [**Ergo Proxy**](https://myanimelist.net/character.php?q=Ergo%20Proxy&cat=character), [**Ergo Proxy**](https://myanimelist.net/search/all?q=Ergo%20Proxy&cat=all)
+&mdash; [**Hannes**](https://myanimelist.net/character.php?q=Hannes&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
