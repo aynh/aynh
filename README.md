@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Did you know? The world is full of hate and there isn't any reason for it?"
+> "The human heart is the source of all our power... We fight with the power of our hearts."
 
-&mdash; [**Anemone**](https://myanimelist.net/character.php?q=Anemone&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
