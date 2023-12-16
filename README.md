@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They often say that humans can't live alone. But you can live pretty long by yourself. Instead of feeling alone in a group, it's better to be alone in your solitude."
+> "Duh!! There's no such thing as free wish."
 
-&mdash; [**Faye Valentine**](https://myanimelist.net/character.php?q=Faye%20Valentine&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
