@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Music isn't supposed to be something you do to show off your abilities to your rivals."
+> "Growl, Haineko!"
 
-&mdash; [**Noboru Taki**](https://myanimelist.net/character.php?q=Noboru%20Taki&cat=character), [**Hibike! Euphonium**](https://myanimelist.net/search/all?q=Hibike!%20Euphonium&cat=all)
+&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
