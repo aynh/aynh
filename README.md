@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's amazing how every time you open your mouth, you manage to prove you're an idiot."
+> "We'd love to get up, Ash...unfortunately, you're STANDING on us."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
