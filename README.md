@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You couldn't save your mom because you... weren't strong enough. I didn't face the Titan... because I wasn't brave enough."
+> "I could give you baseless hope through empty encouragement, but you'd just make the same mistake again. You won't live long if you don't own up to your failures."
 
-&mdash; [**Hannes**](https://myanimelist.net/character.php?q=Hannes&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Mononobe Yuu**](https://myanimelist.net/character.php?q=Mononobe%20Yuu&cat=character), [**Juuou Mujin no Fafnir**](https://myanimelist.net/search/all?q=Juuou%20Mujin%20no%20Fafnir&cat=all)
