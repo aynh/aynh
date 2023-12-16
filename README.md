@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You'll never know what's right or wrong until everything is over."
+> "The role of the young is to break new ground without fear of failure. Remain in memories, not record books! Lose the battle, win the war!"
 
-&mdash; [**Soldier Blue**](https://myanimelist.net/character.php?q=Soldier%20Blue&cat=character), [**Terra E**](https://myanimelist.net/search/all?q=Terra%20E&cat=all)
+&mdash; [**Kawafuji Takao**](https://myanimelist.net/character.php?q=Kawafuji%20Takao&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
