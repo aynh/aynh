@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I could give you baseless hope through empty encouragement, but you'd just make the same mistake again. You won't live long if you don't own up to your failures."
+> "What you think of as peace can be painful for others."
 
-&mdash; [**Mononobe Yuu**](https://myanimelist.net/character.php?q=Mononobe%20Yuu&cat=character), [**Juuou Mujin no Fafnir**](https://myanimelist.net/search/all?q=Juuou%20Mujin%20no%20Fafnir&cat=all)
+&mdash; [**Vali Lucifer**](https://myanimelist.net/character.php?q=Vali%20Lucifer&cat=character), [**High School DxD BorN**](https://myanimelist.net/search/all?q=High%20School%20DxD%20BorN&cat=all)
