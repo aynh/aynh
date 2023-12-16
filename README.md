@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We'd love to get up, Ash...unfortunately, you're STANDING on us."
+> "You'll never know what's right or wrong until everything is over."
 
-&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Soldier Blue**](https://myanimelist.net/character.php?q=Soldier%20Blue&cat=character), [**Terra E**](https://myanimelist.net/search/all?q=Terra%20E&cat=all)
