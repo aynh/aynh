@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's only obvious that the world is a cruel place. If you can't change the world, then you have to change yourself!"
+> "They often say that humans can't live alone. But you can live pretty long by yourself. Instead of feeling alone in a group, it's better to be alone in your solitude."
 
-&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Faye Valentine**](https://myanimelist.net/character.php?q=Faye%20Valentine&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
