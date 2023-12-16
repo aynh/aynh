@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What you think of as peace can be painful for others."
+> "Crying is a nosebleed of the heart."
 
-&mdash; [**Vali Lucifer**](https://myanimelist.net/character.php?q=Vali%20Lucifer&cat=character), [**High School DxD BorN**](https://myanimelist.net/search/all?q=High%20School%20DxD%20BorN&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
