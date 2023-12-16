@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say when you fall, it's best to fall straight to the bottom, and the farther you have to crawl back up, the stronger and greater you'll be as a result."
+> "We are the sum of our memories. Erasing the memories edged in oneself is the same as loosing oneself."
 
-&mdash; [**Hiyono Yuizaki**](https://myanimelist.net/character.php?q=Hiyono%20Yuizaki&cat=character), [**Spiral**](https://myanimelist.net/search/all?q=Spiral&cat=all)
+&mdash; [**Ergo Proxy**](https://myanimelist.net/character.php?q=Ergo%20Proxy&cat=character), [**Ergo Proxy**](https://myanimelist.net/search/all?q=Ergo%20Proxy&cat=all)
