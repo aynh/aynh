@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't save you. I can't do anything to help you, except stay like this. If only I could stop time."
+> "*after Shinpachi caught up to him, while running from the police* What a nice boy you are. Have you come to return my wooden sword? That's all right. It was just a souvenir I bought on a school trip."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
