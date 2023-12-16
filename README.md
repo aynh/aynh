@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ugly?! Who you callin' ugly?! C'mere you mouse!"
+> "Simple: girls are better at fixing pants than guys, and guys are better at hunting and fighting and stuff like that. It's just the natural order of things."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
