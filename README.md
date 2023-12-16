@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Duh!! There's no such thing as free wish."
+> "I can't save you. I can't do anything to help you, except stay like this. If only I could stop time."
 
-&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
