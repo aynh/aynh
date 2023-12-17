@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has an ability. And it means that everyone should use that ability to the fullest."
+> "Someone who can't see the opponent before them can't see the opponent lying beyond."
 
-&mdash; [**Chitoge Kirisaki**](https://myanimelist.net/character.php?q=Chitoge%20Kirisaki&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Hajime Iwaizumi**](https://myanimelist.net/character.php?q=Hajime%20Iwaizumi&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
