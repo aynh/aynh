@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is love that can make us strong, but it is also love that can make us weak."
+> "Don't come back... 'Bed-wetter' Momo."
 
-&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
