@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Quit acting like a spoiled child. What's important, the memories? The keys? The feelings of guilt? No. It's the power to save your friends. That's the power of a celestial spirit wizard."
+> "What do you think it means to be the strongest man in the world? The strongest man in the world has power, skill, wisdom, heart, and luck."
 
-&mdash; [**Aquarius**](https://myanimelist.net/character.php?q=Aquarius&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Adlet Mayer**](https://myanimelist.net/character.php?q=Adlet%20Mayer&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
