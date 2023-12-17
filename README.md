@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, if I had to give a reason for my actions, I guess it's because I love people. I guess I wanted to see the faces that mankind has to offer."
+> "You are saying that innately, all people are good, and if they were to just assume their nature, this organization wouldn't be so rotten, right? But in my opinion, the structure of the organization, the way it is set up is what provides insight into what the true human nature really is."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Annie Leonhardt**](https://myanimelist.net/character.php?q=Annie%20Leonhardt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
