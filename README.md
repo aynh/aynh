@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Barragan, before he was recruited by Aizen] Isn't it ironic, king of Hueco Mundo? Dressed in black and poised to attack, you look just like a shinigami."
+> "Quit acting like a spoiled child. What's important, the memories? The keys? The feelings of guilt? No. It's the power to save your friends. That's the power of a celestial spirit wizard."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Aquarius**](https://myanimelist.net/character.php?q=Aquarius&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
