@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Yuki] Liar! Moping around like a sad rat who lost his cheese!"
+> "When I want to do something, I do it, regardless of the rest of the world. When I don't, I don't, and that's that."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Femt**](https://myanimelist.net/character.php?q=Femt&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
