@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We don't know if trying our best will help, but we do know, that if we don't try our best, it won't help for sure!"
+> "It is love that can make us strong, but it is also love that can make us weak."
 
-&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
