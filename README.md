@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someone who can't see the opponent before them can't see the opponent lying beyond."
+> "Life isn't about what can and can not be done, it's about doing it or not doing it!"
 
-&mdash; [**Hajime Iwaizumi**](https://myanimelist.net/character.php?q=Hajime%20Iwaizumi&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
+&mdash; [**Shio Sakaki**](https://myanimelist.net/character.php?q=Shio%20Sakaki&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
