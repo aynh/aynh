@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no point in dwelling on the past, so I'm trying to think of the future instead."
+> "If you think about it, death really isn't so frightening. Who knows, you might actually enjoy it."
 
-&mdash; [**Sorata Kanda**](https://myanimelist.net/character.php?q=Sorata%20Kanda&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Karasu**](https://myanimelist.net/character.php?q=Karasu&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
