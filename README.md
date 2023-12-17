@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Country of birth, time period, parents, location... various factors make people's lives unequal from the very beginning."
+> "[To Yuki] Liar! Moping around like a sad rat who lost his cheese!"
 
-&mdash; [**Death Parade**](https://myanimelist.net/character.php?q=Death%20Parade&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
