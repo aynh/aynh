@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let's show him...that the good guys always win."
+> "There's no point in dwelling on the past, so I'm trying to think of the future instead."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Sorata Kanda**](https://myanimelist.net/character.php?q=Sorata%20Kanda&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
