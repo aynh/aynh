@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stupid ocean!!! Ya want me to kill you? Huh??"
+> "*referring to his curse* Look, everyone! This is what hatred looks like! This is what it does when it catches hold of you! It's eating me alive, and very soon now it will kill me! Fear and anger only make it grow faster!"
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Prince Ashitaka**](https://myanimelist.net/character.php?q=Prince%20Ashitaka&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
