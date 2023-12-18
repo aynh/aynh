@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He who is blessed with strength should become the guide. That is all."
+> "People can believe in one another if we keep trying."
 
-&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Kanzaki Nao**](https://myanimelist.net/character.php?q=Kanzaki%20Nao&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
