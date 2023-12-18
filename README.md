@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the pride of a senshi means hurting each other, I don't want it. Nothing will come out of fighting. Fighting isn't the only way to solve things."
+> "Awaken, Benihime."
 
-&mdash; [**Usagi Tsukino**](https://myanimelist.net/character.php?q=Usagi%20Tsukino&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
