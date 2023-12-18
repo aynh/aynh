@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To fulfill your dream, you need to have a dream first. You can have an image, a desire, or a wish of what you want to become. Don't forget about it, and keep wishing for it. That's the first step to fulfilling your dream."
+> "If the pride of a senshi means hurting each other, I don't want it. Nothing will come out of fighting. Fighting isn't the only way to solve things."
 
-&mdash; [**Kuze Shuuichi**](https://myanimelist.net/character.php?q=Kuze%20Shuuichi&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Usagi Tsukino**](https://myanimelist.net/character.php?q=Usagi%20Tsukino&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
