@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Luxury means something with no meaning at all"
+> "I am not strong in the least, I merely started walking steps earlier than you. The only difference between you and me is the distance between us at this moment."
 
-&mdash; [**Souhei Saikawa**](https://myanimelist.net/character.php?q=Souhei%20Saikawa&cat=character), [**Subete ga F ni Naru**](https://myanimelist.net/search/all?q=Subete%20ga%20F%20ni%20Naru&cat=all)
+&mdash; [**Ewan Remington**](https://myanimelist.net/character.php?q=Ewan%20Remington&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
