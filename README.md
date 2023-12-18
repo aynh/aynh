@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I want to do something, I do it, regardless of the rest of the world. When I don't, I don't, and that's that."
+> "If I can do it tomorrow, I won't do it today!"
 
-&mdash; [**Femt**](https://myanimelist.net/character.php?q=Femt&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**KyÅko ToshinÅ**](https://myanimelist.net/character.php?q=Ky%C3%85%C2%8Dko%20Toshin%C3%85%C2%8D&cat=character), [**Yuri Yuri**](https://myanimelist.net/search/all?q=Yuri%20Yuri&cat=all)
