@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're the only ones who are gonna need a hospital. And for your sake, I hope there's one near by."
+> "Defying me till the very end, huh? But I'll forgive you. Some things are beautiful exactly because they are unobtainable."
 
-&mdash; [**Korra**](https://myanimelist.net/character.php?q=Korra&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
