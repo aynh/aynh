@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you're a main character, you can still die... I better be careful-ttebayo."
+> "Stupid ocean!!! Ya want me to kill you? Huh??"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
