@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What does it mean to be a winner? Is it the last one standing? It means to climb over a mountain of corpses to get to the top. By no means is it a glorious sight to behold, in fact, it is extremely cruel. Even so, if you still wish to seek victory... then you must become a devil."
+> "[to Choe Neng Poww, as the giant Arrancar charges a Cero after making a comment on Komamura's strength] I see...Then I shall stop that yawn in its tracks. Bankai."
 
-&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
+&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
