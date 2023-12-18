@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every time you hurt others, you're the one who end up being hurt."
+> "Don't just follow orders! You're men, not machines! In your hearts, you know what's right, the answer is sitting there, waiting for you. Are you brave enough to look inside yourselves?"
 
-&mdash; [**Takashi Morinozuka**](https://myanimelist.net/character.php?q=Takashi%20Morinozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Wolfgang Grimmer**](https://myanimelist.net/character.php?q=Wolfgang%20Grimmer&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
