@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you look away and just turn your back on those you don't understand, you'll regret it someday. Accept what's happening before your eyes as a fact. That's a shortcut to becoming an adult."
+> "What does it mean to be a winner? Is it the last one standing? It means to climb over a mountain of corpses to get to the top. By no means is it a glorious sight to behold, in fact, it is extremely cruel. Even so, if you still wish to seek victory... then you must become a devil."
 
-&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
