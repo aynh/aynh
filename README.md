@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Defying me till the very end, huh? But I'll forgive you. Some things are beautiful exactly because they are unobtainable."
+> "He who is blessed with strength should become the guide. That is all."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
