@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So long as a problem doesn't cause problems, it can't be called a problem."
+> "Luxury means something with no meaning at all"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Souhei Saikawa**](https://myanimelist.net/character.php?q=Souhei%20Saikawa&cat=character), [**Subete ga F ni Naru**](https://myanimelist.net/search/all?q=Subete%20ga%20F%20ni%20Naru&cat=all)
