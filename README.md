@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, no matter what kind of effort you put in, it just doesn't really pay off."
+> "I must spill yet more blood, so the blood already split will not be in vain."
 
-&mdash; [**Coach Kamogawa**](https://myanimelist.net/character.php?q=Coach%20Kamogawa&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
