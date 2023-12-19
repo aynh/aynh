@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We found ourselves in conflict with each other many times. There were hard times when we wanted to run away or give up. But it was only because that rain fell, that the seeds of our emotions could sprout. And the flowers of deeper friendship could bloom."
+> "I'm going to evaporate every molecule this scumbag is made out of!"
 
-&mdash; [**Misaki Kamiigusa**](https://myanimelist.net/character.php?q=Misaki%20Kamiigusa&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Kaze no Stigma**](https://myanimelist.net/character.php?q=Kaze%20no%20Stigma&cat=character), [**Kaze no Stigma**](https://myanimelist.net/search/all?q=Kaze%20no%20Stigma&cat=all)
