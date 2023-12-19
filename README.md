@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Youth is both a lie and a form of evil."
+> "There is no match that you know that 'you can't win'. Even if a match like that exists, the thing that decides the defeat is your heart. That makes you think you've 'lost'."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Yoichi Karasuma**](https://myanimelist.net/character.php?q=Yoichi%20Karasuma&cat=character), [**Asu No Yoichi**](https://myanimelist.net/search/all?q=Asu%20No%20Yoichi&cat=all)
