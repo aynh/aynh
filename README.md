@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am a god with a heart, but there’s one thing I cannot tolerate… people who don’t pay their proper respect to others."
+> "I have no desire to kill you. In fact, you're not worth killing. Killing you, would only tarnish my blade."
 
-&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Jin**](https://myanimelist.net/character.php?q=Jin&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
