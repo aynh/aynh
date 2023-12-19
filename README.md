@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am the Defender of the pride of New Hell...!!"
+> "People aren't complicated. We work hard when we know that we'll get something in return, and we try to work even harder if that something is our own improvement."
 
-&mdash; [**Hakua Du Lot Herminium**](https://myanimelist.net/character.php?q=Hakua%20Du%20Lot%20Herminium&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Kumiko Oumae**](https://myanimelist.net/character.php?q=Kumiko%20Oumae&cat=character), [**Hibike! Euphonium**](https://myanimelist.net/search/all?q=Hibike!%20Euphonium&cat=all)
