@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People aren't complicated. We work hard when we know that we'll get something in return, and we try to work even harder if that something is our own improvement."
+> "Everybody's weak. That's why we rely on others. We live by helping one another. We can say, we need one another. I've been able to survive because I have you and the others."
 
-&mdash; [**Kumiko Oumae**](https://myanimelist.net/character.php?q=Kumiko%20Oumae&cat=character), [**Hibike! Euphonium**](https://myanimelist.net/search/all?q=Hibike!%20Euphonium&cat=all)
+&mdash; [**Hibiki Kuze**](https://myanimelist.net/character.php?q=Hibiki%20Kuze&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
