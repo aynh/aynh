@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I must spill yet more blood, so the blood already split will not be in vain."
+> "At first, people only play as dots. But when lines of trust and friendship connect those dots, the lines become a circle and that circle is teamwork. As long as you keep playing as a dot, the others won't trust you either."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Major**](https://myanimelist.net/character.php?q=Major&cat=character), [**Major**](https://myanimelist.net/search/all?q=Major&cat=all)
