@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no match that you know that 'you can't win'. Even if a match like that exists, the thing that decides the defeat is your heart. That makes you think you've 'lost'."
+> "Those who wallow in power are destroyed by it."
 
-&mdash; [**Yoichi Karasuma**](https://myanimelist.net/character.php?q=Yoichi%20Karasuma&cat=character), [**Asu No Yoichi**](https://myanimelist.net/search/all?q=Asu%20No%20Yoichi&cat=all)
+&mdash; [**Leon Sōryū**](https://myanimelist.net/character.php?q=Leon%20S%C5%8Dry%C5%AB&cat=character), [**Cardfight!! Vanguard**](https://myanimelist.net/search/all?q=Cardfight!!%20Vanguard&cat=all)
