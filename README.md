@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have no desire to kill you. In fact, you're not worth killing. Killing you, would only tarnish my blade."
+> "We found ourselves in conflict with each other many times. There were hard times when we wanted to run away or give up. But it was only because that rain fell, that the seeds of our emotions could sprout. And the flowers of deeper friendship could bloom."
 
-&mdash; [**Jin**](https://myanimelist.net/character.php?q=Jin&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Misaki Kamiigusa**](https://myanimelist.net/character.php?q=Misaki%20Kamiigusa&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
