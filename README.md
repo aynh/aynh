@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm going to evaporate every molecule this scumbag is made out of!"
+> "I am the God placed here to save the weak and create a perfect world."
 
-&mdash; [**Kaze no Stigma**](https://myanimelist.net/character.php?q=Kaze%20no%20Stigma&cat=character), [**Kaze no Stigma**](https://myanimelist.net/search/all?q=Kaze%20no%20Stigma&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
