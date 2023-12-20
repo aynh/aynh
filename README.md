@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who wallow in power are destroyed by it."
+> "I can't save you. I can't do anything to help you, except stay like this. If only I could stop time."
 
-&mdash; [**Leon Sōryū**](https://myanimelist.net/character.php?q=Leon%20S%C5%8Dry%C5%AB&cat=character), [**Cardfight!! Vanguard**](https://myanimelist.net/search/all?q=Cardfight!!%20Vanguard&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
