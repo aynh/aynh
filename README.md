@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Grown-ups are idiots. If they really want to bring an end to this endless fighting, they need to sit down with one another and reach a truce."
+> "Why do people have to work? I just want to eat and sleep. I should have born as a panda at the zoo."
 
-&mdash; [**Tobirama Senju**](https://myanimelist.net/character.php?q=Tobirama%20Senju&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kazuya Hiramaru**](https://myanimelist.net/character.php?q=Kazuya%20Hiramaru&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
