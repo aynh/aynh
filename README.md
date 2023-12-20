@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're not God, nor are you a sister. But it's because I feel that you're much closer to me than God, I'm much more afraid of being hated by you."
+> "They say there's no such place... as Paradise. Even if you search to the ends of the Earth, there's nothing there. No matter how far you walk, it's always the same road. It just goes on and on. But, in spite of that... Why am I so driven to find it? A voice calls to me... It says, 'Search for Paradise.'"
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
