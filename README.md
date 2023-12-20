@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[tsume bites into his neck] Let's meet up again in Paradise."
+> "In my mind this jacked-up sideways ridiculousness is the normal state?"
 
-&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
