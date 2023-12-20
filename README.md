@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After all, most human beings are completely selfish. Eventually, they will meet their desires and try to help others. However, that isn't their only desire, they wish to stir people up. It is simplistically easier to do so anyway, they think it is a stupid ideal to show love to anyone but themselves."
+> "Under normal circumstances, humans should have continued to evolve as the greatest creatures upon this earth, but we were actually regressing. A rotten world. Politics, law, education... Was there anybody around who could correct this world? But someone had to do it."
 
-&mdash; [**Fuyumi Utsuromiya**](https://myanimelist.net/character.php?q=Fuyumi%20Utsuromiya&cat=character), [**Life is Money**](https://myanimelist.net/search/all?q=Life%20is%20Money&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
