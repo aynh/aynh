@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say there's no such place... as Paradise. Even if you search to the ends of the Earth, there's nothing there. No matter how far you walk, it's always the same road. It just goes on and on. But, in spite of that... Why am I so driven to find it? A voice calls to me... It says, 'Search for Paradise.'"
+> "Well, well, if it isn't the holy monk."
 
-&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Naraku**](https://myanimelist.net/character.php?q=Naraku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
