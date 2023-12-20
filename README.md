@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have to accept that who I want to become and who I can actually become are different."
+> "Grown-ups are idiots. If they really want to bring an end to this endless fighting, they need to sit down with one another and reach a truce."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Tobirama Senju**](https://myanimelist.net/character.php?q=Tobirama%20Senju&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
