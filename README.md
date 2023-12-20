@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trying to change someone else's thinking is sheer arrogance."
+> "Profit could warm his coin purse, but never his back."
 
-&mdash; [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/character.php?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
