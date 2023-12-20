@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The ordinary days that we live in may, in fact, be a series of miracles."
+> "After all, most human beings are completely selfish. Eventually, they will meet their desires and try to help others. However, that isn't their only desire, they wish to stir people up. It is simplistically easier to do so anyway, they think it is a stupid ideal to show love to anyone but themselves."
 
-&mdash; [**Koujirou Sasahara**](https://myanimelist.net/character.php?q=Koujirou%20Sasahara&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
+&mdash; [**Fuyumi Utsuromiya**](https://myanimelist.net/character.php?q=Fuyumi%20Utsuromiya&cat=character), [**Life is Money**](https://myanimelist.net/search/all?q=Life%20is%20Money&cat=all)
