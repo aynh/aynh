@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why do people have to work? I just want to eat and sleep. I should have born as a panda at the zoo."
+> "And what's the real lesson? Don't leave things in the fridge."
 
-&mdash; [**Kazuya Hiramaru**](https://myanimelist.net/character.php?q=Kazuya%20Hiramaru&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
