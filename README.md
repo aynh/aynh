@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Having the love of your life break up with you and say 'we can still be friends', is like your dog dying and your mom saying 'you can still keep it'."
+> "We ran through our school that was filled with noises, screams, life and death."
 
-&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
+&mdash; [**Takashi Komuro**](https://myanimelist.net/character.php?q=Takashi%20Komuro&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
