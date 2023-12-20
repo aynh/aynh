@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, well, if it isn't the holy monk."
+> "The ordinary days that we live in may, in fact, be a series of miracles."
 
-&mdash; [**Naraku**](https://myanimelist.net/character.php?q=Naraku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Koujirou Sasahara**](https://myanimelist.net/character.php?q=Koujirou%20Sasahara&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
