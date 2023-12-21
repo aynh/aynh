@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate it when knowledge is misused by people who have lost sight of reality, due to biased perceptions and prejudices. It is the source of misunderstanding, ignorance and conflict. I want us to understand each other."
+> "Huh? In a real war, what fool waits for their enemy's 'turn'?"
 
-&mdash; [**Aeolia Schenberg**](https://myanimelist.net/character.php?q=Aeolia%20Schenberg&cat=character), [**Gundam 00**](https://myanimelist.net/search/all?q=Gundam%2000&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
