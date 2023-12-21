@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whenever you fight from this point on, there is one thing you must never do. Which is...to die alone."
+> "Hope and passion slip through your fingers like sand."
 
-&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Takada**](https://myanimelist.net/character.php?q=Takada&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
