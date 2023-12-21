@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People have many different ways of thinking. Even if you make a mistake, if you realize it was a mistake, You can always fix it. Then if you turn around, you will see the future. This must be realized by oneself."
+> "Time's a-wastin' people, let's go!"
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Anko Mitarashi**](https://myanimelist.net/character.php?q=Anko%20Mitarashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
