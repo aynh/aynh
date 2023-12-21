@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't lose to my older sister! Right now she's ahead of me by 2 millimeters in chest size!"
+> "Why is it?.. I'm so sad and so lonely. But the tears just won't come."
 
-&mdash; [**Risa Harada**](https://myanimelist.net/character.php?q=Risa%20Harada&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
