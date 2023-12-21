@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you hurt somebody... or if somebody hurts you, the same red blood will be shed"
+> "People have many different ways of thinking. Even if you make a mistake, if you realize it was a mistake, You can always fix it. Then if you turn around, you will see the future. This must be realized by oneself."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
