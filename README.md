@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Huh? In a real war, what fool waits for their enemy's 'turn'?"
+> "I can't lose to my older sister! Right now she's ahead of me by 2 millimeters in chest size!"
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Risa Harada**](https://myanimelist.net/character.php?q=Risa%20Harada&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
