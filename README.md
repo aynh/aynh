@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time's a-wastin' people, let's go!"
+> "Even if it doesn't pay off or you're laughed at, go down the path that you believe is right."
 
-&mdash; [**Anko Mitarashi**](https://myanimelist.net/character.php?q=Anko%20Mitarashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Makoto Hijikata**](https://myanimelist.net/character.php?q=Makoto%20Hijikata&cat=character), [**Psychic Detective Yakumo**](https://myanimelist.net/search/all?q=Psychic%20Detective%20Yakumo&cat=all)
