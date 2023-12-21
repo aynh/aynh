@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's all I wanted to say. There is nothing at the end of helping people. It is a false life that can save neither yourself nor others."
+> "The heroes during times of war, are nothing but mass murderers during times of peace."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
