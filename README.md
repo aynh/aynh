@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if it doesn't pay off or you're laughed at, go down the path that you believe is right."
+> "I hate it when knowledge is misused by people who have lost sight of reality, due to biased perceptions and prejudices. It is the source of misunderstanding, ignorance and conflict. I want us to understand each other."
 
-&mdash; [**Makoto Hijikata**](https://myanimelist.net/character.php?q=Makoto%20Hijikata&cat=character), [**Psychic Detective Yakumo**](https://myanimelist.net/search/all?q=Psychic%20Detective%20Yakumo&cat=all)
+&mdash; [**Aeolia Schenberg**](https://myanimelist.net/character.php?q=Aeolia%20Schenberg&cat=character), [**Gundam 00**](https://myanimelist.net/search/all?q=Gundam%2000&cat=all)
