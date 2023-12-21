@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The heroes during times of war, are nothing but mass murderers during times of peace."
+> "You don’t need something from someone else. What you need is to make your heart stronger. If you act naturally, people will naturally like you. And I’d like you more that way too."
 
-&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Yokodera Youto**](https://myanimelist.net/character.php?q=Yokodera%20Youto&cat=character), [**Hentai Ouji To Warawanai Neko**](https://myanimelist.net/search/all?q=Hentai%20Ouji%20To%20Warawanai%20Neko&cat=all)
