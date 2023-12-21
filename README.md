@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death is a privilege of the living. A destiny without reason, continually roving on, evermore. How fleeting a thing it is. One cannot live and forget about death. The despair that is me, forgotten by death, can at least embrace my yearning at twilight, and sleep."
+> "Whenever you fight from this point on, there is one thing you must never do. Which is...to die alone."
 
-&mdash; [**William Macbeth**](https://myanimelist.net/character.php?q=William%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
