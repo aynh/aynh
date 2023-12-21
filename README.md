@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world has too many heroes. It needs a monster."
+> "[to Gin Ichimaru] If you make Hinamori shed even one drop of blood, I'll kill you."
 
-&mdash; [**Dracule Mihawk**](https://myanimelist.net/character.php?q=Dracule%20Mihawk&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
