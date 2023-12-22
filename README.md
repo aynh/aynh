@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A person's mentality and feelings aren't always equal. There are times the conclusion you arrive at is completely irrational and the reason is because of that."
+> "It is a virtue to devote one's self to something, firmly believing in one's own ideals. But that does not mean it's alright to belittle the ideals or feelings of others. If you lead such a busy life and you don't realize how your parents feel, it's only self-satisfaction. It's alright to stop every now and again, if you want a moment's rest, if you want to feel what other people feel."
 
-&mdash; [**Shizuka Hiratsuka**](https://myanimelist.net/character.php?q=Shizuka%20Hiratsuka&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
