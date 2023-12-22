@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Kyo] Perhaps if you'd just die you'd be reincarnated as something more pleasant."
+> "Everyone becomes an adult by learning how to give up on things."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Jihou**](https://myanimelist.net/character.php?q=Jihou&cat=character), [**Da Capo II**](https://myanimelist.net/search/all?q=Da%20Capo%20II&cat=all)
