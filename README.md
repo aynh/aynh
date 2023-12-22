@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you’re too lucky, people will get jealous of you."
+> "Regret is the domain of those who have earned the right to look back at the past. All I have is shame."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
