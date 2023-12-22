@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ashes to ashes. Dust to dust. We are nothing, but dust and to dust we shall return. Amen."
+> "You disappointed me. So I have to give you a punishment. Regret your helplessness and feel despair."
 
-&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
