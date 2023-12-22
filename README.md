@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Girls are happier when they're the only one you're nice to."
+> "Listen up, brats! Today’s defeat is the seed for tomorrow’s victory! We’ll rise up and show them! We don’t know the meaning of giving up!"
 
-&mdash; [**Rory Mercury**](https://myanimelist.net/character.php?q=Rory%20Mercury&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
