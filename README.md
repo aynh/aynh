@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen up, brats! Today’s defeat is the seed for tomorrow’s victory! We’ll rise up and show them! We don’t know the meaning of giving up!"
+> "People can run from the things they don't like all they want. But if they're just averting their eyes, they're not running. As long as you think the current situation is okay, no one can help."
 
-&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Mother Araragi**](https://myanimelist.net/character.php?q=Mother%20Araragi&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
