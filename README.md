@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is a virtue to devote one's self to something, firmly believing in one's own ideals. But that does not mean it's alright to belittle the ideals or feelings of others. If you lead such a busy life and you don't realize how your parents feel, it's only self-satisfaction. It's alright to stop every now and again, if you want a moment's rest, if you want to feel what other people feel."
+> "You can’t cause a change without some courage and determination."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Usui Haruaki**](https://myanimelist.net/character.php?q=Usui%20Haruaki&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
