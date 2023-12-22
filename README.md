@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone becomes an adult by learning how to give up on things."
+> "That kid's good point is that he feels he doesn't have much skill. It's this kind of person that will keep on improving."
 
-&mdash; [**Jihou**](https://myanimelist.net/character.php?q=Jihou&cat=character), [**Da Capo II**](https://myanimelist.net/search/all?q=Da%20Capo%20II&cat=all)
+&mdash; [**Mizuno Tatsuya**](https://myanimelist.net/character.php?q=Mizuno%20Tatsuya&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
