@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regret is the domain of those who have earned the right to look back at the past. All I have is shame."
+> "A person's mentality and feelings aren't always equal. There are times the conclusion you arrive at is completely irrational and the reason is because of that."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Shizuka Hiratsuka**](https://myanimelist.net/character.php?q=Shizuka%20Hiratsuka&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
