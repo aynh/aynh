@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People can run from the things they don't like all they want. But if they're just averting their eyes, they're not running. As long as you think the current situation is okay, no one can help."
+> "All those who wander in the darkness seek the light, but when they reach the light, they turn away their eyes from the blinding glare."
 
-&mdash; [**Mother Araragi**](https://myanimelist.net/character.php?q=Mother%20Araragi&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Kazkis Hauer**](https://myanimelist.net/character.php?q=Kazkis%20Hauer&cat=character), [**Ergo Proxy**](https://myanimelist.net/search/all?q=Ergo%20Proxy&cat=all)
