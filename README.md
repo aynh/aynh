@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All those who wander in the darkness seek the light, but when they reach the light, they turn away their eyes from the blinding glare."
+> "[To Kyo] Perhaps if you'd just die you'd be reincarnated as something more pleasant."
 
-&mdash; [**Kazkis Hauer**](https://myanimelist.net/character.php?q=Kazkis%20Hauer&cat=character), [**Ergo Proxy**](https://myanimelist.net/search/all?q=Ergo%20Proxy&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
