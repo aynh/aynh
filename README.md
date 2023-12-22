@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is great satisfaction in fighting for the sake of gaining power, but it’s joyless to fight for the sake of maintaining it."
+> "Even if I force myself to smile. It seems I'm the type of person who ends up being hated."
 
-&mdash; [**Reinhard von Lohengramm**](https://myanimelist.net/character.php?q=Reinhard%20von%20Lohengramm&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Sai**](https://myanimelist.net/character.php?q=Sai&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
