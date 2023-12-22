@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Opportunities and success come only to those who do not fear to stand in the batter's box. Who want to hit the ball more than anything, and swing with all their might!"
+> "Have you ever imagined how it feels to be treated like you don't exist? You're right there, but you get treated like you're not. You're denied everything - every day your heart gets carved up and you experience disappointment again and again, but you have to smile anyway. Do you know how that feels?"
 
-&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Ryūto Sakurai**](https://myanimelist.net/character.php?q=Ry%C5%ABto%20Sakurai&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
