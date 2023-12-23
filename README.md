@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And the TV show ended by saying how young people are becoming increasingly illiterate, but doesn't browsing the Internet and blogging actually improve your literacy?"
+> "I had a dream where I fell into a surreal world with a girl I knew, and then ended up kissing her! A dream so easy to understand that even Sigmund Freud would laugh out loud."
 
-&mdash; [**Konata Izumi**](https://myanimelist.net/character.php?q=Konata%20Izumi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
