@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life and death come and go like marionettes dancing on a table. Once their stings are cut, they easily crumble."
+> "I see...since I am no longer going to be Lord Orochimaru's vessel, my duty is to protect the vessel."
 
-&mdash; [**Ghost in the Shell 2: Innocence**](https://myanimelist.net/character.php?q=Ghost%20in%20the%20Shell%202%3A%20Innocence&cat=character), [**Ghost in the Shell 2: Innocence**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell%202%3A%20Innocence&cat=all)
+&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
