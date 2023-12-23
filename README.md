@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The ones who do what they want and enjoy the most of their lives are the ones who win in the end."
+> "And the TV show ended by saying how young people are becoming increasingly illiterate, but doesn't browsing the Internet and blogging actually improve your literacy?"
 
-&mdash; [**Charlie Staz**](https://myanimelist.net/character.php?q=Charlie%20Staz&cat=character), [**Blood Lad**](https://myanimelist.net/search/all?q=Blood%20Lad&cat=all)
+&mdash; [**Konata Izumi**](https://myanimelist.net/character.php?q=Konata%20Izumi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
