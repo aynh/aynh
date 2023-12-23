@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone here is the same. They don't notice anything. They don't say anything. And they don't think anything. They are merely a shell of their former selves and soon they will disappear like the melting snow. This epidemic leads innocent people to their deaths, and yet, its pathogen will never be eradicated. This is a disease called serenity - a form of death that people have wished for."
+> "What is 'Courage'? Courage is owning your fear!"
 
-&mdash; [**Oryou Rikako**](https://myanimelist.net/character.php?q=Oryou%20Rikako&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**William A. Zeppeli**](https://myanimelist.net/character.php?q=William%20A.%20Zeppeli&cat=character), [**JoJo's Bizarre Adventure**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure&cat=all)
