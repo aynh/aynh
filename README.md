@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You pansy! What kind of girly punch is that? I didn't even feel it! (to Kyo)"
+> "If fate were real, then I would say meeting someone new would constitute such a thing."
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Takahiro Mizuno**](https://myanimelist.net/character.php?q=Takahiro%20Mizuno&cat=character), [**Walkure Romanze**](https://myanimelist.net/search/all?q=Walkure%20Romanze&cat=all)
