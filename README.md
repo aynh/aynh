@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I see...since I am no longer going to be Lord Orochimaru's vessel, my duty is to protect the vessel."
+> "If you wanna make people dream, you've gotta start by believing in that dream yourself!"
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Seiya Kanie**](https://myanimelist.net/character.php?q=Seiya%20Kanie&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
