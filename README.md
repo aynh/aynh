@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If fate were real, then I would say meeting someone new would constitute such a thing."
+> "The ones who do what they want and enjoy the most of their lives are the ones who win in the end."
 
-&mdash; [**Takahiro Mizuno**](https://myanimelist.net/character.php?q=Takahiro%20Mizuno&cat=character), [**Walkure Romanze**](https://myanimelist.net/search/all?q=Walkure%20Romanze&cat=all)
+&mdash; [**Charlie Staz**](https://myanimelist.net/character.php?q=Charlie%20Staz&cat=character), [**Blood Lad**](https://myanimelist.net/search/all?q=Blood%20Lad&cat=all)
