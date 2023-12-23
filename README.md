@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is 'Courage'? Courage is owning your fear!"
+> "Sometimes we women must fight too, don't underestimate us!"
 
-&mdash; [**William A. Zeppeli**](https://myanimelist.net/character.php?q=William%20A.%20Zeppeli&cat=character), [**JoJo's Bizarre Adventure**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure&cat=all)
+&mdash; [**Gi-gan**](https://myanimelist.net/character.php?q=Gi-gan&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
