@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anyone can smile if you give them something to be happy about."
+> "Life and death come and go like marionettes dancing on a table. Once their stings are cut, they easily crumble."
 
-&mdash; [**Setsuna F. Seiei**](https://myanimelist.net/character.php?q=Setsuna%20F.%20Seiei&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Ghost in the Shell 2: Innocence**](https://myanimelist.net/character.php?q=Ghost%20in%20the%20Shell%202%3A%20Innocence&cat=character), [**Ghost in the Shell 2: Innocence**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell%202%3A%20Innocence&cat=all)
