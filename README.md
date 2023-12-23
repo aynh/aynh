@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you claim to love humans, that should include their lies and betrayals, their sins and ugliness, their jealousy and immaturity, their hatred and conflicts."
+> "Anyone can smile if you give them something to be happy about."
 
-&mdash; [**Myouri Unzen**](https://myanimelist.net/character.php?q=Myouri%20Unzen&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Setsuna F. Seiei**](https://myanimelist.net/character.php?q=Setsuna%20F.%20Seiei&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
