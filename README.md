@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hijikata-san. I forgot my flute at the headquarters, so I'm gonna go back and get it real quick."
+> "People aren't born social. Sure it comes easier to some people... but most people, like you, need to work at it. Some more than others. You're just inexperienced. For example, as a martial artist, you have the strength to break the table with your fist. But you also have the self-control to stop your fist right before it hits the table. You weren't born with that control, were you? You had to refine it. It's the same as interacting with people. But training for that isn't in the mountains - it has to be in town where people live. Mingling with people, hurting them, getting hurt by them. That's how you learn about people and about yourself. If you don't, you'll never care about anyone but yourself. You may be a black belt fighter, but you're still a white belt in dealing with people. For the sake of the girl who will one day tell you she loves you... Don't turn away. Keep training."
 
-&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
