@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Have you ever imagined how it feels to be treated like you don't exist? You're right there, but you get treated like you're not. You're denied everything - every day your heart gets carved up and you experience disappointment again and again, but you have to smile anyway. Do you know how that feels?"
+> "According to my master, when you're a kid, just being a fast runner makes you popular. In middle school, it's holding your own in a fight. After that, brains make you popular. Her point seemed to be, 'Run fast, hit hard, and read books.'"
 
-&mdash; [**Ryūto Sakurai**](https://myanimelist.net/character.php?q=Ry%C5%ABto%20Sakurai&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
