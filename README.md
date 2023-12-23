@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being indebted to someone is nothing to be ashamed of. Not repaying that debt is."
+> "Go ahead! I'll just turn you into the police for assaulting a minor! (To Kyo)"
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
