@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Six innocent peasants down, hundreds of thousand more to go."
+> "I would be nothing without you."
 
-&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
