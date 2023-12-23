@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "According to my master, when you're a kid, just being a fast runner makes you popular. In middle school, it's holding your own in a fight. After that, brains make you popular. Her point seemed to be, 'Run fast, hit hard, and read books.'"
+> "Six innocent peasants down, hundreds of thousand more to go."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
