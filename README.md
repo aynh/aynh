@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, you're one of those guys... You don't care if somebody beats the crap out of you, but if someone lays a finger on a family member, you completely freak out. What a waste..."
+> "Everyone here is the same. They don't notice anything. They don't say anything. And they don't think anything. They are merely a shell of their former selves and soon they will disappear like the melting snow. This epidemic leads innocent people to their deaths, and yet, its pathogen will never be eradicated. This is a disease called serenity - a form of death that people have wished for."
 
-&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Oryou Rikako**](https://myanimelist.net/character.php?q=Oryou%20Rikako&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
