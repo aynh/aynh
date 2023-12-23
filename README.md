@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes we women must fight too, don't underestimate us!"
+> "Being indebted to someone is nothing to be ashamed of. Not repaying that debt is."
 
-&mdash; [**Gi-gan**](https://myanimelist.net/character.php?q=Gi-gan&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
