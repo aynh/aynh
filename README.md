@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes one must lose the battle in order to win the war."
+> "When I become Fuhrer President, all female personnel in the military ... will have to wear mini-skirts."
 
-&mdash; [**Sylphy**](https://myanimelist.net/character.php?q=Sylphy&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
