@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even when the answer’s obvious, making one wait for it is the worst thing you can do."
+> "[his parting words to Arrietty] My heart is stronger now, because you're in it."
 
-&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Shawn**](https://myanimelist.net/character.php?q=Shawn&cat=character), [**Karigurashi no Arrietty**](https://myanimelist.net/search/all?q=Karigurashi%20no%20Arrietty&cat=all)
