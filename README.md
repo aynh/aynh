@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hotaru, do you think the day will come that I'll lose it (the ability to see spirits) as well?  A one-sided visit and troublesome days...is that freedom? or...At that time, a small firefly (Hotaru) passed by and whispered something to me.  But I could not understand the words of a bug.  Farewell, Hotaru.  I wonder if that person understood...just that person."
+> "Sometimes, you’ll run into a situation which is dangerous, but which you can't run from. Sometimes, you know you’ll lose, but you have to advance anyway. If you can't be a smart man, then you should be the stupidest man of all. What do you think?"
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Duran**](https://myanimelist.net/character.php?q=Duran&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
