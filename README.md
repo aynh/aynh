@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've only just started to understand it myself. That by depending on others, and letting them depend on you, people can exceed what they can do as individuals."
+> "Don't forget, our existence is a fragile and uncertain one, knowing that any one of us could die at any moment. In this short time that we have, we all have one or two wishes that we'd like to fulfill. Losing the most important wish... is like losing your reason for living."
 
-&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Wakabayashi Hatsuna**](https://myanimelist.net/character.php?q=Wakabayashi%20Hatsuna&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
