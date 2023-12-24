@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even your gravest mistakes shouldn't stop you from moving forward."
+> "*to Kikyo* I swear... I will never let Naraku harm you."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
