@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You should cry while you still can. When you get bigger, sometimes, you can't cry even if you have something you wanna cry about."
+> "For a man to stand up again, he needs one thing... 'To make excuses'."
 
-&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Takamura Mamoru**](https://myanimelist.net/character.php?q=Takamura%20Mamoru&cat=character), [**Hajime no Ippo - Champion Road**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo%20-%20Champion%20Road&cat=all)
