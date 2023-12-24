@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Simplicity is the easiest path to true beauty."
+> "Hmm... Itachi... it would be annoying if he moved around a lot. Perhaps we should cut off a leg or two?"
 
-&mdash; [**Handa Seishū**](https://myanimelist.net/character.php?q=Handa%20Seish%C5%AB&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
+&mdash; [**Kisame Hoshigaki**](https://myanimelist.net/character.php?q=Kisame%20Hoshigaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
