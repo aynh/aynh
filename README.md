@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I understood that killing people was a crime. There was no other way! The world had to be fixed! A purpose given to me! Only I could do it. Who else could have done it, and come this far? Would they have kept going? The only one who can create a new world is me."
+> "Well excuse me for making you sleep in the wild all the time."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
