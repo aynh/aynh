@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The lifespan of a human is certainly way too short. That's why you've got to make the most of it and live your life to the fullest."
+> "Even when the answer’s obvious, making one wait for it is the worst thing you can do."
 
-&mdash; [**Leone**](https://myanimelist.net/character.php?q=Leone&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
