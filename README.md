@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I become Fuhrer President, all female personnel in the military ... will have to wear mini-skirts."
+> "Even your gravest mistakes shouldn't stop you from moving forward."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
