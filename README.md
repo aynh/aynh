@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well excuse me for making you sleep in the wild all the time."
+> "Sometimes one must lose the battle in order to win the war."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Sylphy**](https://myanimelist.net/character.php?q=Sylphy&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
