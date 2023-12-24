@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you aren't remembered, then you never existed."
+> "You should cry while you still can. When you get bigger, sometimes, you can't cry even if you have something you wanna cry about."
 
-&mdash; [**Arisu Mizuki**](https://myanimelist.net/character.php?q=Arisu%20Mizuki&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
+&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
