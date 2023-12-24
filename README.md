@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[his parting words to Arrietty] My heart is stronger now, because you're in it."
+> "If someone says it's wrong to hope, I will tell them that they're wrong every time. I could tell them that countless times!"
 
-&mdash; [**Shawn**](https://myanimelist.net/character.php?q=Shawn&cat=character), [**Karigurashi no Arrietty**](https://myanimelist.net/search/all?q=Karigurashi%20no%20Arrietty&cat=all)
+&mdash; [**Madoka Kaname**](https://myanimelist.net/character.php?q=Madoka%20Kaname&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
