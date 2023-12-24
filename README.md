@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For a man to stand up again, he needs one thing... 'To make excuses'."
+> "I've only just started to understand it myself. That by depending on others, and letting them depend on you, people can exceed what they can do as individuals."
 
-&mdash; [**Takamura Mamoru**](https://myanimelist.net/character.php?q=Takamura%20Mamoru&cat=character), [**Hajime no Ippo - Champion Road**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo%20-%20Champion%20Road&cat=all)
+&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
