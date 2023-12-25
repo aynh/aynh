@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ore-sama no bigi ni yoi na!"
+> "There is no right answer for getting along. Different people require different answers."
 
-&mdash; [**Keigo Atobe**](https://myanimelist.net/character.php?q=Keigo%20Atobe&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
