@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I CAN DO THAT TOO!' *He takes out a banana and squishes it, giggling evilly*"
+> "I've told you before, he's not one to trust, Otae-san. No trustworthy man has eyes that look like a dead fish's eyes."
 
-&mdash; [**Imadori Kyousuke**](https://myanimelist.net/character.php?q=Imadori%20Kyousuke&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
+&mdash; [**Isao Kondō**](https://myanimelist.net/character.php?q=Isao%20Kond%C5%8D&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
