@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One who does something he hates just because he's told to.. is called an errand boy."
+> "A place where someone still thinks about you is a place you can call home."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
