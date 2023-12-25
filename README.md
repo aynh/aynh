@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't hesitate to tell the people you care about the feelings you have for them, because they may not be there tomorrow."
+> "One who does something he hates just because he's told to.. is called an errand boy."
 
-&mdash; [**Akagi**](https://myanimelist.net/character.php?q=Akagi&cat=character), [**Kantai Collection: KanColle**](https://myanimelist.net/search/all?q=Kantai%20Collection%3A%20KanColle&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
