@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, nobody is free. Even the flying birds are chained to the sky."
+> "*talking about King Bumi* This isn't about finding a teacher. This is about finding my friend."
 
-&mdash; [**Yuu Otosaka**](https://myanimelist.net/character.php?q=Yuu%20Otosaka&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
