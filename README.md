@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who kill too much, turn into dragons one day. Beasts that rule the land atop piles of money and fly the skies with authority. They become more and more violent, until they can no longer understand the language of men. We cannot allow dragons to remain in this world, even though we are the ones from which they are spawned. To slay a dragon is the greatest of honors."
+> "There's something you can't see unless you're standing at the top, to experience that for the first time, I'm struggling to a higher place than anyone else, isn't that what freedom is?"
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
