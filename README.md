@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no right answer for getting along. Different people require different answers."
+> "If history repeats itself, and moves in a circular path, then believing that whatever force is turning it is perfect, is all we can do as we move ahead. Pushed along by forces beyond our control, waiting, for the blade to be swung."
 
-&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
