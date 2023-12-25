@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it is with Ayuzawa, whatever I do, wherever I am, I am happy. So it's okay."
+> "I CAN DO THAT TOO!' *He takes out a banana and squishes it, giggling evilly*"
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Imadori Kyousuke**](https://myanimelist.net/character.php?q=Imadori%20Kyousuke&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
