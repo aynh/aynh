@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A place where someone still thinks about you is a place you can call home."
+> "If it is with Ayuzawa, whatever I do, wherever I am, I am happy. So it's okay."
 
-&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
