@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know what a scientist fears most in this world above all else? It's oblivion, my friend. A scientist measures our lives in the ways we develop and expand our knowledge through myriad variations. Nothing can take its place. It's our very soul. I have done the worst thing one scientist can do to another: I have altered your thought process. When my drug takes effect, you will find your mind has lost the ability to think."
+> "No man chooses evil because it is evil; he only mistakes it for happiness, the good he seeks"
 
-&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
