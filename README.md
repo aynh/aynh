@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[crashing through the gate on his motor scooter] Thanks for the support! Here come the real heros!"
+> "Hey! Don't you know the rules!? When heroes transform, ride in their machine, or stand in their main pose, no one should attack them!"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Da Cider**](https://myanimelist.net/character.php?q=Da%20Cider&cat=character), [**NG Knight Ramune & 40**](https://myanimelist.net/search/all?q=NG%20Knight%20Ramune%20%26%2040&cat=all)
