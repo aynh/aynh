@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*talking about King Bumi* This isn't about finding a teacher. This is about finding my friend."
+> "Some people want power and they get mad when they don't get it. They take their fury out on everyone else. You don't want it, it becomes you."
 
-&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
