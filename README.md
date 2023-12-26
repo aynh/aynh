@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Urushibara Ruka, delicate as an orchid, fair as a cherry blossom, the personification of feminine grace and also... a dude. Tall as a willow, slender as a reed, a dude. Radiant in shrine vestments, dude. The sun dips low in a rosy sky, secateurs buzz, Ruka is a dude."
+> "Giving people what they want only results in temporary delight, and that you can only make a select few people happy that way."
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Otonashi Aya**](https://myanimelist.net/character.php?q=Otonashi%20Aya&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
