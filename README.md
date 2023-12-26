@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't have time to worry if it's right or wrong, you can't hope for a horror story with a happy ending!"
+> "Even since the industrial revolution, humanity has used its technological knowledge for conflict and repeatedly risked its own extinction. Though great leaders appeared at times, they’d reach the end of their lives in a few decades... and the world would return to a state of chaos."
 
-&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Ribbons Almark**](https://myanimelist.net/character.php?q=Ribbons%20Almark&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
