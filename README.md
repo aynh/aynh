@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, wherever there is light - there are also shadows. As long as the concept of winners exists, there must also be losers. The selfish desire of wanting to maintain peace causes wars, and hatred is born to protect love."
+> "Urushibara Ruka, delicate as an orchid, fair as a cherry blossom, the personification of feminine grace and also... a dude. Tall as a willow, slender as a reed, a dude. Radiant in shrine vestments, dude. The sun dips low in a rosy sky, secateurs buzz, Ruka is a dude."
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
