@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It would be enough for the depressing things in life to only exist in reality. It is because that I think the birth of a story is from people dreaming of a happy ending."
+> "Ayuzawa, you are the first person ever to appear in my life and able to make me a mess."
 
-&mdash; [**Shiori Misaka**](https://myanimelist.net/character.php?q=Shiori%20Misaka&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
