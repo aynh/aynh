@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't promise you that good things will come to your life, but I do know that no one but you have the power to give meaning to your life in this world."
+> "A drama has a progressive thought, an emotional climax and a resolution, but our lives aren't like that. All we get day after day, are a bunch of vague anxieties that are never really resolved."
 
-&mdash; [**Rin Asogi**](https://myanimelist.net/character.php?q=Rin%20Asogi&cat=character), [**Rin ~Daughters of Mnemosyne~**](https://myanimelist.net/search/all?q=Rin%20~Daughters%20of%20Mnemosyne~&cat=all)
+&mdash; [**Kaoru Yamazaki**](https://myanimelist.net/character.php?q=Kaoru%20Yamazaki&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
