@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Evil doesn't always seep out. It's possible to hide it if you’re careful and skilled."
+> "As long as you keep anything about me within you... Always, my heart will be with you."
 
-&mdash; [**Dog**](https://myanimelist.net/character.php?q=Dog&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
