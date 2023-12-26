@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is great value in the time spent in ones own company, but a life time of total isolation is a fate no one should endure."
+> "I bet dead people are easier to get along with."
 
-&mdash; [**Makarov**](https://myanimelist.net/character.php?q=Makarov&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
