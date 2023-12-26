@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't just leave a crying girl alone and go home. I'm too wimpy to carry you, but I can lend you a shoulder, and get you down the stairs."
+> "I don't have time to worry if it's right or wrong, you can't hope for a horror story with a happy ending!"
 
-&mdash; [**Ooga Kazuomi**](https://myanimelist.net/character.php?q=Ooga%20Kazuomi&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
