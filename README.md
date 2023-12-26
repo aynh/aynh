@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No man chooses evil because it is evil; he only mistakes it for happiness, the good he seeks"
+> "It is fine to assume that the Master's role is to support the battle from the back. But there are always exceptions. There are Masters who can only fight head on."
 
-&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
+&mdash; [**Souichirou Kuzuki**](https://myanimelist.net/character.php?q=Souichirou%20Kuzuki&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
