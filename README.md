@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just wild heaven."
+> "There is great value in the time spent in ones own company, but a life time of total isolation is a fate no one should endure."
 
-&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Makarov**](https://myanimelist.net/character.php?q=Makarov&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
