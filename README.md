@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ancient creatures died and left naught but fossil fuels, like coal and petroleum. Without that sacrifice, our present energy civilization would not exist. That sort of sacrifice is what is always demanded."
+> "Don't think that by abiding the rules you'll automatically be useful to society. Rules are not there for us, they are there for the 'person who made it' and the 'reality' and 'future', which are bound by these lies. They are preventing you from reaching your full potential. Which is why, if there is a future that you want, fight for it! Fight for it and pin down your own 'reality'."
 
-&mdash; [**Souji Mikage**](https://myanimelist.net/character.php?q=Souji%20Mikage&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
