@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even since the industrial revolution, humanity has used its technological knowledge for conflict and repeatedly risked its own extinction. Though great leaders appeared at times, they’d reach the end of their lives in a few decades... and the world would return to a state of chaos."
+> "I can't promise you that good things will come to your life, but I do know that no one but you have the power to give meaning to your life in this world."
 
-&mdash; [**Ribbons Almark**](https://myanimelist.net/character.php?q=Ribbons%20Almark&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Rin Asogi**](https://myanimelist.net/character.php?q=Rin%20Asogi&cat=character), [**Rin ~Daughters of Mnemosyne~**](https://myanimelist.net/search/all?q=Rin%20~Daughters%20of%20Mnemosyne~&cat=all)
