@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ayuzawa, you are the first person ever to appear in my life and able to make me a mess."
+> "Evil doesn't always seep out. It's possible to hide it if you’re careful and skilled."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Dog**](https://myanimelist.net/character.php?q=Dog&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
