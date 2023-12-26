@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no lack of painful things in this world, but hunger and loneliness must surely be two of the worst. Thanks to you, I didn't know a moment of either of them."
+> "If you have memories no one else remembers, what's the point in remembering them?"
 
-&mdash; [**Sakae Jinnouchi**](https://myanimelist.net/character.php?q=Sakae%20Jinnouchi&cat=character), [**Summer Wars**](https://myanimelist.net/search/all?q=Summer%20Wars&cat=all)
+&mdash; [**Liu Cheng-Long**](https://myanimelist.net/character.php?q=Liu%20Cheng-Long&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
