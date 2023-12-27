@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(Her dad) He'd always tell me that family isn't about being related by blood. Living under the same roof and caring for each other is what family is all about."
+> "A wall's a wall and there's no wall I can't punch a hole through!"
 
-&mdash; [**Charunee Kusakabe**](https://myanimelist.net/character.php?q=Charunee%20Kusakabe&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Kiba Inuzuka**](https://myanimelist.net/character.php?q=Kiba%20Inuzuka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
