@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Abandon your fear. Look forward. Move forward and never stop. You'll age if you pull back. You'll die if you hesitate."
+> "All of the disadvantage in this world stems from a person's lack of ability."
 
-&mdash; [**Zangetsu**](https://myanimelist.net/character.php?q=Zangetsu&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Rize Kamishiro**](https://myanimelist.net/character.php?q=Rize%20Kamishiro&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
