@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It would be so great if it was possible to go through life without making a single mistake."
+> "It's always like this. The only things I can ever do for Naruto are the little things anyone could do..."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
