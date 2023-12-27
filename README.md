@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's always like this. The only things I can ever do for Naruto are the little things anyone could do..."
+> "Tell me, what do you think is the ultimate fear? I really thought I'd already reached the darkest of the dark, but then, ahead of me, I beheld a darkness even greater still."
 
-&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
