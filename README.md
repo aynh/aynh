@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will stay by your side, my friend. Know that I am here, and that I am sorry. I am sorry that... I failed you. After waiting 600 years I made a beginner's mistake. I underestimated my enemy."
+> "Sometimes, the blood rushes to my head and I feel like, if I run, I'll lose something important."
 
-&mdash; [**Amidamaru**](https://myanimelist.net/character.php?q=Amidamaru&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
