@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Say please, before asking for favor."
+> "*while stomping on Inuyasha* Lay down, be silent, sleep, rest, sleep... how many times do I have to tell you..."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
