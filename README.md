@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A wall's a wall and there's no wall I can't punch a hole through!"
+> "In the end the shape and form don't matter at all, it's only the soul that matters, right? Nothing else."
 
-&mdash; [**Kiba Inuzuka**](https://myanimelist.net/character.php?q=Kiba%20Inuzuka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Soul Eater**](https://myanimelist.net/character.php?q=Soul%20Eater&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
