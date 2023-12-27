@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to see and understand the world outside. I don't want to die inside these walls without knowing what's out there!"
+> "Let us talk about the brain. The brain is said to be the place where our consciousness resides. As we speak, each of us possesses our own distinct consciousness. We are all experiencing reality through our own point of view. To each of us, reality unfolds as a unique story as a result of our consciousness. However, looking to the outside from this box called the self, reality is subjective."
 
-&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Akihiko Chuuzenji**](https://myanimelist.net/character.php?q=Akihiko%20Chuuzenji&cat=character), [**Mouryou No Hako**](https://myanimelist.net/search/all?q=Mouryou%20No%20Hako&cat=all)
