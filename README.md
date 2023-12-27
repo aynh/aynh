@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, the blood rushes to my head and I feel like, if I run, I'll lose something important."
+> "No matter what happens, you are still you...our family."
 
-&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Kai Miyagusuku**](https://myanimelist.net/character.php?q=Kai%20Miyagusuku&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
