@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end the shape and form don't matter at all, it's only the soul that matters, right? Nothing else."
+> "It's better trusting someone than to die doubting people altogether."
 
-&mdash; [**Soul Eater**](https://myanimelist.net/character.php?q=Soul%20Eater&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
