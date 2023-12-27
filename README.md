@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you truly have the nerve to feel that way... then you should give yourself up to the order Headquarters, or just die please."
+> "I kiss you!"
 
-&mdash; [**Yukio Okumura**](https://myanimelist.net/character.php?q=Yukio%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
