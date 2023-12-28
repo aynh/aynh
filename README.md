@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As I had encountered kindness, I wanted to be kind myself. I wanted to be able to do something, just like others had done for me."
+> "Luck of the draw isn’t about luck. Luck doesn’t decide a match!"
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Hidehiro Harada**](https://myanimelist.net/character.php?q=Hidehiro%20Harada&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
