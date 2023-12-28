@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, guns are always within arm's reach, and sadly they are more trustworthy than kindness."
+> "Even though it's painful sometimes, if you keep on living then good things can happen."
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Nana Komatsu**](https://myanimelist.net/character.php?q=Nana%20Komatsu&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
