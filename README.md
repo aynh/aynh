@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even though it's painful sometimes, if you keep on living then good things can happen."
+> "The more fun I have, the more it'll hurt when we part ways. I know that all too well."
 
-&mdash; [**Nana Komatsu**](https://myanimelist.net/character.php?q=Nana%20Komatsu&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
