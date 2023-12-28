@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because my time is limited, I don't have any time to waste hesitating. That is why I can walk straight ahead. That is why I never stop."
+> "Mayama, if you can't be with her on every festival, then you have no right to say anything."
 
-&mdash; [**Rosette Christopher**](https://myanimelist.net/character.php?q=Rosette%20Christopher&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
+&mdash; [**Takumi Nomiya**](https://myanimelist.net/character.php?q=Takumi%20Nomiya&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
