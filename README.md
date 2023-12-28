@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Weak humans are sly and irresponsible, they always put the blame on and hurt others."
+> "Prophecies don't ever come true."
 
-&mdash; [**Toto Sakigami**](https://myanimelist.net/character.php?q=Toto%20Sakigami&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
