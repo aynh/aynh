@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times when there's a great pleasure waiting at the end of laments, pains, and near-death experiences."
+> "Dragons are just bigger swallows."
 
-&mdash; [**Hinagiku Katsura**](https://myanimelist.net/character.php?q=Hinagiku%20Katsura&cat=character), [**Hayate the Combat Butler**](https://myanimelist.net/search/all?q=Hayate%20the%20Combat%20Butler&cat=all)
+&mdash; [**Assassin**](https://myanimelist.net/character.php?q=Assassin&cat=character), [**Fate Grand Order**](https://myanimelist.net/search/all?q=Fate%20Grand%20Order&cat=all)
