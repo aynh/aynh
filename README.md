@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dragons are just bigger swallows."
+> "Destiny is a mysterious thing. It lets people reach their intended destinations."
 
-&mdash; [**Assassin**](https://myanimelist.net/character.php?q=Assassin&cat=character), [**Fate Grand Order**](https://myanimelist.net/search/all?q=Fate%20Grand%20Order&cat=all)
+&mdash; [**Iraha Lemercier**](https://myanimelist.net/character.php?q=Iraha%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
