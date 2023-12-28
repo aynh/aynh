@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more fun I have, the more it'll hurt when we part ways. I know that all too well."
+> "As I had encountered kindness, I wanted to be kind myself. I wanted to be able to do something, just like others had done for me."
 
-&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
