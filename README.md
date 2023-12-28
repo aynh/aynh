@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't move. Oh, my bad. I mean, you can move if you want, but it'd be very dangerous."
+> "It's strange isn't it. The two groups, which looked like they hated each other, are now shining the same color as they vanish into the distant sky."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
