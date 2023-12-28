@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The words of your past are fundamentally unrelated to who you are now."
+> "A writer once said that 'a designer knows he has achieved perfection not when he has nothing left to add, but when he has nothing left to take away'."
 
-&mdash; [**Ryuunosuke Akutagawa**](https://myanimelist.net/character.php?q=Ryuunosuke%20Akutagawa&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
