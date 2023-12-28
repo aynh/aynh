@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Prophecies don't ever come true."
+> "Because my time is limited, I don't have any time to waste hesitating. That is why I can walk straight ahead. That is why I never stop."
 
-&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Rosette Christopher**](https://myanimelist.net/character.php?q=Rosette%20Christopher&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
