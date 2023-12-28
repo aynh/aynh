@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah, I'm being stupid.  I know that it's out of question. I know how this will end. I'll be left with nothing.  Even so, I want us to think, writhe, struggle... and find... [something genuine]."
+> "If you lose something, just build it again. And this time, with a greater care."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
