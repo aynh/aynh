@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Destiny is a mysterious thing. It lets people reach their intended destinations."
+> "Living this way is my way of getting revenge!! I'm going to be living proof that your fate isn't decided at birth!! So what about you?! You're going to kill yourself, the ultimate act of submission. Is that how much you want to please the people who treated you like a nuisance?! Why are you trying to hurt yourself?! If your will is that strong... Then shouldn't you be able to change your fate?!"
 
-&mdash; [**Iraha Lemercier**](https://myanimelist.net/character.php?q=Iraha%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Ymir**](https://myanimelist.net/character.php?q=Ymir&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
