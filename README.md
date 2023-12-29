@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In my memory, I link fragments of the past when we were together, to create a clear image of him in my mind. But I no longer know if that image is really him. The moment I see in my mind, may have never existed."
+> "The piano is meant to be played like you're embracing it, right?"
 
-&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
