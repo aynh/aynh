@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you notice an insect on the ground, do you stop to consider it a fool? The life of an insect is so beneath you that it would be a waste of your time to even consider judging it. That would be an accurate summation of my feelings towards you, humans."
+> "When you're hiding a secret from the whole world, it puts a weight on your shoulders."
 
-&mdash; [**Father**](https://myanimelist.net/character.php?q=Father&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Taichi Yaegashi**](https://myanimelist.net/character.php?q=Taichi%20Yaegashi&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
