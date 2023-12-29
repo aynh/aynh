@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kindness is not a crime. But sometimes it awakens the weakness and greed in others."
+> "When you lose sight of your path, listen for the destination in your heart."
 
-&mdash; [**Su-won**](https://myanimelist.net/character.php?q=Su-won&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Allen Walker**](https://myanimelist.net/character.php?q=Allen%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
