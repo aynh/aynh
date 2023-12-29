@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time is something no one can escape. It delivers us all to the same end."
+> "Yeah, it might be totally stupid, but it's sad that you can't know yourself without being compared to others."
 
-&mdash; [**Pharos**](https://myanimelist.net/character.php?q=Pharos&cat=character), [**Persona 3**](https://myanimelist.net/search/all?q=Persona%203&cat=all)
+&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
