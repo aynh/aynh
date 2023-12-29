@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there is such a thing as the work of the devil, then there's no doubt it's what happened in this incident."
+> "Kindness is not a crime. But sometimes it awakens the weakness and greed in others."
 
-&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Su-won**](https://myanimelist.net/character.php?q=Su-won&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
