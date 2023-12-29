@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's impossible to feel exactly the same as someone else... but when you both care for each other, your hearts are able to draw a little closer together. I think that's what it means to make your hearts as one."
+> "Women tend to kill when it's not necessary. They kill for reasons of passion. For trivial reasons like love and hate."
 
-&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Lieutenant Colonel Yuuki**](https://myanimelist.net/character.php?q=Lieutenant%20Colonel%20Yuuki&cat=character), [**Joker Game**](https://myanimelist.net/search/all?q=Joker%20Game&cat=all)
