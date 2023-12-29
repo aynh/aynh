@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The piano is meant to be played like you're embracing it, right?"
+> "I'll admit that you're stronger than before. But because of that, you seem to have lost sight of what's truly important. Now listen carefully. The people of the village, who once abhorred you, have begun to admire you. They think of you as a comrade. It's because you fought hard for their acceptance. You once said it was everyone who cares about you who helped you get where you are now. If you forget others because you have power, and become arrogant and egotistical, you'll eventually become just like Madara. No matter how powerful you become, do not try to shoulder everything alone. Becoming the Hokage doesn't mean people will acknowledge you. But when the people acknowledge you, you can become Hokage. Never forget your friends!"
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
