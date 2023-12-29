@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you lose sight of your path, listen for the destination in your heart."
+> "Awww maaan, and I really didn't feel like using it this early either. Better watch closely, and make sure you don't tell a soul! Bankai!!"
 
-&mdash; [**Allen Walker**](https://myanimelist.net/character.php?q=Allen%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
