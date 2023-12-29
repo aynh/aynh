@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Awww maaan, and I really didn't feel like using it this early either. Better watch closely, and make sure you don't tell a soul! Bankai!!"
+> "I guess, as long as I have life, all I can do is fight with all my might."
 
-&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Subaru Natsuki**](https://myanimelist.net/character.php?q=Subaru%20Natsuki&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
