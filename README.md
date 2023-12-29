@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is simply an electrical bug in the human neural circuit."
+> "Once the thread of fate is tangled, it cannot be undone."
 
-&mdash; [**Akasaka Ryuunosuke**](https://myanimelist.net/character.php?q=Akasaka%20Ryuunosuke&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
