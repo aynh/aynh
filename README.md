@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you're hiding a secret from the whole world, it puts a weight on your shoulders."
+> "In my memory, I link fragments of the past when we were together, to create a clear image of him in my mind. But I no longer know if that image is really him. The moment I see in my mind, may have never existed."
 
-&mdash; [**Taichi Yaegashi**](https://myanimelist.net/character.php?q=Taichi%20Yaegashi&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
