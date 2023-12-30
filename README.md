@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Remembering something that no one else can is a painful thing. You can't talk to anyone about it. No one will understand you. You'll be alone."
+> "Run until you can't run anymore, and then run again. Constant effort is life's greatest shortcut."
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Coach Kamogawa**](https://myanimelist.net/character.php?q=Coach%20Kamogawa&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
