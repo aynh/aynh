@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Isn’t it fine as long as you find it? Isn’t it fine as long as you find the next fun and happy moments again?"
+> "Who cares? Who cares if they're human or if they're something else? If they have boobs, what's the problem?"
 
-&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Sakurai Tomozo**](https://myanimelist.net/character.php?q=Sakurai%20Tomozo&cat=character), [**Sora no Otoshimono: Forte**](https://myanimelist.net/search/all?q=Sora%20no%20Otoshimono%3A%20Forte&cat=all)
