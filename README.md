@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not like we lost anything when there was nothing between us to start with. We could never really be equals. I've always been alone."
+> "You can make a rain of 1,000 needles. I will make it rain blood."
 
-&mdash; [**Izumiko Suzuhara**](https://myanimelist.net/character.php?q=Izumiko%20Suzuhara&cat=character), [**RDG: Red Data Girl**](https://myanimelist.net/search/all?q=RDG%3A%20Red%20Data%20Girl&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
