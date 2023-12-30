@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If a man will not work, he shall not eat."
+> "Hmm... never noticed those before *after accidently groping Momiji's chest*."
 
-&mdash; [**Olivier Mira Armstrong**](https://myanimelist.net/character.php?q=Olivier%20Mira%20Armstrong&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Mamoru Kusanagi**](https://myanimelist.net/character.php?q=Mamoru%20Kusanagi&cat=character), [**Blue Seed**](https://myanimelist.net/search/all?q=Blue%20Seed&cat=all)
