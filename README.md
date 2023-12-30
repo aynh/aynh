@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't trust people who call themselves your friends after you've just met them. This is a trap. I know it. A friend who gets close to the protagonist like this is actually the boss, bullying them from the shadows, cornering them into utter despair. And then comes this line... 'The truth is I've hated you from the moment I met you!'"
+> "You don't understand death at all. That's why you can't kill me, and why you're only able to kill a weakened woman. If you could see death, you couldn't maintain your sanity. All you can perceive is the part which keeps things alive. If you could see death, you wouldn't be able to even stand... It's like the world on the moon, a desolate wasteland. Being able to see the 'death' of things means you are forced to see the world's uncertainty and fragility. The ground is like it's not there, and the sky seems about to fall at any moment. You don't know of the illusion that the whole world could perish in an instant. That is what it means to see death. These eyes, this power isn't something you can boast about like you did. Do you see your mistake, now, vampire? Life and death may be back to back, but they will never face each other. I'll show you. This is what it means to kill something."
 
-&mdash; [**Umetarō Nozaki**](https://myanimelist.net/character.php?q=Umetar%C5%8D%20Nozaki&cat=character), [**Monthly Girls' Nozaki-kun**](https://myanimelist.net/search/all?q=Monthly%20Girls'%20Nozaki-kun&cat=all)
+&mdash; [**Shiki Tohno**](https://myanimelist.net/character.php?q=Shiki%20Tohno&cat=character), [**Shingetsutan Tsukihime**](https://myanimelist.net/search/all?q=Shingetsutan%20Tsukihime&cat=all)
