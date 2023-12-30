@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I suppose having your name recorded in the history books is a form of immortality. But if that just means your name gets passed down for two thousand years and nothing else, I'd have preferred to have even a hundredth of that added to my actual life."
+> "You can only disgrace the dead so much."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
