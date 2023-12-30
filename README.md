@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're free to like or hate whoever you want."
+> "I lost my mother when I was 8...and killed my father when I was 10. Those with the title of 'Executive' or above...are my 'family', with whom I've shared my joys and sorrows. They're the only thing I have! I won't forgive anyone that laughs at my family. Understood?"
 
-&mdash; [**Rachnera Arachnera**](https://myanimelist.net/character.php?q=Rachnera%20Arachnera&cat=character), [**Monster Musume no Iru Nichijou**](https://myanimelist.net/search/all?q=Monster%20Musume%20no%20Iru%20Nichijou&cat=all)
+&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
