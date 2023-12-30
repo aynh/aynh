@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I kiss you!"
+> "I suppose having your name recorded in the history books is a form of immortality. But if that just means your name gets passed down for two thousand years and nothing else, I'd have preferred to have even a hundredth of that added to my actual life."
 
-&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
