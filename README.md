@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you always want to live hiding behind the mask you put up for the sake of others?! You're you, and there's nothing wrong with that."
+> "People need fear to survive. We experience it so we can grow stronger."
 
-&mdash; [**Ymir**](https://myanimelist.net/character.php?q=Ymir&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
