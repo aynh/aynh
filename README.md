@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can make a rain of 1,000 needles. I will make it rain blood."
+> "I'm no man's burden! I want to be of use!"
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Shizuku Tsukishima**](https://myanimelist.net/character.php?q=Shizuku%20Tsukishima&cat=character), [**Mimi wo Sumaseba**](https://myanimelist.net/search/all?q=Mimi%20wo%20Sumaseba&cat=all)
