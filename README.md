@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I lost my mother when I was 8...and killed my father when I was 10. Those with the title of 'Executive' or above...are my 'family', with whom I've shared my joys and sorrows. They're the only thing I have! I won't forgive anyone that laughs at my family. Understood?"
+> "It's not like we lost anything when there was nothing between us to start with. We could never really be equals. I've always been alone."
 
-&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Izumiko Suzuhara**](https://myanimelist.net/character.php?q=Izumiko%20Suzuhara&cat=character), [**RDG: Red Data Girl**](https://myanimelist.net/search/all?q=RDG%3A%20Red%20Data%20Girl&cat=all)
