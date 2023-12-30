@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Inuyasha, after meeting you I renounced my postion as a shrine priestess. I became an ordinary woman. I longed to embrace you like this when I was alive..."
+> "Even the strongest of opponents always has a weakness."
 
-&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
