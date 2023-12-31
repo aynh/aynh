@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What we call the human heart... It's such a mystery, isn't it?"
+> "I love flowers. They look so good... On me."
 
-&mdash; [**Irisviel von Einzbern**](https://myanimelist.net/character.php?q=Irisviel%20von%20Einzbern&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Evergreen**](https://myanimelist.net/character.php?q=Evergreen&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
