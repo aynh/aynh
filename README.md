@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What a strange creature is man, who would cage himself so willingly."
+> "Getting dumped always makes a man stronger. But then again, men aren't meant to pursue happiness."
 
-&mdash; [**Athena Areios**](https://myanimelist.net/character.php?q=Athena%20Areios&cat=character), [**Appleseed**](https://myanimelist.net/search/all?q=Appleseed&cat=all)
+&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
