@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now there's something I understand a little better. Hate, sadness, even joy. To be able to share it with another person... Naruto Uzumaki. From fighting him I learned that. He knew pain like I did and then he taught me that you can change your path. I wish that one day I can be needed by someone. Not as a frightening weapon... But as the sand's Kazekage."
+> "I don't want to see any more things that've changed! It's exhausting!"
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Hikari Sakishima**](https://myanimelist.net/character.php?q=Hikari%20Sakishima&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
