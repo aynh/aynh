@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Skipping school for one day might not be a problem, but if you skip for three days in a row, it'd be really hard to convince yourself to go back."
+> "Sincere feelings transcend time and connect hearts."
 
-&mdash; [**Ushiromiya Ange**](https://myanimelist.net/character.php?q=Ushiromiya%20Ange&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Fairy Tail**](https://myanimelist.net/character.php?q=Fairy%20Tail&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
