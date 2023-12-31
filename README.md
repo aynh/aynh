@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have two rules: First, I'm never wrong. Second, if I'm wrong... back to the first rule."
+> "Vision is not what your eyes see, but an image that your brain comprehends."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
