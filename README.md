@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hmm... never noticed those before *after accidently groping Momiji's chest*."
+> "Time will try to constantly try to catch up with you. And with a roar, it will overcome you. Do not look ahead. Hope only lies within the unforeseeable current that will close in from behind."
 
-&mdash; [**Mamoru Kusanagi**](https://myanimelist.net/character.php?q=Mamoru%20Kusanagi&cat=character), [**Blue Seed**](https://myanimelist.net/search/all?q=Blue%20Seed&cat=all)
+&mdash; [**Ginjo Kugo**](https://myanimelist.net/character.php?q=Ginjo%20Kugo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
