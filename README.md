@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah, it's still a nameless sniper. It's become quite a topic among us. She's still a cadet from the military academy, but at any rate she's got a good arm. It seems she's been brought all the way out here. Hah... to think they have to pull out even a little chick like that... this must be the end."
+> "That's what I call smallness as a human being. No matter how much I'm irritated by it, I can't do anything about it. It's not complex, just stunted. Because as a human being I'm small, or something."
 
-&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
