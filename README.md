@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I love flowers. They look so good... On me."
+> "What a strange creature is man, who would cage himself so willingly."
 
-&mdash; [**Evergreen**](https://myanimelist.net/character.php?q=Evergreen&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Athena Areios**](https://myanimelist.net/character.php?q=Athena%20Areios&cat=character), [**Appleseed**](https://myanimelist.net/search/all?q=Appleseed&cat=all)
