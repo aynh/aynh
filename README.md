@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anything can be a sword if you polish it enough."
+> "I've never seen a man with a screw sticking out of his head before. I don't know how I'm supposed to deal with a guy like that!"
 
-&mdash; [**Nagisa Shiota**](https://myanimelist.net/character.php?q=Nagisa%20Shiota&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
