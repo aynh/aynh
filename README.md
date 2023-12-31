@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't make a difference whether you have a talent or not. I mean, that isn't the end goal. You have greater freedom than we do. All I have are games. But you can go anywhere and become anything."
+> "Yeah, it's still a nameless sniper. It's become quite a topic among us. She's still a cadet from the military academy, but at any rate she's got a good arm. It seems she's been brought all the way out here. Hah... to think they have to pull out even a little chick like that... this must be the end."
 
-&mdash; [**Chiaki Nanami**](https://myanimelist.net/character.php?q=Chiaki%20Nanami&cat=character), [**Danganronpa 3: The End of Kibougamine Gakuen - Zetsubou-hen**](https://myanimelist.net/search/all?q=Danganronpa%203%3A%20The%20End%20of%20Kibougamine%20Gakuen%20-%20Zetsubou-hen&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
