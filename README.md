@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more inexperienced you are, the more you want to show off."
+> "Are you telling me to exploit an opening for the likes of you? Do not speak out of your league, boy."
 
-&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
