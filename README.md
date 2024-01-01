@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That’s something you can’t know until you've tried it, and you still won’t understand after you play. I've been playing for 45 years and I still don’t understand. I've never been able to figure it out. That’s why I keep playing."
+> "Cutting down a man who's done nothing wrong. Is that what you spent all that time honing those skills for? In my opinion, you're worthless."
 
-&mdash; [**Hidehiro Harada**](https://myanimelist.net/character.php?q=Hidehiro%20Harada&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Jin**](https://myanimelist.net/character.php?q=Jin&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
