@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every individual human affects the surrounding environment. But humans do not exist for the things and people around them. Often, they mistakenly think that they wish to exist for the sake of others, or to help everyone. They can not accept that they don't know why they exist, yes? They always want an answer. That is the nature of the animals called 'humans'."
+> "So this is how...it feels... (After just being released from the curse)"
 
-&mdash; [**Magata Shiki**](https://myanimelist.net/character.php?q=Magata%20Shiki&cat=character), [**Subete ga F ni Naru**](https://myanimelist.net/search/all?q=Subete%20ga%20F%20ni%20Naru&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
