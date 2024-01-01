@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I shall light a fire upon the fang that falls short, so that I needn't see that star...So that it shall not tear this throat of mine."
+> "This whole world is nothing but lies, lies! Lemme show you what I like to call the truth, the truth called despair!"
 
-&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Hazama**](https://myanimelist.net/character.php?q=Hazama&cat=character), [**BlazBlue: Alter Memory**](https://myanimelist.net/search/all?q=BlazBlue%3A%20Alter%20Memory&cat=all)
