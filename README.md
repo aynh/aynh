@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Abandon your fear. Look forward. Move forward and never stop. You'll age if you pull back. You'll die if you hesitate."
+> "God, if this world, this story, is moving ahead according to the system you created... then I first need to destroy that illusion!"
 
-&mdash; [**Zangetsu**](https://myanimelist.net/character.php?q=Zangetsu&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
