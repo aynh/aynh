@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you telling me to exploit an opening for the likes of you? Do not speak out of your league, boy."
+> "I don't have time to worry if it's right or wrong, you can't hope for a horror story with a happy ending!"
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
