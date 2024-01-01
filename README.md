@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are NOT asking him where the treasure is hidden!!! We're not even asking him whether there IS any treasure or not!! I'm not sure, but... ...everybody set out to sea, risking their lives to search for it!!! If you ask this old man anything about it here and now... Then I'll quit being a pirate! I don't want to go on a boring adventure like that!"
+> "In this world, the weak are the sustenance of the strong. The strong live, the weak die."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Makoto Shishio**](https://myanimelist.net/character.php?q=Makoto%20Shishio&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
