@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I lost all of what you could call feelings of love. They weren't sealed, so they can't be released. They weren't broken, so they can't be fixed. That which is lost, cannot be recovered."
+> "Humans are inconvenient creatures, aren't they? The species can't live on unless they all create a community and expand."
 
-&mdash; [**Tatsuya Shiba**](https://myanimelist.net/character.php?q=Tatsuya%20Shiba&cat=character), [**Mahouka Koukou no Rettousei**](https://myanimelist.net/search/all?q=Mahouka%20Koukou%20no%20Rettousei&cat=all)
+&mdash; [**Homunculus (Character)**](https://myanimelist.net/character.php?q=Homunculus%20(Character)&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
