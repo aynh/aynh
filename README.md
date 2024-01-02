@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Something this, something that--jeez you're annoying. (to Yuki)"
+> "We probably are.  I can't explain it very well, but it seems that lately it doesn't matter, human or spirit.  If your hearts touch, it's the same thing.  When you're all alone, you get lonely, and the first step is always scary."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Natsume Takeshi**](https://myanimelist.net/character.php?q=Natsume%20Takeshi&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
