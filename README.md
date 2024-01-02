@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no need to worry about trivial things like vocal rights or working together. If nobody's going to accept me, I'll make them obey me, whether it's by threat or by assassination. This is my-- our F class modus operandi."
+> "Are you looking at the stars?.. In the middle of the city? Even though the only stars you can see from here are fake?"
 
-&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Shinoda Chiaki**](https://myanimelist.net/character.php?q=Shinoda%20Chiaki&cat=character), [**Darker than Black**](https://myanimelist.net/search/all?q=Darker%20than%20Black&cat=all)
