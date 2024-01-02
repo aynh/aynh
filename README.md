@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not difficult to compose poetry. You just have to translate your feelings into meter."
+> "I'm on TV! I gotta call my folks!"
 
-&mdash; [**Kanade Ōe**](https://myanimelist.net/character.php?q=Kanade%20%C5%8Ce&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
