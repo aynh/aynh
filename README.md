@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People don't vanish from this world the moment they die. Their true death is when they are forgotten by the living."
+> "Our contribution will never come into light, but the failure will be noticed immediately."
 
-&mdash; [**Tokou Nanami**](https://myanimelist.net/character.php?q=Tokou%20Nanami&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Hidemi Hondou**](https://myanimelist.net/character.php?q=Hidemi%20Hondou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
