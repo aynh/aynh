@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our contribution will never come into light, but the failure will be noticed immediately."
+> "Facing irrationality doesn't mean not feeling fear, but rather possessing eyes that gaze upon fear and standing against the world."
 
-&mdash; [**Hidemi Hondou**](https://myanimelist.net/character.php?q=Hidemi%20Hondou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
