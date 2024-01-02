@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Enjoy your life today. Yesterday is gone, and the tomorrow might never come."
+> "*To Haruhi Fujioka about him helping her search for her wallet in water* A little water never hurt anyone. Besides, people are always telling me that I'm dripping with good looks."
 
-&mdash; [**Takeshi Yamamoto**](https://myanimelist.net/character.php?q=Takeshi%20Yamamoto&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
