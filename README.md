@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Facing irrationality doesn't mean not feeling fear, but rather possessing eyes that gaze upon fear and standing against the world."
+> "Love is more afraid of change than destruction."
 
-&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Akari Koumoto**](https://myanimelist.net/character.php?q=Akari%20Koumoto&cat=character), [**Jitsu wa Watashi wa**](https://myanimelist.net/search/all?q=Jitsu%20wa%20Watashi%20wa&cat=all)
