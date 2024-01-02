@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ah, you're awake. I was hoping you'd cry out in your sleep, then I would have bitten your head off to silence you."
+> "People don't vanish from this world the moment they die. Their true death is when they are forgotten by the living."
 
-&mdash; [**Moro**](https://myanimelist.net/character.php?q=Moro&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Tokou Nanami**](https://myanimelist.net/character.php?q=Tokou%20Nanami&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
