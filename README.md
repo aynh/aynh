@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you looking at the stars?.. In the middle of the city? Even though the only stars you can see from here are fake?"
+> "Ah, you're awake. I was hoping you'd cry out in your sleep, then I would have bitten your head off to silence you."
 
-&mdash; [**Shinoda Chiaki**](https://myanimelist.net/character.php?q=Shinoda%20Chiaki&cat=character), [**Darker than Black**](https://myanimelist.net/search/all?q=Darker%20than%20Black&cat=all)
+&mdash; [**Moro**](https://myanimelist.net/character.php?q=Moro&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
