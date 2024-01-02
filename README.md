@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "God, if this world, this story, is moving ahead according to the system you created... then I first need to destroy that illusion!"
+> "Something this, something that--jeez you're annoying. (to Yuki)"
 
-&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
