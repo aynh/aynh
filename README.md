@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "BLOOOOOOOOOOOOOOOD!!! MY BLOOOOOOOOOOOOOD!!!"
+> "You cannot go into battle believing you will lose."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Akisame Koetsuji**](https://myanimelist.net/character.php?q=Akisame%20Koetsuji&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
