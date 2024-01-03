@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[in reference to Mizuho Asano, Keigo's sister] I owe this crazy woman."
+> "I'll always be by your side. You'll never be alone. You have as many hopes as there are stars that light up the sky. The wind that brushes your skin is a presentiment of tomorrow. Come, lets walk in time with the song of the fairies..."
 
-&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
