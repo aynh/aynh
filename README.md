@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not a fighter of good. I just hate people who are bad."
+> "Heh, I guess somehow without me knowing, it just feels so natural now, to have Kagome by my side."
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
