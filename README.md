@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll always be by your side. You'll never be alone. You have as many hopes as there are stars that light up the sky. The wind that brushes your skin is a presentiment of tomorrow. Come, lets walk in time with the song of the fairies..."
+> "Team isn't just something to be protected. A team also protects you. We don't support each because we are a team. We are a team because we support each other."
 
-&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
