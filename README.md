@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death is to good for trash like you. This is your punishment which is even harder than death. Atone for your sin by living... A life of fulfillment."
+> "If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud!"
 
-&mdash; [**Ogami Rei**](https://myanimelist.net/character.php?q=Ogami%20Rei&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
+&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
