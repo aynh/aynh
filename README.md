@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After all, justice in this world is just a bunch of principles, made by those with power to suit themselves."
+> "Being prepared to die doesn't mean shit. The real hard part, is being prepared to live."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Midou Ban**](https://myanimelist.net/character.php?q=Midou%20Ban&cat=character), [**Getbackers**](https://myanimelist.net/search/all?q=Getbackers&cat=all)
