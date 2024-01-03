@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It may seem like we're all playing the same game, but in our minds, it is totally different."
+> "Levels are just numbers. In this world, strength is just an illusion. There are more important things."
 
-&mdash; [**Sonora Kashima**](https://myanimelist.net/character.php?q=Sonora%20Kashima&cat=character), [**Stella Jogakuin Koutou-ka C³-bu**](https://myanimelist.net/search/all?q=Stella%20Jogakuin%20Koutou-ka%20C%C2%B3-bu&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
