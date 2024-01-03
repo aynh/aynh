@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Although I'm weak and full of flaws, I will never stop moving forward. No matter who I am, no one other than myself will create my own existence. No matter what others may think or feel, I will still move forward as myself."
+> "When a person encounters that which they cannot understand, what do they do? Why, they think. But you know, the more you think about something, the further you get from the truth. Yes. Your thoughts get in the way of what your instincts desire. In the way of the real answer."
 
-&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Fumito Nanahara**](https://myanimelist.net/character.php?q=Fumito%20Nanahara&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
