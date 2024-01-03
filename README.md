@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who say they don't know their own feelings are deluding themselves. It's because you refuse to accept what you're thinking deep down in your heart, you think you don't understand."
+> "[in reference to Mizuho Asano, Keigo's sister] I owe this crazy woman."
 
-&mdash; [**Kenji Yamaguchi**](https://myanimelist.net/character.php?q=Kenji%20Yamaguchi&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
