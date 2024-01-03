@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being prepared to die doesn't mean shit. The real hard part, is being prepared to live."
+> "If you win, you live. If you lose, you die. If you don't fight, you can't win!"
 
-&mdash; [**Midou Ban**](https://myanimelist.net/character.php?q=Midou%20Ban&cat=character), [**Getbackers**](https://myanimelist.net/search/all?q=Getbackers&cat=all)
+&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
