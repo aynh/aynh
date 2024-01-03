@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even when the sky's so dark you can't see a thing, there are still stars shining out there. So if she can learn to shine brighter, we'll be able to see her."
+> "The pain of getting hit, the frustration of loosing, the joy of winning, all of that. They've been driven into this body, fists, and this head. It becomes my strength in the next fight. All of my battles up to now, those memories, they are all of my power."
 
-&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
