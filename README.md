@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's Me with a capital M! I'm the only one big enough to capitalize Me!"
+> "Just by living, people hurt others without even realizing it. So long as humanity exists, hate will also exist. There is no peace in this cursed world. War is just a crime paid for by the pain of the defeated..."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
