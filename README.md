@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not a question of can or can't. There are some things in life you just do."
+> "BLOOOOOOOOOOOOOOOD!!! MY BLOOOOOOOOOOOOOD!!!"
 
-&mdash; [**Éclair Farron**](https://myanimelist.net/character.php?q=%C3%89clair%20Farron&cat=character), [**Final Fantasy XIII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20XIII&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
