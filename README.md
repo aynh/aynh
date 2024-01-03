@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Embrace your dreams...and whatever happens, protect your honor...AS SOLDIER!"
+> "Regardless of whether your friends believe, you still care for them, correct? Isn't that why you feel so sad?"
 
-&mdash; [**Zack Fair**](https://myanimelist.net/character.php?q=Zack%20Fair&cat=character), [**Final Fantasy VII: Crisis Core**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Crisis%20Core&cat=all)
+&mdash; [**Harumi Sakuraba**](https://myanimelist.net/character.php?q=Harumi%20Sakuraba&cat=character), [**Rokujouma no Shinryakusha!?**](https://myanimelist.net/search/all?q=Rokujouma%20no%20Shinryakusha!%3F&cat=all)
