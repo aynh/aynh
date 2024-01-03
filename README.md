@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regardless of whether your friends believe, you still care for them, correct? Isn't that why you feel so sad?"
+> "Death is to good for trash like you. This is your punishment which is even harder than death. Atone for your sin by living... A life of fulfillment."
 
-&mdash; [**Harumi Sakuraba**](https://myanimelist.net/character.php?q=Harumi%20Sakuraba&cat=character), [**Rokujouma no Shinryakusha!?**](https://myanimelist.net/search/all?q=Rokujouma%20no%20Shinryakusha!%3F&cat=all)
+&mdash; [**Ogami Rei**](https://myanimelist.net/character.php?q=Ogami%20Rei&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
