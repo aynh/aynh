@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Quotes were invented in Korea, you know!"
+> "I couldn't confess my feelings for you, so I watched you from afar, being happy with someone else."
 
-&mdash; [**South Korea**](https://myanimelist.net/character.php?q=South%20Korea&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
