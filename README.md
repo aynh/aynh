@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I couldn't confess my feelings for you, so I watched you from afar, being happy with someone else."
+> "Nothing can suppress a human's curiosity."
 
-&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
