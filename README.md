@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is there... somebody precious to you?"
+> "Don't live your life making up excuses. The one making your choices is yourself!"
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
