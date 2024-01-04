@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If she lost because of a difference in ability, it can’t be helped. If she worked hard and didn’t get what she wants, she can just work harder next time. If she gave her all for this, it’s acceptable even if she lost."
+> "It's pretty hard just to survive as a human being. The world's a big place and there's a lot of stuff I don't understand, but I think there must be something important out there. I mean, that's what I want to believe. If I keep believing that while playing music, then maybe I'll be able to change the world just a bit."
 
-&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
