@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've been looking out at the world through windows I've opened across the net. It's an extremely close-minded and twisted world."
+> "You yourself have to change first, or nothing will change for you."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
