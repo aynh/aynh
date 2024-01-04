@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You yourself have to change first, or nothing will change for you."
+> "Every one of us must do what's in their power! If we're going to die anyway, then it's better to die fighting than to do nothing!"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
