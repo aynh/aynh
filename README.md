@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'No longer the Aizen you know,' hm...? I'm afraid you've been deluded, Abarai-kun...The 'Aizen Sousuke' you knew never existed to begin with."
+> "You're proud of your white clothes?.. It sounds like a laundry detergent commercial."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Pesche Guatiche**](https://myanimelist.net/character.php?q=Pesche%20Guatiche&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
