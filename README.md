@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's pretty hard just to survive as a human being. The world's a big place and there's a lot of stuff I don't understand, but I think there must be something important out there. I mean, that's what I want to believe. If I keep believing that while playing music, then maybe I'll be able to change the world just a bit."
+> "People do not cease to exist immediately after dying, as long as there are people who remember them."
 
-&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
