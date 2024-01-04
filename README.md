@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're proud of your white clothes?.. It sounds like a laundry detergent commercial."
+> "If she lost because of a difference in ability, it can’t be helped. If she worked hard and didn’t get what she wants, she can just work harder next time. If she gave her all for this, it’s acceptable even if she lost."
 
-&mdash; [**Pesche Guatiche**](https://myanimelist.net/character.php?q=Pesche%20Guatiche&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
