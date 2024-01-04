@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ichigo... I hate the rain. Rain falls in this world, too. When your heart is in chaos, this sky becomes clouded. When you are sad, rain falls so terribly easy. Can you understand...the horrible feeling of being pelted by rain when you're all alone in this solitary world? If only to stop that rain, I shall lend you any strength. If you trust in me, I won't let a single drop of rain fall from that sky. Ichigo, trust me...you are not fighting alone."
+> "You shouldn't mouth off when you don't know shit."
 
-&mdash; [**Zangetsu**](https://myanimelist.net/character.php?q=Zangetsu&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Shinichi Izumi**](https://myanimelist.net/character.php?q=Shinichi%20Izumi&cat=character), [**Parasyte -the maxim-**](https://myanimelist.net/search/all?q=Parasyte%20-the%20maxim-&cat=all)
