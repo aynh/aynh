@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing can suppress a human's curiosity."
+> "Stand back? [To Kira after Gin asked him to stand back] No, Kira...Run. Run until you're out of my sight, and keep running. Otherwise...I can't guarantee you won't get dragged into this and be killed."
 
-&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
