@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As time goes by without anyone eating it, it starts getting dry and looking anything but appetizing, and no one's willing to make a move, but when the busboy takes it you go 'wait, we're not done with that yet.' kinda on reflex. But then you end up leaving without eating it."
+> "I've been looking out at the world through windows I've opened across the net. It's an extremely close-minded and twisted world."
 
-&mdash; [**Konata Izumi**](https://myanimelist.net/character.php?q=Konata%20Izumi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
