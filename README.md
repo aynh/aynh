@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not asking you to love me. No, actually, please don't love me. But please let me be in love with you."
+> "That's why Kagome sent me, so I can protect you from being protected by him."
 
-&mdash; [**Fuyou Kaede**](https://myanimelist.net/character.php?q=Fuyou%20Kaede&cat=character), [**Shuffle!**](https://myanimelist.net/search/all?q=Shuffle!&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
