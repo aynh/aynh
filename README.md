@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if no one in the world believes you, stick out your chest and scream in defiance."
+> "If we give up before we try, then nothing is going to happen."
 
-&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Eli Ayase**](https://myanimelist.net/character.php?q=Eli%20Ayase&cat=character), [**Love Live! School idol project**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project&cat=all)
