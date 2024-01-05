@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But I wasn't slacking at all. I practiced till I passed out. I gave my all. And if I still turned in a sloppy performance after all that, then... That's who I am now. It's the current me, playing with everything I've got."
+> "If you want to stand with your own will, you don't have any other choice than to let the illusions you have lost remain in the ideals you were following in the past."
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Kouen Ren**](https://myanimelist.net/character.php?q=Kouen%20Ren&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
