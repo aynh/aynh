@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You see, I'm sure we can change, because we're weak. And because we die. We have to fight in order to live, and that is what will make us strong."
+> "Even if no one in the world believes you, stick out your chest and scream in defiance."
 
-&mdash; [**Trisha Elric**](https://myanimelist.net/character.php?q=Trisha%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
