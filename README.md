@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're lucky Al. Since your body's huge."
+> "[to Ichigo] Try to stay alive, okay? That way, you and Kenny can play again some day!"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kusajishi Yachiru**](https://myanimelist.net/character.php?q=Kusajishi%20Yachiru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
