@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why am I always the one handing out apologies?"
+> "The sea’s blue reflects because of the sky’s blue. Just like detectives and thieves. We’re all toying with the human mind. But the one who pries for others’ secrets is the one who’s truly impolite."
 
-&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
