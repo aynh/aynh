@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, filled with violence, blood and scheming, the promise we made on that day was my one and only refuge."
+> "Why am I always the one handing out apologies?"
 
-&mdash; [**Mina Tepeş**](https://myanimelist.net/character.php?q=Mina%20Tepe%C5%9F&cat=character), [**Dance in the Vampire Bund**](https://myanimelist.net/search/all?q=Dance%20in%20the%20Vampire%20Bund&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
