@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we give up before we try, then nothing is going to happen."
+> "In this world, filled with violence, blood and scheming, the promise we made on that day was my one and only refuge."
 
-&mdash; [**Eli Ayase**](https://myanimelist.net/character.php?q=Eli%20Ayase&cat=character), [**Love Live! School idol project**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project&cat=all)
+&mdash; [**Mina Tepeş**](https://myanimelist.net/character.php?q=Mina%20Tepe%C5%9F&cat=character), [**Dance in the Vampire Bund**](https://myanimelist.net/search/all?q=Dance%20in%20the%20Vampire%20Bund&cat=all)
