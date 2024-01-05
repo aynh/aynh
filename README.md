@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You won't survive if you just let your boiling blood dictate your actions."
+> "You see, I'm sure we can change, because we're weak. And because we die. We have to fight in order to live, and that is what will make us strong."
 
-&mdash; [**Bulat**](https://myanimelist.net/character.php?q=Bulat&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Trisha Elric**](https://myanimelist.net/character.php?q=Trisha%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
