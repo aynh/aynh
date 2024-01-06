@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It’s natural that men have things they need to protect."
+> "If praying does not work, and words are ineffective... what's left is to fight."
 
-&mdash; [**Furukawa Akio**](https://myanimelist.net/character.php?q=Furukawa%20Akio&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
