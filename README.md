@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don’t need to believe in God to believe in myself."
+> "That's right! Whatever the tragedy or the blunder is, only the things that actually happened are written in stone!"
 
-&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
