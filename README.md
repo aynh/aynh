@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "She is trying to use rep... per... pre... what is it again? Oh, yeah! Perverse Psychology on me!"
+> "I don’t need to believe in God to believe in myself."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
