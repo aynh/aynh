@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's right! Whatever the tragedy or the blunder is, only the things that actually happened are written in stone!"
+> "Being in love is a difficult situation. Too much to bear, you can't help it. You can't control yourself to the extent that you're sad and in pain, and your heart is full."
 
-&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Uroko**](https://myanimelist.net/character.php?q=Uroko&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
