@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know where hell is? Inside your head."
+> "Looking at your own memories is recognizing the parts of you that you don't want to face."
 
-&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Rinne Higaki**](https://myanimelist.net/character.php?q=Rinne%20Higaki&cat=character), [**Katanagatari**](https://myanimelist.net/search/all?q=Katanagatari&cat=all)
