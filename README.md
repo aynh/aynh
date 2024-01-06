@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end, aren't they just a bunch of weaklings?"
+> "Wrongly placed jealousy is ugly when it goes too far."
 
-&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
