@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regretting the past forever won't solve anything."
+> "Cutting down a man who's done nothing wrong. Is that what you spent all that time honing those skills for? In my opinion, you're worthless."
 
-&mdash; [**Shiho Fujimiya**](https://myanimelist.net/character.php?q=Shiho%20Fujimiya&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
+&mdash; [**Jin**](https://myanimelist.net/character.php?q=Jin&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
