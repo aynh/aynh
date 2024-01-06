@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans live behind masks."
+> "It’s natural that men have things they need to protect."
 
-&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Furukawa Akio**](https://myanimelist.net/character.php?q=Furukawa%20Akio&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
