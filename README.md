@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A faint clap of thunder, clouded skies; perhaps rain comes. If so, will you stay here with me?"
+> "People's feelings are memories that transcend time."
 
-&mdash; [**Yukari Yukino**](https://myanimelist.net/character.php?q=Yukari%20Yukino&cat=character), [**The Garden of Words**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Words&cat=all)
+&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
