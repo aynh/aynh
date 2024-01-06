@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is called the memories of the body. When the mind forgets, the body remembers for it."
+> "Do you know where hell is? Inside your head."
 
-&mdash; [**Yūko Ichihara**](https://myanimelist.net/character.php?q=Y%C5%ABko%20Ichihara&cat=character), [**Tsubasa Reservoir Chronicles**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicles&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
