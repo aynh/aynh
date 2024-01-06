@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To fulfill your dream, you need to have a dream first. You can have an image, a desire, or a wish of what you want to become. Don't forget about it, and keep wishing for it. That's the first step to fulfilling your dream."
+> "In the end, aren't they just a bunch of weaklings?"
 
-&mdash; [**Kuze Shuuichi**](https://myanimelist.net/character.php?q=Kuze%20Shuuichi&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
