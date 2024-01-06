@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People's feelings are memories that transcend time."
+> "She is trying to use rep... per... pre... what is it again? Oh, yeah! Perverse Psychology on me!"
 
-&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
