@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Keep in mind that there are those who get hurt and those who try to heal the hurt ones. For those guys, it's not funny to have something they value so much be brushed off so lightly. How can a man protect another if he can't even protect himself?"
+> "Chakras, chakras, everybody loves chakras! Chakras, chakras! Chakra sandwich tastes good! Yum!"
 
-&mdash; [**Sawada Iemitsu**](https://myanimelist.net/character.php?q=Sawada%20Iemitsu&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Pathik**](https://myanimelist.net/character.php?q=Pathik&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
