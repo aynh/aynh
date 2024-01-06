@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Cutting down a man who's done nothing wrong. Is that what you spent all that time honing those skills for? In my opinion, you're worthless."
+> "It is called the memories of the body. When the mind forgets, the body remembers for it."
 
-&mdash; [**Jin**](https://myanimelist.net/character.php?q=Jin&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Yūko Ichihara**](https://myanimelist.net/character.php?q=Y%C5%ABko%20Ichihara&cat=character), [**Tsubasa Reservoir Chronicles**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicles&cat=all)
