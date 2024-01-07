@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't need a driver's license to hit and run!"
+> "That's all I wanted to say. There is nothing at the end of helping people. It is a false life that can save neither yourself nor others."
 
-&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
