@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don’t have the resolve to take responsibility for her until the very end, then don’t do anything unnecessary."
+> "Yo...time to pay the piper rat boy...I'm here to collect"
 
-&mdash; [**Itami Youji**](https://myanimelist.net/character.php?q=Itami%20Youji&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
