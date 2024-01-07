@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Gilbert, I know everything about you... because we are connected by an extremely deep bond. No matter how far apart we are, we will surely return to the same place. Because that is our fate!"
+> "There is always a chance of success, and if there isn't any, I'll just have to make one."
 
-&mdash; [**Vincent Nightray**](https://myanimelist.net/character.php?q=Vincent%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
