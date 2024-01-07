@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I pity you. You just don't get it at all... there's not a thing I don't cherish!"
+> "Don't start a fight that you can't finish."
 
-&mdash; [**Cloud Strife**](https://myanimelist.net/character.php?q=Cloud%20Strife&cat=character), [**Final Fantasy VII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII&cat=all)
+&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
