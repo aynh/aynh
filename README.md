@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can't understand the darkness in your opponent's heart, you will never comprehend the pain and suffering of others."
+> "Everyone is sacrificing something precious to them in order to save something else. Is that the reason for human action?"
 
-&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Shijima Kurookano**](https://myanimelist.net/character.php?q=Shijima%20Kurookano&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
