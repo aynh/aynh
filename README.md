@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Give a kid a smoke and he'll be happy for a day. Teach him how to smoke... he'll be happy for his whole shortened life."
+> "You don't need a driver's license to hit and run!"
 
-&mdash; [**Eikichi Onizuka**](https://myanimelist.net/character.php?q=Eikichi%20Onizuka&cat=character), [**Great Teacher Onizuka**](https://myanimelist.net/search/all?q=Great%20Teacher%20Onizuka&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
