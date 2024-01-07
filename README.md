@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as you live things will keep happening! As long as you're alive wishes will keep being made!"
+> "Dying now, my breath will be erased, okay?"
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
