@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yo...time to pay the piper rat boy...I'm here to collect"
+> "If you can't understand the darkness in your opponent's heart, you will never comprehend the pain and suffering of others."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
