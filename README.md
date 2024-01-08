@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stress makes you bald, but it's stressful to avoid stress, so you end up stressed out anyway. In the end, there's nothing you can do."
+> "Search out the facts, then string them all together... and that's when the truth will be revealed."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Saji Crossroad**](https://myanimelist.net/character.php?q=Saji%20Crossroad&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
