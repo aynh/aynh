@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder why people make promises they won't be able to keep."
+> "Just look at it Liz, Patti, just look at how the clouds are! Flowing right towards the sun! It's so beautiful, even the sky is symmetrical!"
 
-&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
