@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How long are you gonna sit in front of me sobbing your little eyes out?! It's depressing! (To Tohru)"
+> "Can we really be proud of our own survival that's predicated on sacrificing our own? There lives aren't all we lose."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Ikoma**](https://myanimelist.net/character.php?q=Ikoma&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
