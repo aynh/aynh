@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think that what people who've committed crimes need isn't punishment, but rather the knowledge of the pain of being forgiven."
+> "'Believing in someone.' That's a weird phrase, isn't it? After all, if you truly believed in a person, you wouldn't need to say, 'I believe you.' It's like saying, 'I believe in air.' I don't mean to say that 'believing in something' is like a lie. 'Believing' is really a term of hope of wanting to believe."
 
-&mdash; [**Isogi Toshio**](https://myanimelist.net/character.php?q=Isogi%20Toshio&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Satoru Fujinuma**](https://myanimelist.net/character.php?q=Satoru%20Fujinuma&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
