@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Yoh* Because I aim to be the First Lady of the shaman world... You will become Shaman King, whether you want to or not."
+> "Stop living in the past like an old man."
 
-&mdash; [**Anna Kyoyama**](https://myanimelist.net/character.php?q=Anna%20Kyoyama&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
