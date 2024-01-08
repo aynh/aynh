@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we make it back to the real world, I'll find you. And fall in love with you all over again."
+> "He made three requests. That I protect him and never betray him until he obtains his revenge. That I obey his orders unconditionally. And that I would never lie... to him."
 
-&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
