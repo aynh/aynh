@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's simply fun to be part of a group sharing the same interests, regardless of what those interests are."
+> "A person grows up when he's able to overcome hardships. Protection is important, but there are some things that a person must learn on his own."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
