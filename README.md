@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Reaching out to someone is simple.  All you need is the resolve to say, 'I'm your ally no matter what.' 'I believe in you.' That's all the resolve you need. It's okay to make mistakes. I grew up by making mistakes. Don't have any regrets. Your justice may be completely different from someone else's. You are completely different people after all. But you still live on together. People always look for ways to do just that."
+> "How long are you gonna sit in front of me sobbing your little eyes out?! It's depressing! (To Tohru)"
 
-&mdash; [**Shirota Tooru**](https://myanimelist.net/character.php?q=Shirota%20Tooru&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
