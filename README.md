@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't know how to give up!!"
+> "Hurt me with the truth. But never comfort me with a lie."
 
-&mdash; [**Tsunayoshi Sawada**](https://myanimelist.net/character.php?q=Tsunayoshi%20Sawada&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
