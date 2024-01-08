@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A person grows up when he's able to overcome hardships. Protection is important, but there are some things that a person must learn on his own."
+> "A soul naturally seeks pleasure, consciously or not."
 
-&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
