@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Can we really be proud of our own survival that's predicated on sacrificing our own? There lives aren't all we lose."
+> "I wonder why people make promises they won't be able to keep."
 
-&mdash; [**Ikoma**](https://myanimelist.net/character.php?q=Ikoma&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
+&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
