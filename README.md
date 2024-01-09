@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you fight hard and fail, the regret is easier to get past than the regret of not trying."
+> "I'd been wondering all this time, whether there's any meaning to a failed love. Is it something that will disappear, the same as something that never existed. Now I know, there is meaning...there was a meaning...right here."
 
-&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
