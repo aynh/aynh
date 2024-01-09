@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't lie if you don't have to."
+> "There's an airbender in our presence and not just any airbender, the Avatar! Now what do you have to say for yourself, Mr. Pipinpadaloxicopolis?!"
 
-&mdash; [**Kaname Tanuma**](https://myanimelist.net/character.php?q=Kaname%20Tanuma&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**King Bumi**](https://myanimelist.net/character.php?q=King%20Bumi&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
