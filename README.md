@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Most people are irresponsible, changing their opinions easily based on unconfirmed information or convenient rumors."
+> "True destiny cannot be changed. The reason is actually quite simple. True destiny isn't granted - it is earned."
 
-&mdash; [**Saki Morimi**](https://myanimelist.net/character.php?q=Saki%20Morimi&cat=character), [**Eden of the East**](https://myanimelist.net/search/all?q=Eden%20of%20the%20East&cat=all)
+&mdash; [**Count D**](https://myanimelist.net/character.php?q=Count%20D&cat=character), [**Pet Shop of Horrors**](https://myanimelist.net/search/all?q=Pet%20Shop%20of%20Horrors&cat=all)
