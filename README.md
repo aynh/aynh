@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "True destiny cannot be changed. The reason is actually quite simple. True destiny isn't granted - it is earned."
+> "There are a few things that people can't avoid while they live. People can't avoid misfortune. There are lots of hard things in life. There might even be times when you want to die."
 
-&mdash; [**Count D**](https://myanimelist.net/character.php?q=Count%20D&cat=character), [**Pet Shop of Horrors**](https://myanimelist.net/search/all?q=Pet%20Shop%20of%20Horrors&cat=all)
+&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
