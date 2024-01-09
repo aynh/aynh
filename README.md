@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Search out the facts, then string them all together... and that's when the truth will be revealed."
+> "Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt?"
 
-&mdash; [**Saji Crossroad**](https://myanimelist.net/character.php?q=Saji%20Crossroad&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
