@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I now see that the circumstances of birth are irrelevant. It is what you do with the gift of life that determines who you are."
+> "Don't lie if you don't have to."
 
-&mdash; [**Mewtwo**](https://myanimelist.net/character.php?q=Mewtwo&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Kaname Tanuma**](https://myanimelist.net/character.php?q=Kaname%20Tanuma&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
