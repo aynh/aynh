@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You want to bring back someone that you've lost. You might want money. Maybe you want women. Or, you might want to protect the world. These are all common things people want. Things that their hearts desire. Greed may not be good, but it's not so bad, either. You humans think greed is just for money and power! But everyone wants something they don't have."
+> "The more exciting it was to meet, the sadder it feels to say goodbye, right?"
 
-&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Haruto Kirishima**](https://myanimelist.net/character.php?q=Haruto%20Kirishima&cat=character), [**Kimi no Iru Machi**](https://myanimelist.net/search/all?q=Kimi%20no%20Iru%20Machi&cat=all)
