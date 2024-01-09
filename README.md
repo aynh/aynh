@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's an airbender in our presence and not just any airbender, the Avatar! Now what do you have to say for yourself, Mr. Pipinpadaloxicopolis?!"
+> "Most people are irresponsible, changing their opinions easily based on unconfirmed information or convenient rumors."
 
-&mdash; [**King Bumi**](https://myanimelist.net/character.php?q=King%20Bumi&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Saki Morimi**](https://myanimelist.net/character.php?q=Saki%20Morimi&cat=character), [**Eden of the East**](https://myanimelist.net/search/all?q=Eden%20of%20the%20East&cat=all)
