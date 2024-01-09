@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more exciting it was to meet, the sadder it feels to say goodbye, right?"
+> "There's probably no one who's more of a realist than the unpopular loner. I have lived my life with the Three Nevers of the Unpopular: Never to hold (hope), Never to open (your heart), and Never to treasure (sweet words)."
 
-&mdash; [**Haruto Kirishima**](https://myanimelist.net/character.php?q=Haruto%20Kirishima&cat=character), [**Kimi no Iru Machi**](https://myanimelist.net/search/all?q=Kimi%20no%20Iru%20Machi&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
