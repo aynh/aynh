@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'd been wondering all this time, whether there's any meaning to a failed love. Is it something that will disappear, the same as something that never existed. Now I know, there is meaning...there was a meaning...right here."
+> "We found ourselves in conflict with each other many times. There were hard times when we wanted to run away or give up. But it was only because that rain fell, that the seeds of our emotions could sprout. And the flowers of deeper friendship could bloom."
 
-&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Misaki Kamiigusa**](https://myanimelist.net/character.php?q=Misaki%20Kamiigusa&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
