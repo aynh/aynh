@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The vampires don't really care about humanity in general. It's only specific humans like you that concern them... The kind of humans who will stop at nothing to acquire more power."
+> "He won't play up to anyone. He won't be led astray by anything. He simply places himself in a clear space."
 
-&mdash; [**Mikaela Hyakuya**](https://myanimelist.net/character.php?q=Mikaela%20Hyakuya&cat=character), [**Owari no Seraph**](https://myanimelist.net/search/all?q=Owari%20no%20Seraph&cat=all)
+&mdash; [**Yu Kanda**](https://myanimelist.net/character.php?q=Yu%20Kanda&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
