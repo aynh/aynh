@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I find it hard to believe that my cells are in your body. How could you have turned out so ugly? What a waste. Although, it’s obvious where you’ve gotten most of your strength."
+> "Yamcha, I was worried about you. For all I knew, you were dead in a ditch in a country you can't pronounce. You'll have to make this up to me. And you're going to enjoy it."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Bulma**](https://myanimelist.net/character.php?q=Bulma&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
