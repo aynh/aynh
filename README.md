@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When the time comes, I may need to borrow your chest to cry upon. That's one promise I'll need from you."
+> "Studying is for people to get the knowledge they need to not screw up in life."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Makoto Sunakawa**](https://myanimelist.net/character.php?q=Makoto%20Sunakawa&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
