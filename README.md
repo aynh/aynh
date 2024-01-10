@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Studying is for people to get the knowledge they need to not screw up in life."
+> "Our battle will be concluded, and I will begin my reign from the summit of victory!"
 
-&mdash; [**Makoto Sunakawa**](https://myanimelist.net/character.php?q=Makoto%20Sunakawa&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
