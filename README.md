@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's true that I'm not very tall. However! I can jump!"
+> "After all, lying for someone's sake doesn't make it a lie."
 
-&mdash; [**Shōyō Hinata**](https://myanimelist.net/character.php?q=Sh%C5%8Dy%C5%8D%20Hinata&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Mizuki Hayama**](https://myanimelist.net/character.php?q=Mizuki%20Hayama&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
