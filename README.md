@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Then, if he accepts who you are, it doesn't matter if you're perfect for him or not. Rather, he may prefer you just the way you are now."
+> "The vampires don't really care about humanity in general. It's only specific humans like you that concern them... The kind of humans who will stop at nothing to acquire more power."
 
-&mdash; [**Tanaka**](https://myanimelist.net/character.php?q=Tanaka&cat=character), [**Tanaka-kun wa Itsumo Kedaruge**](https://myanimelist.net/search/all?q=Tanaka-kun%20wa%20Itsumo%20Kedaruge&cat=all)
+&mdash; [**Mikaela Hyakuya**](https://myanimelist.net/character.php?q=Mikaela%20Hyakuya&cat=character), [**Owari no Seraph**](https://myanimelist.net/search/all?q=Owari%20no%20Seraph&cat=all)
