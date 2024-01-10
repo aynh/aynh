@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to the Sound Ninja Four] Which do you prefer? To die, or to obey?"
+> "It doesn't matter what you achieve in life. It's how you live that really matters. Countless men have lost their lives in war without fulfilling their life's ambitions. Shiba stood by his convictions, no matter how lonely he got. So I think that in the end, he must've been happier than anyone."
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Deerhound**](https://myanimelist.net/character.php?q=Deerhound&cat=character), [**Rave Master**](https://myanimelist.net/search/all?q=Rave%20Master&cat=all)
