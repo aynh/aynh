@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I knew this was a losing battle. Even though the outcome was obvious, I still wanted to bet on that one millimeter of a possibility."
+> "When the time comes, I may need to borrow your chest to cry upon. That's one promise I'll need from you."
 
-&mdash; [**Satsuki Shishio**](https://myanimelist.net/character.php?q=Satsuki%20Shishio&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
