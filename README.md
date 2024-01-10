@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After all, lying for someone's sake doesn't make it a lie."
+> "I knew this was a losing battle. Even though the outcome was obvious, I still wanted to bet on that one millimeter of a possibility."
 
-&mdash; [**Mizuki Hayama**](https://myanimelist.net/character.php?q=Mizuki%20Hayama&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Satsuki Shishio**](https://myanimelist.net/character.php?q=Satsuki%20Shishio&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
