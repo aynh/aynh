@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I like playing with my hair."
+> "I find it hard to believe that my cells are in your body. How could you have turned out so ugly? What a waste. Although, it’s obvious where you’ve gotten most of your strength."
 
-&mdash; [**Gian Carlo**](https://myanimelist.net/character.php?q=Gian%20Carlo&cat=character), [**Lucky Dog**](https://myanimelist.net/search/all?q=Lucky%20Dog&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
