@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our battle will be concluded, and I will begin my reign from the summit of victory!"
+> "Forgetting is like a wound. The wound may heal but it has already left a scar."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
