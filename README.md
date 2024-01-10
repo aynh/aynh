@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A sixth sense cannot make up for a total lack of common sense."
+> "Fear is necessary for evolution. The fear that could be destroyed at any moment."
 
-&mdash; [**Saki Hanajima**](https://myanimelist.net/character.php?q=Saki%20Hanajima&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
