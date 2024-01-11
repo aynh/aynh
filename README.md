@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Yuki] Liar! Moping around like a sad rat who lost his cheese!"
+> "The beginning is the end, and the end is the beginning. Well then, let us begin again. And to each, their own tale."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
