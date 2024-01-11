@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The beginning is the end, and the end is the beginning. Well then, let us begin again. And to each, their own tale."
+> "Fear deals a crippling blow to soldiers. Be it a single man or a million soldiers, it makes no difference. Man can deny neither hunger nor fear."
 
-&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Borcuse**](https://myanimelist.net/character.php?q=Borcuse&cat=character), [**Broken Blade**](https://myanimelist.net/search/all?q=Broken%20Blade&cat=all)
