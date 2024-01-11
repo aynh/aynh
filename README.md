@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our crying for them won't bring the dead back to life."
+> "A hero is not the one who never falls. He is the one that who gets up, again and again, never losing sights of his dreams."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Rock Lee**](https://myanimelist.net/character.php?q=Rock%20Lee&cat=character), [**The Last -Naruto the Movie-**](https://myanimelist.net/search/all?q=The%20Last%20-Naruto%20the%20Movie-&cat=all)
