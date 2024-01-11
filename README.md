@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was in the avatar state... But I was outside my body watching myself. It was scary. I was scary..."
+> "...She's scary. People who can put on a serious face while joking are the scariest."
 
-&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
