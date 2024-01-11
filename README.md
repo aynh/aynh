@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even the most noble of the sacrifices is based on 'self satisfaction'. Jesus Christ himself was crucified for the sake of his people for 'self satisfaction'. That's why you shouldn't expect anything in return when you help someone. Because the moment you expect something, your act would become worthless."
+> "It is my perception, that a true friend never relies on another's dream. A person with the potential to be my true friend, must be able to find his reason for life without my help. And, he would have to put his heart and soul into protecting his dream. He would never hesitate to fight for his dream, even against me. For me, a true friend is one who stands equal on those terms."
 
-&mdash; [**Seiko Miyazawa**](https://myanimelist.net/character.php?q=Seiko%20Miyazawa&cat=character), [**Tough**](https://myanimelist.net/search/all?q=Tough&cat=all)
+&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
