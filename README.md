@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This world is still rotten!.. With too many rotten people."
+> "I was in the avatar state... But I was outside my body watching myself. It was scary. I was scary..."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
