@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Please tell me you're here because the Firelord is a big wimp and you didn't need to take him down."
+> "What keeps me alive in this world is neither bodily organs, nor muscles - it's my soul!"
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
