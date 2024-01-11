@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A hero is not the one who never falls. He is the one that who gets up, again and again, never losing sights of his dreams."
+> "As long as you live things will keep happening! As long as you're alive wishes will keep being made!"
 
-&mdash; [**Rock Lee**](https://myanimelist.net/character.php?q=Rock%20Lee&cat=character), [**The Last -Naruto the Movie-**](https://myanimelist.net/search/all?q=The%20Last%20-Naruto%20the%20Movie-&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
