@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A life with no changes can’t be called life. You can only call it experience."
+> "I can't see Kyoko-san...anymore. But she left me something. Her advice, her feelings... and Tohru. They all... all become fertilizer to help me grow."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
