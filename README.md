@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't see Kyoko-san...anymore. But she left me something. Her advice, her feelings... and Tohru. They all... all become fertilizer to help me grow."
+> "Even if it is a game... There are some things I just can't lose."
 
-&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Basara Tōjō**](https://myanimelist.net/character.php?q=Basara%20T%C5%8Dj%C5%8D&cat=character), [**Shinmai Maou no Testament**](https://myanimelist.net/search/all?q=Shinmai%20Maou%20no%20Testament&cat=all)
