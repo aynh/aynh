@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He won't play up to anyone. He won't be led astray by anything. He simply places himself in a clear space."
+> "I laugh at gravity all the time. Hahaha, gravity..."
 
-&mdash; [**Yu Kanda**](https://myanimelist.net/character.php?q=Yu%20Kanda&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
