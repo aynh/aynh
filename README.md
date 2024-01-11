@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fear deals a crippling blow to soldiers. Be it a single man or a million soldiers, it makes no difference. Man can deny neither hunger nor fear."
+> "It's like I'd want to ask what justice is doing right now if it existed in this world. Well, justice is empty and ineffectual."
 
-&mdash; [**Borcuse**](https://myanimelist.net/character.php?q=Borcuse&cat=character), [**Broken Blade**](https://myanimelist.net/search/all?q=Broken%20Blade&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
