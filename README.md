@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's like I'd want to ask what justice is doing right now if it existed in this world. Well, justice is empty and ineffectual."
+> "This world is still rotten!.. With too many rotten people."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
