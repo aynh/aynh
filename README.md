@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've been trying so hard... Even though you rejected me, I've been trying my best. But if I go on liking you like this then nothing will change."
+> "[To Yuki] Liar! Moping around like a sad rat who lost his cheese!"
 
-&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
