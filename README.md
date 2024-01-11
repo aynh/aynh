@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Azula always lies, Azula always lies."
+> "I am Elliot Nightray and I will not let you take that away from me!!"
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Elliot Nightray**](https://myanimelist.net/character.php?q=Elliot%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
