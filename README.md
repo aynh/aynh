@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if it is a game... There are some things I just can't lose."
+> "I too, was looking for something. Something real in this world. For me, it was the warmth of your hand."
 
-&mdash; [**Basara Tōjō**](https://myanimelist.net/character.php?q=Basara%20T%C5%8Dj%C5%8D&cat=character), [**Shinmai Maou no Testament**](https://myanimelist.net/search/all?q=Shinmai%20Maou%20no%20Testament&cat=all)
+&mdash; [**Lisbeth**](https://myanimelist.net/character.php?q=Lisbeth&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
