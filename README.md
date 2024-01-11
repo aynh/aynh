@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What keeps me alive in this world is neither bodily organs, nor muscles - it's my soul!"
+> "Even the most noble of the sacrifices is based on 'self satisfaction'. Jesus Christ himself was crucified for the sake of his people for 'self satisfaction'. That's why you shouldn't expect anything in return when you help someone. Because the moment you expect something, your act would become worthless."
 
-&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Seiko Miyazawa**](https://myanimelist.net/character.php?q=Seiko%20Miyazawa&cat=character), [**Tough**](https://myanimelist.net/search/all?q=Tough&cat=all)
