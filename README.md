@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how hard you blow, you can never extinguish our fire. As long as a single flare remains, the others can be relit."
+> "The beating of a heart is the first source of music!"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Shining Saotome**](https://myanimelist.net/character.php?q=Shining%20Saotome&cat=character), [**Uta no Prince-sama**](https://myanimelist.net/search/all?q=Uta%20no%20Prince-sama&cat=all)
