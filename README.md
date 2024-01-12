@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no match that you know that 'you can't win'. Even if a match like that exists, the thing that decides the defeat is your heart. That makes you think you've 'lost'."
+> "As a cool guy, I'm used to seeing naked women."
 
-&mdash; [**Yoichi Karasuma**](https://myanimelist.net/character.php?q=Yoichi%20Karasuma&cat=character), [**Asu No Yoichi**](https://myanimelist.net/search/all?q=Asu%20No%20Yoichi&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
