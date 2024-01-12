@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Although Punpun didn’t really want to think about what the point of having dreams that could never come true was… To have dreams and worries that you could talk frankly about… In a way, that was probably a more fulfilling lifestyle than his own, Punpun admitted. Being cool was merely a paper-thin difference away from being empty."
+> "Looking back on the past is a dangerous thing. It's nothing more than an attachment."
 
-&mdash; [**Oyasumi Punpun**](https://myanimelist.net/character.php?q=Oyasumi%20Punpun&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Fukase**](https://myanimelist.net/character.php?q=Fukase&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
