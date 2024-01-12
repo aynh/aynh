@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't care how pathetic or embarassing I look in front of everyone. My love for him...only that...is my bitter sweet treasure."
+> "If there is such a thing like happiness in this world, it should resemble the endless nothingness. Nihility is having nothing and having nothing to lose. If that isn't happiness... then what is?"
 
-&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
