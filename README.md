@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He who forgives and acknowledges himself... that is what it truly means to be strong!"
+> "If I try, I fail. If i don't try i'm never going to get it."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
