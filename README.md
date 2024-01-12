@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm an apple for a day and I need a doctor right away..."
+> "There is no match that you know that 'you can't win'. Even if a match like that exists, the thing that decides the defeat is your heart. That makes you think you've 'lost'."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Yoichi Karasuma**](https://myanimelist.net/character.php?q=Yoichi%20Karasuma&cat=character), [**Asu No Yoichi**](https://myanimelist.net/search/all?q=Asu%20No%20Yoichi&cat=all)
