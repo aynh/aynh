@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even though everything is going to disappear, it isn't supposed to be meaningless. It's exactly because you know you're going to part ways, that now and only now is your only chance."
+> "As far as I'm concerned, I think I'd rather know the truth. Even if learning the truth changed who I am."
 
-&mdash; [**Onoya An**](https://myanimelist.net/character.php?q=Onoya%20An&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Franz d'Epinay**](https://myanimelist.net/character.php?q=Franz%20d'Epinay&cat=character), [**Gankutsuou**](https://myanimelist.net/search/all?q=Gankutsuou&cat=all)
