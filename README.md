@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And that's precisely why it's so convenient, don't you think?"
+> "I'm an apple for a day and I need a doctor right away..."
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
