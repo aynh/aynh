@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is one thing that makes a human a human... and that is their will."
+> "I don't care how pathetic or embarassing I look in front of everyone. My love for him...only that...is my bitter sweet treasure."
 
-&mdash; [**Montana Max**](https://myanimelist.net/character.php?q=Montana%20Max&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
+&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
