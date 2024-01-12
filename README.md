@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As far as I'm concerned, I think I'd rather know the truth. Even if learning the truth changed who I am."
+> "There's only one world for us, and things in it are set up so that we can find happiness in it."
 
-&mdash; [**Franz d'Epinay**](https://myanimelist.net/character.php?q=Franz%20d'Epinay&cat=character), [**Gankutsuou**](https://myanimelist.net/search/all?q=Gankutsuou&cat=all)
+&mdash; [**Ryuuguu Rena**](https://myanimelist.net/character.php?q=Ryuuguu%20Rena&cat=character), [**Higurashi no Naku Koro ni Rei**](https://myanimelist.net/search/all?q=Higurashi%20no%20Naku%20Koro%20ni%20Rei&cat=all)
