@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are two types of lies: Lies that hurt, and lies that don't hurt."
+> "No matter how strong, for a human to fight a monster means he has submerged his humanity and transformed himself into a greater monster."
 
-&mdash; [**Itaru Hashida**](https://myanimelist.net/character.php?q=Itaru%20Hashida&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Schierke**](https://myanimelist.net/character.php?q=Schierke&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
