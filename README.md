@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hmm... never noticed those before *after accidently groping Momiji's chest*."
+> "This eternally cursed power. This extremely disgusting existence! May this wretched body help me protect the things most important to me now! This is the only power that makes atonement for my sins possible! Ashes to Ashes, Dust to Dust, Earth to Earth! Amen!"
 
-&mdash; [**Mamoru Kusanagi**](https://myanimelist.net/character.php?q=Mamoru%20Kusanagi&cat=character), [**Blue Seed**](https://myanimelist.net/search/all?q=Blue%20Seed&cat=all)
+&mdash; [**Abel Nightroad**](https://myanimelist.net/character.php?q=Abel%20Nightroad&cat=character), [**Trinity Blood**](https://myanimelist.net/search/all?q=Trinity%20Blood&cat=all)
