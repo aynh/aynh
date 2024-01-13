@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dictatorship itself isn't absolutely evil, it's just another form of government. The point is how you can run it for the benefit of society."
+> "People make a lot of mistakes, and strength is necessary to straighten those out."
 
-&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Yahiro Samukawa**](https://myanimelist.net/character.php?q=Yahiro%20Samukawa&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
