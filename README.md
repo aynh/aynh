@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You probably weren't wrong, but you went about it the wrong way."
+> "It's quite basic actually, perhaps the simplest of tricks there is. True it may not seem so simple from an ordinary persons point of view, some people may even consider it a baffling, utterly perplexing problem. Things will often appear complicated on the outside while in truth they are simplicity itself. Of course how one sees these things depends on the person, many people find there is a fine line separating the complex to the very simple."
 
-&mdash; [**Akatsuki Kojou**](https://myanimelist.net/character.php?q=Akatsuki%20Kojou&cat=character), [**Strike the Blood**](https://myanimelist.net/search/all?q=Strike%20the%20Blood&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
