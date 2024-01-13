@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "However, humans did not realize that truth no matter how high they staked their mountains of corpses. That's because in no matter what era the courageous and fearless great heroes have always bedazzled the eyes of the multitude with their splendid heroic legends. Because of the wistful actions of those idiots and their refusal to admit that bloodshed is by itself evil, the essence of humans has stayed on the same spot since the Stone Age!"
+> "There are two types of lies: Lies that hurt, and lies that don't hurt."
 
-&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Itaru Hashida**](https://myanimelist.net/character.php?q=Itaru%20Hashida&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
