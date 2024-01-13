@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How worthless. Why are you saying things are impossible? You just decided that to make yourself feel better! Sure, there are things you can't do, things that seem impossible, but that's what makes everyone unique!"
+> "If you want to change, don't wait for someone else to make it happen. Do it yourself."
 
-&mdash; [**Rima Mashiro**](https://myanimelist.net/character.php?q=Rima%20Mashiro&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
