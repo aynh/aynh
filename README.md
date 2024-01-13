@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry, I saw an opening that just screamed 'ATTACK,' so I did, ha!"
+> "Do you know what the most primitive emotion people have is? It’s fear."
 
-&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Nona**](https://myanimelist.net/character.php?q=Nona&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
