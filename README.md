@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can see through you, you're lying, you want to gobble up my hot body!"
+> "Sorry, I saw an opening that just screamed 'ATTACK,' so I did, ha!"
 
-&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
