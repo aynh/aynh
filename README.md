@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think it's a good thing, you know. You're paying attention to those around you. You don't just notice, you take action to help. I think it's one of your strength. But don't you wonder? Is getting rid of all the thorns in someone's path really what's best for them? While they're still young enough to be allowed to trip and fall, it's important for them to learn the pain of it and how to pick themselves up again."
+> "The road of life is never without trials and tribulations."
 
-&mdash; [**Yoake Ryou**](https://myanimelist.net/character.php?q=Yoake%20Ryou&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Castor**](https://myanimelist.net/character.php?q=Castor&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
