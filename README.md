@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human beings are dangerous. If we're seen, we have to leave. My parents said so."
+> "You probably weren't wrong, but you went about it the wrong way."
 
-&mdash; [**Arrietty**](https://myanimelist.net/character.php?q=Arrietty&cat=character), [**Karigurashi no Arrietty**](https://myanimelist.net/search/all?q=Karigurashi%20no%20Arrietty&cat=all)
+&mdash; [**Akatsuki Kojou**](https://myanimelist.net/character.php?q=Akatsuki%20Kojou&cat=character), [**Strike the Blood**](https://myanimelist.net/search/all?q=Strike%20the%20Blood&cat=all)
