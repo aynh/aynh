@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing good ever comes from a man interfering with women's problems."
+> "However, humans did not realize that truth no matter how high they staked their mountains of corpses. That's because in no matter what era the courageous and fearless great heroes have always bedazzled the eyes of the multitude with their splendid heroic legends. Because of the wistful actions of those idiots and their refusal to admit that bloodshed is by itself evil, the essence of humans has stayed on the same spot since the Stone Age!"
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
