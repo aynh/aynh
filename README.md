@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know what the most primitive emotion people have is? It’s fear."
+> "The skull is one of the most eloquent bones in existence. If you just ask, it will tell you many things."
 
-&mdash; [**Nona**](https://myanimelist.net/character.php?q=Nona&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Sakurako Kujō**](https://myanimelist.net/character.php?q=Sakurako%20Kuj%C5%8D&cat=character), [**Sakurako-san no Ashioto ni wa Shitai ga Umatteiru**](https://myanimelist.net/search/all?q=Sakurako-san%20no%20Ashioto%20ni%20wa%20Shitai%20ga%20Umatteiru&cat=all)
