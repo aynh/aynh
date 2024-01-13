@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People make a lot of mistakes, and strength is necessary to straighten those out."
+> "Nothing good ever comes from a man interfering with women's problems."
 
-&mdash; [**Yahiro Samukawa**](https://myanimelist.net/character.php?q=Yahiro%20Samukawa&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
