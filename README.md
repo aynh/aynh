@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Right now, I'm letting you live. And I'll continue to keep you alive... until you've grown enough to become worth killing."
+> "Sure, it might be warm and comfortable in there... not only safe and sound, but I get all the meals too! But I'd rather be out than be trapped inside this bird cage of yours."
 
-&mdash; [**Hisoka**](https://myanimelist.net/character.php?q=Hisoka&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
