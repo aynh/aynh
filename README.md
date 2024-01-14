@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Gooood morning earth-bending student!"
+> "Right now, I'm letting you live. And I'll continue to keep you alive... until you've grown enough to become worth killing."
 
-&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Hisoka**](https://myanimelist.net/character.php?q=Hisoka&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
