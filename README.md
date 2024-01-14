@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are all sorts of mysteries in this world, like snacks and candy and sweets falling from the sky!"
+> "Recklessness is the way of the young and tolerance is the beauty of adulthood."
 
-&mdash; [**Komari Kamikita**](https://myanimelist.net/character.php?q=Komari%20Kamikita&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Nyanta**](https://myanimelist.net/character.php?q=Nyanta&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
