@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Often times, people simply deny the existence of what they do not understand, and anyone who tells them otherwise is a liar."
+> "Compared to failing without even trying, I'd rather take action, even at the risk of a mistake."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
