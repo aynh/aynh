@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everybody has things they aren't good at or can't do. We cover each other's weakness. That's what a party's for."
+> "There are all sorts of mysteries in this world, like snacks and candy and sweets falling from the sky!"
 
-&mdash; [**Manato**](https://myanimelist.net/character.php?q=Manato&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Komari Kamikita**](https://myanimelist.net/character.php?q=Komari%20Kamikita&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
