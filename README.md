@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There certainly are things that cannot be told in words, but that can only be said by people who have exhausted their use of words. Words are like icebergs that are floating on the ocean called 'heart'. The parts that show above the sea surface are small, but they still let us perceive the larger parts that are hidden below the water. Use words deliberately. If you do, you'll be able to convey more things more accurately than if you were to keep silent. Right judgement can only be made with right information and right analyses."
+> "[to Renji] I assure you, my gratitude is sincere."
 
-&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
