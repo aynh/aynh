@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We've never worked together before, so don't worry about teamwork! Just stay out of each other's way. Fight the way you want to fight!"
+> "To ensure that all I've done won't end up a lie. I don't want to talk big game to people, then run away when it matters the most. This is a wall I must overcome on my own. If there's anything I want to change, I have to change myself. If I must become evil to defeat evil, I will become the devil himself. That's all to it."
 
-&mdash; [**Bors Elder**](https://myanimelist.net/character.php?q=Bors%20Elder&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
