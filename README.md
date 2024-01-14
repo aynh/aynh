@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now watch closely, everyone. I'm going to show you how to kill a god. A god of life and death. The trick is not to fear him."
+> "But even though she's gone... she's not really gone, right? That the light won't go on in that apartment... is a lie, right?"
 
-&mdash; [**Lady Eboshi**](https://myanimelist.net/character.php?q=Lady%20Eboshi&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
