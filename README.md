@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we all reacted the same way, we'd be predictable, and there's always more than one way to view a situation. What's true for the group is also true for the individual. It's simple: overspecialize, and you breed in weakness. It's slow death."
+> "In this world, when you face forward, that's the future. When you look back, it's a memory. And if you clip a part of it out, that becomes a story."
 
-&mdash; [**Motoko Kusanagi**](https://myanimelist.net/character.php?q=Motoko%20Kusanagi&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
