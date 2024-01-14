@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To ensure that all I've done won't end up a lie. I don't want to talk big game to people, then run away when it matters the most. This is a wall I must overcome on my own. If there's anything I want to change, I have to change myself. If I must become evil to defeat evil, I will become the devil himself. That's all to it."
+> "I'm going to spend my vacation AT THE LIBRARY!"
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
