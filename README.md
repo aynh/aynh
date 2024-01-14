@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being rivals does not mean being an enemy."
+> "Now watch closely, everyone. I'm going to show you how to kill a god. A god of life and death. The trick is not to fear him."
 
-&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Lady Eboshi**](https://myanimelist.net/character.php?q=Lady%20Eboshi&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
