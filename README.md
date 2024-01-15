@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That hot dog must've fried your brain!"
+> "The only thing you can change about the past is how you feel about it in the present."
 
-&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Lockon Stratos**](https://myanimelist.net/character.php?q=Lockon%20Stratos&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
