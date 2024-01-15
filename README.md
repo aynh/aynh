@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is something mysterious about the life of a pirate."
+> "Knowledge and awareness are vague, and perhaps better called illusions. Everyone lives within their own subjective interpretation."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
