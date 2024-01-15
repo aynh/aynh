@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To rule time is to rule the world."
+> "Against the power of will I posses... The capability of my body is nothing."
 
-&mdash; [**Suzuha Amane**](https://myanimelist.net/character.php?q=Suzuha%20Amane&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
