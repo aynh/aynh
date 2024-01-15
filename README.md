@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Knowledge and awareness are vague, and perhaps better called illusions. Everyone lives within their own subjective interpretation."
+> "I'm different from who I was yesterday. I wonder what I will be like tomorrow. Day by day, we live in the today and keep living to meet our future selves."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
