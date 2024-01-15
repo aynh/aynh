@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want you to please understand the scales of my heart will always be swaying back and forth. But there is something you should know. I will never lean to one side or the other due to the weight of gold coins."
+> "The frog in the well can't communicate with the ocean creatures, as it knows the depth of the sky. It's because the frog lived inside a cramped and small space, so he knows better than anyone, how precious freedom is."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Akito Wanijima**](https://myanimelist.net/character.php?q=Akito%20Wanijima&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
