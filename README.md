@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know about the Happy Prince? It's such a happy story. The Prince helps everyone together with a little swallow, then he dies happily. But I wonder how the swallow felt? His wish wasn't granted because he helped the foolish Prince. Was the swallow really happy? It's always like that. The Prince and all the people he helped are happy, but what about the swallow? He helped the Prince more than anyone, so why is he ignored completely?"
+> "There are two types of dreams. Dreams from when you're awake and dreams from when you sleep. And both of those can become reality, if you strongly wish for it."
 
-&mdash; [**Azusa Azuki**](https://myanimelist.net/character.php?q=Azusa%20Azuki&cat=character), [**Hentai Ouji To Warawanai Neko**](https://myanimelist.net/search/all?q=Hentai%20Ouji%20To%20Warawanai%20Neko&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
