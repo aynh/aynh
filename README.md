@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "C'mon, there is no such thing as gross stuff in this world...  Except for GROSSLY CUTE things."
+> "It's not a crime! Caring about your friends is not a crime!"
 
-&mdash; [**Fuura Kafuka**](https://myanimelist.net/character.php?q=Fuura%20Kafuka&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
