@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It may be better to go and regret it rather than staying here and regretting it. If you don’t move forward, you can’t gain anything."
+> "I believe the difference between those up there and me is the question of whether you have given up or not."
 
-&mdash; [**Futaki Kanata**](https://myanimelist.net/character.php?q=Futaki%20Kanata&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Ja Wangnan**](https://myanimelist.net/character.php?q=Ja%20Wangnan&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
