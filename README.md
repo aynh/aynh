@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's like that myth about the hero... He made wings out of wax so he could fly... but when he got too close to the sun... to God... the wax melted and he crashed to the ground..."
+> "You came without fear. Don't have any regrets, no matter what happens. This is the duel you wanted."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
