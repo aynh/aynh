@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The frog in the well can't communicate with the ocean creatures, as it knows the depth of the sky. It's because the frog lived inside a cramped and small space, so he knows better than anyone, how precious freedom is."
+> "Do you know about the Happy Prince? It's such a happy story. The Prince helps everyone together with a little swallow, then he dies happily. But I wonder how the swallow felt? His wish wasn't granted because he helped the foolish Prince. Was the swallow really happy? It's always like that. The Prince and all the people he helped are happy, but what about the swallow? He helped the Prince more than anyone, so why is he ignored completely?"
 
-&mdash; [**Akito Wanijima**](https://myanimelist.net/character.php?q=Akito%20Wanijima&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Azusa Azuki**](https://myanimelist.net/character.php?q=Azusa%20Azuki&cat=character), [**Hentai Ouji To Warawanai Neko**](https://myanimelist.net/search/all?q=Hentai%20Ouji%20To%20Warawanai%20Neko&cat=all)
