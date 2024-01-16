@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Okita, who tells him that he should take his job more seriously* Shall I put you to sleep, ingrate?"
+> "Athrun Zala. Justice. Launching!"
 
-&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
