@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A way for the weak to stay weak, but still defeat the strong. A way to stay who you are but surpass your limits. To soar through the sky, even if you can't fly. He's always found a way, inside despair, suffering and darkness."
+> "People don't vanish from this world the moment they die. Their true death is when they are forgotten by the living."
 
-&mdash; [**Kurami Zell**](https://myanimelist.net/character.php?q=Kurami%20Zell&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Tokou Nanami**](https://myanimelist.net/character.php?q=Tokou%20Nanami&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
