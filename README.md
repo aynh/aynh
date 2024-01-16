@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(to himself, after revealing to Aang that he was the one who sent Combustion Man) Ugh, why do I have to be so stupid? How could I tell them that I sent an assassin after them? Couldn't I say that Azula did it? They would've believed that! Stupid! (Hits his head)"
+> "There's nothing unusual here… The appropriate one stands in the appropriate place after the inappropriate ones have collapsed to the ground, defeated. There is nothing unexpected or odd about it. Because this is reality. Not one shred of uncertainty exists here. Not even fear, of course…"
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Asura**](https://myanimelist.net/character.php?q=Asura&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
