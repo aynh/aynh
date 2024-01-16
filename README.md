@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People don't vanish from this world the moment they die. Their true death is when they are forgotten by the living."
+> "And I'll be happy to vouch for his insanity!"
 
-&mdash; [**Tokou Nanami**](https://myanimelist.net/character.php?q=Tokou%20Nanami&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Haruka**](https://myanimelist.net/character.php?q=Haruka&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
