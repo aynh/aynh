@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't look away, Rose! You need to see what happens when you try to bring a human to life, when you cross into God's territory or whatever the hell it is! Is this what you want?! Look!!"
+> "The end result is important. But what's truly important... is the journey to get there."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Hikari Hanazono**](https://myanimelist.net/character.php?q=Hikari%20Hanazono&cat=character), [**Special A**](https://myanimelist.net/search/all?q=Special%20A&cat=all)
