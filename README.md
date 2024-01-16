@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The end result is important. But what's truly important... is the journey to get there."
+> "(to himself, after revealing to Aang that he was the one who sent Combustion Man) Ugh, why do I have to be so stupid? How could I tell them that I sent an assassin after them? Couldn't I say that Azula did it? They would've believed that! Stupid! (Hits his head)"
 
-&mdash; [**Hikari Hanazono**](https://myanimelist.net/character.php?q=Hikari%20Hanazono&cat=character), [**Special A**](https://myanimelist.net/search/all?q=Special%20A&cat=all)
+&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
