@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Before becoming my Meister there is a list of 1,000 provisions you must peruse. Be sure to look through all of them, they're important. I greatly look forward to your participation in number 452 the five hour story telling party."
+> "Of course they are my family, isn't it obvious? And a wonderful family they were. It happened long ago when I was still in the flower of my youth. The cities began to grow wild, people lost hope for the future, they became lazy idol time wasters. And to my everlasting shame I was no exception. Thus I began to watch the 7 O'Clock news religiously every night!"
 
 &mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
