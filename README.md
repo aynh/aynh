@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Calling me a coward, eh? At least say it so I can hear it..."
+> "*to Okita, who tells him that he should take his job more seriously* Shall I put you to sleep, ingrate?"
 
-&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
