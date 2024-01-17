@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I dreamed that you were a dog. And the dog was my husband. Anyway, it was the worst dream ever."
+> "When an otaku goes all-out with his mind set on something you better not underestimate him."
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Tomoya Aki**](https://myanimelist.net/character.php?q=Tomoya%20Aki&cat=character), [**Saenai Heroine no Sodatekata**](https://myanimelist.net/search/all?q=Saenai%20Heroine%20no%20Sodatekata&cat=all)
