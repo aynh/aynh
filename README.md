@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If one really wants to change the world...they have to do it by their own hands!"
+> "I dreamed that you were a dog. And the dog was my husband. Anyway, it was the worst dream ever."
 
-&mdash; [**Lucy Ashley**](https://myanimelist.net/character.php?q=Lucy%20Ashley&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
