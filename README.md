@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Come on, scribbles on the bathroom wall, please show me the path that I must follow!"
+> "Our motto is to make use of our characteristics to answer customers' needs."
 
-&mdash; [**Excel**](https://myanimelist.net/character.php?q=Excel&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
+&mdash; [**Kyoya Ootori**](https://myanimelist.net/character.php?q=Kyoya%20Ootori&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
