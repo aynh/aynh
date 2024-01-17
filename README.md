@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love and the human mind can't be analyzed with formulas. It's not so unusual for love to make you forget the sense of care and respect for others. There's no logic. It's an uncontrollable urge. To tell you the truth, it’d be worrisome if you became like that. Your mind is keen, and your character is good. But passion has nothing to do with mind or character."
+> "Even if I am to carry all the evils of this world, it won't matter. If that can save the world, then I'd gladly accept it."
 
-&mdash; [**Alex Cazellnu**](https://myanimelist.net/character.php?q=Alex%20Cazellnu&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
