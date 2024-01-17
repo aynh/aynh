@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I say it doesn't hurt me, that means I can bear it."
+> "Come on, scribbles on the bathroom wall, please show me the path that I must follow!"
 
-&mdash; [**Killua Zoldyck**](https://myanimelist.net/character.php?q=Killua%20Zoldyck&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Excel**](https://myanimelist.net/character.php?q=Excel&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
