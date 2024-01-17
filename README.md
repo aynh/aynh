@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop trying to change things that can't be changed. The past is the past and you have to let it go and embrace the future."
+> "People who aren't doing anything themselves, shouldn't be so quick to tell others what to do!"
 
-&mdash; [**Jack Atlas**](https://myanimelist.net/character.php?q=Jack%20Atlas&cat=character), [**Yu-Gi-Oh! 5D's**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%205D's&cat=all)
+&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
