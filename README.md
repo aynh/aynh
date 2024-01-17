@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to know the truth, you must have the courage to accept it."
+> "I can't let myself not like the person I like."
 
-&mdash; [**Bear**](https://myanimelist.net/character.php?q=Bear&cat=character), [**.hack//SIGN**](https://myanimelist.net/search/all?q=.hack%2F%2FSIGN&cat=all)
+&mdash; [**Shimada Minami**](https://myanimelist.net/character.php?q=Shimada%20Minami&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
