@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I am to carry all the evils of this world, it won't matter. If that can save the world, then I'd gladly accept it."
+> "I was too bent on fulfilling my objectives… I failed to see things from a larger perspective. I failed to build up a good relationship with them."
 
-&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
