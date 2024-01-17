@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fear beyond rational limits, forces people to cling to normality."
+> "I wanted to be a cat. I was jealous of them. They're liked by everyone... Even though they don't do anything at all. I just wanted everyone to like me."
 
-&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
+&mdash; [**Shiro**](https://myanimelist.net/character.php?q=Shiro&cat=character), [**Neko no Machi no Ko**](https://myanimelist.net/search/all?q=Neko%20no%20Machi%20no%20Ko&cat=all)
