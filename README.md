@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who aren't doing anything themselves, shouldn't be so quick to tell others what to do!"
+> "Fear beyond rational limits, forces people to cling to normality."
 
-&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
