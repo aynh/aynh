@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't ever lie, even if it's about your feelings."
+> "Daunting and mistrusting others forever won’t accomplish anything."
 
-&mdash; [**Misaki Ayuzawa**](https://myanimelist.net/character.php?q=Misaki%20Ayuzawa&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Teito Klein**](https://myanimelist.net/character.php?q=Teito%20Klein&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
