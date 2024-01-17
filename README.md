@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Daunting and mistrusting others forever won’t accomplish anything."
+> "If one really wants to change the world...they have to do it by their own hands!"
 
-&mdash; [**Teito Klein**](https://myanimelist.net/character.php?q=Teito%20Klein&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Lucy Ashley**](https://myanimelist.net/character.php?q=Lucy%20Ashley&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
