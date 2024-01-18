@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Yoh* Because I aim to be the First Lady of the shaman world... You will become Shaman King, whether you want to or not."
+> "If you keep trying to reason with yourself instead of listening to your feelings, you'll never be able to feel true happiness."
 
-&mdash; [**Anna Kyoyama**](https://myanimelist.net/character.php?q=Anna%20Kyoyama&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Hiroomi Nase**](https://myanimelist.net/character.php?q=Hiroomi%20Nase&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
