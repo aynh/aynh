@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every time you and I interact...a bit of 'heart' is born between us. Heart isn't something inside you. But whenever you think, whenever you remember someone, that's when heart is born. I mean, if you were the only one alive in the whole world, heart wouldn't exist, now would it?"
+> "Hope is like a treasure, which you cannot carry alone."
 
-&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sayonara Zetsubou Sensei**](https://myanimelist.net/character.php?q=Sayonara%20Zetsubou%20Sensei&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
