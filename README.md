@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Sesshoumaru after he steals the Tetsuaiga] Blah, blah, blah. A guy gets his hands on a new sword, and already he's lookin' for a soap box to stand on and preach it to the world!"
+> "Matt... I never thought you'd be killed... I'm sorry."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
