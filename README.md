@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A cowardly thief would sneak away in the night; the King of Conquerors leaves with his loot amidst songs of victory!"
+> "Who can gaze into the mirror without becoming evil? The mirror does not reflect evil, but creates it."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Motoko Kusanagi**](https://myanimelist.net/character.php?q=Motoko%20Kusanagi&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
