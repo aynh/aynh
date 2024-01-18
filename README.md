@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was trying to chop off your head from the eye up. A little scratch counts as a miss."
+> "There has never been a report about a stomach ache or any other related medical trauma from swallowing your pride."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Daisuke Aramaki**](https://myanimelist.net/character.php?q=Daisuke%20Aramaki&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
