@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will hunt down Kikyou's killer and avenge her death"
+> "The school takes no responsibility of your future! You are fully responsible for your own future! That is why you have to find what you want to do! You are all free!"
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
