@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you keep trying to reason with yourself instead of listening to your feelings, you'll never be able to feel true happiness."
+> "I will hunt down Kikyou's killer and avenge her death"
 
-&mdash; [**Hiroomi Nase**](https://myanimelist.net/character.php?q=Hiroomi%20Nase&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
