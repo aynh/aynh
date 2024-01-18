@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unless I grip the sword, I cannot protect you. While gripping the sword, I cannot embrace you."
+> "A cowardly thief would sneak away in the night; the King of Conquerors leaves with his loot amidst songs of victory!"
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
