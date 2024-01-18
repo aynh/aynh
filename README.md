@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times we can't run away, no matter how bad the odds are. When the people we're supposed to protect are threatened, we have to enter the fray and shield them. And it doesn't matter who or what the enemy is. We need to master skills and get stronger, with artillery as well as hand-do-hand combat. I think that's our responsibility as strong soldiers."
+> "Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one's heart."
 
-&mdash; [**Reiner Braun**](https://myanimelist.net/character.php?q=Reiner%20Braun&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
