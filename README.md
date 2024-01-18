@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one can draw a clear line between sane and insane. You move that line as you see fit for yourself. No one else can. You'll understand soon... that the one that's insane is this world."
+> "There are times we can't run away, no matter how bad the odds are. When the people we're supposed to protect are threatened, we have to enter the fray and shield them. And it doesn't matter who or what the enemy is. We need to master skills and get stronger, with artillery as well as hand-do-hand combat. I think that's our responsibility as strong soldiers."
 
-&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Reiner Braun**](https://myanimelist.net/character.php?q=Reiner%20Braun&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
