@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Team Rocket may be dirty rotten criminals, but we're not in the business of destroying children's dreams! At least, not yet."
+> "*to Yoh* Because I aim to be the First Lady of the shaman world... You will become Shaman King, whether you want to or not."
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Anna Kyoyama**](https://myanimelist.net/character.php?q=Anna%20Kyoyama&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
