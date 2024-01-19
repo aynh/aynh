@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end of that lonely path you are going, there is nothing."
+> "A skilled dictator is much more beneficial to humanity than a democracy of ignorant people."
 
-&mdash; [**Fuurinji Hayato**](https://myanimelist.net/character.php?q=Fuurinji%20Hayato&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
+&mdash; [**Gene Smilas**](https://myanimelist.net/character.php?q=Gene%20Smilas&cat=character), [**Code Geass: Boukoku No Akito**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Boukoku%20No%20Akito&cat=all)
