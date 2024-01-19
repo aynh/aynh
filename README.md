@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will defeat him. It may cost my life to do it. However, if I survive, I'll make a promise. The same promise as that time, on the same thing as that time."
+> "A pig who doesn't fly is just an ordinary pig."
 
-&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Porco Rosso**](https://myanimelist.net/character.php?q=Porco%20Rosso&cat=character), [**Porco Rosso**](https://myanimelist.net/search/all?q=Porco%20Rosso&cat=all)
