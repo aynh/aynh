@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't need some ring or some throne! If it means that I won't lose you... I would throw everything away!"
+> "In the end of that lonely path you are going, there is nothing."
 
-&mdash; [**Livius Orvinus Ifrikia**](https://myanimelist.net/character.php?q=Livius%20Orvinus%20Ifrikia&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Fuurinji Hayato**](https://myanimelist.net/character.php?q=Fuurinji%20Hayato&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
