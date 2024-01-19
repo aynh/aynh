@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Rukia as she is taken to Sokyoku Hill] Bye Bye, Rukia chan! See 'ya at the execution grounds."
+> "Our bodies get bigger, but our hearts get torn up."
 
-&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Mikoto Suoh**](https://myanimelist.net/character.php?q=Mikoto%20Suoh&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
