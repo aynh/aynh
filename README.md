@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No, she's hiding something. But what could it be? Snacks? Guitar? Wait, maybe ton-chan."
+> "Live by your own rules. And have reality accept your own rules. If you are able to do that, the future is all yours."
 
-&mdash; [**Sawako Yamanaka**](https://myanimelist.net/character.php?q=Sawako%20Yamanaka&cat=character), [**K-ON!**](https://myanimelist.net/search/all?q=K-ON!&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
