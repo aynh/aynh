@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'd better split before I catch loser-itis!"
+> "Do I have to kill you to stop you from being foolish?"
 
-&mdash; [**Green**](https://myanimelist.net/character.php?q=Green&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
