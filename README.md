@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Live by your own rules. And have reality accept your own rules. If you are able to do that, the future is all yours."
+> "I'd better split before I catch loser-itis!"
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Green**](https://myanimelist.net/character.php?q=Green&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
