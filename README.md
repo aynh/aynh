@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The rain, the wind, the sun... you bring them all with you. Every time our eyes meet. You bring the world to me."
+> "[To Rukia as she is taken to Sokyoku Hill] Bye Bye, Rukia chan! See 'ya at the execution grounds."
 
-&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
