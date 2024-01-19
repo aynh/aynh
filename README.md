@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A skilled dictator is much more beneficial to humanity than a democracy of ignorant people."
+> "A picture of you sleeping with a stupid look on your face totally oblivious to the dangers of this trip serves as a warning to future generations!"
 
-&mdash; [**Gene Smilas**](https://myanimelist.net/character.php?q=Gene%20Smilas&cat=character), [**Code Geass: Boukoku No Akito**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Boukoku%20No%20Akito&cat=all)
+&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
