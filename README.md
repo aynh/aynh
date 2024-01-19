@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The sounds you find pretty, and the sounds the other members find pretty... Are they really the same?"
+> "Once you get everything back, you'll be down to having nothing but loads of fun left."
 
-&mdash; [**Len Tsukimori**](https://myanimelist.net/character.php?q=Len%20Tsukimori&cat=character), [**Kiniro no Corda: Blue♪Sky**](https://myanimelist.net/search/all?q=Kiniro%20no%20Corda%3A%20Blue%E2%99%AASky&cat=all)
+&mdash; [**Aoi Toori**](https://myanimelist.net/character.php?q=Aoi%20Toori&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
