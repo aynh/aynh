@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And yet, at the end of the day, we are just like tree leaves dancing in a whirlpool. No matter how we dance, we are only swallowed by the whirlpool and disappear..."
+> "In manga, there's always a character who gets a sudden boost of power, right? Usually, it's when they're driven into a corner. Readers actually call it a 'convenient power up', but it actually does happen in the real world as well. We humans only truly show our mettle when we're pushed into a corner."
 
-&mdash; [**Claire Bernardus**](https://myanimelist.net/character.php?q=Claire%20Bernardus&cat=character), [**Umineko no Naku Koro ni Chiru Episode 7: Requiem of the...**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni%20Chiru%20Episode%207%3A%20Requiem%20of%20the...&cat=all)
+&mdash; [**Shinobu Takamiya**](https://myanimelist.net/character.php?q=Shinobu%20Takamiya&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
