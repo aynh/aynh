@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "False tears bring pain to those around you. A false smile brings pain to one self."
+> "Police girl… Enjoy this. Enjoy the massacre. This alone will make you strong."
 
-&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
