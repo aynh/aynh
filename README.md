@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want nothing more than to be a bayonet; a bayonet wielded by the hand of God. I would have been happy to be born a storm, or a divine threat; a mighty explosion or even a terrible hurricane. A divine force of nature without heart or pity. And if this relic can transform me into such a thing...then I am happy to abandon my humanity."
+> "Necessary murder. Man must kill to live. That hasn't changed, even with humanity's decline. The situation has reached the point in which escape and refusal are no longer options, so I must act."
 
-&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
