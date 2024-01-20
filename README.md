@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Old, young, man, woman,  a life is a life. Sinner or Saint it makes no difference at all."
+> "Fighting without hope is no way to live. It's just a way to die."
 
-&mdash; [**Gensei**](https://myanimelist.net/character.php?q=Gensei&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Éclair Farron**](https://myanimelist.net/character.php?q=%C3%89clair%20Farron&cat=character), [**Final Fantasy XIII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20XIII&cat=all)
