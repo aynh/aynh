@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In manga, there's always a character who gets a sudden boost of power, right? Usually, it's when they're driven into a corner. Readers actually call it a 'convenient power up', but it actually does happen in the real world as well. We humans only truly show our mettle when we're pushed into a corner."
+> "False tears bring pain to those around you. A false smile brings pain to one self."
 
-&mdash; [**Shinobu Takamiya**](https://myanimelist.net/character.php?q=Shinobu%20Takamiya&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
+&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
