@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fighting without hope is no way to live. It's just a way to die."
+> "I want nothing more than to be a bayonet; a bayonet wielded by the hand of God. I would have been happy to be born a storm, or a divine threat; a mighty explosion or even a terrible hurricane. A divine force of nature without heart or pity. And if this relic can transform me into such a thing...then I am happy to abandon my humanity."
 
-&mdash; [**Éclair Farron**](https://myanimelist.net/character.php?q=%C3%89clair%20Farron&cat=character), [**Final Fantasy XIII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20XIII&cat=all)
+&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
