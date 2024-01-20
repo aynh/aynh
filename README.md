@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Athrun] What is it you believe in? What is it you're fighting for now? Is it for that medal you received? Or your father's orders?"
+> "Up, up! Down, down! Left, right, left, right! Bringing the motherfucking death by Konami! Ahh I'm so fucking hard right now! [laughs]"
 
-&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Jan Valentine**](https://myanimelist.net/character.php?q=Jan%20Valentine&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
