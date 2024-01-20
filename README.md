@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I lie all the time. Who cares if you know something, but you say you don't? Forcing something out of someone without permission is worse."
+> "Yes, I saw it over and over... Meaningless massacres. Meaningless suffering. Meaningless happiness! I was forced to watch it all. Even when I refused to look, it surrounded me. That isn't what I wished for! I didn't become a Guardian for this!"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
