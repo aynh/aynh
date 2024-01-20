@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Up, up! Down, down! Left, right, left, right! Bringing the motherfucking death by Konami! Ahh I'm so fucking hard right now! [laughs]"
+> "We can't live if we don't keep running forward."
 
-&mdash; [**Jan Valentine**](https://myanimelist.net/character.php?q=Jan%20Valentine&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
