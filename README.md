@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Necessary murder. Man must kill to live. That hasn't changed, even with humanity's decline. The situation has reached the point in which escape and refusal are no longer options, so I must act."
+> "Told you, Rose. Get too close to the sun, and you'll burn."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
