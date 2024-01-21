@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what changes, I'll still be me. And I can be whoever I want to be!"
+> "Anyone can make a mistake. If you feel bad about it, will that sin disappear?"
 
-&mdash; [**Amu Hinamori**](https://myanimelist.net/character.php?q=Amu%20Hinamori&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
+&mdash; [**Akoes**](https://myanimelist.net/character.php?q=Akoes&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
