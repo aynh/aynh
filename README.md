@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A woman who can talk tough while completely naked...amazing. (about Rin, the horse)"
+> "No matter whether you win or not, there's no meaning to war."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
