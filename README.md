@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry... I really... want to let you savor your moment of glory a little longer. But I really can't be having this. After all is said and done... he is still my man after all."
+> "People who want to leave are going to leave. But not everyone is like that."
 
-&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Yoshihisa Manabe**](https://myanimelist.net/character.php?q=Yoshihisa%20Manabe&cat=character), [**Kotoura-san**](https://myanimelist.net/search/all?q=Kotoura-san&cat=all)
