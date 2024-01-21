@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You'll never be able to go anywhere unless you learn how to let go."
+> "A woman who can talk tough while completely naked...amazing. (about Rin, the horse)"
 
-&mdash; [**Mishakuji Yukari**](https://myanimelist.net/character.php?q=Mishakuji%20Yukari&cat=character), [**K: Missing Kings**](https://myanimelist.net/search/all?q=K%3A%20Missing%20Kings&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
