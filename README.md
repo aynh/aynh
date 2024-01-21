@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So don't be afraid to open your hearts to others. It's pointless to keep testing people. All you're doing is hurting yourselves."
+> "You'll never be able to go anywhere unless you learn how to let go."
 
-&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Mishakuji Yukari**](https://myanimelist.net/character.php?q=Mishakuji%20Yukari&cat=character), [**K: Missing Kings**](https://myanimelist.net/search/all?q=K%3A%20Missing%20Kings&cat=all)
