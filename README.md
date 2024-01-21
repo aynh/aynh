@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why are you punching? What are you chasing? You should already know the answer to that. To become strong."
+> "Are we friends? Or are we foes? That kind of thing you decide for yourselves!"
 
-&mdash; [**Coach Kamogawa**](https://myanimelist.net/character.php?q=Coach%20Kamogawa&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
