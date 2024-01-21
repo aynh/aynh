@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As for me, I have a lot of things that I'm not good at and that I need to work on. My comrades make up for those weaknesses by help me out, and maybe that's how we've found a balance in our party."
+> "[clapping] A beautiful speech, I can see it now, you truly are a prince with the royal blood of a Saiyan."
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Android 17**](https://myanimelist.net/character.php?q=Android%2017&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
