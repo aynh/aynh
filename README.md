@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter whether you win or not, there's no meaning to war."
+> "My name is Krad. But you do not have to remember it, because here you will die."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Krad**](https://myanimelist.net/character.php?q=Krad&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
