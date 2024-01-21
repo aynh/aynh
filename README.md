@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Immersed in ecstasy from killing weak things... A burdensome corpse with no benefit to people. Someone like that... I can't possibly forgive!"
+> "I'm Faust VIII, your opponent. Please be gentle."
 
-&mdash; [**Rikuo Nura**](https://myanimelist.net/character.php?q=Rikuo%20Nura&cat=character), [**Nura: Rise of the Yokai Clan**](https://myanimelist.net/search/all?q=Nura%3A%20Rise%20of%20the%20Yokai%20Clan&cat=all)
+&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
