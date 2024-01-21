@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In my room at the palace, right before I go to sleep... I always think to myself, 'What's Syaoran doing right now? Is he thinking about me?'."
+> "It doesn't make a difference whether you have a talent or not. I mean, that isn't the end goal. You have greater freedom than we do. All I have are games. But you can go anywhere and become anything."
 
-&mdash; [**Sakura Kinomoto**](https://myanimelist.net/character.php?q=Sakura%20Kinomoto&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Chiaki Nanami**](https://myanimelist.net/character.php?q=Chiaki%20Nanami&cat=character), [**Danganronpa 3: The End of Kibougamine Gakuen - Zetsubou-hen**](https://myanimelist.net/search/all?q=Danganronpa%203%3A%20The%20End%20of%20Kibougamine%20Gakuen%20-%20Zetsubou-hen&cat=all)
