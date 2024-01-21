@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why does the scenery of a town that no longer exists wring my heart so?"
+> "In my room at the palace, right before I go to sleep... I always think to myself, 'What's Syaoran doing right now? Is he thinking about me?'."
 
-&mdash; [**Taki Tachibana**](https://myanimelist.net/character.php?q=Taki%20Tachibana&cat=character), [**Kimi no Na wa**](https://myanimelist.net/search/all?q=Kimi%20no%20Na%20wa&cat=all)
+&mdash; [**Sakura Kinomoto**](https://myanimelist.net/character.php?q=Sakura%20Kinomoto&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
