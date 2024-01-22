@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing in this world is free. Be thankful to those who speak strict word to you. Watch out for a person who talks too nicely."
+> "We finally became friends. I've said everything I wanted to say. Now we know everything about each other. Though, from the moment we become friends, we'll never speak to each other again."
 
-&mdash; [**Yūsei Fudō**](https://myanimelist.net/character.php?q=Y%C5%ABsei%20Fud%C5%8D&cat=character), [**Yu-Gi-Oh 5Ds**](https://myanimelist.net/search/all?q=Yu-Gi-Oh%205Ds&cat=all)
+&mdash; [**Touma Kazusa**](https://myanimelist.net/character.php?q=Touma%20Kazusa&cat=character), [**White Album 2**](https://myanimelist.net/search/all?q=White%20Album%202&cat=all)
