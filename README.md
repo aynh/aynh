@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All the more reason to dissect one, before the whole species dies off."
+> "What you say may be correct, that there is a war going on outside our world. But we don't agree with it! We dislike war! And that is why we chose to be here, in neutral territory!"
 
-&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kira Yamato**](https://myanimelist.net/character.php?q=Kira%20Yamato&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
