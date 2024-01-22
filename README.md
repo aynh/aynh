@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't have the courage to change things then you might as well just die!!!"
+> "You think you can just escape? Walk out of this world like it's some bad movie? It's too easy to make like a bird. To flap your wings as you chicken out after causing all these problems. The tough part's walking. Taking what comes along and walking right through it. That's what real people do."
 
-&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Eikichi Onizuka**](https://myanimelist.net/character.php?q=Eikichi%20Onizuka&cat=character), [**Great Teacher Onizuka**](https://myanimelist.net/search/all?q=Great%20Teacher%20Onizuka&cat=all)
