@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’ve always been wondering, even though you’ve been treating me carefully like a princess, are you just trying to keep your distance away from me? You praise me so much and belittle yourself, so I feel that you’re trying to keep your distance away from me..."
+> "Where do people stray off the path? When do they begin to obey their greed rather than their ideals? Or are ideals just prone to morphing easily into greed?"
 
-&mdash; [**Himeji Mizuki**](https://myanimelist.net/character.php?q=Himeji%20Mizuki&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Sion**](https://myanimelist.net/character.php?q=Sion&cat=character), [**No.6**](https://myanimelist.net/search/all?q=No.6&cat=all)
