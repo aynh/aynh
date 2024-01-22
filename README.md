@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Obey the ones with power'. That's the true meaning of the law of the jungle. If you don't wish to be bound by that, obtain greater power. Because there's always times one must fight power with power."
+> "All the more reason to dissect one, before the whole species dies off."
 
-&mdash; [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/character.php?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
