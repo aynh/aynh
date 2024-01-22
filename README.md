@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Against the power of will I posses... The capability of my body is nothing."
+> "It's called a miracle because it doesn't happen."
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Shiori Misaka**](https://myanimelist.net/character.php?q=Shiori%20Misaka&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
