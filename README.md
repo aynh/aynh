@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Right, It's too late for doubts now. There is no returning from this place I've come to."
+> "I’m not going to apologize. This is an absurd, unfair world."
 
-&mdash; [**Inaho Kaizuka**](https://myanimelist.net/character.php?q=Inaho%20Kaizuka&cat=character), [**Aldnoah.Zero 2nd Season**](https://myanimelist.net/search/all?q=Aldnoah.Zero%202nd%20Season&cat=all)
+&mdash; [**Yahiro Samukawa**](https://myanimelist.net/character.php?q=Yahiro%20Samukawa&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
