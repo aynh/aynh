@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Throughout my life, the moments, and people who have defined me... they have all been illuminated by sparks."
+> "Against the power of will I posses... The capability of my body is nothing."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
