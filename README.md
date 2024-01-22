@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A past will chase you if you try to escape from it, but once you confront it, it's just an old memory inside you."
+> "Excavating won't always get you what you want. Maybe after digging, nothing will come out at all. That's why I love it. Because if we don't try, we would never find anything."
 
-&mdash; [**Saiyuki**](https://myanimelist.net/character.php?q=Saiyuki&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Noriyasu Seta**](https://myanimelist.net/character.php?q=Noriyasu%20Seta&cat=character), [**Love Hina**](https://myanimelist.net/search/all?q=Love%20Hina&cat=all)
