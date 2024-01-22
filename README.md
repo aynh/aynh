@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is simply an electrical bug in the human neural circuit."
+> "I believe that some truths should never be known."
 
-&mdash; [**Akasaka Ryuunosuke**](https://myanimelist.net/character.php?q=Akasaka%20Ryuunosuke&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Konoha Inoue**](https://myanimelist.net/character.php?q=Konoha%20Inoue&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
