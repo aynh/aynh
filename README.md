@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A rose will be born a rose. Different soil and water wouldn't change it into a different flower."
+> "It's alright to feel sad. When you're sad, you should experience that sorrow fully. It's not too late to move on after that."
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**Kara no Kyoukai**](https://myanimelist.net/search/all?q=Kara%20no%20Kyoukai&cat=all)
+&mdash; [**Urutori**](https://myanimelist.net/character.php?q=Urutori&cat=character), [**Utawarerumono**](https://myanimelist.net/search/all?q=Utawarerumono&cat=all)
