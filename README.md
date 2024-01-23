@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is good. It changes people, for better or for worse. You could look at it as a chance for you to change. The best kind of love helps you grow up."
+> "The only ones that can miss a kick draw match are those who have enough courage to kick it."
 
-&mdash; [**Misawa Mitsuyoshi**](https://myanimelist.net/character.php?q=Misawa%20Mitsuyoshi&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
