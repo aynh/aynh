@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The weak can never break out of their own mold. They cry piteously within their cells, while they try to kick down anyone who strives to break free."
+> "It sucks, but you can't reach a happy ending just by doing what's right all the time. Actually, the more people get stubborn and insist they're in the right, the further away happiness gets."
 
-&mdash; [**Moral**](https://myanimelist.net/character.php?q=Moral&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
+&mdash; [**Junko Kaname**](https://myanimelist.net/character.php?q=Junko%20Kaname&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
