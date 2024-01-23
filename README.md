@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've only seen one of my dances."
+> "The weak can never break out of their own mold. They cry piteously within their cells, while they try to kick down anyone who strives to break free."
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Moral**](https://myanimelist.net/character.php?q=Moral&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
