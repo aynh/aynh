@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Isn't it okay? Even if you and someone meet for just a moment, that moment passes by...You might meet again somewhere, isn't that okay?'"
+> "All this time, I seriously thought that it's better to die than to live your life alone."
 
-&mdash; [**Lebanon**](https://myanimelist.net/character.php?q=Lebanon&cat=character), [**Darker than Black: Gemini of the Meteor**](https://myanimelist.net/search/all?q=Darker%20than%20Black%3A%20Gemini%20of%20the%20Meteor&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
