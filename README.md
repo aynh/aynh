@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's called a miracle because it doesn't happen."
+> "A rose will be born a rose. Different soil and water wouldn't change it into a different flower."
 
-&mdash; [**Shiori Misaka**](https://myanimelist.net/character.php?q=Shiori%20Misaka&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**Kara no Kyoukai**](https://myanimelist.net/search/all?q=Kara%20no%20Kyoukai&cat=all)
