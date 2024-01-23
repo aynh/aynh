@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "* The Zone * In this state of extreme focus, all unnecessary thoughts disappear and the athlete becomes absorbed in his play. Only those who have practiced and practiced earn the right to stand before the door, and it only opens unpredictably. It is the ultimate domain, open only to the chosen."
+> "Love is good. It changes people, for better or for worse. You could look at it as a chance for you to change. The best kind of love helps you grow up."
 
-&mdash; [**Kuroko No Basket**](https://myanimelist.net/character.php?q=Kuroko%20No%20Basket&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Misawa Mitsuyoshi**](https://myanimelist.net/character.php?q=Misawa%20Mitsuyoshi&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
