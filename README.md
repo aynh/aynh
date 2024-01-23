@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Brilliant people shine more brightly than ordinary ones. They never regret or agonize over what they've done."
+> "The ordinary days that we live in may, in fact, be a series of miracles."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night: Unlimited Blade Works TV**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night%3A%20Unlimited%20Blade%20Works%20TV&cat=all)
+&mdash; [**Koujirou Sasahara**](https://myanimelist.net/character.php?q=Koujirou%20Sasahara&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
