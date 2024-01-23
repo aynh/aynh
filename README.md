@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The time when you're happy is also the time when you're afraid that the happiness will end."
+> "You cannot go into battle believing you will lose."
 
-&mdash; [**Subarashii Sekai**](https://myanimelist.net/character.php?q=Subarashii%20Sekai&cat=character), [**Subarashii Sekai**](https://myanimelist.net/search/all?q=Subarashii%20Sekai&cat=all)
+&mdash; [**Akisame Koetsuji**](https://myanimelist.net/character.php?q=Akisame%20Koetsuji&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
