@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[tsume bites into his neck] Let's meet up again in Paradise."
+> "The time when you're happy is also the time when you're afraid that the happiness will end."
 
-&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Subarashii Sekai**](https://myanimelist.net/character.php?q=Subarashii%20Sekai&cat=character), [**Subarashii Sekai**](https://myanimelist.net/search/all?q=Subarashii%20Sekai&cat=all)
