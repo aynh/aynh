@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's alright to feel sad. When you're sad, you should experience that sorrow fully. It's not too late to move on after that."
+> "'Isn't it okay? Even if you and someone meet for just a moment, that moment passes by...You might meet again somewhere, isn't that okay?'"
 
-&mdash; [**Urutori**](https://myanimelist.net/character.php?q=Urutori&cat=character), [**Utawarerumono**](https://myanimelist.net/search/all?q=Utawarerumono&cat=all)
+&mdash; [**Lebanon**](https://myanimelist.net/character.php?q=Lebanon&cat=character), [**Darker than Black: Gemini of the Meteor**](https://myanimelist.net/search/all?q=Darker%20than%20Black%3A%20Gemini%20of%20the%20Meteor&cat=all)
