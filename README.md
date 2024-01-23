@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The ordinary days that we live in may, in fact, be a series of miracles."
+> "For all my life... I've wanted strength. I didn't want those things precious to me to be taken away from me anymore. But, to have strength means to invite disaster to come to you. And strength alone can't really protect you."
 
-&mdash; [**Koujirou Sasahara**](https://myanimelist.net/character.php?q=Koujirou%20Sasahara&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
+&mdash; [**Kurogane**](https://myanimelist.net/character.php?q=Kurogane&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
