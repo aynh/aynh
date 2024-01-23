@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Ichigo] Try to stay alive, okay? That way, you and Kenny can play again some day!"
+> "[tsume bites into his neck] Let's meet up again in Paradise."
 
-&mdash; [**Kusajishi Yachiru**](https://myanimelist.net/character.php?q=Kusajishi%20Yachiru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
