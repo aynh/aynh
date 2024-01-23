@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't do any good to pretend you can't see what's going on."
+> "I'm neither a soldier, nor a brave man. Not to mention that running away isn't the same thing as losing. You only truly lose by dying. So as long you're alive, you win!"
 
-&mdash; [**Yuuya Mochizuki**](https://myanimelist.net/character.php?q=Yuuya%20Mochizuki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
+&mdash; [**Senator Figaro**](https://myanimelist.net/character.php?q=Senator%20Figaro&cat=character), [**Kakumeiki Valvrave**](https://myanimelist.net/search/all?q=Kakumeiki%20Valvrave&cat=all)
