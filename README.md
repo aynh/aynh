@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're a hero to other poor people, Fujioka. You've shown the world that even a poor person can excel at an elite private academy. It must be hard for you to constantly be looked down upon by others... Spurned, neglected, but that doesn't matter now. Long live the poor! We welcome you, poor man, to our world... of beauty!"
+> "Life is like a pencil that will surely run out, but will leave the beautiful writing of life."
 
-&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Nami**](https://myanimelist.net/character.php?q=Nami&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
