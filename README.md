@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Riku* At least I'm the cute one!!"
+> "To win, but not destroy; to conquer, but not humiliate: That is what true conquest is!"
 
-&mdash; [**Risa Harada**](https://myanimelist.net/character.php?q=Risa%20Harada&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
