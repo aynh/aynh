@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death and pain are just a small price to pay for the enjoyment of battle!"
+> "In reality, the least interesting answer is usually the correct one."
 
-&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tet**](https://myanimelist.net/character.php?q=Tet&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
