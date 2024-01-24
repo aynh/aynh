@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, the weak are the sustenance of the strong. The strong live, the weak die."
+> "I highly recommend pissing yourself followed by a course of praying to your impotent god."
 
-&mdash; [**Makoto Shishio**](https://myanimelist.net/character.php?q=Makoto%20Shishio&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Walter C. Dornez**](https://myanimelist.net/character.php?q=Walter%20C.%20Dornez&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
