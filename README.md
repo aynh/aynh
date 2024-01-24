@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bears are creatures that feel no insecurity in living alone. They're an animal that lives in isolation. Plus, they can hibernate. What a fabulous thing that is. If I were to be reborn, I definitely want to be a bear."
+> "You only need a strong will and a clear purpose."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Kureo Mado**](https://myanimelist.net/character.php?q=Kureo%20Mado&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
