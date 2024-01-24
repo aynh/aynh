@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is like a pencil that will surely run out, but will leave the beautiful writing of life."
+> "I’m a very lucky person. I was able to meet people I love."
 
-&mdash; [**Nami**](https://myanimelist.net/character.php?q=Nami&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Noumi Kudoryafuka**](https://myanimelist.net/character.php?q=Noumi%20Kudoryafuka&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
