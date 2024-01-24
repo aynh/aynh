@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Looks like Long Feng is long gone! (laughs) Oh, I've been waiting to use that one!"
+> "What value does your will have? I asked you what price it carries. If money is enough, is your will for sale? A will that can be bought with money... what's the meaning of that? If your will can be bought with money... then it will vanish along with that money. Am I wrong?"
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
