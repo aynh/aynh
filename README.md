@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You only need a strong will and a clear purpose."
+> "When you compare love and hate in this world... There is a lot more hate than love, and it's much stronger. So, if we consider every one of them as hate, we'll be right most of the time. I don't have time to pick out the truth anyway."
 
-&mdash; [**Kureo Mado**](https://myanimelist.net/character.php?q=Kureo%20Mado&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Nora Floriann Leoria**](https://myanimelist.net/character.php?q=Nora%20Floriann%20Leoria&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
