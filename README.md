@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What value does your will have? I asked you what price it carries. If money is enough, is your will for sale? A will that can be bought with money... what's the meaning of that? If your will can be bought with money... then it will vanish along with that money. Am I wrong?"
+> "In this world, the weak are the sustenance of the strong. The strong live, the weak die."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Makoto Shishio**](https://myanimelist.net/character.php?q=Makoto%20Shishio&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
