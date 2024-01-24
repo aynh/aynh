@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For all my life... I've wanted strength. I didn't want those things precious to me to be taken away from me anymore. But, to have strength means to invite disaster to come to you. And strength alone can't really protect you."
+> "How did I pass? She beat me like I owed her money."
 
-&mdash; [**Kurogane**](https://myanimelist.net/character.php?q=Kurogane&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
