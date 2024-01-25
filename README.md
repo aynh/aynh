@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That curse will spread throughout your whole body, bone and flesh alike and finally kill you. Now leave this place at sunrise. Return and *I* shall kill you."
+> "I am strong. Stronger than all of you. Extremely strong. I can kill all the titans out there. Even if I am alone."
 
-&mdash; [**Moro**](https://myanimelist.net/character.php?q=Moro&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
