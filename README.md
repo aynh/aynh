@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I choose my own battlefields. Not by my blood, but by my heart! I stand on the battlefield to protect what's important to me. And if anyone stands in my way, I don't care if it's one of my kind, my brother or anyone else… I'll crush them all!"
+> "I'm not sure why I've decided to do this. I'm not any stronger than I was, and nothing else has changed. But all the same, this time I'm not going to run away. It's okay to feel weak sometimes. It's okay to be afraid. The important thing is that we face our fears. That's... that's what makes us strong."
 
-&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
