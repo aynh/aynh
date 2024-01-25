@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey! Hold on, come back! I'll tell you what! I can lower those 1,000 provisions down to 800, just as long as you take part in the five hour story telling party."
+> "Family is the society that you came into contact with first; The people who influence you first. But if that first society banishes you, there will be another society that accepts you."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Reisi Munakata**](https://myanimelist.net/character.php?q=Reisi%20Munakata&cat=character), [**Project K: Days Of Blue**](https://myanimelist.net/search/all?q=Project%20K%3A%20Days%20Of%20Blue&cat=all)
