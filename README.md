@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not sure why I've decided to do this. I'm not any stronger than I was, and nothing else has changed. But all the same, this time I'm not going to run away. It's okay to feel weak sometimes. It's okay to be afraid. The important thing is that we face our fears. That's... that's what makes us strong."
+> "[To Waver] The path of devotion is a great labor. Do not ever mar it."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
