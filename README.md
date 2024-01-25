@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In order to accomplish something, first you had to believe in yourself that you could do it."
+> "Accept me for what I am today, don't reject me because of what I was yesterday."
 
-&mdash; [**Adlet Mayer**](https://myanimelist.net/character.php?q=Adlet%20Mayer&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
+&mdash; [**Russia**](https://myanimelist.net/character.php?q=Russia&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
