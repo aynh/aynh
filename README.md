@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am strong. Stronger than all of you. Extremely strong. I can kill all the titans out there. Even if I am alone."
+> "The world is beautiful. Even if you're full of tears and sadness, open your eyes. Do what you want to do. Be what you want to be. Find friends. Don't be in a hurry to grow up. Take your time."
 
-&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**CLANNAD**](https://myanimelist.net/character.php?q=CLANNAD&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
