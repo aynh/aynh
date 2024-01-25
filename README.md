@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is all about who lands the first punch!"
+> "Learn to treasure your life because unfortunately, it can be taken away from you anytime."
 
-&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
