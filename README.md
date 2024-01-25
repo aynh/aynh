@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Forget him. Forget his name. Forget his face. Forget his kiss, his warm embrace. Forget the love that you once knew. Remember he has someone new. Forget him when they played your song. Remember you cried all night long. Forget how close you once were. Remember he has chosen her. Forget how you memorized his walk. Forget the way he used to talk. Forget the things he used to say. Remember he has gone away. Forget his laugh. Forget his grin. Forget the dimples on his chin. Forget the way he held you tight. Remember he's with her tonight. Forget the time that went so fast. Forget the love that moved, it's past. Forget he said he'd leave you never. Remember he has gone forever..."
+> "I choose my own battlefields. Not by my blood, but by my heart! I stand on the battlefield to protect what's important to me. And if anyone stands in my way, I don't care if it's one of my kind, my brother or anyone else… I'll crush them all!"
 
-&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
