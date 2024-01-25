@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "While it takes time to recover from the loss of a loved one, having an opportunity to take your mind off things helps too."
+> "A person is very strong when he seeks to protect something."
 
-&mdash; [**Yogi**](https://myanimelist.net/character.php?q=Yogi&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
+&mdash; [**Akihiko Kayaba**](https://myanimelist.net/character.php?q=Akihiko%20Kayaba&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
