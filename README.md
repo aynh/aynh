@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Accept me for what I am today, don't reject me because of what I was yesterday."
+> "While it takes time to recover from the loss of a loved one, having an opportunity to take your mind off things helps too."
 
-&mdash; [**Russia**](https://myanimelist.net/character.php?q=Russia&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Yogi**](https://myanimelist.net/character.php?q=Yogi&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
