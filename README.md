@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To win, but not destroy; to conquer, but not humiliate: That is what true conquest is!"
+> "It's a mystery. Just because of a simple sentence... I get shaken... or I get happy. Kyo-kun is mysterious indeed. (After Kyo says, 'You wanna kill some time... with me?')"
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
