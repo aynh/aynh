@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think I finally understand... As long as there's someone who'll grieve, it's wrong to want to die."
+> "The sorrows of life...To not be able to live like yourself. The joys of life...To be able to die like yourself."
 
-&mdash; [**Hidehito Nomura**](https://myanimelist.net/character.php?q=Hidehito%20Nomura&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
+&mdash; [**Karren von Rosewald**](https://myanimelist.net/character.php?q=Karren%20von%20Rosewald&cat=character), [**Tokyo Ghoul:re**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%3Are&cat=all)
