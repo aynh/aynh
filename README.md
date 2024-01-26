@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sun, it's just a mass of hydrogen... Get too close to it and all you do is burn."
+> "Pain, suffering, sadness... We all accept it, and that's why we can move forward!"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Tooru Kazasumi**](https://myanimelist.net/character.php?q=Tooru%20Kazasumi&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
