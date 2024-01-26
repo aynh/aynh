@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Seeing the same thing at that time and place, either moving forward or running away... I suppose that's what separates those who are fit for battle from those who are not."
+> "No matter how much this world may change, I shall always remain myself."
 
-&mdash; [**Irene**](https://myanimelist.net/character.php?q=Irene&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Jurai Andou**](https://myanimelist.net/character.php?q=Jurai%20Andou&cat=character), [**Inou-Battle wa Nichijou-kei no Naka de**](https://myanimelist.net/search/all?q=Inou-Battle%20wa%20Nichijou-kei%20no%20Naka%20de&cat=all)
