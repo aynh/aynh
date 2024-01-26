@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The sorrows of life...To not be able to live like yourself. The joys of life...To be able to die like yourself."
+> "Excavating won't always get you what you want. Maybe after digging, nothing will come out at all. That's why I love it. Because if we don't try, we would never find anything."
 
-&mdash; [**Karren von Rosewald**](https://myanimelist.net/character.php?q=Karren%20von%20Rosewald&cat=character), [**Tokyo Ghoul:re**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%3Are&cat=all)
+&mdash; [**Noriyasu Seta**](https://myanimelist.net/character.php?q=Noriyasu%20Seta&cat=character), [**Love Hina**](https://myanimelist.net/search/all?q=Love%20Hina&cat=all)
