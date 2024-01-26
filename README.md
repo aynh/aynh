@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pain, suffering, sadness... We all accept it, and that's why we can move forward!"
+> "I can hardly tell anymore where the truth ends and the lies begin."
 
-&mdash; [**Tooru Kazasumi**](https://myanimelist.net/character.php?q=Tooru%20Kazasumi&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
+&mdash; [**Naota Nandaba**](https://myanimelist.net/character.php?q=Naota%20Nandaba&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
