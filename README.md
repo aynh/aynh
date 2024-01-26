@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People can only truly understand things that they've actually experienced."
+> "Sun, it's just a mass of hydrogen... Get too close to it and all you do is burn."
 
-&mdash; [**Lichtendahl Tsery**](https://myanimelist.net/character.php?q=Lichtendahl%20Tsery&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
