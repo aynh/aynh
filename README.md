@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What If I didn't fold the toilet paper? Something like that could ruin my life forever. I can't be defeated by toilet paper, if I turn my back on this I shouldn't be allowed to live anymore."
+> "I think I finally understand... As long as there's someone who'll grieve, it's wrong to want to die."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Hidehito Nomura**](https://myanimelist.net/character.php?q=Hidehito%20Nomura&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
