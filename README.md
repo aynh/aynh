@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is a poor knight indeed who slays one who defies him. The key is to show yourself to be superior that they will not defy you in the first place."
+> "If you're just living for your own sake, it's all up to you. No hard feelings. No regrets."
 
-&mdash; [**Slaine Troyard**](https://myanimelist.net/character.php?q=Slaine%20Troyard&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
+&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
