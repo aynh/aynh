@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who a person hangs out with is their choice. And I couldn't care less about rumors. Until I tried talking to them myself, I wouldn't know..."
+> "I don't like lectures from someone who plays fixed matches."
 
-&mdash; [**Shougo Kiryuu**](https://myanimelist.net/character.php?q=Shougo%20Kiryuu&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
+&mdash; [**Ryoma Echizen**](https://myanimelist.net/character.php?q=Ryoma%20Echizen&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
