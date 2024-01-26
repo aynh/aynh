@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Excavating won't always get you what you want. Maybe after digging, nothing will come out at all. That's why I love it. Because if we don't try, we would never find anything."
+> "People can only truly understand things that they've actually experienced."
 
-&mdash; [**Noriyasu Seta**](https://myanimelist.net/character.php?q=Noriyasu%20Seta&cat=character), [**Love Hina**](https://myanimelist.net/search/all?q=Love%20Hina&cat=all)
+&mdash; [**Lichtendahl Tsery**](https://myanimelist.net/character.php?q=Lichtendahl%20Tsery&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
