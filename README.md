@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We might be scared but that's what makes us stronger!"
+> "It's a battle of life and death, and I'm still alive! So I'm not going to give up, and I'll keep living. I'll keep living until I die."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
