@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I can't even manage a polite smile, I'll be in trouble in the real world."
+> "Have you ever thought about why you're so good and your parents are so bad? If you'd so kindly let me give away the answer; it's because even if you're cheating on someone or you're being cheated on, everyone laughs at bad jokes and eats over-sweet boiled vegetables."
 
-&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
