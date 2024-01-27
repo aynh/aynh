@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The human heart will always sway. And only then do we know that it is truly a human heart."
+> "The more you want something, the harder it is to wait for it."
 
-&mdash; [**Sister Libelle**](https://myanimelist.net/character.php?q=Sister%20Libelle&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Kabuto Yakushi**](https://myanimelist.net/character.php?q=Kabuto%20Yakushi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
