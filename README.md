@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Have you ever thought about why you're so good and your parents are so bad? If you'd so kindly let me give away the answer; it's because even if you're cheating on someone or you're being cheated on, everyone laughs at bad jokes and eats over-sweet boiled vegetables."
+> "When boys get to a certain age, family becomes a bother. That's how they become independent."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
