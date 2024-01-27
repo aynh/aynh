@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more you want something, the harder it is to wait for it."
+> "Ephemeral and brilliant one, fall to my embrace. That is my decision."
 
-&mdash; [**Kabuto Yakushi**](https://myanimelist.net/character.php?q=Kabuto%20Yakushi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
