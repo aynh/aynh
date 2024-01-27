@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "An apple a day keeps any one away, if you throw it hard enough!"
+> "You can't end a good party without someone on the floor."
 
-&mdash; [**Marie Mjolnir**](https://myanimelist.net/character.php?q=Marie%20Mjolnir&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
