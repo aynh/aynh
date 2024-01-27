@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They have no faces, no mouths... Their slimy bodies are completely hairless! They are... the skinned chickens!... Or you could just say they're chickens."
+> "A certain scripture mentions that humans are superior to angels. Why? Because there are people who know of evil, but do not become evil. It's different from angels, who know only of good since birth. Humans have evil, but can live as good, so they are superior to angels, who know only good."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
