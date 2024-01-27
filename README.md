@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ephemeral and brilliant one, fall to my embrace. That is my decision."
+> "If I can't even manage a polite smile, I'll be in trouble in the real world."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
