@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A drama has a progressive thought, an emotional climax and a resolution, but our lives aren't like that. All we get day after day, are a bunch of vague anxieties that are never really resolved."
+> "Screw you, future me!"
 
-&mdash; [**Kaoru Yamazaki**](https://myanimelist.net/character.php?q=Kaoru%20Yamazaki&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
+&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
