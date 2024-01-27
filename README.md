@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "With kindness comes naivete. Courage becomes foolhardiness. And dedication has no reward. If you can't accept any of that, you are not fit to be a magical girl."
+> "People's lives don't end when they die. It ends when they lose faith."
 
-&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
