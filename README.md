@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether you walk or run, the destination won't change. So then... You might as well run there!!!"
+> "I understand the pain of losing a comrade. I've experienced it, too. Please do not forget the pain. You will move forward while holding on to that pain. Please treasure the comrades you have now. Once they are gone, they will not return. Usually, you don't realize this until afterwards."
 
-&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Shinohara**](https://myanimelist.net/character.php?q=Shinohara&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
