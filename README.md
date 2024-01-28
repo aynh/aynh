@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death is simply another stage of our life."
+> "It's you that I want. Do you not want me? Don't you want to be together? (to Rin)"
 
-&mdash; [**Grand Elder Guru**](https://myanimelist.net/character.php?q=Grand%20Elder%20Guru&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
