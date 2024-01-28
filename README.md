@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your name sounds like an air conditioner."
+> "Use the Spirit Wave to float on top of the spike. Good. Now we'll hold this for twelve hours."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
