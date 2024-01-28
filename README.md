@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We've just witnessed a classic example of what I like to call 'misdirected rage'. Though I believe the technical term is being an ass."
+> "You're right, all efforts are pointless... If you don't believe in yourself."
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Might Guy**](https://myanimelist.net/character.php?q=Might%20Guy&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
