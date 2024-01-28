@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...Watermelon. Or like a panda with a mean face, or like sandals with pressure points drawn on them, or the smell of a blackboard eraser, or a Sunday morning where you wake up and it's raining. Well, I like him more than hard bread."
+> "[with a bow and arrow ready to fire] Not as pretty as his, huh? What would you know about it? You live in a time where they don't even have SHAMPOO."
 
-&mdash; [**Mamimi Samejima**](https://myanimelist.net/character.php?q=Mamimi%20Samejima&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
