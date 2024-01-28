@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All living things eventually die. It's unavoidable. But as long as you remember, it will live on in your heart forever."
+> "It's odd, isn't it? People die everyday and the world goes on like nothing happened."
 
-&mdash; [**Lisanna Strauss**](https://myanimelist.net/character.php?q=Lisanna%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kyōko Kirigiri**](https://myanimelist.net/character.php?q=Ky%C5%8Dko%20Kirigiri&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
