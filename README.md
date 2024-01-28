@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You got away with just physical damage, but I'm going to take CRITICAL MENTAL DAMAGE!"
+> "The time known as 'LIFE', cannot be rewound."
 
-&mdash; [**Ooyama**](https://myanimelist.net/character.php?q=Ooyama&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Ultear Milkovich**](https://myanimelist.net/character.php?q=Ultear%20Milkovich&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
