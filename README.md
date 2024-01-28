@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I understand the pain of losing a comrade. I've experienced it, too. Please do not forget the pain. You will move forward while holding on to that pain. Please treasure the comrades you have now. Once they are gone, they will not return. Usually, you don't realize this until afterwards."
+> "All waves, rise now and become my shield, lightning, strike now and become my blade! Sōgyo no Kotowari!"
 
-&mdash; [**Shinohara**](https://myanimelist.net/character.php?q=Shinohara&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
