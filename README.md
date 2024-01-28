@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Use the Spirit Wave to float on top of the spike. Good. Now we'll hold this for twelve hours."
+> "The fact that you consider yourself as an equal to me, is being arrogant in itself."
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
