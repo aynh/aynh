@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if Hell is where we're headed. You people might not have found it, but we're going to. We will find Paradise."
+> "You couldn't save your mom because you... weren't strong enough. I didn't face the Titan... because I wasn't brave enough."
 
-&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Hannes**](https://myanimelist.net/character.php?q=Hannes&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
