@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're right, all efforts are pointless... If you don't believe in yourself."
+> "Your name sounds like an air conditioner."
 
-&mdash; [**Might Guy**](https://myanimelist.net/character.php?q=Might%20Guy&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
