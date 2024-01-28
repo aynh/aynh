@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All waves, rise now and become my shield, lightning, strike now and become my blade! Sōgyo no Kotowari!"
+> "All living things eventually die. It's unavoidable. But as long as you remember, it will live on in your heart forever."
 
-&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Lisanna Strauss**](https://myanimelist.net/character.php?q=Lisanna%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
