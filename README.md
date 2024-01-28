@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[with a bow and arrow ready to fire] Not as pretty as his, huh? What would you know about it? You live in a time where they don't even have SHAMPOO."
+> "Even if Hell is where we're headed. You people might not have found it, but we're going to. We will find Paradise."
 
-&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
