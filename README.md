@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Um, if we encounter the Angel here, I'm going to pee buckets on the spot!"
+> "To fight...Or to live...Choose."
 
-&mdash; [**Yui**](https://myanimelist.net/character.php?q=Yui&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Zangetsu**](https://myanimelist.net/character.php?q=Zangetsu&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
