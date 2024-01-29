@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[thinking] I only take family as patients and I still get worked to death."
+> "I yearn for you more than anyone else. I love you Akito... And that is the irrevocable unwavering truth.(shigures answer to akitos question 'do you like me?' during a child hood flashback)"
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
