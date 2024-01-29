@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To fight...Or to live...Choose."
+> "You guys sure are a worthless bunch. If you wanna wallow in your tears, save it for after you've done everything you can!"
 
-&mdash; [**Zangetsu**](https://myanimelist.net/character.php?q=Zangetsu&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Seiya Kanie**](https://myanimelist.net/character.php?q=Seiya%20Kanie&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
