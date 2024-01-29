@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't like men with glasses."
+> "Y-you actually used your head??? You're going to get a fever!"
 
-&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Tobio Kageyama**](https://myanimelist.net/character.php?q=Tobio%20Kageyama&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
