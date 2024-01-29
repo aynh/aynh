@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm gonna take my place as a true member of this family!"
+> "I was able to become strong because I still believe those words. That a man can't become strong for revenge's sake. He becomes strong because he believes in something."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Adlet Mayer**](https://myanimelist.net/character.php?q=Adlet%20Mayer&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
