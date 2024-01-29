@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Y-you actually used your head??? You're going to get a fever!"
+> "You came into my life as a story, you left as a legend."
 
-&mdash; [**Tobio Kageyama**](https://myanimelist.net/character.php?q=Tobio%20Kageyama&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Reborn**](https://myanimelist.net/character.php?q=Reborn&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
