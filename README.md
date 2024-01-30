@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The ordinary days that we live in may, in fact, be a series of miracles."
+> "All suffering in the world is born from an individual's incompetence."
 
-&mdash; [**Koujirou Sasahara**](https://myanimelist.net/character.php?q=Koujirou%20Sasahara&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
+&mdash; [**Yakumo Oomori**](https://myanimelist.net/character.php?q=Yakumo%20Oomori&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
