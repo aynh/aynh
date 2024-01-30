@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Children aren't sweet or innocent. The weird ones are left unchecked. It's rare to find anyone you can trust!"
+> "I'm not stupid. I'm just too lazy to show how smart I am."
 
-&mdash; [**Y**](https://myanimelist.net/character.php?q=Y&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
