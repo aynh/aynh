@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's because we don't unterstand! It's because we don't unterstand that we wonder what the other is thinking and try desperately to unterstand every word they say... You end up thinking too much about the other person, and being close to them becomes painful so you try to distance yourself... I believe you become friends with somebody by doing that over and over, and that's how... As much as I hate to admit it, it's how I became friends with these guys."
+> "I want everyone to feel safe again soon...I want this to be a world where people can without fighting each other."
 
-&mdash; [**Maki Honoka**](https://myanimelist.net/character.php?q=Maki%20Honoka&cat=character), [**Kiznaiver**](https://myanimelist.net/search/all?q=Kiznaiver&cat=all)
+&mdash; [**Hange Zoe**](https://myanimelist.net/character.php?q=Hange%20Zoe&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
