@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh man, my heart is pounding. I'm eating snacks in the middle of class! I ate it! I totally ate it! Boldly eating snacks in the middle of class! I'm being so reckless!"
+> "Awww maaan, and I really didn't feel like using it this early either. Better watch closely, and make sure you don't tell a soul! Bankai!!"
 
-&mdash; [**Ooyama**](https://myanimelist.net/character.php?q=Ooyama&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
