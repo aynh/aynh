@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regret is the domain of those who have earned the right to look back at the past. All I have is shame."
+> "Without you, all my plans are suddenly possible. I have a vision for the future, Roku."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Sozin**](https://myanimelist.net/character.php?q=Sozin&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
