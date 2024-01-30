@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "....Would you consider dying together 'Teamwork' as well?"
+> "If they're not given a problem, if they're unable to find a reason, some people can't bring themselves to act. Maybe I got something wrong somewhere. Only that bit of doubt stayed with me."
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
