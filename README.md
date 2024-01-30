@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You won't survive if you just let your boiling blood dictate your actions."
+> "The ordinary days that we live in may, in fact, be a series of miracles."
 
-&mdash; [**Bulat**](https://myanimelist.net/character.php?q=Bulat&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Koujirou Sasahara**](https://myanimelist.net/character.php?q=Koujirou%20Sasahara&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
