@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If they're not given a problem, if they're unable to find a reason, some people can't bring themselves to act. Maybe I got something wrong somewhere. Only that bit of doubt stayed with me."
+> "Is 'defeat' proof that you are weak? Isn't 'defeat' more like a trial to overcome? Of whether you can stand up and walk again after falling to you knees? If you remain on your knees like that, then it would be a sign of weakness."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Ittetsu Takeda**](https://myanimelist.net/character.php?q=Ittetsu%20Takeda&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
