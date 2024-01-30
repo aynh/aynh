@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We believe that God exists. And he exists because we exist."
+> "Regret is the domain of those who have earned the right to look back at the past. All I have is shame."
 
-&mdash; [**Itsuki Koizumi**](https://myanimelist.net/character.php?q=Itsuki%20Koizumi&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
