@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is 'defeat' proof that you are weak? Isn't 'defeat' more like a trial to overcome? Of whether you can stand up and walk again after falling to you knees? If you remain on your knees like that, then it would be a sign of weakness."
+> "Children aren't sweet or innocent. The weird ones are left unchecked. It's rare to find anyone you can trust!"
 
-&mdash; [**Ittetsu Takeda**](https://myanimelist.net/character.php?q=Ittetsu%20Takeda&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Y**](https://myanimelist.net/character.php?q=Y&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
