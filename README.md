@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To wish for your own happiness is sometimes coupled with another's unhappiness. Since I couldn't pray for my own happiness, I prayed to the moon in the night sky for the happiness of the one whose warm hand I held."
+> "What is important to survival isn't the ability to hide and protect yourself, it is to stand up and fight the Kabane."
 
-&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Biba Amatori**](https://myanimelist.net/character.php?q=Biba%20Amatori&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
