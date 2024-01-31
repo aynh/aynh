@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as you laugh at people's suffering, your goal will always be out of reach. If you never want to be defeated, you must first learn your own weakness, and always be kind."
+> "Look what happens when you're not fast enough! You get CUT! It's more fun when it hurts a little bit though, isn't it?"
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Grell Sutcliff**](https://myanimelist.net/character.php?q=Grell%20Sutcliff&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
