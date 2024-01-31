@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not asking you to love me. No, actually, please don't love me. But please let me be in love with you."
+> "Stop living in the past like an old man."
 
-&mdash; [**Fuyou Kaede**](https://myanimelist.net/character.php?q=Fuyou%20Kaede&cat=character), [**Shuffle!**](https://myanimelist.net/search/all?q=Shuffle!&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
