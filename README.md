@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Plainly speaking war is nothing other than 'wanting to impose your beliefs on your opponent.' It only happens for that reason. You don't have any exception to that rule."
+> "I thought that would be the only way I could become the world's strongest man. But you know... It didn't work. Your heart isn't something you can get rid of. If you're trying to get rid of your heart, your heart is making you do it. You can never abandon everything to get stronger. The one thing you can never stop is falling in love with someone!"
 
-&mdash; [**Koumei Ren**](https://myanimelist.net/character.php?q=Koumei%20Ren&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
+&mdash; [**Adlet Mayer**](https://myanimelist.net/character.php?q=Adlet%20Mayer&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
