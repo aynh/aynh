@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey, I'll have you know that I almost really did kick the bucket during that training, so don't you dare sum it all up in one word, even if it is a nice one like 'potential'."
+> "It's okay to set your goals high; that's what we call a dream!"
 
-&mdash; [**Sanosuke Sagara**](https://myanimelist.net/character.php?q=Sanosuke%20Sagara&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Tatsuhiko Ookuma**](https://myanimelist.net/character.php?q=Tatsuhiko%20Ookuma&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
