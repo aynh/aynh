@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What defines humans... Defines us? Nobody will notice a change on the inside if you look the same on the outside."
+> "Live well, Ichigo. Live well, age well, go bald well, and die after me. And... if you can, die smiling."
 
-&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
