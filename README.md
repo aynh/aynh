@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is important to survival isn't the ability to hide and protect yourself, it is to stand up and fight the Kabane."
+> "Everyone can make a choice after they have learned what it will result in. It is so easy to say we should have done it this way afterwards. But you can't know what your choice will result in before actually choosing."
 
-&mdash; [**Biba Amatori**](https://myanimelist.net/character.php?q=Biba%20Amatori&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
