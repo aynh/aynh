@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have no fear of death. It just means dreaming in silence. A dream that lasts for eternity"
+> "What repulsive creature makes my eardrums bleed?"
 
-&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
