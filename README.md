@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone's fighting for their own kind of freedom. It seems small; but in their hearts, nothing is more important. With such hopes, I won't have enough time for revenge or fear, right?"
+> "Mankind has no time left."
 
-&mdash; [**Nagi Kengamine**](https://myanimelist.net/character.php?q=Nagi%20Kengamine&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Shinji Ikari**](https://myanimelist.net/character.php?q=Shinji%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
