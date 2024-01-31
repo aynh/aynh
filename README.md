@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What repulsive creature makes my eardrums bleed?"
+> "I'm not asking you to love me. No, actually, please don't love me. But please let me be in love with you."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Fuyou Kaede**](https://myanimelist.net/character.php?q=Fuyou%20Kaede&cat=character), [**Shuffle!**](https://myanimelist.net/search/all?q=Shuffle!&cat=all)
