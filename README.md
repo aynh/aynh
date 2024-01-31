@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you said that we were scary, that means deep down, you had started to care about us! The thought of losing someone again… That’s the scary part, right?"
+> "Anyone can smile if you give them something to be happy about."
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Setsuna F. Seiei**](https://myanimelist.net/character.php?q=Setsuna%20F.%20Seiei&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
