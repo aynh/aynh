@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To everything that comes near you, I am jealous."
+> "Is it really worth saving this sad and ugly world, when there is nothing left after it is saved? With all this death, cruelty and sadness, do you still want to become a hero?"
 
-&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
