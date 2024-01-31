@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't touch the poster at the Game Corner! There's no secret switch behind it!"
+> "I didn't come here to fight! I came here to hack at you violently!"
 
-&mdash; [**Rocket Grunt**](https://myanimelist.net/character.php?q=Rocket%20Grunt&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
