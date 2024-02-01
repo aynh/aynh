@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Finally I saw... A world so bright I almost wanted to cry... It was then, that my consciousness was engulfed in darkness."
+> "If you wanna talk to me, do it while I cut you to pieces. But, I'm not gonna hold back one bit! Bankai!"
 
-&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
