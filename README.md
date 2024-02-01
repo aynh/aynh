@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Identity? What? The people who yap about identities all the time are usually the ones with no identity. Like something that changes so easily could really be an 'identity', anyway."
+> "[possessed by a Hollow] Why do you keep calling my name so? Are you that worried about me? Are you that much in love with me, little girl? If you love me so much...I'll eat you first!"
 
-&mdash; [**Komachi Hikigaya**](https://myanimelist.net/character.php?q=Komachi%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
