@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Shadow and light are two sides of the same coin... One cannot exist without another."
+> "I've always been afraid...Always been pretending to follow you closely, always pretending to sharpen my fangs, when the truth is...I'm scared to death just treading on your shadow."
 
-&mdash; [**Princess Zelda**](https://myanimelist.net/character.php?q=Princess%20Zelda&cat=character), [**The Legend Of Zelda**](https://myanimelist.net/search/all?q=The%20Legend%20Of%20Zelda&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
