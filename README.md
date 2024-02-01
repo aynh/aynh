@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Strength begins in understanding your own weakness."
+> "Eat Harkonnen, bitch!"
 
-&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Seras Victoria**](https://myanimelist.net/character.php?q=Seras%20Victoria&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
