@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is it really worth saving this sad and ugly world, when there is nothing left after it is saved? With all this death, cruelty and sadness, do you still want to become a hero?"
+> "Finally I saw... A world so bright I almost wanted to cry... It was then, that my consciousness was engulfed in darkness."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
