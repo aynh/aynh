@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are... many types of monsters in this world: Monsters who will not show themselves and who cause trouble; monsters who abduct children; monsters who devour dreams; monsters who suck blood, and... monsters who always tell lies. Lying monsters are a real nuisance. They are much more cunning than other monsters. They pose as humans even though they have no understanding of the human heart. They eat even though they've never experienced hunger. They study even though they have no interest in academics. They seek friendship even though they do not know how to love. If I were to encounter such a monster, I would likely be eaten by it. Because in truth, I am that monster."
+> "Identity? What? The people who yap about identities all the time are usually the ones with no identity. Like something that changes so easily could really be an 'identity', anyway."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Komachi Hikigaya**](https://myanimelist.net/character.php?q=Komachi%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
