@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[possessed by a Hollow] Why do you keep calling my name so? Are you that worried about me? Are you that much in love with me, little girl? If you love me so much...I'll eat you first!"
+> "What the fuck is going on?!"
 
-&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Takashi Komuro**](https://myanimelist.net/character.php?q=Takashi%20Komuro&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
