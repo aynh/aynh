@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All I ever did was pay attention to myself. And I'm not even sure I saw myself clearly."
+> "Remember that a sword held by someone who is about to die… will never be able to protect anything."
 
-&mdash; [**Luke Fon Fabre**](https://myanimelist.net/character.php?q=Luke%20Fon%20Fabre&cat=character), [**Tales of the Abyss**](https://myanimelist.net/search/all?q=Tales%20of%20the%20Abyss&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
