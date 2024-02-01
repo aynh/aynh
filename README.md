@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey God, if you're there, my life has really sucked. So please, for once, let me have a sweet dream."
+> "Shadow and light are two sides of the same coin... One cannot exist without another."
 
-&mdash; [**Kyōko Sakura**](https://myanimelist.net/character.php?q=Ky%C5%8Dko%20Sakura&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Princess Zelda**](https://myanimelist.net/character.php?q=Princess%20Zelda&cat=character), [**The Legend Of Zelda**](https://myanimelist.net/search/all?q=The%20Legend%20Of%20Zelda&cat=all)
