@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Comrade isn't simply a word. Comrades are about heart. It's the unconditional trust in your partners. Please, feel free to lean on me.... And I, too, will lean on you as well."
+> "If I can, I'd prefer nobody to be sad."
 
-&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
