@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Eat Harkonnen, bitch!"
+> "Stop Whining! All I did was cut off your stupid legs! Summon your demons! Transform yourself! Regenerate your legs! Stand up! Pick up your gun and attack me! Do something! The night is still so young, and the real fun is yet to start! Hurry, hurry, hurry, HURRY!!!"
 
-&mdash; [**Seras Victoria**](https://myanimelist.net/character.php?q=Seras%20Victoria&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
