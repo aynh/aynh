@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A very small degree of hope is sufficient to cause the birth of love."
+> "Manga endings might always end the same. However, if it comes to life. Neither you or I are mere readers. We are writers. We can change the ending."
 
-&mdash; [**Sayonara Zetsubou Sensei**](https://myanimelist.net/character.php?q=Sayonara%20Zetsubou%20Sensei&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
