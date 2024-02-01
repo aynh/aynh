@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Manga endings might always end the same. However, if it comes to life. Neither you or I are mere readers. We are writers. We can change the ending."
+> "Strength begins in understanding your own weakness."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
