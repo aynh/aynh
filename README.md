@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*referring to Orochimaru* I am not his pawn..! He is the one, the only one who ever gave my life meaning!! But how could the likes of you EVER UNDERSTAND THAT?!?"
+> "Sometimes not lying can be a sin too, can't it?"
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Rokka Shimao**](https://myanimelist.net/character.php?q=Rokka%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
