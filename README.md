@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(to Kagura) Sorry that's your cue to say 'Shigure you perv' and roll your eyes, slap me, whatever."
+> "You can't feel lonely if there's no one else around."
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kenji Yamaguchi**](https://myanimelist.net/character.php?q=Kenji%20Yamaguchi&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
