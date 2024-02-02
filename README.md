@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I’m shown something so pure and innocent, I’m forced to see the filthy part of myself even more and it pisses me off."
+> "Don't tell me he wants to conquer the world? Can't he come up with something more original?"
 
-&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
