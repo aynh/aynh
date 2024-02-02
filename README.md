@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People can face tomorrow because they can see reality and accept it. By denying reality, you cloud up the present, and tomorrow will never come. No, you can cloud it up, but your tomorrow will be that much crueler."
+> "Nothing is forever. Everyone changes. They have to! Even I and so do you."
 
-&mdash; [**Kurokawa Mari**](https://myanimelist.net/character.php?q=Kurokawa%20Mari&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Nanoha Takamachi**](https://myanimelist.net/character.php?q=Nanoha%20Takamachi&cat=character), [**Mahou Shoujo Lyrical Nanoha**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Lyrical%20Nanoha&cat=all)
