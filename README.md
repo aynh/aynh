@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A mission's one thing, but I can't put them in danger for personal reasons. The only life I can do that to is my own."
+> "My obvious charms and god-like powers always dazzle the simple, ordinary folk."
 
-&mdash; [**Itami Youji**](https://myanimelist.net/character.php?q=Itami%20Youji&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Dark Schneider**](https://myanimelist.net/character.php?q=Dark%20Schneider&cat=character), [**Bastard**](https://myanimelist.net/search/all?q=Bastard&cat=all)
