@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why have I come to have this conscience? If it’s this agonizing, I shouldn’t have had it. Just what am I?"
+> "The Bird of the Hermes is my name, eating my wings to make me tame."
 
-&mdash; [**Alcor**](https://myanimelist.net/character.php?q=Alcor&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
