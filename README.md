@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Skipping school for one day might not be a problem, but if you skip for three days in a row, it'd be really hard to convince yourself to go back."
+> "You see, I really hate the word 'responsibility' saying something or doing something 'it's your responsibility' 'take responsibility' making a 'selection' always comes with 'responsibility.' That's why I abandoned 'selection' therefore, I don't have to bear any responsibility anymore."
 
-&mdash; [**Ushiromiya Ange**](https://myanimelist.net/character.php?q=Ushiromiya%20Ange&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Kuruwa Kimiharu**](https://myanimelist.net/character.php?q=Kuruwa%20Kimiharu&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
