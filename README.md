@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because of our broken instincts, we are in pain. We continue living in pain, because our instincts have been twisted by reason. So, what are we supposed to do? Should we abandon knowledge? Throw away reason? In any event, that wouldn't be possible. For better or for worse, we ate the fruit of knowledge long, long ago."
+> "Don't you think dreams and the Internet are similar? They are both areas where the repressed conscious mind vents."
 
-&mdash; [**Satou Tatsuhiro**](https://myanimelist.net/character.php?q=Satou%20Tatsuhiro&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
+&mdash; [**Atsuko Chiba**](https://myanimelist.net/character.php?q=Atsuko%20Chiba&cat=character), [**Paprika**](https://myanimelist.net/search/all?q=Paprika&cat=all)
