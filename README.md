@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't you think dreams and the Internet are similar? They are both areas where the repressed conscious mind vents."
+> "*referring to Orochimaru* I am not his pawn..! He is the one, the only one who ever gave my life meaning!! But how could the likes of you EVER UNDERSTAND THAT?!?"
 
-&mdash; [**Atsuko Chiba**](https://myanimelist.net/character.php?q=Atsuko%20Chiba&cat=character), [**Paprika**](https://myanimelist.net/search/all?q=Paprika&cat=all)
+&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
