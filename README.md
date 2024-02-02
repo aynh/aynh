@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing is forever. Everyone changes. They have to! Even I and so do you."
+> "The word 'ignorant' has a nice ring to it, so I don't mind being called that, but 'incompetent' is going just a bit too far..."
 
-&mdash; [**Nanoha Takamachi**](https://myanimelist.net/character.php?q=Nanoha%20Takamachi&cat=character), [**Mahou Shoujo Lyrical Nanoha**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Lyrical%20Nanoha&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
