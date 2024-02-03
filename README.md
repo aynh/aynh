@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm gonna take you out in one giant bug blitzkrieg!"
+> "What a silly little girl I was, thinking you would change. I should have known how you would turn out. You had it written in ugly black letters all across your soul."
 
-&mdash; [**Underwood Weevil**](https://myanimelist.net/character.php?q=Underwood%20Weevil&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
