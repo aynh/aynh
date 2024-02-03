@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I kinda like that about you. If only everyone had the guts to fight for each other like you do, the world might have been a better place."
+> "It must really be a lonelier journey than anyone could imagine. Cutting through absolute darkness, encountering nothing but the occasional hydrogen atom. Flying blindly into the abyss, believing therein lie the answers to the mysteries of the universe."
 
-&mdash; [**Maria Cadenzavna Eve**](https://myanimelist.net/character.php?q=Maria%20Cadenzavna%20Eve&cat=character), [**Senki Zesshō Symphogear G**](https://myanimelist.net/search/all?q=Senki%20Zessh%C5%8D%20Symphogear%20G&cat=all)
+&mdash; [**Takaki Toono**](https://myanimelist.net/character.php?q=Takaki%20Toono&cat=character), [**5 Centimeters per Second**](https://myanimelist.net/search/all?q=5%20Centimeters%20per%20Second&cat=all)
