@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Me personally, I like to work and train."
+> "It's not over yet. If we don't end it, nothing can start. Even if nothing at all begins, we must still put an end to it."
 
-&mdash; [**Goku**](https://myanimelist.net/character.php?q=Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
