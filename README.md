@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times when people who are different cannot understand each other. Even if you think you understand the other person, you really don't. And what awaits in the end, usually, is despair."
+> "I will acknowledge you as my enemy and destroy you."
 
-&mdash; [**Corticarte Apa Lagranges**](https://myanimelist.net/character.php?q=Corticarte%20Apa%20Lagranges&cat=character), [**Shinkyoku Soukai Polyphonica**](https://myanimelist.net/search/all?q=Shinkyoku%20Soukai%20Polyphonica&cat=all)
+&mdash; [**Acnologia**](https://myanimelist.net/character.php?q=Acnologia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
