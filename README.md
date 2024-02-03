@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who know how painful it can be to be alive, are fascinating."
+> "I kinda like that about you. If only everyone had the guts to fight for each other like you do, the world might have been a better place."
 
-&mdash; [**Soichiro Arima**](https://myanimelist.net/character.php?q=Soichiro%20Arima&cat=character), [**His and Her Circumstances**](https://myanimelist.net/search/all?q=His%20and%20Her%20Circumstances&cat=all)
+&mdash; [**Maria Cadenzavna Eve**](https://myanimelist.net/character.php?q=Maria%20Cadenzavna%20Eve&cat=character), [**Senki Zesshō Symphogear G**](https://myanimelist.net/search/all?q=Senki%20Zessh%C5%8D%20Symphogear%20G&cat=all)
