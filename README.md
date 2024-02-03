@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not like people only look for help by saying 'please help me.' In similiar vein, it's not like you're only in love with someone if you say 'I love you.' Everyone has things they can't say on impulse."
+> "Me? A liar? That's almost hurtful. I just don't feel like telling the whole truth."
 
-&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Nekomonogatari: Kuro**](https://myanimelist.net/search/all?q=Nekomonogatari%3A%20Kuro&cat=all)
+&mdash; [**William Macbeth**](https://myanimelist.net/character.php?q=William%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
