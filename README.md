@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So maybe I can't defend against attacks from multiple angles, but sometimes a good defense is just kicking ass!"
+> "I think running a restaurant would fit you better than being an assassin."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
