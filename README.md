@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not over yet. If we don't end it, nothing can start. Even if nothing at all begins, we must still put an end to it."
+> "We don't have to know what tomorrow holds! That's why we can live for everything we're worth today!"
 
-&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
