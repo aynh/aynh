@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Events that happen in this world, are a continuous series of trifling things, and within those myriad pieces of puzzles, there is always a fragment that leads to the truth."
+> "Isn’t it okay to consider sad or hard times as the seasoning that lets you enjoy life? You can change them inside yourself so that you can enjoy anything. It truly is a wonderful thing, living each day."
 
-&mdash; [**Kishou Arima**](https://myanimelist.net/character.php?q=Kishou%20Arima&cat=character), [**Tokyo Ghoul: Jack**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%3A%20Jack&cat=all)
+&mdash; [**Grandma Akino**](https://myanimelist.net/character.php?q=Grandma%20Akino&cat=character), [**Aria the Animation**](https://myanimelist.net/search/all?q=Aria%20the%20Animation&cat=all)
