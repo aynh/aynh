@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Me? A liar? That's almost hurtful. I just don't feel like telling the whole truth."
+> "People who know how painful it can be to be alive, are fascinating."
 
-&mdash; [**William Macbeth**](https://myanimelist.net/character.php?q=William%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Soichiro Arima**](https://myanimelist.net/character.php?q=Soichiro%20Arima&cat=character), [**His and Her Circumstances**](https://myanimelist.net/search/all?q=His%20and%20Her%20Circumstances&cat=all)
