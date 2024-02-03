@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Isn’t it okay to consider sad or hard times as the seasoning that lets you enjoy life? You can change them inside yourself so that you can enjoy anything. It truly is a wonderful thing, living each day."
+> "Why did he smile? Why? Did he know he would be saved? No. In that instant, he must have understood that his life was going to end. Death. He accepted it. He was fully prepared for it and smiled."
 
-&mdash; [**Grandma Akino**](https://myanimelist.net/character.php?q=Grandma%20Akino&cat=character), [**Aria the Animation**](https://myanimelist.net/search/all?q=Aria%20the%20Animation&cat=all)
+&mdash; [**Smoker**](https://myanimelist.net/character.php?q=Smoker&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
