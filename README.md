@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think running a restaurant would fit you better than being an assassin."
+> "Events that happen in this world, are a continuous series of trifling things, and within those myriad pieces of puzzles, there is always a fragment that leads to the truth."
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Kishou Arima**](https://myanimelist.net/character.php?q=Kishou%20Arima&cat=character), [**Tokyo Ghoul: Jack**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%3A%20Jack&cat=all)
