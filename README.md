@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I no longer even dream, for I no longer sleep. So I had this golden enclosed garden made. However, now the only place where I can be myself is in this room. And my wealth is just this one glass of water."
+> "I... the society I was in- says that if you don't have anything you want to do, then you're no good. That if you don't have dreams, you're no good. If you don't win, you're no good. If you can't get a nice life... if you can't accumulate a lot... then you aren't happy, they said. And yet... and yet, mom... I... I just wanted you to say that I'm fine how I am. That's all."
 
-&mdash; [**The Count of Monte Cristo**](https://myanimelist.net/character.php?q=The%20Count%20of%20Monte%20Cristo&cat=character), [**Gankutsuou: The Count of Monte Cristo**](https://myanimelist.net/search/all?q=Gankutsuou%3A%20The%20Count%20of%20Monte%20Cristo&cat=all)
+&mdash; [**Sei**](https://myanimelist.net/character.php?q=Sei&cat=character), [**Suicide Island**](https://myanimelist.net/search/all?q=Suicide%20Island&cat=all)
