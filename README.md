@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It must really be a lonelier journey than anyone could imagine. Cutting through absolute darkness, encountering nothing but the occasional hydrogen atom. Flying blindly into the abyss, believing therein lie the answers to the mysteries of the universe."
+> "We have a proud tradition of failure to uphold!"
 
-&mdash; [**Takaki Toono**](https://myanimelist.net/character.php?q=Takaki%20Toono&cat=character), [**5 Centimeters per Second**](https://myanimelist.net/search/all?q=5%20Centimeters%20per%20Second&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
