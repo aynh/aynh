@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more exciting it was to meet, the sadder it feels to say goodbye, right?"
+> "Kakarot, you’re quite impressive. I never stood a chance against Buu, you’re the only one who can fight him. I think I finally understand how a genius like myself can’t surpass you. I thought it was because you had something to protect. I thought your drive to protect allowed you to take advantage of your capabilities… this may have been a reason, but not I too have this drive. I fought to do as I wished, because it was fun to kill my enemies and feed my pride. But he’s different, he fights not to win but because he absolutely won’t lose, causing him to break his limits and he really doesn’t care who his opponent is. So when he didn’t kill me, it was because he saw I could care for others, like I do now… Go Kakarot, you’re number one!"
 
-&mdash; [**Haruto Kirishima**](https://myanimelist.net/character.php?q=Haruto%20Kirishima&cat=character), [**Kimi no Iru Machi**](https://myanimelist.net/search/all?q=Kimi%20no%20Iru%20Machi&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
