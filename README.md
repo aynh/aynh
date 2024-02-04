@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have no intention of reciprocating my daughter's feelings, do you? So what gives you the right to speak in that way? Perhaps you wish to appease your guilty conscience. Would you not call that 'hypocrisy'?"
+> "Is there truly any human who is not arrogant?"
 
-&mdash; [**Tachibana Chika**](https://myanimelist.net/character.php?q=Tachibana%20Chika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
