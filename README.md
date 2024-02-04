@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to know the truth, you must have the courage to accept it."
+> "If it's not enough to believe in justice, then I will become justice. I will seek out all evil in this world and wipe them out like the clouds in the sky. I swear I will...For justice."
 
-&mdash; [**Bear**](https://myanimelist.net/character.php?q=Bear&cat=character), [**.hack//SIGN**](https://myanimelist.net/search/all?q=.hack%2F%2FSIGN&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
