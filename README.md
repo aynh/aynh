@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it's not enough to believe in justice, then I will become justice. I will seek out all evil in this world and wipe them out like the clouds in the sky. I swear I will...For justice."
+> "It won't work. You country-bumpkins will stand out a mile. [Eats food with her hands]"
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
