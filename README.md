@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's how Sokka started. Now look at him! He thinks he's an Earthbender!"
+> "I will hunt down Kikyou's killer and avenge her death"
 
-&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
