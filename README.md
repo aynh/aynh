@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I... the society I was in- says that if you don't have anything you want to do, then you're no good. That if you don't have dreams, you're no good. If you don't win, you're no good. If you can't get a nice life... if you can't accumulate a lot... then you aren't happy, they said. And yet... and yet, mom... I... I just wanted you to say that I'm fine how I am. That's all."
+> "I thought I told you. If you see your allies losing, that's your chance. Don't step between them. Take the enemy down from behind. And if the enemy's so strong, you can't even do that, then just watch your allies get killed. That's what it means to be Special Forces."
 
-&mdash; [**Sei**](https://myanimelist.net/character.php?q=Sei&cat=character), [**Suicide Island**](https://myanimelist.net/search/all?q=Suicide%20Island&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
