@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I thought I told you. If you see your allies losing, that's your chance. Don't step between them. Take the enemy down from behind. And if the enemy's so strong, you can't even do that, then just watch your allies get killed. That's what it means to be Special Forces."
+> "Fighting without hope is no way to live. It's just a way to die."
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Éclair Farron**](https://myanimelist.net/character.php?q=%C3%89clair%20Farron&cat=character), [**Final Fantasy XIII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20XIII&cat=all)
