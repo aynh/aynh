@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Gin Ichimaru] If you make Hinamori shed even one drop of blood, I'll kill you."
+> "The more exciting it was to meet, the sadder it feels to say goodbye, right?"
 
-&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Haruto Kirishima**](https://myanimelist.net/character.php?q=Haruto%20Kirishima&cat=character), [**Kimi no Iru Machi**](https://myanimelist.net/search/all?q=Kimi%20no%20Iru%20Machi&cat=all)
