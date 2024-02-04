@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fighting without hope is no way to live. It's just a way to die."
+> "People aren't all perfect. They're weak, ugly, and they get jealous and try to bring others down. Oddly enough, the better you are, the harder it is to live. That's why I'm going to change this world and the people in it..."
 
-&mdash; [**Éclair Farron**](https://myanimelist.net/character.php?q=%C3%89clair%20Farron&cat=character), [**Final Fantasy XIII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20XIII&cat=all)
+&mdash; [**Yukino Yukinoshita**](https://myanimelist.net/character.php?q=Yukino%20Yukinoshita&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
