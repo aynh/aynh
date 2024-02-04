@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You shouldn't judge a person based on circumstantial evidence."
+> "If you want to know the truth, you must have the courage to accept it."
 
-&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Bear**](https://myanimelist.net/character.php?q=Bear&cat=character), [**.hack//SIGN**](https://myanimelist.net/search/all?q=.hack%2F%2FSIGN&cat=all)
