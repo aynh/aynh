@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It only took a moment for everything to click. In that instant, I understood. A leader is somebody who can bring a sense of calm and excitement at the same time."
+> "If there is such a thing like happiness in this world, it should resemble the endless nothingness. Nihility is having nothing and having nothing to lose. If that isn't happiness... then what is?"
 
-&mdash; [**Mutta Namba**](https://myanimelist.net/character.php?q=Mutta%20Namba&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
