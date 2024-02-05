@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The always naughty woodpecker. Today, too, you open holes and ruin the forest. The angry wood god turned your beak to poison. Poor woodpecker, your nest has been poisoned. Your food has been poisoned. If you touch your friends, they all die. The sad little woodpecker. Your tears of poison sparkle brightly..."
+> "Listen up, I don't care what you punks do around the universe. But with this, my sword… anywhere it can reach, is part of my country! Asses who blunder in and violate my things… whether it be a Shogun, whether it be space pirates, whether it be a meteorite - I'll destroy them!!"
 
-&mdash; [**Shiro**](https://myanimelist.net/character.php?q=Shiro&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
