@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Sees Yoruichi in cat form] Yes! It's Yoruichi! You've come back! Ha ha ha!! [Picks her up] Come here you little devil, let me take a look at you! You're my fuzzy little troublemaker, yes you are! Now who's your daddy? Hmm?"
+> "The legendary super-skill of the Scythe-Meister! Witch Hunter!"
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
