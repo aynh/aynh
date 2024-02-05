@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're thinking in Japanese! If you must think, do it in German!"
+> "If there's no door, then I'll make one!"
 
-&mdash; [**Souryuu Asuka Langley**](https://myanimelist.net/character.php?q=Souryuu%20Asuka%20Langley&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
