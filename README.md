@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All heroes have established their thrones atop, not just their enemies. But a large quantity of allied corpses as well. There are no monarchs with clean hands."
+> "That's not love... A heroine's love is supposed to be sincere! If you can immediately move on and find someone new, it isn't love!"
 
-&mdash; [**Paul von Oberstein**](https://myanimelist.net/character.php?q=Paul%20von%20Oberstein&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
