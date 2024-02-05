@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nobody is ever born into this world as a soldier."
+> "The role of the young is to break new ground without fear of failure. Remain in memories, not record books! Lose the battle, win the war!"
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Kawafuji Takao**](https://myanimelist.net/character.php?q=Kawafuji%20Takao&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
