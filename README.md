@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The role of the young is to break new ground without fear of failure. Remain in memories, not record books! Lose the battle, win the war!"
+> "It only took a moment for everything to click. In that instant, I understood. A leader is somebody who can bring a sense of calm and excitement at the same time."
 
-&mdash; [**Kawafuji Takao**](https://myanimelist.net/character.php?q=Kawafuji%20Takao&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
+&mdash; [**Mutta Namba**](https://myanimelist.net/character.php?q=Mutta%20Namba&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
