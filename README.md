@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have no intention of reciprocating my daughter's feelings, do you? So what gives you the right to speak in that way? Perhaps you wish to appease your guilty conscience. Would you not call that 'hypocrisy'?"
+> "No one cares about Araragi-kun."
 
-&mdash; [**Tachibana Chika**](https://myanimelist.net/character.php?q=Tachibana%20Chika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
