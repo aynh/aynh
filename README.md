@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there's no door, then I'll make one!"
+> "The always naughty woodpecker. Today, too, you open holes and ruin the forest. The angry wood god turned your beak to poison. Poor woodpecker, your nest has been poisoned. Your food has been poisoned. If you touch your friends, they all die. The sad little woodpecker. Your tears of poison sparkle brightly..."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Shiro**](https://myanimelist.net/character.php?q=Shiro&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
