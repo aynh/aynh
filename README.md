@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one cares about Araragi-kun."
+> "All heroes have established their thrones atop, not just their enemies. But a large quantity of allied corpses as well. There are no monarchs with clean hands."
 
-&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Paul von Oberstein**](https://myanimelist.net/character.php?q=Paul%20von%20Oberstein&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
