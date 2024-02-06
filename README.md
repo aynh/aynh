@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if all the confidence and pride you've built over the years is blown to pieces by a major failure, even if you've had a soul-crushing experience, you still have to open the shop the next day. That's who chefs are."
+> "Obviously you are underestimating Kurama. Do you know why I chose him to be my partner? To avoid fighting him myself. Watch, he's more cut-throat then I am when it comes to battle, and unbelievably precise."
 
-&mdash; [**Sōma Yukihira**](https://myanimelist.net/character.php?q=S%C5%8Dma%20Yukihira&cat=character), [**Shokugeki no Sōma: Ni no Sara**](https://myanimelist.net/search/all?q=Shokugeki%20no%20S%C5%8Dma%3A%20Ni%20no%20Sara&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
