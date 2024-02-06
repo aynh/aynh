@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I do not fear this new challenge, rather like a true warrior I will rise to meet it."
+> "When receiving an illogical favor from others, one should do the same to return the illogical favor."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Frontier Setter**](https://myanimelist.net/character.php?q=Frontier%20Setter&cat=character), [**Rakuen Tsuihō - Expelled from Paradise**](https://myanimelist.net/search/all?q=Rakuen%20Tsuih%C5%8D%20-%20Expelled%20from%20Paradise&cat=all)
