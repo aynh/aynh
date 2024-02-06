@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Say your prayers, wretches. Filth like you is even lower than Yoma. I'm going to kill... every last one of you."
+> "I do not fear this new challenge, rather like a true warrior I will rise to meet it."
 
-&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
