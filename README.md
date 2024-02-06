@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(thinking) I can't stand up...on my own. I can't go...any further. Not...all by myself."
+> "I want Dr. Verde's intellect. In all honesty I wish he were just a brain and nothing more."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Rokudou Mukuro**](https://myanimelist.net/character.php?q=Rokudou%20Mukuro&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
