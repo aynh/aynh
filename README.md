@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Always the same... Every age, every generation. Human beings are infinitely more cruel and selfish than any demon in hell."
+> "I'm no one. I don't want to be anyone. All I care about is completing the moon's eye plan. This world is completely worthless. There is nothing left in it but misery."
 
-&mdash; [**Dantalion**](https://myanimelist.net/character.php?q=Dantalion&cat=character), [**Makai Ouji : Devils And Realist**](https://myanimelist.net/search/all?q=Makai%20Ouji%20%3A%20Devils%20And%20Realist&cat=all)
+&mdash; [**Obito Uchiha**](https://myanimelist.net/character.php?q=Obito%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
