@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't achieve anything if you don't make a move. Love is an all-out assault."
+> "Always the same... Every age, every generation. Human beings are infinitely more cruel and selfish than any demon in hell."
 
-&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Dantalion**](https://myanimelist.net/character.php?q=Dantalion&cat=character), [**Makai Ouji : Devils And Realist**](https://myanimelist.net/search/all?q=Makai%20Ouji%20%3A%20Devils%20And%20Realist&cat=all)
