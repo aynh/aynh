@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My happiness can only be made by my own hands. My happiness doesn't depend on anyone but me!"
+> "Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt?"
 
-&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
