@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm no one. I don't want to be anyone. All I care about is completing the moon's eye plan. This world is completely worthless. There is nothing left in it but misery."
+> "What are you so hesitant about? It’s your dream, isn’t it? It’s right in front of you and you’re wavering? You gotta be reckless, and take whatever you can!"
 
-&mdash; [**Obito Uchiha**](https://myanimelist.net/character.php?q=Obito%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
