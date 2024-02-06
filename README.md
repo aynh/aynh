@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Becoming an adult is such a sad thing. If you have something dear to protect, you may end up at odds with yourself."
+> "I just told you what I think, now say something DAMMIT!"
 
-&mdash; [**Cthuko**](https://myanimelist.net/character.php?q=Cthuko&cat=character), [**Haiyore! Nyaruko-san**](https://myanimelist.net/search/all?q=Haiyore!%20Nyaruko-san&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
