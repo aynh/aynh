@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What are you so hesitant about? It’s your dream, isn’t it? It’s right in front of you and you’re wavering? You gotta be reckless, and take whatever you can!"
+> "To become Hokage is my dream!"
 
-&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
