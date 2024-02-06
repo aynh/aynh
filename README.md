@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt?"
+> "You can't achieve anything if you don't make a move. Love is an all-out assault."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
