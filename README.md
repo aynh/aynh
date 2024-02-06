@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To become Hokage is my dream!"
+> "Say your prayers, wretches. Filth like you is even lower than Yoma. I'm going to kill... every last one of you."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
