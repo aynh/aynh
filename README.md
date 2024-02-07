@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you're sincere about doing something, you're stalked by the fear that there's no turning back."
+> "You wouldn't get an answer no matter how much you think about it. Love is not Japanese nor Math. It doesn't need thoughts of reasons. You will be aware of it when that person is next to you."
 
-&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Yuyuka Nekota**](https://myanimelist.net/character.php?q=Yuyuka%20Nekota&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
