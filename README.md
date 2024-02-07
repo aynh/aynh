@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't be distracted by the what-if's, should-have's, and if-only's. The one thing you choose for yourself - that is the truth of your universe."
+> "What does someone who´s lost their standing want the most? That's simple. They want someone to find them, where they're standing."
 
-&mdash; [**Kamina**](https://myanimelist.net/character.php?q=Kamina&cat=character), [**Tengen Toppa Gurren Laggan**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Laggan&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
