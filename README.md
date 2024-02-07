@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Goodbyes aren't a one-sided affair!"
+> "When you're sincere about doing something, you're stalked by the fear that there's no turning back."
 
-&mdash; [**Tetsudō Hisakawa**](https://myanimelist.net/character.php?q=Tetsud%C5%8D%20Hisakawa&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
+&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
