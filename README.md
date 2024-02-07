@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But I think it’s natural that not everything you try will go well, right? So, I’m gonna start again from scratch."
+> "There is a word 'world'. Until about the time I was in middle school, I vaguely thought the word meant the area where the signals from my cell would reach."
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Voices of a Distant Star**](https://myanimelist.net/character.php?q=Voices%20of%20a%20Distant%20Star&cat=character), [**Voices of a Distant Star**](https://myanimelist.net/search/all?q=Voices%20of%20a%20Distant%20Star&cat=all)
