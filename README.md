@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ice can even stop the time of life itself. So, you'll never be able to catch up, for eternity. You'll always be stuck there, staring at the fairy's tail."
+> "There's nothing unusual here… The appropriate one stands in the appropriate place after the inappropriate ones have collapsed to the ground, defeated. There is nothing unexpected or odd about it. Because this is reality. Not one shred of uncertainty exists here. Not even fear, of course…"
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Asura**](https://myanimelist.net/character.php?q=Asura&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
