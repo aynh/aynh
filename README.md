@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You think you're special? You're not. Everyone lies, everyone hides things... Nobody makes it through this life being completely honest."
+> "But I think it’s natural that not everything you try will go well, right? So, I’m gonna start again from scratch."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
