@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[yelling angrily toward the sky] You've always thrown everything you could at me! Well, I can take it, and now I can give it back! Come on! STRIKE ME! You've never held back before!"
+> "You have gone and taken all those lives, and not even because you were thirsty! Is it fun... Huh! Is that what it takes for filth like you to get off..? Cheap little two bit terrors."
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
