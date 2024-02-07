@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This blank space represents infinite potential. One day, it may become anything."
+> "{TO NARUTO} Oh, by the way... I'm a boy"
 
-&mdash; [**No Game No Life**](https://myanimelist.net/character.php?q=No%20Game%20No%20Life&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
