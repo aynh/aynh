@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just told you what I think, now say something DAMMIT!"
+> "Children aren't sweet or innocent. The weird ones are left unchecked. It's rare to find anyone you can trust!"
 
-&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Y**](https://myanimelist.net/character.php?q=Y&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
