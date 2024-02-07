@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What does someone who´s lost their standing want the most? That's simple. They want someone to find them, where they're standing."
+> "This blank space represents infinite potential. One day, it may become anything."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**No Game No Life**](https://myanimelist.net/character.php?q=No%20Game%20No%20Life&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
