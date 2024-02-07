@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is a word 'world'. Until about the time I was in middle school, I vaguely thought the word meant the area where the signals from my cell would reach."
+> "There's no such thing as no such thing."
 
-&mdash; [**Voices of a Distant Star**](https://myanimelist.net/character.php?q=Voices%20of%20a%20Distant%20Star&cat=character), [**Voices of a Distant Star**](https://myanimelist.net/search/all?q=Voices%20of%20a%20Distant%20Star&cat=all)
+&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
