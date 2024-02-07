@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there's a start, there's a finish. There's no rain that doesn't stop falling at some point. Not as long as you're alive anyway."
+> "We don't look any different from those shinigami. We just dress diferently."
 
-&mdash; [**Ryōsuke Hazuki**](https://myanimelist.net/character.php?q=Ry%C5%8Dsuke%20Hazuki&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
+&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
