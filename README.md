@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The right to choose life or death lies with the victor. And the victor of this battle is me."
+> "YAAAAAAHHHHHHHOOOOOOOOOOOOOOOO!"
 
-&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
