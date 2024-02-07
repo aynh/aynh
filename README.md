@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You wouldn't get an answer no matter how much you think about it. Love is not Japanese nor Math. It doesn't need thoughts of reasons. You will be aware of it when that person is next to you."
+> "If you bottle up your sadness too much, you'll forget what's really important."
 
-&mdash; [**Yuyuka Nekota**](https://myanimelist.net/character.php?q=Yuyuka%20Nekota&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Yuki Takeya**](https://myanimelist.net/character.php?q=Yuki%20Takeya&cat=character), [**Gakkou Gurashi!**](https://myanimelist.net/search/all?q=Gakkou%20Gurashi!&cat=all)
