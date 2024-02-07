@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A city far away from my homeland.  There, after becoming acquainted with strangers, have I changed, perhaps?  That uncontrollable impulse I harbored within me...Has it faded away now, I wonder? What exactly am I doing here in this city?"
+> "[yelling angrily toward the sky] You've always thrown everything you could at me! Well, I can take it, and now I can give it back! Come on! STRIKE ME! You've never held back before!"
 
-&mdash; [**Vorona**](https://myanimelist.net/character.php?q=Vorona&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
