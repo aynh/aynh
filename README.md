@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are weak Mumei. But, that doesn't mean we just roll over and accept our fate."
+> "I want you to understand something. If you should lose, not only does your future end, but also the future of the one you are trying to protect. Defeat isn't an option for the sword that protects others. You should keep that thought engraved in your heart."
 
-&mdash; [**Ikoma**](https://myanimelist.net/character.php?q=Ikoma&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
