@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Before meeting you, I didn't know what it was like to feel lonely. I never even considered myself to be alone. That's because when you feel lonely, it means that there is someone for you to miss."
+> "If it’s an important memory, then you shouldn't forget it. Since those who aren't with us only live on in our memories."
 
-&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Wataru Takagi**](https://myanimelist.net/character.php?q=Wataru%20Takagi&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
