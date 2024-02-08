@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Seele Schneider isn't a sword. [strings the weapon on his bow] A Quincy's only weapons...Are bows and arrows. [fires the Seele Schneider]"
+> "It's stupid to talk about things you're not. Be yourself and you'll be fine."
 
-&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
