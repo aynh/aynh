@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how hard someone's heart is, if you keep on talking to them, little by little, it'll eventually start to crack! I believe it! I believe that useless effort doesn't exist in this world!"
+> "Ken-Chan!"
 
-&mdash; [**Ushiromiya Jessica**](https://myanimelist.net/character.php?q=Ushiromiya%20Jessica&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Kusajishi Yachiru**](https://myanimelist.net/character.php?q=Kusajishi%20Yachiru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
