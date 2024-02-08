@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't know what state you wounds are in, of where you're hurting if you don't know that for yourself, there's no point in trying to share it with others, is there?"
+> "Between being eternally unable to wake from a dream, and being eternally unable to dream, which do you think would be more unfortunate? Still, both the dream that we deemed eternal, and this very reality, are destined to end someday."
 
-&mdash; [**Hisomu Yoshiharu**](https://myanimelist.net/character.php?q=Hisomu%20Yoshiharu&cat=character), [**Kiznaiver**](https://myanimelist.net/search/all?q=Kiznaiver&cat=all)
+&mdash; [**Lau**](https://myanimelist.net/character.php?q=Lau&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
