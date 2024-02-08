@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kagome, what do you have in your bag? Rocks?"
+> "I'm a devilish and talented butler."
 
-&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Gian Carlo**](https://myanimelist.net/character.php?q=Gian%20Carlo&cat=character), [**Lucky Dog**](https://myanimelist.net/search/all?q=Lucky%20Dog&cat=all)
