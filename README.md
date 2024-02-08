@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Usually, he just abuses everyone. Normally, he's so sarcastic. But now he's holding me as if I were something precious."
+> "Stay the fuck back, you freak!"
 
-&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Saya Takagi**](https://myanimelist.net/character.php?q=Saya%20Takagi&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
