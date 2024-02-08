@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stay the fuck back, you freak!"
+> "Kagome, what do you have in your bag? Rocks?"
 
-&mdash; [**Saya Takagi**](https://myanimelist.net/character.php?q=Saya%20Takagi&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
