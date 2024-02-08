@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Girls' hearts are reflected by their underwear's color...!!"
+> "Hahahahahahahah! Now we'll see who has the last quack!"
 
-&mdash; [**Miyamura Toranosuke**](https://myanimelist.net/character.php?q=Miyamura%20Toranosuke&cat=character), [**Yamada-kun to 7-nin no Majo**](https://myanimelist.net/search/all?q=Yamada-kun%20to%207-nin%20no%20Majo&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
