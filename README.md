@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You were always smiling, real friendly like, but the way you smiled was so empty it hurt to watch you."
+> "Seele Schneider isn't a sword. [strings the weapon on his bow] A Quincy's only weapons...Are bows and arrows. [fires the Seele Schneider]"
 
-&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
