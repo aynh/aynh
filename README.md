@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trying without the winning intent is meaningless."
+> "Usually, he just abuses everyone. Normally, he's so sarcastic. But now he's holding me as if I were something precious."
 
-&mdash; [**Hiruma Youichi**](https://myanimelist.net/character.php?q=Hiruma%20Youichi&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
+&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
