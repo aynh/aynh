@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone dies eventually, whether they have power or not. That's why you need to think about what you'll accomplish while you're alive."
+> "Trying without the winning intent is meaningless."
 
-&mdash; [**Mary Macbeth**](https://myanimelist.net/character.php?q=Mary%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Hiruma Youichi**](https://myanimelist.net/character.php?q=Hiruma%20Youichi&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
