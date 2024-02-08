@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This world revolves around two views on the same thing. In addition, it's about laughable miseries."
+> "You're disgustingly hideous! What the hell kind of thing are you? I've never seen anything more messed up in my life! Do you know nothing about symmetry? Whoever made you should be dug up from his grave, shot and reburied! You make me violently ill."
 
-&mdash; [**Himura Yuu**](https://myanimelist.net/character.php?q=Himura%20Yuu&cat=character), [**ef - a tale of memories**](https://myanimelist.net/search/all?q=ef%20-%20a%20tale%20of%20memories&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
