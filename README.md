@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want you to understand something. If you should lose, not only does your future end, but also the future of the one you are trying to protect. Defeat isn't an option for the sword that protects others. You should keep that thought engraved in your heart."
+> "Everyone dies eventually, whether they have power or not. That's why you need to think about what you'll accomplish while you're alive."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Mary Macbeth**](https://myanimelist.net/character.php?q=Mary%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
