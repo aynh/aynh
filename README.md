@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We don't look any different from those shinigami. We just dress diferently."
+> "He who forgives and acknowledges himself... that is what it truly means to be strong!"
 
-&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
