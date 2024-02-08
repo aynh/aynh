@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He who forgives and acknowledges himself... that is what it truly means to be strong!"
+> "Girls' hearts are reflected by their underwear's color...!!"
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Miyamura Toranosuke**](https://myanimelist.net/character.php?q=Miyamura%20Toranosuke&cat=character), [**Yamada-kun to 7-nin no Majo**](https://myanimelist.net/search/all?q=Yamada-kun%20to%207-nin%20no%20Majo&cat=all)
