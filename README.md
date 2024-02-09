@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look straight at the people you kill; don't take your eyes off them for a second. And don't ever forget them because they won't forget you."
+> "To everything that comes near you, I am jealous."
 
-&mdash; [**Solf J. Kimblee**](https://myanimelist.net/character.php?q=Solf%20J.%20Kimblee&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
