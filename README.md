@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someday you'll let go of my hand. When you finally look to the far, far sky, I'll kick you from behind and laugh at you to hurry."
+> "I think there are some things that you have to do, even if they're a crime. Someone has to do them, even if it means taking the blame."
 
-&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Yuri Lowell**](https://myanimelist.net/character.php?q=Yuri%20Lowell&cat=character), [**Tales Of Vesperia**](https://myanimelist.net/search/all?q=Tales%20Of%20Vesperia&cat=all)
