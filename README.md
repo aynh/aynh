@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A wound of a heart is different from a flesh wound. Unlike a flesh wound, there are no ointments to heal it, and there are times when they never heal."
+> "{TO NARUTO} Oh, by the way... I'm a boy"
 
-&mdash; [**Yashamaru**](https://myanimelist.net/character.php?q=Yashamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
