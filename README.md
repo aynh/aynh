@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "{TO NARUTO} Oh, by the way... I'm a boy"
+> "The sorrows of life...To not be able to live like yourself. The joys of life...To be able to die like yourself."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Karren von Rosewald**](https://myanimelist.net/character.php?q=Karren%20von%20Rosewald&cat=character), [**Tokyo Ghoul:re**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%3Are&cat=all)
