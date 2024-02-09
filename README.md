@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Forgetting is like a wound. The wound may heal but it has already left a scar."
+> "Look straight at the people you kill; don't take your eyes off them for a second. And don't ever forget them because they won't forget you."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Solf J. Kimblee**](https://myanimelist.net/character.php?q=Solf%20J.%20Kimblee&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
