@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People are weak. Because of their weakness, they sometimes behave in ways devoid of self-respect. But then, so what if they do, my old friend? Even if I am struck with a thousand setbacks... it does not serve as a reason to alter the way I live... my life!"
+> "Someday you'll let go of my hand. When you finally look to the far, far sky, I'll kick you from behind and laugh at you to hurry."
 
-&mdash; [**Klaus von Reinherz**](https://myanimelist.net/character.php?q=Klaus%20von%20Reinherz&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
