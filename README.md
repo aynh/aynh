@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The sorrows of life...To not be able to live like yourself. The joys of life...To be able to die like yourself."
+> "You want me to roll over like a dog? Give up, and accept defeat.. Ha! That seems to be the sort of language that your kind is used to using. Language for cowards who forfeited their humanity, because they were too weak to survive as such. Don’t look down on humans, you monsters. Come on. I’ll send you all to hell."
 
-&mdash; [**Karren von Rosewald**](https://myanimelist.net/character.php?q=Karren%20von%20Rosewald&cat=character), [**Tokyo Ghoul:re**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%3Are&cat=all)
+&mdash; [**Integra Hellsing**](https://myanimelist.net/character.php?q=Integra%20Hellsing&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
