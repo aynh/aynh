@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We will never laugh at ourselves. Just as earthworms do not fear darkness and penguins are not ashamed of their inability to fly. That's the meaning of life, is it not?"
+> "If you're gonna send people after me, bring on the strongest you have."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
