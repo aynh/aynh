@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If one really wants to change the world...they have to do it by their own hands!"
+> "The true evil is becoming apathetic about other people."
 
-&mdash; [**Lucy Ashley**](https://myanimelist.net/character.php?q=Lucy%20Ashley&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
