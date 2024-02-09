@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The true evil is becoming apathetic about other people."
+> "When people immerse themselves in their own world and other people around them start doing something, they can’t help but feel very lonely."
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Enomoto Takane**](https://myanimelist.net/character.php?q=Enomoto%20Takane&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
