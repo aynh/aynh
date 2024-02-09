@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When people immerse themselves in their own world and other people around them start doing something, they can’t help but feel very lonely."
+> "It's where all parallel lines meet. Where conflicting ideas are reconciled. It is... above the horizon."
 
-&mdash; [**Enomoto Takane**](https://myanimelist.net/character.php?q=Enomoto%20Takane&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
+&mdash; [**Horizon Ariadust**](https://myanimelist.net/character.php?q=Horizon%20Ariadust&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
