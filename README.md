@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If reality is nothing more than what is in our mind, then what is the difference between this world and a dream?"
+> "You only need a strong will and a clear purpose."
 
-&mdash; [**Yuca Collabell**](https://myanimelist.net/character.php?q=Yuca%20Collabell&cat=character), [**Immortal Rain**](https://myanimelist.net/search/all?q=Immortal%20Rain&cat=all)
+&mdash; [**Kureo Mado**](https://myanimelist.net/character.php?q=Kureo%20Mado&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
