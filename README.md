@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't make yourself weigh your pride against your friends."
+> "Let me tell you something about dying. It hurts like hell."
 
-&mdash; [**Hephaestus**](https://myanimelist.net/character.php?q=Hephaestus&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
+&mdash; [**Heero Yuy**](https://myanimelist.net/character.php?q=Heero%20Yuy&cat=character), [**Mobile Suit Gundam Wing**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Wing&cat=all)
