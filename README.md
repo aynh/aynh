@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You only need a strong will and a clear purpose."
+> "No matter what your power is, no matter how strong your opponent, lose once and it's over. That's the kind of world that's out there waiting for us. And once you lose, there's no do-overs."
 
-&mdash; [**Kureo Mado**](https://myanimelist.net/character.php?q=Kureo%20Mado&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Nagakura Imari**](https://myanimelist.net/character.php?q=Nagakura%20Imari&cat=character), [**Absolute Duo**](https://myanimelist.net/search/all?q=Absolute%20Duo&cat=all)
