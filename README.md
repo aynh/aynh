@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Zuko] You know what the worst part of being born over a hundred years ago is? I miss all the friends I used to hang out with. Before the war started, I used to always visit my friend Kuzon. The two of us, we'd get in and out of so much trouble together. He was one of the best friends I ever had, and he was from the Fire Nation just like you. If we knew each other back then, do you think we could have been friends too?"
+> "False tears bring pain to those around you. A false smile brings pain to one self."
 
-&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
