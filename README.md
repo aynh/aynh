@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what your power is, no matter how strong your opponent, lose once and it's over. That's the kind of world that's out there waiting for us. And once you lose, there's no do-overs."
+> "Why won't human emotions, not even my own, work out the way we want?"
 
-&mdash; [**Nagakura Imari**](https://myanimelist.net/character.php?q=Nagakura%20Imari&cat=character), [**Absolute Duo**](https://myanimelist.net/search/all?q=Absolute%20Duo&cat=all)
+&mdash; [**Takeo Gouda**](https://myanimelist.net/character.php?q=Takeo%20Gouda&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
