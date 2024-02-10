@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Words alone, can make an entire army withdraw."
+> "*referring to his curse* Look, everyone! This is what hatred looks like! This is what it does when it catches hold of you! It's eating me alive, and very soon now it will kill me! Fear and anger only make it grow faster!"
 
-&mdash; [**Yuusha**](https://myanimelist.net/character.php?q=Yuusha&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
+&mdash; [**Prince Ashitaka**](https://myanimelist.net/character.php?q=Prince%20Ashitaka&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
