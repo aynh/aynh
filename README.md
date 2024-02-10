@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "False tears bring pain to those around you. A false smile brings pain to one self."
+> "Why can't I steal him from her? There are no rules in the game of love!"
 
-&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Odagiri Nene**](https://myanimelist.net/character.php?q=Odagiri%20Nene&cat=character), [**Yamada-kun to 7-nin no Majo**](https://myanimelist.net/search/all?q=Yamada-kun%20to%207-nin%20no%20Majo&cat=all)
