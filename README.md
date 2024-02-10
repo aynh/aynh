@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why won't human emotions, not even my own, work out the way we want?"
+> "You cannot understand that which you do not know, and that misunderstanding breeds hatred."
 
-&mdash; [**Takeo Gouda**](https://myanimelist.net/character.php?q=Takeo%20Gouda&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
+&mdash; [**Sehara**](https://myanimelist.net/character.php?q=Sehara&cat=character), [**One thousand and one nights**](https://myanimelist.net/search/all?q=One%20thousand%20and%20one%20nights&cat=all)
