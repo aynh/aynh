@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I should use a cheerful joke to lighten the mood. Would you like a snack? Or, maybe I should snack on you instead?"
+> "Because we knew you were waiting, we did our best so that we'd return."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Syaoran Li**](https://myanimelist.net/character.php?q=Syaoran%20Li&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
