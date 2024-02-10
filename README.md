@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You cannot understand that which you do not know, and that misunderstanding breeds hatred."
+> "I learned that no matter how much you want something, no matter how much you scream for it, sometimes it's out of your reach."
 
-&mdash; [**Sehara**](https://myanimelist.net/character.php?q=Sehara&cat=character), [**One thousand and one nights**](https://myanimelist.net/search/all?q=One%20thousand%20and%20one%20nights&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
