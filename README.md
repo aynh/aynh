@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things that we don't want to happen, but have to accept. Things that we don't want to know, but have to learn. And people that we can't live without, but have to let go."
+> "If reality is nothing more than what is in our mind, then what is the difference between this world and a dream?"
 
-&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
+&mdash; [**Yuca Collabell**](https://myanimelist.net/character.php?q=Yuca%20Collabell&cat=character), [**Immortal Rain**](https://myanimelist.net/search/all?q=Immortal%20Rain&cat=all)
