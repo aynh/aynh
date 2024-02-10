@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is just another word for the things you value around you, right? That's something I've had since I was born. If you tell me to rule such a world, I already rule it."
+> "Don't make yourself weigh your pride against your friends."
 
-&mdash; [**Tohsaka Rin**](https://myanimelist.net/character.php?q=Tohsaka%20Rin&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Hephaestus**](https://myanimelist.net/character.php?q=Hephaestus&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
