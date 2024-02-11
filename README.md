@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, the blood rushes to my head and I feel like, if I run, I'll lose something important."
+> "There's no one the world would be better off without."
 
-&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Arata Hinohara**](https://myanimelist.net/character.php?q=Arata%20Hinohara&cat=character), [**Arata Kangatari**](https://myanimelist.net/search/all?q=Arata%20Kangatari&cat=all)
