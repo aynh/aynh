@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not difficult to compose poetry. You just have to translate your feelings into meter."
+> "Sometimes, the blood rushes to my head and I feel like, if I run, I'll lose something important."
 
-&mdash; [**Kanade Ōe**](https://myanimelist.net/character.php?q=Kanade%20%C5%8Ce&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
