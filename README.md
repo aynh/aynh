@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to an arrogant projectile-specialist Shinigami] Apparently, on this side, 'ultimate master' means a windbag with diarrhea of the mouth."
+> "I'm worthless garbage who can't even write a straight looking K!"
 
-&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
