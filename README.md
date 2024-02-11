@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How much weight can a simple promise carry?"
+> "Anyone can smile if you give them something to be happy about."
 
-&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Setsuna F. Seiei**](https://myanimelist.net/character.php?q=Setsuna%20F.%20Seiei&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
