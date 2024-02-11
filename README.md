@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No I can't go on like this! I should die! How could this happen? Did I really forget to fold the tip of the toilet paper into a triangle?"
+> "Reality is just a crappy game!"
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
