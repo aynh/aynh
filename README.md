@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One face is given to us by God. The other - we make ourselves."
+> "[to an arrogant projectile-specialist Shinigami] Apparently, on this side, 'ultimate master' means a windbag with diarrhea of the mouth."
 
-&mdash; [**Skull Man**](https://myanimelist.net/character.php?q=Skull%20Man&cat=character), [**The Skull Man**](https://myanimelist.net/search/all?q=The%20Skull%20Man&cat=all)
+&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
