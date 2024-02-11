@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Besides, miracles don't exist in this world. There are only inevitabilities and accidents, and what you're going to do. That's it."
+> "In the end, L is indeed the greatest detective on earth..."
 
-&mdash; [**Himura Yuu**](https://myanimelist.net/character.php?q=Himura%20Yuu&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
