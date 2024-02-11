@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes you must hurt in order to know, fall in order to grow, lose in order to gain because life's greatest lessons are learned through pain."
+> "How much weight can a simple promise carry?"
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
