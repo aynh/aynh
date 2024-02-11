@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how much he wants it, he can't be a normal human anymore. *about Rin*"
+> "One face is given to us by God. The other - we make ourselves."
 
-&mdash; [**Yukio Okumura**](https://myanimelist.net/character.php?q=Yukio%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Skull Man**](https://myanimelist.net/character.php?q=Skull%20Man&cat=character), [**The Skull Man**](https://myanimelist.net/search/all?q=The%20Skull%20Man&cat=all)
