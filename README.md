@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll keep my promise, I'll save the world."
+> "You’re too kind. Remember this and take it to heart: kindness sometimes leads to even greater tragedy."
 
-&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
