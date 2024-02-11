@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no one the world would be better off without."
+> "No I can't go on like this! I should die! How could this happen? Did I really forget to fold the tip of the toilet paper into a triangle?"
 
-&mdash; [**Arata Hinohara**](https://myanimelist.net/character.php?q=Arata%20Hinohara&cat=character), [**Arata Kangatari**](https://myanimelist.net/search/all?q=Arata%20Kangatari&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
