@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Reality is just a crappy game!"
+> "Sometimes I think delinquents are people… Who still have hope that things still can get better if they just put up a SOS sign. But I don’t even have the will to lift that sign anymore."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
