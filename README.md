@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even shining stars that seem very close are actually far, far apart, separated by many light years. Perhaps we're like the stars we all gaze upon, shining alone in the empty void of space. Having faith that one day, our light might reach someone."
+> "Besides, miracles don't exist in this world. There are only inevitabilities and accidents, and what you're going to do. That's it."
 
-&mdash; [**Subaru**](https://myanimelist.net/character.php?q=Subaru&cat=character), [**Houkago no Pleiades**](https://myanimelist.net/search/all?q=Houkago%20no%20Pleiades&cat=all)
+&mdash; [**Himura Yuu**](https://myanimelist.net/character.php?q=Himura%20Yuu&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
