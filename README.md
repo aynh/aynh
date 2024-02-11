@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry. I don't believe in fate. I explore my future with my own strength. Good or bad, it's my own choice."
+> "People struggle to find an answer even in things like math where there is clearly only one answer. So there's no shame in struggling through something that has no right answer."
 
-&mdash; [**Manjoume Jun**](https://myanimelist.net/character.php?q=Manjoume%20Jun&cat=character), [**Yu-Gi-Oh! Duel Monsters GX**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Duel%20Monsters%20GX&cat=all)
+&mdash; [**Momoka Hanai**](https://myanimelist.net/character.php?q=Momoka%20Hanai&cat=character), [**Koi Dano Ai Dano**](https://myanimelist.net/search/all?q=Koi%20Dano%20Ai%20Dano&cat=all)
