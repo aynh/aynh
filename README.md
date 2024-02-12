@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no reason to pretend to be cool. Let’s show our lame sides. That’s who we really are, after all."
+> "A skilled dictator is much more beneficial to humanity than a democracy of ignorant people."
 
-&mdash; [**Hidenori Tabata**](https://myanimelist.net/character.php?q=Hidenori%20Tabata&cat=character), [**Danshi Koukousei no Nichijou**](https://myanimelist.net/search/all?q=Danshi%20Koukousei%20no%20Nichijou&cat=all)
+&mdash; [**Gene Smilas**](https://myanimelist.net/character.php?q=Gene%20Smilas&cat=character), [**Code Geass: Boukoku No Akito**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Boukoku%20No%20Akito&cat=all)
