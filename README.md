@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more battles we fought, the more our confidence grew. We weren't afraid of anything back then. But the difference between victory and defeat is paper-thin. We didn't realize this and were arrogant."
+> "*while stomping on Inuyasha* Lay down, be silent, sleep, rest, sleep... how many times do I have to tell you..."
 
-&mdash; [**Hayashi**](https://myanimelist.net/character.php?q=Hayashi&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
