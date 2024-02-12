@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "BLOOOOOOOOOOOOOOOD!!! MY BLOOOOOOOOOOOOOD!!!"
+> "*to Araragi* A creature like you having a brain residing in his skull...is already a miracle in and of itself."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
