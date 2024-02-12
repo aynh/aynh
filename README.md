@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To truly love someone, is to always put their feelings before your own... no matter what."
+> "Don't try to excuse yourself by saying you're doing it for someone else's sake."
 
-&mdash; [**Saki Hanajima**](https://myanimelist.net/character.php?q=Saki%20Hanajima&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
