@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm still very very young. I want to go shopping, and I want to eats lots more of all kinds of yummy foods, you know? And of course... Of course... have a wonderful romance too. If I could have something like that, it would be the best. Yeah... That really would be the best."
+> "To truly love someone, is to always put their feelings before your own... no matter what."
 
-&mdash; [**Anemone**](https://myanimelist.net/character.php?q=Anemone&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Saki Hanajima**](https://myanimelist.net/character.php?q=Saki%20Hanajima&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
