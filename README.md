@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you guys weren't here, I don't know what would have happened to me. You can't live in this world alone, no matter how you look at it."
+> "That's people for you. Trusting one another, helping one another- it's all a fantasy. Humans are creatures that will always betray."
 
-&mdash; [**Manato**](https://myanimelist.net/character.php?q=Manato&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Yokoya Norihiko**](https://myanimelist.net/character.php?q=Yokoya%20Norihiko&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
