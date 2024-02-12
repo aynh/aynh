@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The future has shown us with its glorious brilliance the time to seize our destiny and conquer all our fear is now! In ancient times, man rubbed sticks together and created fire, then they slaughtered the whales and battled one another for oil. After that, came the atomic age. In every chapter of our history, we've danced with danger. But now, for the first time in existence, we will be delivered from fear. Finally, we will escape the prison of our illusions and the beautiful night will embrace us all. It's already too late! I will live by this and I will die by this!"
+> "There is no such thing as truth in this world. That is our reality. Anyone can become a God or a Devil. All it takes is for someone to claim that to be the truth."
 
-&mdash; [**Dr. Franken Von Vogler**](https://myanimelist.net/character.php?q=Dr.%20Franken%20Von%20Vogler&cat=character), [**Giant Robo**](https://myanimelist.net/search/all?q=Giant%20Robo&cat=all)
+&mdash; [**Eren Kruger**](https://myanimelist.net/character.php?q=Eren%20Kruger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
