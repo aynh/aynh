@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You’re too kind. Remember this and take it to heart: kindness sometimes leads to even greater tragedy."
+> "Oh, no! Wrong way! I want my mom!"
 
-&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Hikari**](https://myanimelist.net/character.php?q=Hikari&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
