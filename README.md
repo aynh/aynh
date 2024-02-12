@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am Elliot Nightray and I will not let you take that away from me!!"
+> "There’s no reason to pretend to be cool. Let’s show our lame sides. That’s who we really are, after all."
 
-&mdash; [**Elliot Nightray**](https://myanimelist.net/character.php?q=Elliot%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Hidenori Tabata**](https://myanimelist.net/character.php?q=Hidenori%20Tabata&cat=character), [**Danshi Koukousei no Nichijou**](https://myanimelist.net/search/all?q=Danshi%20Koukousei%20no%20Nichijou&cat=all)
