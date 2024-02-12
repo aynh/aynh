@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I'm going to disappear no matter what, I at least want to leave them having fun and smiling."
+> "Life is never fair. I'm sure you're well aware of that."
 
-&mdash; [**Yoake Ryou**](https://myanimelist.net/character.php?q=Yoake%20Ryou&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Decim**](https://myanimelist.net/character.php?q=Decim&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
