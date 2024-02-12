@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's an airbender in our presence and not just any airbender, the Avatar! Now what do you have to say for yourself, Mr. Pipinpadaloxicopolis?!"
+> "Revenge is a rite that restores one’s spirit after it has been ravaged by the anger and hatred of loss. That is the only way to heal one's soul and stand up again to face reality. That is the only way we can have a tomorrow."
 
-&mdash; [**King Bumi**](https://myanimelist.net/character.php?q=King%20Bumi&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Yao Ro Ducy**](https://myanimelist.net/character.php?q=Yao%20Ro%20Ducy&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
