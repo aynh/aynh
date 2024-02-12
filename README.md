@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can stand not eating or sleeping, but I absolutely would not be able to live without my computer."
+> "If I'm going to disappear no matter what, I at least want to leave them having fun and smiling."
 
-&mdash; [**Kisaragi Shintaro**](https://myanimelist.net/character.php?q=Kisaragi%20Shintaro&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
+&mdash; [**Yoake Ryou**](https://myanimelist.net/character.php?q=Yoake%20Ryou&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
