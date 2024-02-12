@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is never fair. I'm sure you're well aware of that."
+> "I am Elliot Nightray and I will not let you take that away from me!!"
 
-&mdash; [**Decim**](https://myanimelist.net/character.php?q=Decim&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Elliot Nightray**](https://myanimelist.net/character.php?q=Elliot%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
