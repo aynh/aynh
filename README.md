@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They are two types of people. Those who let go and those who are let go. How many times have I watched people leave up until now? I may have been able to reach them if I'd reached out, but I was afraid of being pushed away, so I simply watched them disappear into the distance."
+> "Often people have it wrong, mistakenly believing... that showing mercy to an enemy is kindness. They spare the foe whose life is in their hands. But don't you see? It's an empty existence, to go on living... alone and unloved... when defeat's already cost you your dream!"
 
-&mdash; [**Matsuoka Masamune**](https://myanimelist.net/character.php?q=Matsuoka%20Masamune&cat=character), [**Aoharu x Kikanjuu**](https://myanimelist.net/search/all?q=Aoharu%20x%20Kikanjuu&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
