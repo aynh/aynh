@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's people for you. Trusting one another, helping one another- it's all a fantasy. Humans are creatures that will always betray."
+> "I had no intention of deceiving anyone. It's just that none of you could understand...My true self."
 
-&mdash; [**Yokoya Norihiko**](https://myanimelist.net/character.php?q=Yokoya%20Norihiko&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
