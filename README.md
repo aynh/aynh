@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The same thing as always. No matter how many times I reach game over and no matter how many times I must pathetically hit continue, I will not stop moving forward."
+> "Most birds fly, but there are some species of flightless birds. I suspect that Princess Asseylum might say that she find it sad that they cannot fly even though they have wings. But their inability to fly does not trouble them in the least. On the contrary, perhaps the ones to be pitied are the birds who can fly, but kept in a cage."
 
-&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Slaine Troyard**](https://myanimelist.net/character.php?q=Slaine%20Troyard&cat=character), [**Aldnoah.Zero 2nd Season**](https://myanimelist.net/search/all?q=Aldnoah.Zero%202nd%20Season&cat=all)
