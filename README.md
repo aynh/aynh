@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Noooo, there's no way I, a mere handsome and sexy shopkeeper, could possibly have bankai!"
+> "Entire civilizations were built and destroyed between now and the last time you said 'we'll go soon'! I'll have rotted and turned to ash by the time this 'soon' of yours comes!!"
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
