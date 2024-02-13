@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What we need now is not the diary of the past, but instead the calendar of the future."
+> "If you keep trying to reason with yourself instead of listening to your feelings, you'll never be able to feel true happiness."
 
-&mdash; [**Dusty Attenborough**](https://myanimelist.net/character.php?q=Dusty%20Attenborough&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Hiroomi Nase**](https://myanimelist.net/character.php?q=Hiroomi%20Nase&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
