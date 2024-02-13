@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's human nature to judge by appearance. It's not just males who are superficial. No one bothers about things they cannot see... like the heart."
+> "Noooo, there's no way I, a mere handsome and sexy shopkeeper, could possibly have bankai!"
 
-&mdash; [**Yuzuru Shino**](https://myanimelist.net/character.php?q=Yuzuru%20Shino&cat=character), [**Seven Days**](https://myanimelist.net/search/all?q=Seven%20Days&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
