@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I had no intention of deceiving anyone. It's just that none of you could understand...My true self."
+> "You're your own worst enemy. If your worries and doubts torment you, then just stop thinking about them."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Binboda Momiji**](https://myanimelist.net/character.php?q=Binboda%20Momiji&cat=character), [**Binbougami Ga!**](https://myanimelist.net/search/all?q=Binbougami%20Ga!&cat=all)
