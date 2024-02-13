@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The little man is having trouble holding his sword. *to Inuyasha*"
+> "Things like heroes are unnecessary. Can't you save someone if you're standing right there, at that very spot? In front of your eyes are people that don't wish to cry that are crying! In front of your eyes are people that can only clench their teeth while struggling and can't even say the words 'please save me'! Is that not enough?"
 
-&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
