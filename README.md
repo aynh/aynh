@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think it's a good thing, you know. You're paying attention to those around you. You don't just notice, you take action to help. I think it's one of your strength. But don't you wonder? Is getting rid of all the thorns in someone's path really what's best for them? While they're still young enough to be allowed to trip and fall, it's important for them to learn the pain of it and how to pick themselves up again."
+> "What we need now is not the diary of the past, but instead the calendar of the future."
 
-&mdash; [**Yoake Ryou**](https://myanimelist.net/character.php?q=Yoake%20Ryou&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Dusty Attenborough**](https://myanimelist.net/character.php?q=Dusty%20Attenborough&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
