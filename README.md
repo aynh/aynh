@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Rock, if you think about it, other than this, what do we really value in life? God? Love? Don't make me laugh. When I was a brat, crawling around in that shithole city, it seemed God and Love were always sold out when I went looking. Before I knew better, I clung to God and prayed to Him every single night — yeah, I believed in God right up until that night the cops beat the hell out of me for no reason at all. All they saw when they looked at me was another little ghetto rat. With no power and no God, what's left for a poor little Chinese bitch to rely on? It's money, of course, and guns. Fuckin' A. With these two things, the world's a great place."
+> "Don’t you know the saying ‘Man proposes; God disposes’ ? First, you do your best and then fate will decide how it will turn out."
 
-&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
+&mdash; [**Midorima Shintarou**](https://myanimelist.net/character.php?q=Midorima%20Shintarou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
