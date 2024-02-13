@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Things like heroes are unnecessary. Can't you save someone if you're standing right there, at that very spot? In front of your eyes are people that don't wish to cry that are crying! In front of your eyes are people that can only clench their teeth while struggling and can't even say the words 'please save me'! Is that not enough?"
+> "Tomorrow's promise will never come. I wonder how many of tomorrow's promises have disappeared as though they have never existed."
 
-&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
