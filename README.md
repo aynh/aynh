@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Entire civilizations were built and destroyed between now and the last time you said 'we'll go soon'! I'll have rotted and turned to ash by the time this 'soon' of yours comes!!"
+> "When in doubt, don't worry about what's right. You'll run out of time. Don't use your head, you'll find the answer lower. Your heart knows what's right. Choose the answer that will be fun."
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Sharon Kaneko**](https://myanimelist.net/character.php?q=Sharon%20Kaneko&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
