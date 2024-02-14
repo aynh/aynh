@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Children, this is the only gift I can give you right now. A formless gift you call a memory. I don’t have any money and I can’t give you something tangible. But even so, even if it isn’t tangible, a memory is something that will continue to be with you. That is what I believe…"
+> "Smile. Even if you're facing an enemy, people can't attack others with a smile."
 
-&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Rurumu**](https://myanimelist.net/character.php?q=Rurumu&cat=character), [**Adventures of Sinbad**](https://myanimelist.net/search/all?q=Adventures%20of%20Sinbad&cat=all)
