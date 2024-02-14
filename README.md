@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm ho-ome! Yuki-kun, Tohru-kun, I'm home! Oh, and let's not forget stupid-clumsy-Kyo-kun-who-lost-yet-another-fight!"
+> "The past does not exist to remind us that the future cannot be changed. It exists to remind us what the future can be."
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Hagoromo Ōtsutsuki**](https://myanimelist.net/character.php?q=Hagoromo%20%C5%8Ctsutsuki&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
