@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trunks, I never hugged you as a baby... let me hug you."
+> "No matter where I might have met you, I'm sure I'd come to love you."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
