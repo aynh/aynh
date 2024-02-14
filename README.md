@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The chosen one? I feel more like the frozen one."
+> "You're too loud, Police Girl. I don't care if you're a vampire, you're still English. Have some manners."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Integra Hellsing**](https://myanimelist.net/character.php?q=Integra%20Hellsing&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
