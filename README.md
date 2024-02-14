@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I would solve a friend's problem... then also find a way to keep them from ending up with a new one."
+> "I'm ho-ome! Yuki-kun, Tohru-kun, I'm home! Oh, and let's not forget stupid-clumsy-Kyo-kun-who-lost-yet-another-fight!"
 
-&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
