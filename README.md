@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never... [chuckles]... laughed this hard in front of my parents.(to Tohru)"
+> "Children, this is the only gift I can give you right now. A formless gift you call a memory. I don’t have any money and I can’t give you something tangible. But even so, even if it isn’t tangible, a memory is something that will continue to be with you. That is what I believe…"
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
