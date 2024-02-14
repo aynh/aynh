@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everybody has to display a certain loyalty to their paycheck. I was the same way. It isn’t just a piece of paper, but a chain that binds people."
+> "I never... [chuckles]... laughed this hard in front of my parents.(to Tohru)"
 
-&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
