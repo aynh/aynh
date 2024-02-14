@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trying to not hurt others is something you can’t do. People are creatures who hurt others just by existing even if they’re not aware of it. Whether you’re living or dying, you’ll always be hurting someone. Once you’re involved, you’ll hurt someone, and even by not being involved, you might be hurting someone else as well…"
+> "Sometimes we women must fight too, don't underestimate us!"
 
-&mdash; [**Shizuka Hiratsuka**](https://myanimelist.net/character.php?q=Shizuka%20Hiratsuka&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Gi-gan**](https://myanimelist.net/character.php?q=Gi-gan&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
