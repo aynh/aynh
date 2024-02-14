@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When things seem beyond help, if you open your eyes and take a really good look... It's a lot better than turning your back and hiding your eyes."
+> "How do you prove that you exist...? Maybe we don't exist."
 
-&mdash; [**Leonardo Watch**](https://myanimelist.net/character.php?q=Leonardo%20Watch&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Vivi Ornitier**](https://myanimelist.net/character.php?q=Vivi%20Ornitier&cat=character), [**Final Fantasy IX**](https://myanimelist.net/search/all?q=Final%20Fantasy%20IX&cat=all)
