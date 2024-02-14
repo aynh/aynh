@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past does not exist to remind us that the future cannot be changed. It exists to remind us what the future can be."
+> "We will have lost only the moment humans give up and stop fighting. As long as they keep on fighting, our defeat is not certain."
 
-&mdash; [**Hagoromo Ōtsutsuki**](https://myanimelist.net/character.php?q=Hagoromo%20%C5%8Ctsutsuki&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Mike Zacharias**](https://myanimelist.net/character.php?q=Mike%20Zacharias&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
