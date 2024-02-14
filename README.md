@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey hun! I've got a great idea, let's trade! Yo take my spot and I'll fight Hercule!"
+> "What do you suppose the most irrational thing is? - It's humanity."
 
-&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Deadman Wonderland**](https://myanimelist.net/character.php?q=Deadman%20Wonderland&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
