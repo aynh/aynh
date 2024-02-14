@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We will have lost only the moment humans give up and stop fighting. As long as they keep on fighting, our defeat is not certain."
+> "Trunks, I never hugged you as a baby... let me hug you."
 
-&mdash; [**Mike Zacharias**](https://myanimelist.net/character.php?q=Mike%20Zacharias&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
