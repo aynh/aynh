@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes we women must fight too, don't underestimate us!"
+> "Glory lies beyond the horizon. Challenge it because it is unreachable. Speak of conquest and demonstrate it."
 
-&mdash; [**Gi-gan**](https://myanimelist.net/character.php?q=Gi-gan&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
