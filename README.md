@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Smile. Even if you're facing an enemy, people can't attack others with a smile."
+> "It doesn't make a difference whether you have a talent or not. I mean, that isn't the end goal. You have greater freedom than we do. All I have are games. But you can go anywhere and become anything."
 
-&mdash; [**Rurumu**](https://myanimelist.net/character.php?q=Rurumu&cat=character), [**Adventures of Sinbad**](https://myanimelist.net/search/all?q=Adventures%20of%20Sinbad&cat=all)
+&mdash; [**Chiaki Nanami**](https://myanimelist.net/character.php?q=Chiaki%20Nanami&cat=character), [**Danganronpa 3: The End of Kibougamine Gakuen - Zetsubou-hen**](https://myanimelist.net/search/all?q=Danganronpa%203%3A%20The%20End%20of%20Kibougamine%20Gakuen%20-%20Zetsubou-hen&cat=all)
