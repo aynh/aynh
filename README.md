@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, it's not a big deal or anything... but I was almost killed."
+> "Everybody has to display a certain loyalty to their paycheck. I was the same way. It isn’t just a piece of paper, but a chain that binds people."
 
-&mdash; [**Yashiro Isana**](https://myanimelist.net/character.php?q=Yashiro%20Isana&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
+&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
