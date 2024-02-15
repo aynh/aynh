@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Victory isn't determined solely by who has the superior physical abilities."
+> "Don't ever forget that with each step a person is able to take on their own, they have become that much stronger."
 
-&mdash; [**Tsumugu Kinagase**](https://myanimelist.net/character.php?q=Tsumugu%20Kinagase&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
+&mdash; [**Tamahome**](https://myanimelist.net/character.php?q=Tamahome&cat=character), [**Fushigi Yugi**](https://myanimelist.net/search/all?q=Fushigi%20Yugi&cat=all)
