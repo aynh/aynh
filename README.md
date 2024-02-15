@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So because you think you got the ending, you're giving up on viewing the whole play? Even though it could still lead to a climax that you weren't able to predict?"
+> "The scariest thing about killing people is getting used to it! When you kill someone and realize you won't be punished... That's when people forget all about punishment!"
 
-&mdash; [**Ushiromiya Lion**](https://myanimelist.net/character.php?q=Ushiromiya%20Lion&cat=character), [**Umineko no Naku Koro ni Chiru Episode 8: Twilight of the...**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni%20Chiru%20Episode%208%3A%20Twilight%20of%20the...&cat=all)
+&mdash; [**Satomi Rentarou**](https://myanimelist.net/character.php?q=Satomi%20Rentarou&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
