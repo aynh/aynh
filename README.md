@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not fighting because I want to win. I'm fighting because I have to win."
+> "In order to learn you may have to risk your life... no, even your soul."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Chun-Woo Han**](https://myanimelist.net/character.php?q=Chun-Woo%20Han&cat=character), [**The Breaker**](https://myanimelist.net/search/all?q=The%20Breaker&cat=all)
