@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't ever forget that with each step a person is able to take on their own, they have become that much stronger."
+> "Under normal circumstances, humans should have continued to evolve as the greatest creatures upon this earth, but we were actually regressing. A rotten world. Politics, law, education... Was there anybody around who could correct this world? But someone had to do it."
 
-&mdash; [**Tamahome**](https://myanimelist.net/character.php?q=Tamahome&cat=character), [**Fushigi Yugi**](https://myanimelist.net/search/all?q=Fushigi%20Yugi&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
