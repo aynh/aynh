@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I find no fault with you when it comes to standing against your enemy with courage. However, every few have the strength to sheath their sword once it's out."
+> "I don't know what this boy means to you, Gai, but I shouldn't have to tell you that we never bring our personal feelings into play. I didn't think you were capable of it."
 
-&mdash; [**Gildarts Clive**](https://myanimelist.net/character.php?q=Gildarts%20Clive&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
