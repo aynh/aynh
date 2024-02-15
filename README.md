@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, I won't be disappointed, no matter what you do."
+> "Victory isn't determined solely by who has the superior physical abilities."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Tsumugu Kinagase**](https://myanimelist.net/character.php?q=Tsumugu%20Kinagase&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
