@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I guess it's only natural for inferior beings to ride on the coattails of their superior counterparts. If they wish to keep their lives, they have no choice but to obediently comply. It's a never ending chain... as the ones who are burdened with that trust, in order to escape that burden, seek to find someone even greater than themselves. These greater beings then seek others even greater than themselves to shelter them. This is how Gods are born. But make no mistake. They all still abide to me. Because from this point onward, you will witness first hand, the power of the God they foolishly placed their faith in. I will become that God they have no choice but to believe in."
+> "If you have the guts to not give up,you can be anything you want to be.We're living creature that don't have wings, but still went to the moon."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kurogane Ryouma**](https://myanimelist.net/character.php?q=Kurogane%20Ryouma&cat=character), [**Rakudai Kishi no Cavalry**](https://myanimelist.net/search/all?q=Rakudai%20Kishi%20no%20Cavalry&cat=all)
