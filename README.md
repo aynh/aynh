@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm Black Star. I'm on a whole different level than you. I'm a big man! I beat death! Who else can say that?!"
+> "Today's my birthday. During times like these I always think whether or not it was a good thing that I was born."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Eucliwood Hellscythe**](https://myanimelist.net/character.php?q=Eucliwood%20Hellscythe&cat=character), [**Kore Wa Zombie Desu Ka?**](https://myanimelist.net/search/all?q=Kore%20Wa%20Zombie%20Desu%20Ka%3F&cat=all)
