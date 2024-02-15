@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter where I might have met you, I'm sure I'd come to love you."
+> "I find no fault with you when it comes to standing against your enemy with courage. However, every few have the strength to sheath their sword once it's out."
 
-&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Gildarts Clive**](https://myanimelist.net/character.php?q=Gildarts%20Clive&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
