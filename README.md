@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don’t hesitate to cut the enemy. Don’t falter to finish them off. Much less heal their wounds. That’s unspeakable, nino. Leave the chocolate here. Become a demon, nino. As strong as a demon. As wicked as a demon. You have to learn that the only way to stand up against ruthlessness, is to become ruthless yourself."
+> "The past is gone, you can not change it! But the future is based on the decision you make!"
 
-&mdash; [**Dordonii Alessandro Del Socacchio**](https://myanimelist.net/character.php?q=Dordonii%20Alessandro%20Del%20Socacchio&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yūgi Mutō**](https://myanimelist.net/character.php?q=Y%C5%ABgi%20Mut%C5%8D&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
