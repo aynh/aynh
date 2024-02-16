@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My name is Black Star. I'll surpass the power of the gods."
+> "This town is overflowing with people, and each has their own worries, big or small... How many of them can truly say that they're happy?"
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ai Kotani**](https://myanimelist.net/character.php?q=Ai%20Kotani&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
