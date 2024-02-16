@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's true that your luster may not have been as bright as gold. You only shined on occasion. You were always arguing and fighting. You have wavy hair. You were lazy. You were the king of sexual harassment. You never paid the rent. You paid your people late. Still, you were brighter than the fake glint of gold plating. When you were angry, your entire soul was enraged. When you laughed, you laughed with all your heart. Your silver was much more beautiful."
+> "Don’t hesitate to cut the enemy. Don’t falter to finish them off. Much less heal their wounds. That’s unspeakable, nino. Leave the chocolate here. Become a demon, nino. As strong as a demon. As wicked as a demon. You have to learn that the only way to stand up against ruthlessness, is to become ruthless yourself."
 
-&mdash; [**Tama**](https://myanimelist.net/character.php?q=Tama&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Dordonii Alessandro Del Socacchio**](https://myanimelist.net/character.php?q=Dordonii%20Alessandro%20Del%20Socacchio&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
