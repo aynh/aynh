@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let's share the fruit of fate."
+> "It's my own recipe which I call Misty's mystery stew, and it's got 47 secret ingredients."
 
-&mdash; [**Kanba Takakura**](https://myanimelist.net/character.php?q=Kanba%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
