@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Today's my birthday. During times like these I always think whether or not it was a good thing that I was born."
+> "Hey, Shu, have you ever read a picture book called 'The Kind King'? The king was really kind, he gave everyone money and land, until finally... the country was gone. The people were all mad at the king. But I really loved him. I think he was my first love. You're like that king, Shu. The way you lose because of your kindness. You know what? I think you're going to be a great king."
 
-&mdash; [**Eucliwood Hellscythe**](https://myanimelist.net/character.php?q=Eucliwood%20Hellscythe&cat=character), [**Kore Wa Zombie Desu Ka?**](https://myanimelist.net/search/all?q=Kore%20Wa%20Zombie%20Desu%20Ka%3F&cat=all)
+&mdash; [**Menjou Hare**](https://myanimelist.net/character.php?q=Menjou%20Hare&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
