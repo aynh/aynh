@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look at my soldiers and their mean faces! I taught them that face!"
+> "Ash will never really be alone cause he's got... me."
 
-&mdash; [**Prussia**](https://myanimelist.net/character.php?q=Prussia&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
