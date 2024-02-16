@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ash will never really be alone cause he's got... me."
+> "Do not lose to the obstacles that you will meet in the future. I have my own set of goals but do not pursue them because of my laziness."
 
-&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
