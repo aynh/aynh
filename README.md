@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let me tell you something. Humans don't even have the patience to wait even ten minutes for something!"
+> "Look at my soldiers and their mean faces! I taught them that face!"
 
-&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Prussia**](https://myanimelist.net/character.php?q=Prussia&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
