@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are all sorts of goodbyes. There are sad goodbyes, and sometimes goodbyes you're thankful for, that take a load off your mind. It often happens that someone you say goodbye to unexpectedly returns, all self-conscious. Then there are times when, anticipating that, you put on the front of a short goodbye, only to have them not return so soon. And then there are goodbyes that last forever, true goodbyes that only happen once in your life."
+> "Something as useless as emotions, I never had them to begin with."
 
-&mdash; [**Yasaburou Shimogamo**](https://myanimelist.net/character.php?q=Yasaburou%20Shimogamo&cat=character), [**Uchouten Kazoku**](https://myanimelist.net/search/all?q=Uchouten%20Kazoku&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
