@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Something as useless as emotions, I never had them to begin with."
+> "Let me tell you something. Humans don't even have the patience to wait even ten minutes for something!"
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
