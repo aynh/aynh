@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Doubt them. Question them, suspect them... and take a good, long look into their hearts. Humans are the kind of beings that can't put their pain into words, after all."
+> "Let's share the fruit of fate."
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Kanba Takakura**](https://myanimelist.net/character.php?q=Kanba%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
