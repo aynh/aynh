@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past is gone, you can not change it! But the future is based on the decision you make!"
+> "Oh, you know... I'm gonna do this, and a little of that... and I'm definitely gonna do THAT...! (to Kyo about Tohru, after calling her Kyo's girlfriend)"
 
-&mdash; [**Yūgi Mutō**](https://myanimelist.net/character.php?q=Y%C5%ABgi%20Mut%C5%8D&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
