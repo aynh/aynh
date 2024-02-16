@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, you know... I'm gonna do this, and a little of that... and I'm definitely gonna do THAT...! (to Kyo about Tohru, after calling her Kyo's girlfriend)"
+> "Doubt them. Question them, suspect them... and take a good, long look into their hearts. Humans are the kind of beings that can't put their pain into words, after all."
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
