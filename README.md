@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's my own recipe which I call Misty's mystery stew, and it's got 47 secret ingredients."
+> "A fake with more power than the real thing is more dangerous than the real thing."
 
-&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
