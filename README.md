@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unfortunately, the real world isn't the same as a fairy tale."
+> "If you don't want to be taken from, stop taking."
 
-&mdash; [**Blake Belladonna**](https://myanimelist.net/character.php?q=Blake%20Belladonna&cat=character), [**RWBY**](https://myanimelist.net/search/all?q=RWBY&cat=all)
+&mdash; [**Moroha Haimura**](https://myanimelist.net/character.php?q=Moroha%20Haimura&cat=character), [**Seiken Tsukai no World Break**](https://myanimelist.net/search/all?q=Seiken%20Tsukai%20no%20World%20Break&cat=all)
