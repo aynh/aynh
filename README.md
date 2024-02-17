@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there's no one happy, is it really a victory?"
+> "Let's have a drink. Hh shut up... The alcohol will disinfect me from the inside!"
 
-&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
