@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yusuke Urameshi, age 14. Survived by his mom and everybody. After going through a big ordeal to get his life back, Yusuke had a brief second chance until he was eaten by a fish! That's right! No heroic death! No fighting evil villans! Fish food!"
+> "If you’ve got time to point fingers, then how about using your head to figure out what you want to do about it?"
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Karma Akabane**](https://myanimelist.net/character.php?q=Karma%20Akabane&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
