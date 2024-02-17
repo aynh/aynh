@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Besides, miracles don't exist in this world. There are only inevitabilities and accidents, and what you're going to do. That's it."
+> "If you don’t do something because you think you can’t do it, you’ll never be able to do anything in the future."
 
-&mdash; [**Himura Yuu**](https://myanimelist.net/character.php?q=Himura%20Yuu&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Kira Yamato**](https://myanimelist.net/character.php?q=Kira%20Yamato&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
