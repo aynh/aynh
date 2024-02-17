@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I’m shown something so pure and innocent, I’m forced to see the filthy part of myself even more and it pisses me off."
+> "As far as I know music isn't picky about when it gets played."
 
-&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
