@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is that all your feelings have to offer? Go ahead. Try to wrench open my heart. That's the only way you'll get me."
+> "If you turn your back on something you wanted, you don't deserve to call yourself greed!"
 
-&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
+&mdash; [**Ling Yao**](https://myanimelist.net/character.php?q=Ling%20Yao&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
