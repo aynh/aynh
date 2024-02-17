@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Where is your honor!? Like all pure-blooded Saiyans, Kakarot would rather die fighting than win with one of those disgraceful senzu beans as his crutch! Kakarot trained in the hyperbolic time chamber just as we did! Now let’s see what he can do!"
+> "You were like a bomb, one wrong move and I might have lost you again."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Hayashida Nana**](https://myanimelist.net/character.php?q=Hayashida%20Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
