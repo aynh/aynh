@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What could be more beautiful than doing work that puts your soul at risk, because that's what it means to be alive!"
+> "Everyone has a right to pursue a happy life. The difficult part is to be given that right."
 
-&mdash; [**Solf J. Kimblee**](https://myanimelist.net/character.php?q=Solf%20J.%20Kimblee&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Frederica Bernkastel**](https://myanimelist.net/character.php?q=Frederica%20Bernkastel&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
