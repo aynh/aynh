@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pain tends to heal as time passes, but personally, I don't want time to heal my wounds. You may think you've escaped the pain and forgotten it, but that's nothing more than stagnation. You can't move forward without the pain."
+> "How is this possible? I must be the first person in history who was flushed down the toilet!"
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Yuri Shibuya**](https://myanimelist.net/character.php?q=Yuri%20Shibuya&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
