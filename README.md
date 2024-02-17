@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you turn your back on something you wanted, you don't deserve to call yourself greed!"
+> "Pain tends to heal as time passes, but personally, I don't want time to heal my wounds. You may think you've escaped the pain and forgotten it, but that's nothing more than stagnation. You can't move forward without the pain."
 
-&mdash; [**Ling Yao**](https://myanimelist.net/character.php?q=Ling%20Yao&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
