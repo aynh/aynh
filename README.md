@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The fastest way to happiness is to avoid looking at reality."
+> "Besides, miracles don't exist in this world. There are only inevitabilities and accidents, and what you're going to do. That's it."
 
-&mdash; [**Ame Ochibana**](https://myanimelist.net/character.php?q=Ame%20Ochibana&cat=character), [**Denpa teki na Kanojo**](https://myanimelist.net/search/all?q=Denpa%20teki%20na%20Kanojo&cat=all)
+&mdash; [**Himura Yuu**](https://myanimelist.net/character.php?q=Himura%20Yuu&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
