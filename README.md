@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Such a cruel boy. Telling me to dream one more time. I thought I was satisfied because my dream had come true... And I'd told myself it was enough... Yet here you are, watering this withered heart again."
+> "There are times when you have to give up on one thing to preserve the other. Your mother couldn't. That isn't kindness. That's just being weak."
 
-&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Rize Kamishiro**](https://myanimelist.net/character.php?q=Rize%20Kamishiro&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
