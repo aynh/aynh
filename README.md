@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You must believe in yourself, follow your path without fear."
+> "Reaper Combat Art: Mortal Sin Stance."
 
-&mdash; [**Mamoru Chiba**](https://myanimelist.net/character.php?q=Mamoru%20Chiba&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
