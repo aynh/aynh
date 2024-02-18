@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Its ony one simple thing, but why do I feel like forever I cannot reach it. Only keep on and on, staying at the same spot."
+> "I don't care what normal people do anymore. I'm going to live my life the way that I want to."
 
-&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
