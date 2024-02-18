@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has an ability. And it means that everyone should use that ability to the fullest."
+> "Its ony one simple thing, but why do I feel like forever I cannot reach it. Only keep on and on, staying at the same spot."
 
-&mdash; [**Chitoge Kirisaki**](https://myanimelist.net/character.php?q=Chitoge%20Kirisaki&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
