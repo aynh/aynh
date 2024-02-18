@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are stars and planets floating around me. I don't think I could handle astronomy right now."
+> "Give a kid a smoke and he'll be happy for a day. Teach him how to smoke... he'll be happy for his whole shortened life."
 
-&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Eikichi Onizuka**](https://myanimelist.net/character.php?q=Eikichi%20Onizuka&cat=character), [**Great Teacher Onizuka**](https://myanimelist.net/search/all?q=Great%20Teacher%20Onizuka&cat=all)
