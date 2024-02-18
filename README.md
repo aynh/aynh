@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after drawing the infinity symbol] I thought of it myself, it stands for... Mugen."
+> "A detective who corners a culprit with their reasoning and drives them to suicide in front of himself - is no different than a murderer."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
