@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's more to a real man than just his good looks!"
+> "[after drawing the infinity symbol] I thought of it myself, it stands for... Mugen."
 
-&mdash; [**Uno**](https://myanimelist.net/character.php?q=Uno&cat=character), [**Nanbaka**](https://myanimelist.net/search/all?q=Nanbaka&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
