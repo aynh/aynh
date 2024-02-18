@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Fuu passed out after one drink and is asleep] Sleeping so carelessly. I could do something to you so easily."
+> "Whether we die or not, isn't really that big a deal."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Juuzou Suzuya**](https://myanimelist.net/character.php?q=Juuzou%20Suzuya&cat=character), [**Tokyo Ghoul √A**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%20%E2%88%9AA&cat=all)
