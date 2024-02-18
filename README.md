@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Reaper Combat Art: Mortal Sin Stance."
+> "There's no such thing as a coincidence in this world. What does exist is only the inevitable."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
