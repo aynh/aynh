@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no such thing as a coincidence in this world. What does exist is only the inevitable."
+> "The world is full of choices unseen. With the willingness to notice, anyone can choose a world of their very own, from an infinity of choices."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Shinku**](https://myanimelist.net/character.php?q=Shinku&cat=character), [**Rozen Maiden**](https://myanimelist.net/search/all?q=Rozen%20Maiden&cat=all)
