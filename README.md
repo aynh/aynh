@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is it really worth saving this sad and ugly world, when there is nothing left after it is saved? With all this death, cruelty and sadness, do you still want to become a hero?"
+> "There's more to a real man than just his good looks!"
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Uno**](https://myanimelist.net/character.php?q=Uno&cat=character), [**Nanbaka**](https://myanimelist.net/search/all?q=Nanbaka&cat=all)
