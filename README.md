@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ashitaka... can you save the girl you love?"
+> "Do you think it's possible to send Flame Alchemy through the phone and burn someones ears off?"
 
-&mdash; [**Moro**](https://myanimelist.net/character.php?q=Moro&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
