@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're trying to stay unscarred, aren't you? If you've come this far, you'll have to hurt someone. The more time you take to decide, the deeper and more it'll hurt. For all of you."
+> "Hope is like a treasure, which you cannot carry alone."
 
-&mdash; [**Sunohara Youhei**](https://myanimelist.net/character.php?q=Sunohara%20Youhei&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Sayonara Zetsubou Sensei**](https://myanimelist.net/character.php?q=Sayonara%20Zetsubou%20Sensei&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
