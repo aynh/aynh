@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've been through so many meetings and partings. They were like a heavy secret, but when I started to talk about them, they seemed to sparkle... I couldn't put them into words."
+> "Our souls, together till the end!"
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
