@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Keep fighting on, even if it ain't worth much."
+> "You're trying to stay unscarred, aren't you? If you've come this far, you'll have to hurt someone. The more time you take to decide, the deeper and more it'll hurt. For all of you."
 
-&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Sunohara Youhei**](https://myanimelist.net/character.php?q=Sunohara%20Youhei&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
