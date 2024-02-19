@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human is an existence full of sin."
+> "In the avatar state... You're at your most powerful, but you're also...at your most vulnerable. If you're killed in the avatar state, the reincarnation cycle will be broken and the avatar will cease to exist."
 
-&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
+&mdash; [**Roku**](https://myanimelist.net/character.php?q=Roku&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
