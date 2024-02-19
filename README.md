@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you ask what life is to me, I'd answer endless days of homework and pain. Why you ask? The amount of homework, it's too much."
+> "I'm hungry! can we just get his damn zombie soul already?"
 
-&mdash; [**Han Jee-Han**](https://myanimelist.net/character.php?q=Han%20Jee-Han&cat=character), [**The Gamer**](https://myanimelist.net/search/all?q=The%20Gamer&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
