@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If that bullet could also kill a player in the real world, and if you didn't shoot them, you or someone you loved would be killed, could you still pull the trigger?"
+> "I've only lived 18 years, but I don't want to change any of them. They're all part of my life, even the failures."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
