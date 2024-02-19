@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans have a desire for truth or they have a desire to what they know is the truth. In other words, what the truth is exactly second to that. Be careful of what is the truth and what is lie. In other words, always doubt yourself. Harbor an inner devil as you read along... and I won't forget to add that by that point, you might have already fallen into my trap."
+> "When you're in a town like this, all covered with smoke - you forget that there's a world outside. Nothing amazing happens here. And you get used to that. Used to a world where everything is ordinary. Every day we spend here is like a whole lifetime of dying slowly. But now Haruko is here. That's how I know there really is a world outside."
 
-&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Naota Nandaba**](https://myanimelist.net/character.php?q=Naota%20Nandaba&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
