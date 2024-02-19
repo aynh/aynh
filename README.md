@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes we women must fight too, don't underestimate us!"
+> "I've been through so many meetings and partings. They were like a heavy secret, but when I started to talk about them, they seemed to sparkle... I couldn't put them into words."
 
-&mdash; [**Gi-gan**](https://myanimelist.net/character.php?q=Gi-gan&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
