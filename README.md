@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's nothing known for certain. Adolescence is like that anyway. It's like a train ride with no destination and nobody. There's no destination and outside everything is flashing by so you can't see anything."
+> "If it's my fate to be shot down by you, I thought this place would be appropriate... However, it doesn't look like there's any chance of that happening. After all, how could the 'child' ever hope to defeat the 'parent'?"
 
-&mdash; [**Choi Yool**](https://myanimelist.net/character.php?q=Choi%20Yool&cat=character), [**Gaussian Blur**](https://myanimelist.net/search/all?q=Gaussian%20Blur&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
