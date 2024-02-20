@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sketching a scene as you see it gives you a sense of being there, that's totally different from painting a copy of a photograph."
+> "It doesn't matter how much trash you pick up. You just have a pile of trash."
 
-&mdash; [**Eriri Spencer Sawamura**](https://myanimelist.net/character.php?q=Eriri%20Spencer%20Sawamura&cat=character), [**Saenai Heroine no Sodatekata**](https://myanimelist.net/search/all?q=Saenai%20Heroine%20no%20Sodatekata&cat=all)
+&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
