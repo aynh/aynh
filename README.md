@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter how much trash you pick up. You just have a pile of trash."
+> "Well, hurting girls isn't one of my hobbies. That's why I'll make it my hobby to stomp on their cell phones. Hahahahahaha! I'm so bored of it now... it's no longer my hobby to stomp on cell phones."
 
-&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
