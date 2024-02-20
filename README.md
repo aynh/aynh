@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All men are NOT created equal! Some are born smarter, or more beautiful, or with parents of greater status. Some, by contrast, are born of weak body or mind, or with few, if any, talents. All men are different! Yes, the very existence of man is discriminatory! That's why there is war, violence and unrest."
+> "Though we had to part, though we could never be together again. We had no regrets. Even if she returned to her world, married another man and had children with him. If the woman I loved was happy, then I could be happy. And I am. Our hearts had joined and so, even if she lived in a different world, that time, we really were together always, always. I would never let go of this feeling, or my love for her."
 
-&mdash; [**Charles Zi Britannia**](https://myanimelist.net/character.php?q=Charles%20Zi%20Britannia&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Syaoran Li**](https://myanimelist.net/character.php?q=Syaoran%20Li&cat=character), [**Cardcaptor Sakura**](https://myanimelist.net/search/all?q=Cardcaptor%20Sakura&cat=all)
