@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kings do not become kings by themselves. If the poor raise up together, declaring that they don't want any money, kings will be overthrown. However, poor seek money so that they can become kings themselves. Which in turn only strengthens the position of the current king."
+> "I don't think it's completely such a bad thing to cling to one single person, but you have any number of people all around you. People are always connected to one another. You see? Just reach out your hand, and there's someone right here. It's when people realize how lonely it is being on their own, that they start to become kind."
 
-&mdash; [**Hyoudou Kazutaka**](https://myanimelist.net/character.php?q=Hyoudou%20Kazutaka&cat=character), [**Kaiji**](https://myanimelist.net/search/all?q=Kaiji&cat=all)
+&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
