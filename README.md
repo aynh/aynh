@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing good ever comes from a man interfering with women's problems."
+> "Uh, sorry... I forgot I'm supposed to airsit, I mean babybend, I-i mean babysit the kids."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Korra**](https://myanimelist.net/character.php?q=Korra&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
