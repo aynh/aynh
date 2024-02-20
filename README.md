@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Uh, sorry... I forgot I'm supposed to airsit, I mean babybend, I-i mean babysit the kids."
+> "Sketching a scene as you see it gives you a sense of being there, that's totally different from painting a copy of a photograph."
 
-&mdash; [**Korra**](https://myanimelist.net/character.php?q=Korra&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
+&mdash; [**Eriri Spencer Sawamura**](https://myanimelist.net/character.php?q=Eriri%20Spencer%20Sawamura&cat=character), [**Saenai Heroine no Sodatekata**](https://myanimelist.net/search/all?q=Saenai%20Heroine%20no%20Sodatekata&cat=all)
