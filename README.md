@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Gohan, let it go. It is not a sin to fight for the right cause. There are those who words alone will not reach."
+> "Regardless of our limitations, we can always be of some use. Our power may seem insignificant... but it may just prove to be useful in the grand scheme of things. Stay focused. Never avert your eyes, because if an opening arises, even our insignificant power may be enough to determine the fate of the world. Which is why everyone must stay alert and ready to strike at any moment!"
 
-&mdash; [**Android 16**](https://myanimelist.net/character.php?q=Android%2016&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
