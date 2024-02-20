@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was in the avatar state... But I was outside my body watching myself. It was scary. I was scary..."
+> "There's nothing known for certain. Adolescence is like that anyway. It's like a train ride with no destination and nobody. There's no destination and outside everything is flashing by so you can't see anything."
 
-&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Choi Yool**](https://myanimelist.net/character.php?q=Choi%20Yool&cat=character), [**Gaussian Blur**](https://myanimelist.net/search/all?q=Gaussian%20Blur&cat=all)
