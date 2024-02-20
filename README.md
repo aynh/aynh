@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter the reason, I don't think anyone who loses consciousness in the battlefield has any right to survive!"
+> "Those who do not fear the sword they wield, have no right to wield a sword at all."
 
-&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
