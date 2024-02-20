@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only someone that's prepared to devote oneself to others' happiness, without caring about his own, is allowed to become a king."
+> "All men are NOT created equal! Some are born smarter, or more beautiful, or with parents of greater status. Some, by contrast, are born of weak body or mind, or with few, if any, talents. All men are different! Yes, the very existence of man is discriminatory! That's why there is war, violence and unrest."
 
-&mdash; [**Oomine Daiya**](https://myanimelist.net/character.php?q=Oomine%20Daiya&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Charles Zi Britannia**](https://myanimelist.net/character.php?q=Charles%20Zi%20Britannia&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
