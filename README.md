@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Though we had to part, though we could never be together again. We had no regrets. Even if she returned to her world, married another man and had children with him. If the woman I loved was happy, then I could be happy. And I am. Our hearts had joined and so, even if she lived in a different world, that time, we really were together always, always. I would never let go of this feeling, or my love for her."
+> "[to Zuko] You know what the worst part of being born over a hundred years ago is? I miss all the friends I used to hang out with. Before the war started, I used to always visit my friend Kuzon. The two of us, we'd get in and out of so much trouble together. He was one of the best friends I ever had, and he was from the Fire Nation just like you. If we knew each other back then, do you think we could have been friends too?"
 
-&mdash; [**Syaoran Li**](https://myanimelist.net/character.php?q=Syaoran%20Li&cat=character), [**Cardcaptor Sakura**](https://myanimelist.net/search/all?q=Cardcaptor%20Sakura&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
