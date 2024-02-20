@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't think it's completely such a bad thing to cling to one single person, but you have any number of people all around you. People are always connected to one another. You see? Just reach out your hand, and there's someone right here. It's when people realize how lonely it is being on their own, that they start to become kind."
+> "We mock their desperate wishes, and trample them like insects! Cowardly, base - we're more demonic than demons are! I'm just like them. I'm full of the same ugliness they were. This is how humans are. It's how we are, Sebastian!"
 
-&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji: Book of Circus**](https://myanimelist.net/search/all?q=Kuroshitsuji%3A%20Book%20of%20Circus&cat=all)
