@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't think I'm cut out for manual labor. I need to get a more creative job, like saving the whales."
+> "Gohan, let it go. It is not a sin to fight for the right cause. There are those who words alone will not reach."
 
-&mdash; [**Tenma Tsukamoto**](https://myanimelist.net/character.php?q=Tenma%20Tsukamoto&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
+&mdash; [**Android 16**](https://myanimelist.net/character.php?q=Android%2016&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
