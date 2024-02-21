@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Thinking it's your fault after the fact is just pointless."
+> "You remind me so much of myself from the past. I also used to think that perseveration had some credits, that it was the best way to change the world... but with that alone you cannot accomplish anything. Without power, you're doomed to become dependent on others, that's the way the world works."
 
-&mdash; [**Fujinuma Sachiko**](https://myanimelist.net/character.php?q=Fujinuma%20Sachiko&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
+&mdash; [**Akio Ohtori**](https://myanimelist.net/character.php?q=Akio%20Ohtori&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
