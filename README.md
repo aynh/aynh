@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, silly me. I must have forgotten to turn on my hearing aid. When you're a washed up old hag like me, the memory is the first to go."
+> "Emiya Shirou! Listen, you are not 'one who fights'. You are nothing more than 'one who creates'. Don't think of irrelevant things. There is only one thing you can do, master that one thing. Do not forget. The thing you image is always 'your strongest self.' You don't need any other enemies. The opponent you have to fight is none other than 'your own image'."
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
