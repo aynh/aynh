@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Seems appropriate for Nicol. A weapon fit for a coward."
+> "I don't want to lie anymore. The words 'I believe in you' is a curse. No, it's a spell. If the one who hears it feels cursed, they are."
 
-&mdash; [**Dearka Elsman**](https://myanimelist.net/character.php?q=Dearka%20Elsman&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Watanuki Sakuya**](https://myanimelist.net/character.php?q=Watanuki%20Sakuya&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
