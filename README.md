@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't get me wrong. It's not like I'm worried about you. But if you don't come back I'll never forgive you."
+> "Seems appropriate for Nicol. A weapon fit for a coward."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Dearka Elsman**](https://myanimelist.net/character.php?q=Dearka%20Elsman&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
