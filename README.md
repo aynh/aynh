@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Exodia, OBLITERATE!!!"
+> "An angel? So Whis is an angel? But he’s got no wings, and his butt’s not hanging out."
 
-&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Goku**](https://myanimelist.net/character.php?q=Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
