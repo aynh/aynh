@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You’re about to find out what it’s like to fight a real super saiyan… and I’m not talking about Goku."
+> "Zuko's gone crazy! I made a sand sculpture of Suki and he destroyed it! ... Oh, and he's attacking Aang."
 
-&mdash; [**Trunks**](https://myanimelist.net/character.php?q=Trunks&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
