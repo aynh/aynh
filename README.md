@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What do you think people are made of? I'm not talking about blood or flesh. We do care about what's on the exterior, but we want to focus more on what people even now still call the 'inside.' You can also call it 'nature'. I guess you are either born this way or raised to act this way. Are people born like this or do they become like this? The answer is..."
+> "Thinking it's your fault after the fact is just pointless."
 
-&mdash; [**Fumito Nanahara**](https://myanimelist.net/character.php?q=Fumito%20Nanahara&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
+&mdash; [**Fujinuma Sachiko**](https://myanimelist.net/character.php?q=Fujinuma%20Sachiko&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
