@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because they saved me from myself, they rescued me from my loneliness. They were the first to accept me for who I am. They're my friends."
+> "You’re about to find out what it’s like to fight a real super saiyan… and I’m not talking about Goku."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Trunks**](https://myanimelist.net/character.php?q=Trunks&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
