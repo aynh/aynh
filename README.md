@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "First you say I'm faster then you get the heads up on me like I'm an old lady crossing the freeway! Just once I'd like some honesty from the bad guys!"
+> "What exactly is the end? The end. The end. The end. I've seen the end over and over. What is the end?"
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
