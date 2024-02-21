@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Silence means approaching quietly!"
+> "Because they saved me from myself, they rescued me from my loneliness. They were the first to accept me for who I am. They're my friends."
 
-&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
