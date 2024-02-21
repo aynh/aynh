@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You remind me so much of myself from the past. I also used to think that perseveration had some credits, that it was the best way to change the world... but with that alone you cannot accomplish anything. Without power, you're doomed to become dependent on others, that's the way the world works."
+> "Exodia, OBLITERATE!!!"
 
-&mdash; [**Akio Ohtori**](https://myanimelist.net/character.php?q=Akio%20Ohtori&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
+&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
