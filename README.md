@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Zuko's gone crazy! I made a sand sculpture of Suki and he destroyed it! ... Oh, and he's attacking Aang."
+> "[To Yammy] They're all trash...kill them all."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
