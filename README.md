@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What exactly is the end? The end. The end. The end. I've seen the end over and over. What is the end?"
+> "Don't get me wrong. It's not like I'm worried about you. But if you don't come back I'll never forgive you."
 
-&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
