@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Denying possibility is denying thought."
+> "What do you think people are made of? I'm not talking about blood or flesh. We do care about what's on the exterior, but we want to focus more on what people even now still call the 'inside.' You can also call it 'nature'. I guess you are either born this way or raised to act this way. Are people born like this or do they become like this? The answer is..."
 
-&mdash; [**Alcor**](https://myanimelist.net/character.php?q=Alcor&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Fumito Nanahara**](https://myanimelist.net/character.php?q=Fumito%20Nanahara&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
