@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how hard you try, you cannot exceed your true capabilities."
+> "We were born as weapons and we loved the power that came with it. Nothing could scare us. We walked around town like we owned the place, taking whatever we wanted whenever we wanted it. No one ever thought to ask what our lives were really like."
 
-&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
+&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
