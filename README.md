@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who'd want to date girls that talk smack about your friends?"
+> "I told you, anything is OK, like saying you want me to end all my sentences with 'nyu' for a week. Or that you want me to not wear underwear to school for a week. Or that you want me to wake you up every morning for a week, wearing nothing but an apron."
 
-&mdash; [**Makoto Sunakawa**](https://myanimelist.net/character.php?q=Makoto%20Sunakawa&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
