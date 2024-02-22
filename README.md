@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The curtain that falls down at the end, shall be pulled down by the blade of my sword."
+> "If you're ever lost in the darkness, follow the compass in your heart."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kayo Senju**](https://myanimelist.net/character.php?q=Kayo%20Senju&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
