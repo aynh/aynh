@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you’re in love, you start to worry about the most trivial details. It should feel really restrictive, but worrying about this kind of thing makes me really happy instead."
+> "Even if we painstakingly piece together something lost, it doesn't mean things will ever go back to how they were."
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
