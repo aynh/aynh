@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is called the memories of the body. When the mind forgets, the body remembers for it."
+> "Hey, what's that natto for, anyway? If you intend to seduce me with it, you're way off base, you know."
 
-&mdash; [**Yūko Ichihara**](https://myanimelist.net/character.php?q=Y%C5%ABko%20Ichihara&cat=character), [**Tsubasa Reservoir Chronicles**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicles&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
