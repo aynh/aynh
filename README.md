@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I told you, anything is OK, like saying you want me to end all my sentences with 'nyu' for a week. Or that you want me to not wear underwear to school for a week. Or that you want me to wake you up every morning for a week, wearing nothing but an apron."
+> "Why shouldn't you quit, if that's what you really want to do? Everything will work out somehow."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
