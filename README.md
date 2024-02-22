@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if we painstakingly piece together something lost, it doesn't mean things will ever go back to how they were."
+> "As long as no one got hurt, it's all good. Who cares who saved who?"
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
