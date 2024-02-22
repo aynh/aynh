@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah, so I don’t appear to be the brightest crayon in the box but I still look down on the rest of the world."
+> "Yo... Are you ready for me to break your neck... Rat-boy?"
 
-&mdash; [**Kei Kurono**](https://myanimelist.net/character.php?q=Kei%20Kurono&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
