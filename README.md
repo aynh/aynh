@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're ever lost in the darkness, follow the compass in your heart."
+> "There's no one who can live their whole life being completely uncorrupted."
 
-&mdash; [**Kayo Senju**](https://myanimelist.net/character.php?q=Kayo%20Senju&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
