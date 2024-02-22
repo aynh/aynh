@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Push through the pain, giving up hurts more."
+> "There's nothing more deceiving than an obvious truth."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji: Book of Murder**](https://myanimelist.net/search/all?q=Kuroshitsuji%3A%20Book%20of%20Murder&cat=all)
