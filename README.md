@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter what the essence of it is. The truth is what's hidden inside."
+> "No matter how hard you try, you cannot exceed your true capabilities."
 
-&mdash; [**Hiro Hirono**](https://myanimelist.net/character.php?q=Hiro%20Hirono&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
