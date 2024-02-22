@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someone get this creature off meeeeeee!"
+> "Who'd want to date girls that talk smack about your friends?"
 
-&mdash; [**Kusajishi Yachiru**](https://myanimelist.net/character.php?q=Kusajishi%20Yachiru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Makoto Sunakawa**](https://myanimelist.net/character.php?q=Makoto%20Sunakawa&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
