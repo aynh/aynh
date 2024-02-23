@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because they saved me from myself, they rescued me from my loneliness. They were the first to accept me for who I am. They're my friends."
+> "When the time comes, I may need to borrow your chest to cry upon. That's one promise I'll need from you."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
