@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[about the inefficacy of his attack against Tsunade] Did it not penetrate deep enough because of her fat breasts?"
+> "I'm just a guy who's a hero for fun."
 
-&mdash; [**Kabuto Yakushi**](https://myanimelist.net/character.php?q=Kabuto%20Yakushi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
