@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you're just starting out, put all your energy into surviving. No matter how pathetic you feel, or how people laugh at you, if you come back alive, you win."
+> "[about the inefficacy of his attack against Tsunade] Did it not penetrate deep enough because of her fat breasts?"
 
-&mdash; [**Mia Grand**](https://myanimelist.net/character.php?q=Mia%20Grand&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
+&mdash; [**Kabuto Yakushi**](https://myanimelist.net/character.php?q=Kabuto%20Yakushi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
