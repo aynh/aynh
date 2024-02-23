@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We were born as weapons and we loved the power that came with it. Nothing could scare us. We walked around town like we owned the place, taking whatever we wanted whenever we wanted it. No one ever thought to ask what our lives were really like."
+> "Everyone loses sight of themselves sometimes. Don't worry about it."
 
-&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ichinose Hayato**](https://myanimelist.net/character.php?q=Ichinose%20Hayato&cat=character), [**Uta No Prince Sama**](https://myanimelist.net/search/all?q=Uta%20No%20Prince%20Sama&cat=all)
