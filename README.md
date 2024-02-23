@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When the time comes, I may need to borrow your chest to cry upon. That's one promise I'll need from you."
+> "'If you close down the way to your own path, it will always open up. That's why this isn't a song of ending. It is a new encounter. A song of beginning.'"
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Kahoko Hino**](https://myanimelist.net/character.php?q=Kahoko%20Hino&cat=character), [**La Corda D'Oro - primo passo**](https://myanimelist.net/search/all?q=La%20Corda%20D'Oro%20-%20primo%20passo&cat=all)
