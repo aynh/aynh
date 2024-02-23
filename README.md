@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't be upset because of what you can't do. Do what you do best, live as carefree and optimistically as you can, because some people aren't able to do that."
+> "You want me to roll over like a dog? Give up, and accept defeat.. Ha! That seems to be the sort of language that your kind is used to using. Language for cowards who forfeited their humanity, because they were too weak to survive as such. Don’t look down on humans, you monsters. Come on. I’ll send you all to hell."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Integra Hellsing**](https://myanimelist.net/character.php?q=Integra%20Hellsing&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
