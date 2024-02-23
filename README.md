@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'If you close down the way to your own path, it will always open up. That's why this isn't a song of ending. It is a new encounter. A song of beginning.'"
+> "Not even your closest friends get to see your true blade."
 
-&mdash; [**Kahoko Hino**](https://myanimelist.net/character.php?q=Kahoko%20Hino&cat=character), [**La Corda D'Oro - primo passo**](https://myanimelist.net/search/all?q=La%20Corda%20D'Oro%20-%20primo%20passo&cat=all)
+&mdash; [**Kaede Kayano**](https://myanimelist.net/character.php?q=Kaede%20Kayano&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
