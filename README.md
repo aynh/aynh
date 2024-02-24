@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more inexperienced you are, the more you want to show off."
+> "But you know the saying, 'play with fire, and you'll get burned'. I'll make you regret underestimating L...underestimating me."
 
-&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
