@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Most of the winning results in war is caused by pursuit. Do you know why? Leaving aside modern times, it seems during the era of bayonet warfare, the worst losses always, arise from the moments when the losing side is being pursued."
+> "Once you miss the opportunity to say something, the words become increasingly toxic. The best thing to do is to just say everything."
 
-&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Hayashida Nana**](https://myanimelist.net/character.php?q=Hayashida%20Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
