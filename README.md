@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you miss the opportunity to say something, the words become increasingly toxic. The best thing to do is to just say everything."
+> "No matter how sturdy something appears, it should have some weakness."
 
-&mdash; [**Hayashida Nana**](https://myanimelist.net/character.php?q=Hayashida%20Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Susanoo**](https://myanimelist.net/character.php?q=Susanoo&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
