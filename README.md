@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But you know the saying, 'play with fire, and you'll get burned'. I'll make you regret underestimating L...underestimating me."
+> "Courage is a word that gives you the strength to do what's right, you should not use it as an excuse to murder someone."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
