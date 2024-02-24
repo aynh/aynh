@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Courage is a word that gives you the strength to do what's right, you should not use it as an excuse to murder someone."
+> "I vowed that earth would forever remain in peace. Since I made that vow, not a single threat has been made against earth. That’s all thanks to the fact that my name is known through the entire galaxy."
 
-&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Hercule**](https://myanimelist.net/character.php?q=Hercule&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
