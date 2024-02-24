@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't worry about being so considerate of adults. You can only be a kid for so long, so you might as well enjoy it."
+> "You.... Could it be that you're just an idiot? *to Senjougahara*"
 
-&mdash; [**Charles Beams**](https://myanimelist.net/character.php?q=Charles%20Beams&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
