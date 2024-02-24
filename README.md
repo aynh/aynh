@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can catch a mouse that's shut in a cage. However, catching a mouse in a field is like trying to catch a cloud."
+> "[after Naruto does his Shadow Clone Jutsu] Oh, there sure is a lot of garbage scattered around here. But, trash is just trash after all. It simply needs to be cleaned up."
 
-&mdash; [**Beatrice**](https://myanimelist.net/character.php?q=Beatrice&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
