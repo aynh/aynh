@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The winner should not question his victory. If anything, your actions were responsible for making your own luck."
+> "Could you settle for a smile, and a fond farewell?"
 
-&mdash; [**Baby Steps**](https://myanimelist.net/character.php?q=Baby%20Steps&cat=character), [**Baby Steps**](https://myanimelist.net/search/all?q=Baby%20Steps&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
