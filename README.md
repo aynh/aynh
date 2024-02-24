@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To rule time is to rule the world."
+> "Don't give up! There's no shame in falling down! True shame is to not stand up again!"
 
-&mdash; [**Suzuha Amane**](https://myanimelist.net/character.php?q=Suzuha%20Amane&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Midorima Shintarou**](https://myanimelist.net/character.php?q=Midorima%20Shintarou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
