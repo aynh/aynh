@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don’t hesitate to cut the enemy. Don’t falter to finish them off. Much less heal their wounds. That’s unspeakable, nino. Leave the chocolate here. Become a demon, nino. As strong as a demon. As wicked as a demon. You have to learn that the only way to stand up against ruthlessness, is to become ruthless yourself."
+> "There's something wrong with people who seek reality in fiction."
 
-&mdash; [**Dordonii Alessandro Del Socacchio**](https://myanimelist.net/character.php?q=Dordonii%20Alessandro%20Del%20Socacchio&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
