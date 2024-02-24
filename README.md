@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you say you 'can't hear the sound', doesn't it really mean you 'aren't restrained by the sound'? Rather than the sound you hear with your ears, an image inside you is boiling up from the depths of yourself and taking over without you even knowing. The sound inside, the landscape in your heart, your wishes, a sound loaded with your thoughts; didn't you feel it, even for a moment? 'Not being able to hear the sound.' That is a gift."
+> "I am who I am now because of my past. Calling any choice I made a mistake would be calling who I am now a mistake."
 
-&mdash; [**Hiroko Seto**](https://myanimelist.net/character.php?q=Hiroko%20Seto&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
