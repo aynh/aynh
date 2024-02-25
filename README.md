@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether you're alive, dead, or living dead... Loneliness is still loneliness... It's the same thing... Nothing changes. There are no different categories of loneliness. It's just loneliness."
+> "The things I had to tell her...The things I hoped she would listen to...There were so many of them."
 
-&mdash; [**Kurosu Etsurou**](https://myanimelist.net/character.php?q=Kurosu%20Etsurou&cat=character), [**Ana Satsujin**](https://myanimelist.net/search/all?q=Ana%20Satsujin&cat=all)
+&mdash; [**Takaki Toono**](https://myanimelist.net/character.php?q=Takaki%20Toono&cat=character), [**5 Centimeters per Second**](https://myanimelist.net/search/all?q=5%20Centimeters%20per%20Second&cat=all)
