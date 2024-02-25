@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you claim to love humans, that should include their lies and betrayals, their sins and ugliness, their jealousy and immaturity, their hatred and conflicts."
+> "They are two types of people. Those who let go and those who are let go. How many times have I watched people leave up until now? I may have been able to reach them if I'd reached out, but I was afraid of being pushed away, so I simply watched them disappear into the distance."
 
-&mdash; [**Myouri Unzen**](https://myanimelist.net/character.php?q=Myouri%20Unzen&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Matsuoka Masamune**](https://myanimelist.net/character.php?q=Matsuoka%20Masamune&cat=character), [**Aoharu x Kikanjuu**](https://myanimelist.net/search/all?q=Aoharu%20x%20Kikanjuu&cat=all)
