@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's where all parallel lines meet. Where conflicting ideas are reconciled. It is... above the horizon."
+> "People like you disgust me. You can't even face your own weakness."
 
-&mdash; [**Horizon Ariadust**](https://myanimelist.net/character.php?q=Horizon%20Ariadust&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
+&mdash; [**Murasaki**](https://myanimelist.net/character.php?q=Murasaki&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
