@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The words “fly” and “fall” are tied together. But the more you're hooked to flying, the more you forget about that fact. As a result, you end up trying to reach the skies even after you die. Not falling to the ground, but falling toward the sky."
+> "Whether you're alive, dead, or living dead... Loneliness is still loneliness... It's the same thing... Nothing changes. There are no different categories of loneliness. It's just loneliness."
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Kurosu Etsurou**](https://myanimelist.net/character.php?q=Kurosu%20Etsurou&cat=character), [**Ana Satsujin**](https://myanimelist.net/search/all?q=Ana%20Satsujin&cat=all)
