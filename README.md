@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just really don't wanna meet a disappointing end, with someone burning my bones without even knowing who they belonged to."
+> "There are three things I cannot tolerate: cowardice, bad haircuts, and military insurrection. It is very unfortunate that our friend Vegeta possesses all three of these."
 
-&mdash; [**Jean Kirstein**](https://myanimelist.net/character.php?q=Jean%20Kirstein&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Frieza**](https://myanimelist.net/character.php?q=Frieza&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
