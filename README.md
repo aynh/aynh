@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are three things I cannot tolerate: cowardice, bad haircuts, and military insurrection. It is very unfortunate that our friend Vegeta possesses all three of these."
+> "Those who hate themselves, cannot love or trust others."
 
-&mdash; [**Frieza**](https://myanimelist.net/character.php?q=Frieza&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Rei Ayanami**](https://myanimelist.net/character.php?q=Rei%20Ayanami&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
