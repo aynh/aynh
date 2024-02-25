@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let's share the fruit of fate."
+> "If you try to acquire something, you'll lose something else along the way. That's the truth of this world. No matter how sad it is."
 
-&mdash; [**Kanba Takakura**](https://myanimelist.net/character.php?q=Kanba%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Lilith Bristol**](https://myanimelist.net/character.php?q=Lilith%20Bristol&cat=character), [**Absolute Duo**](https://myanimelist.net/search/all?q=Absolute%20Duo&cat=all)
