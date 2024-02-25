@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't give up! There's no shame in falling down! True shame is to not stand up again!"
+> "If you want to stand with your own will, you don't have any other choice than to let the illusions you have lost remain in the ideals you were following in the past."
 
-&mdash; [**Midorima Shintarou**](https://myanimelist.net/character.php?q=Midorima%20Shintarou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Kouen Ren**](https://myanimelist.net/character.php?q=Kouen%20Ren&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
