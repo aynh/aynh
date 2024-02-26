@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only fools wage war."
+> "Every dream has an end...No matter how nice the dream might be, or how scary it is. Under your warm blanket, the dream comes to an abrupt end, when mother shakes you awake. Forever and ever, the morning scene remains the same. But now I... I wonder... when the dreams began to never end."
 
-&mdash; [**Charles Zi Britannia**](https://myanimelist.net/character.php?q=Charles%20Zi%20Britannia&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Aizawa Yuuichi**](https://myanimelist.net/character.php?q=Aizawa%20Yuuichi&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
