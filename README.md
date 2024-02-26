@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Thinking it's your fault after the fact is just pointless."
+> "Only fools wage war."
 
-&mdash; [**Fujinuma Sachiko**](https://myanimelist.net/character.php?q=Fujinuma%20Sachiko&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
+&mdash; [**Charles Zi Britannia**](https://myanimelist.net/character.php?q=Charles%20Zi%20Britannia&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
