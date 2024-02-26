@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When a person lies, what is important is not the lie itself. No, it is their reason. Their why."
+> "My name is Duck. Yes, like the bird. Take it up with my parents. They never loved me!"
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Ahiru Arima**](https://myanimelist.net/character.php?q=Ahiru%20Arima&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
