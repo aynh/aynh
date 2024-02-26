@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'No longer the Aizen you know,' hm...? I'm afraid you've been deluded, Abarai-kun...The 'Aizen Sousuke' you knew never existed to begin with."
+> "Coming together and working hard with everyone is a really fun thing!"
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Masaru Ōfuna**](https://myanimelist.net/character.php?q=Masaru%20%C5%8Cfuna&cat=character), [**Hanayamata**](https://myanimelist.net/search/all?q=Hanayamata&cat=all)
