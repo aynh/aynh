@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things that cannot be taken back. But the world will keep on spinning whether you laugh or you cry. High school life will eventually end too."
+> "I am the Defender of the pride of New Hell...!!"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Hakua Du Lot Herminium**](https://myanimelist.net/character.php?q=Hakua%20Du%20Lot%20Herminium&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
