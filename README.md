@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Losing something is sad. Even when I lose something as tiny as a worn-out eraser, I feel pretty down for a day or two. That's why I'm looking for him."
+> "We are nothingness. Our head is a void. And without anything around us, we are nothing. We become what we perceive."
 
-&mdash; [**Komari Kamikita**](https://myanimelist.net/character.php?q=Komari%20Kamikita&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
