@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My name is Duck. Yes, like the bird. Take it up with my parents. They never loved me!"
+> "People don't vanish from this world the moment they die. Their true death is when they are forgotten by the living."
 
-&mdash; [**Ahiru Arima**](https://myanimelist.net/character.php?q=Ahiru%20Arima&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
+&mdash; [**Tokou Nanami**](https://myanimelist.net/character.php?q=Tokou%20Nanami&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
