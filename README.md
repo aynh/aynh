@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Gooood morning earth-bending student!"
+> "Thinking it's your fault after the fact is just pointless."
 
-&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Fujinuma Sachiko**](https://myanimelist.net/character.php?q=Fujinuma%20Sachiko&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
