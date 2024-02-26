@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am the Defender of the pride of New Hell...!!"
+> "You tick me off. I hate short people anyway. And you're so impertinent for someone younger than me. It makes me want to break you."
 
-&mdash; [**Hakua Du Lot Herminium**](https://myanimelist.net/character.php?q=Hakua%20Du%20Lot%20Herminium&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Kankuro**](https://myanimelist.net/character.php?q=Kankuro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
