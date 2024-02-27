@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I kill you, that means I'll be the one closest to you when you're on your deathbed. Isn't it romantic?"
+> "You probably do lose a lot, but that just means you need to fill what you lost with new things."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Tsumugu Kihara**](https://myanimelist.net/character.php?q=Tsumugu%20Kihara&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
