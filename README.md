@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why did he smile? Why? Did he know he would be saved? No. In that instant, he must have understood that his life was going to end. Death. He accepted it. He was fully prepared for it and smiled."
+> "(after Goku moves a huge boulder all by himself) Krillin wants everybody to know he's speechless right now."
 
-&mdash; [**Smoker**](https://myanimelist.net/character.php?q=Smoker&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
