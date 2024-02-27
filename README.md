@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, you’ll run into a situation which is dangerous, but which you can't run from. Sometimes, you know you’ll lose, but you have to advance anyway. If you can't be a smart man, then you should be the stupidest man of all. What do you think?"
+> "I'll take fragments from the chaos of this world... and using the fountain of wisdom inside me, will reconstruct them into truth."
 
-&mdash; [**Duran**](https://myanimelist.net/character.php?q=Duran&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Victorique de Blois**](https://myanimelist.net/character.php?q=Victorique%20de%20Blois&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
