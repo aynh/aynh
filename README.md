@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(to Komuro Takashi) In a war like this, there is no surrender or shit like that."
+> "You’ll laugh at your fears when you find out who you are."
 
-&mdash; [**Kouta Hirano**](https://myanimelist.net/character.php?q=Kouta%20Hirano&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
