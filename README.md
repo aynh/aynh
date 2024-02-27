@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A woman's happiness is in throwing everything away to live for love."
+> "I would no longer fight against my feelings because I realized how useless and ineffective it was to fight them."
 
-&mdash; [**Daisuke Yamamoto**](https://myanimelist.net/character.php?q=Daisuke%20Yamamoto&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
+&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
