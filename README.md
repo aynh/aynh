@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't think that by abiding the rules you'll automatically be useful to society. Rules are not there for us, they are there for the 'person who made it' and the 'reality' and 'future', which are bound by these lies. They are preventing you from reaching your full potential. Which is why, if there is a future that you want, fight for it! Fight for it and pin down your own 'reality'."
+> "Obviously you are underestimating Kurama. Do you know why I chose him to be my partner? To avoid fighting him myself. Watch, he's more cut-throat then I am when it comes to battle, and unbelievably precise."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
