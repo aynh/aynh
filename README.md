@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how much he wants it, he can't be a normal human anymore. *about Rin*"
+> "Even when our eyes are closed, there's a whole world out there, that lives outside of ourselves and our dreams."
 
-&mdash; [**Yukio Okumura**](https://myanimelist.net/character.php?q=Yukio%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
