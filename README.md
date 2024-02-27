@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A poor choice seals our fate."
+> "Sometimes, you’ll run into a situation which is dangerous, but which you can't run from. Sometimes, you know you’ll lose, but you have to advance anyway. If you can't be a smart man, then you should be the stupidest man of all. What do you think?"
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Duran**](https://myanimelist.net/character.php?q=Duran&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
