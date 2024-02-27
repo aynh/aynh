@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You probably do lose a lot, but that just means you need to fill what you lost with new things."
+> "[after drawing the infinity symbol] I thought of it myself, it stands for... Mugen."
 
-&mdash; [**Tsumugu Kihara**](https://myanimelist.net/character.php?q=Tsumugu%20Kihara&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
