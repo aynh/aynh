@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll take fragments from the chaos of this world... and using the fountain of wisdom inside me, will reconstruct them into truth."
+> "Why did he smile? Why? Did he know he would be saved? No. In that instant, he must have understood that his life was going to end. Death. He accepted it. He was fully prepared for it and smiled."
 
-&mdash; [**Victorique de Blois**](https://myanimelist.net/character.php?q=Victorique%20de%20Blois&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
+&mdash; [**Smoker**](https://myanimelist.net/character.php?q=Smoker&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
