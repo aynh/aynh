@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is nothing shameful about running away. Some things are just out of people's hands. If you think you're gonna die, just run."
+> "Kurosaki-kun... I'm weak, so it's always like I turn back to look to you for help. But now I won't turn back and I'll go forward. The next time we meet I won't look to you for help, Kurosaki-kun, I'll be able to fight on my own."
 
-&mdash; [**Broken Blade**](https://myanimelist.net/character.php?q=Broken%20Blade&cat=character), [**Broken Blade**](https://myanimelist.net/search/all?q=Broken%20Blade&cat=all)
+&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
