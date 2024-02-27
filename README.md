@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after drawing the infinity symbol] I thought of it myself, it stands for... Mugen."
+> "Before creation there must be destruction. If my soul stands in the way, then I'll toss it aside. Yes, I have no choice but to move forward."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
