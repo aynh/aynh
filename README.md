@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can never get angry at anything, that probably means you have nothing that you like, either."
+> "If I kill you, that means I'll be the one closest to you when you're on your deathbed. Isn't it romantic?"
 
-&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
