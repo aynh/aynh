@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Before my eyes, it blocks my path. A high, high wall. What sort of scene is on the other side? What will I be able to see there? “The view from the top”. A scenery I will never be able to see on my own. But if I’m not alone, then... I might be able to see it."
+> "If the dark sky is me, then the sparkling stars are Tsubaki."
 
-&mdash; [**Shōyō Hinata**](https://myanimelist.net/character.php?q=Sh%C5%8Dy%C5%8D%20Hinata&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
