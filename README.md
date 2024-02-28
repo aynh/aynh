@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The bird fights it's way out of the egg. The egg is the world. Who would be born, must first destroy a world."
+> "You're horrible! Commenting on my appearance like that! I don't have to listen to this from you! It's sexual harassment!"
 
-&mdash; [**Tokyo Ghoul**](https://myanimelist.net/character.php?q=Tokyo%20Ghoul&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
