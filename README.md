@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the dark sky is me, then the sparkling stars are Tsubaki."
+> "People cry, not because they're weak. Its because they've been strong for too long."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
