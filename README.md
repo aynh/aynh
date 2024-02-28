@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A guy who likes someone else shouldn't be taking care of the girl he just dumped."
+> "The wish of wanting everyone to be happy is merely a fairy tale!"
 
-&mdash; [**Takumi Nomiya**](https://myanimelist.net/character.php?q=Takumi%20Nomiya&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
