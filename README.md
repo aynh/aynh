@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans who would dare to play God must pay a steep price for their arrogance, that is Truth."
+> "Somebody's a little light on his feet. What's your fighting name, the Fancy Dancer?"
 
-&mdash; [**Father**](https://myanimelist.net/character.php?q=Father&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
