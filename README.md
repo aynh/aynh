@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if my left arm can transform into a monstrous claw and can destroy Akuma, im just a normal person with a promise..."
+> "A guy who likes someone else shouldn't be taking care of the girl he just dumped."
 
-&mdash; [**Allen Walker**](https://myanimelist.net/character.php?q=Allen%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Takumi Nomiya**](https://myanimelist.net/character.php?q=Takumi%20Nomiya&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
