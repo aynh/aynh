@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your best friend is a... polar bear dog. Somehow that makes perfect sense."
+> "Forget what hurt you in the past, but never forget what it taught you."
 
-&mdash; [**Mako**](https://myanimelist.net/character.php?q=Mako&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
