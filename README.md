@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People's feelings can change. You may hate someone today, but you might come to love that person tomorrow."
+> "I kiss you!"
 
-&mdash; [**Naoki Irie**](https://myanimelist.net/character.php?q=Naoki%20Irie&cat=character), [**Itazura na Kiss**](https://myanimelist.net/search/all?q=Itazura%20na%20Kiss&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
