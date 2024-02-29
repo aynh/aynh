@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Leaf Village Secret-Finger Justu...1,000 Years of Death!!! *sticks his fingers up Naruto's ass*"
+> "Any event is a personal episode, where only those involved comprehend what's happening."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kuro Fukase**](https://myanimelist.net/character.php?q=Kuro%20Fukase&cat=character), [**ib: Instant Bullet**](https://myanimelist.net/search/all?q=ib%3A%20Instant%20Bullet&cat=all)
