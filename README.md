@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're not a strong person, so you can really understand how weak people feel. I mean... Most humans are weak, including me... But if I got an order from someone who saw things like I do, no matter how tough it was, I'd do my damnedest to carry it out."
+> "Seeing the same thing at that time and place, either moving forward or running away... I suppose that's what separates those who are fit for battle from those who are not."
 
-&mdash; [**Marco Bodt**](https://myanimelist.net/character.php?q=Marco%20Bodt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Irene**](https://myanimelist.net/character.php?q=Irene&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
