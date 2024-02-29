@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I kiss you!"
+> "You're not a strong person, so you can really understand how weak people feel. I mean... Most humans are weak, including me... But if I got an order from someone who saw things like I do, no matter how tough it was, I'd do my damnedest to carry it out."
 
-&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Marco Bodt**](https://myanimelist.net/character.php?q=Marco%20Bodt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
