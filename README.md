@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was not capable of stopping it even while using both hands. That surprised me a little. Was that your full power? Well, it seems to be... disappointing."
+> "If you truly desire greatness, you must first know what makes you weak!"
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
