@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're horrible! Commenting on my appearance like that! I don't have to listen to this from you! It's sexual harassment!"
+> "[about his deceased friend] I never overcame my shyness and told her that I actually liked clouds."
 
-&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
