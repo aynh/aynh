@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It looked like it was going to be germ warfare, but the Bacterian fight got me ready for that."
+> "My goal is so far away that I'm not even on the starting line yet."
 
-&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
