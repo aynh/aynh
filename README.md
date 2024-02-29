@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Any event is a personal episode, where only those involved comprehend what's happening."
+> "People's feelings can change. You may hate someone today, but you might come to love that person tomorrow."
 
-&mdash; [**Kuro Fukase**](https://myanimelist.net/character.php?q=Kuro%20Fukase&cat=character), [**ib: Instant Bullet**](https://myanimelist.net/search/all?q=ib%3A%20Instant%20Bullet&cat=all)
+&mdash; [**Naoki Irie**](https://myanimelist.net/character.php?q=Naoki%20Irie&cat=character), [**Itazura na Kiss**](https://myanimelist.net/search/all?q=Itazura%20na%20Kiss&cat=all)
