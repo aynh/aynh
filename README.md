@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's a nice thought to believe in a 'next time'. If it was a real battlefield, there wouldn't be a 'next time'."
+> "Believe you can do it. For sure. Because I... belong to you now."
 
-&mdash; [**Tatsuya Shiba**](https://myanimelist.net/character.php?q=Tatsuya%20Shiba&cat=character), [**Mahouka Koukou no Rettousei**](https://myanimelist.net/search/all?q=Mahouka%20Koukou%20no%20Rettousei&cat=all)
+&mdash; [**Inori Yuzuriha**](https://myanimelist.net/character.php?q=Inori%20Yuzuriha&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
