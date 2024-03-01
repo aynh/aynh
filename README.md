@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Believe you can do it. For sure. Because I... belong to you now."
+> "If there's any possibility that I might visit this city again...Then I challenge you to a duel.  I wish to speak with you head-on, to within an inch of my life...To actually experience the joy of existing in this world...that is my desire."
 
-&mdash; [**Inori Yuzuriha**](https://myanimelist.net/character.php?q=Inori%20Yuzuriha&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Vorona**](https://myanimelist.net/character.php?q=Vorona&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
