@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[about 500 feet behind InuYasha] I can see why being called a mutt by Koga would upset him... but now that I see him sitting there sniffing the ground he does look like a dog."
+> "Lots of things change with the flow of time. But there are things that never change. Things that are precious because they change, and things that are precious because they don’t change… Both are precious. Don’t you feel the same?"
 
-&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Akari Mizunashi**](https://myanimelist.net/character.php?q=Akari%20Mizunashi&cat=character), [**Aria the Animation**](https://myanimelist.net/search/all?q=Aria%20the%20Animation&cat=all)
