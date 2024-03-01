@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's difficult to like me when I'm being myself."
+> "The past is the past and the future is the future. A man is a man and a woman is a woman. The present is the present. I am who I am and you are who you are. That's all there is to it. Does it really matter? Or do we just think it does?"
 
-&mdash; [**Ami Kawashima**](https://myanimelist.net/character.php?q=Ami%20Kawashima&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Faye Valentine**](https://myanimelist.net/character.php?q=Faye%20Valentine&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
