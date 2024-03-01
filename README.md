@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you cut a thread, and then tie it, the thickness will be different where you originally cut it, right? In that sense, it means irreversible change."
+> "I want to live... I want to hold something in my hands and feel its warmth."
 
-&mdash; [**Kaminski Natalia**](https://myanimelist.net/character.php?q=Kaminski%20Natalia&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Dune**](https://myanimelist.net/character.php?q=Dune&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
