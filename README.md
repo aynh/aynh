@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why did you run away, Chitoge-chan? No... I don't want this... I won't be happy with you just giving up... To end up liking the same person. It's painful, for sure but Chitoge-chan, you like him enough to not be able to face him again after that, don't you? Regardless of who ends up with him, I want to be satisfied when it happens. I thought for sure that you think the same way. Is there a reason why that can't happen? Tell me Chitoge-chan..."
+> "Listen midget! I'm going to curse you and make you shrink 1 cm everyday, and in only 156 days you'll vanish completely!!"
 
-&mdash; [**Onodera Kosaki**](https://myanimelist.net/character.php?q=Onodera%20Kosaki&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
