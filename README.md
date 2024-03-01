@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Friends are like balloons. Once you let them go, you can't get them back. So I'm going to tie you to my heart, so to never lose you."
+> "When you said that you hate yourself, it made me want to tell you all the wonderful things I know about you."
 
-&mdash; [**Alibaba Saluja**](https://myanimelist.net/character.php?q=Alibaba%20Saluja&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
+&mdash; [**Rem (re:zero)**](https://myanimelist.net/character.php?q=Rem%20(re%3Azero)&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
