@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The disturbance in the stitch, is a disturbance in the heart."
+> "[to Kenpachi Zaraki, after Tosen's senses-robbing Bankai still does not discourage the Eleventh Division Captain from fighting] I see. It's understandable. You are a demon. You belong in the darkness. So of course you do not fear it."
 
-&mdash; [**Anissina von Karbelnikoff**](https://myanimelist.net/character.php?q=Anissina%20von%20Karbelnikoff&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
