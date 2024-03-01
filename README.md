@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Rather than regret doing nothing, regret something that you've done."
+> "Irony abounds in warfare."
 
-&mdash; [**Tenma Tsukamoto**](https://myanimelist.net/character.php?q=Tenma%20Tsukamoto&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
