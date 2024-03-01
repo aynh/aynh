@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is the first time in my life that I've been provoked to hit a woman."
+> "If you cut a thread, and then tie it, the thickness will be different where you originally cut it, right? In that sense, it means irreversible change."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kaminski Natalia**](https://myanimelist.net/character.php?q=Kaminski%20Natalia&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
