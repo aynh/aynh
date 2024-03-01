@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't be indecisive. Just go for it."
+> "[about 500 feet behind InuYasha] I can see why being called a mutt by Koga would upset him... but now that I see him sitting there sniffing the ground he does look like a dog."
 
-&mdash; [**Atsushi Otani**](https://myanimelist.net/character.php?q=Atsushi%20Otani&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
