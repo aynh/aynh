@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Such shallow emotions evoked by simple and cheerful stories won't solve anything! What people need is a more tangible sense of values with which to resolve the conflicts of everyday life! Even if that causes others to think of you as warped, as long as you can remain true to yourself until the moment you die; that is what I believe true dignity is!"
+> "Friends are like balloons. Once you let them go, you can't get them back. So I'm going to tie you to my heart, so to never lose you."
 
-&mdash; [**Sachi Nanjou**](https://myanimelist.net/character.php?q=Sachi%20Nanjou&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Alibaba Saluja**](https://myanimelist.net/character.php?q=Alibaba%20Saluja&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
