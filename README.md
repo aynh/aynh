@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Lots of things change with the flow of time. But there are things that never change. Things that are precious because they change, and things that are precious because they don’t change… Both are precious. Don’t you feel the same?"
+> "It's a nice thought to believe in a 'next time'. If it was a real battlefield, there wouldn't be a 'next time'."
 
-&mdash; [**Akari Mizunashi**](https://myanimelist.net/character.php?q=Akari%20Mizunashi&cat=character), [**Aria the Animation**](https://myanimelist.net/search/all?q=Aria%20the%20Animation&cat=all)
+&mdash; [**Tatsuya Shiba**](https://myanimelist.net/character.php?q=Tatsuya%20Shiba&cat=character), [**Mahouka Koukou no Rettousei**](https://myanimelist.net/search/all?q=Mahouka%20Koukou%20no%20Rettousei&cat=all)
