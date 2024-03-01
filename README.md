@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "HANAJIMA, MY SPEAR! GET ME MY SPEAR!"
+> "This is the first time in my life that I've been provoked to hit a woman."
 
-&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
