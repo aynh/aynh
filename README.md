@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen midget! I'm going to curse you and make you shrink 1 cm everyday, and in only 156 days you'll vanish completely!!"
+> "Don't be indecisive. Just go for it."
 
-&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
+&mdash; [**Atsushi Otani**](https://myanimelist.net/character.php?q=Atsushi%20Otani&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
