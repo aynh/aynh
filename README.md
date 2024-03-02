@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter where I look, it's always idiots as far as the eye can see."
+> "The curtain that falls down at the end, shall be pulled down by the blade of my sword."
 
-&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
