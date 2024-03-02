@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop rushing me. I want to take my time falling in love with you."
+> "Don't be too negative. You haven't become ashes just yet. You have your flesh and blood, and your bones are supporting you."
 
-&mdash; [**Koizumi George**](https://myanimelist.net/character.php?q=Koizumi%20George&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
+&mdash; [**Sakurako Kujō**](https://myanimelist.net/character.php?q=Sakurako%20Kuj%C5%8D&cat=character), [**Sakurako-san no Ashioto ni wa Shitai ga Umatteiru**](https://myanimelist.net/search/all?q=Sakurako-san%20no%20Ashioto%20ni%20wa%20Shitai%20ga%20Umatteiru&cat=all)
