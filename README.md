@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A victory won through dishonesty means it's no victory at all."
+> "Don't you think it's beautiful? That rosy red that spreads only where the body is wounded. Shall I paint you in that lovely red... little boy?"
 
-&mdash; [**Suzaku Kururugi**](https://myanimelist.net/character.php?q=Suzaku%20Kururugi&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
