@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am your weapon partner Maka! That means I'm always prepared to die for my Meister!"
+> "I'd rather fight for my life than live it."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
