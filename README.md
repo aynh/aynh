@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Power isn't determined by your size, but the size of your heart and dreams!"
+> "A victory won through dishonesty means it's no victory at all."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Suzaku Kururugi**](https://myanimelist.net/character.php?q=Suzaku%20Kururugi&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
