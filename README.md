@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't you think it's beautiful? That rosy red that spreads only where the body is wounded. Shall I paint you in that lovely red... little boy?"
+> "It's not like I had aspirations to be a hero or anything. However, I'm positive we followed a code of justice that all of us believed in without condition or compromise."
 
-&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Togusa**](https://myanimelist.net/character.php?q=Togusa&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
