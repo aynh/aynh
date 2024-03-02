@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don’t know what you’re aiming at, but you can’t expect to be perfect right off the bat. You have to build up your confidence… by achieving small tasks one by one."
+> "Nobody can make someone who isn't trying to be happy into someone that's happy"
 
-&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Tsubasa Hanekawa**](https://myanimelist.net/character.php?q=Tsubasa%20Hanekawa&cat=character), [**Owarimonogatari**](https://myanimelist.net/search/all?q=Owarimonogatari&cat=all)
