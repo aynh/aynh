@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who a person hangs out with is their choice. And I couldn't care less about rumors. Until I tried talking to them myself, I wouldn't know..."
+> "Stop rushing me. I want to take my time falling in love with you."
 
-&mdash; [**Shougo Kiryuu**](https://myanimelist.net/character.php?q=Shougo%20Kiryuu&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
+&mdash; [**Koizumi George**](https://myanimelist.net/character.php?q=Koizumi%20George&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
