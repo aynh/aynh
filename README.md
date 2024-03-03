@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop meddling in Team Rocket's affairs!"
+> "[after winning a game of beach volleyball'Kuai Ball'] Yes! We defeated you for all time! You will never rise from the ashes of your shame and humiliation! [pause] Well, that was fun."
 
-&mdash; [**Rocket Grunt**](https://myanimelist.net/character.php?q=Rocket%20Grunt&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Azula**](https://myanimelist.net/character.php?q=Azula&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
