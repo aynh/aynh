@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't feel as good on my foot now, change yourself back into a frog."
+> "If you desire one thing for so long, it's a given that you'll miss other things along the way. That's how it is... that's life."
 
-&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Godo**](https://myanimelist.net/character.php?q=Godo&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
