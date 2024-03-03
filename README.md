@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone's birthplace and upbringing is different. It's obviously impossible for them to understand each other."
+> "The weak always cling to words, and those with power die for those without it."
 
-&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Claymore**](https://myanimelist.net/character.php?q=Claymore&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
