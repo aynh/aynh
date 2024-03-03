@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bare emotions tell the truth much eloquently than any justification."
+> "You don't feel as good on my foot now, change yourself back into a frog."
 
-&mdash; [**Konan**](https://myanimelist.net/character.php?q=Konan&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
+&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
