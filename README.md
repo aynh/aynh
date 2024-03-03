@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Play to the last note, and leave no regrets."
+> "Everyone has a sword within their hearts; the purer the heart, the sharper the sword."
 
-&mdash; [**Kiyora Miki**](https://myanimelist.net/character.php?q=Kiyora%20Miki&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
+&mdash; [**Gankutsuou**](https://myanimelist.net/character.php?q=Gankutsuou&cat=character), [**Gankutsuou**](https://myanimelist.net/search/all?q=Gankutsuou&cat=all)
