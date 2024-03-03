@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ashes to ashes. Dust to dust. We are nothing, but dust and to dust we shall return. Amen."
+> "I'd rather fight for my life than live it."
 
-&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
