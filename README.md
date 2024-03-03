@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'd rather fight for my life than live it."
+> "Bare emotions tell the truth much eloquently than any justification."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Konan**](https://myanimelist.net/character.php?q=Konan&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
