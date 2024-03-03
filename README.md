@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Doesn't it ever get boring always being on the winning side?"
+> "Ashes to ashes. Dust to dust. We are nothing, but dust and to dust we shall return. Amen."
 
-&mdash; [**Thorkell**](https://myanimelist.net/character.php?q=Thorkell&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
