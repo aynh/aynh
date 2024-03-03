@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because of our broken instincts, we are in pain. We continue living in pain, because our instincts have been twisted by reason. So, what are we supposed to do? Should we abandon knowledge? Throw away reason? In any event, that wouldn't be possible. For better or for worse, we ate the fruit of knowledge long, long ago."
+> "I believe in ghosts, even though I've never seen one before and get this. I don't believe in anyone of the people that have said they seen one before. It's kind of like how I think about the concept of love. Like I believe one day I'll fall in love, get married and live happily ever after, even though I've never actually fallen in love with anyone yet. You see what I'm saying? For some people falling in love is like second nature, but I can't even relate to that. So if I've never fallen in love before is it real? And that makes me wonder if ghost are real. I haven't seen one yet so maybe they're not."
 
-&mdash; [**Satou Tatsuhiro**](https://myanimelist.net/character.php?q=Satou%20Tatsuhiro&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
