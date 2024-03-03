@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe in ghosts, even though I've never seen one before and get this. I don't believe in anyone of the people that have said they seen one before. It's kind of like how I think about the concept of love. Like I believe one day I'll fall in love, get married and live happily ever after, even though I've never actually fallen in love with anyone yet. You see what I'm saying? For some people falling in love is like second nature, but I can't even relate to that. So if I've never fallen in love before is it real? And that makes me wonder if ghost are real. I haven't seen one yet so maybe they're not."
+> "If I don't stand up here... If I don't reach higher here... When am I ever going to do it?"
 
-&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Bell Cranel**](https://myanimelist.net/character.php?q=Bell%20Cranel&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
