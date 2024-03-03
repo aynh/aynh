@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When will the war end? When someone wins."
+> "Play to the last note, and leave no regrets."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Kiyora Miki**](https://myanimelist.net/character.php?q=Kiyora%20Miki&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
