@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you lose something, just build it again. And this time, with a greater care."
+> "I think you and I have different concepts of beauty. I was taught that it's beautiful to survive, unsightly or not."
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Ganju Shiba**](https://myanimelist.net/character.php?q=Ganju%20Shiba&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
