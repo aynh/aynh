@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Legends from the distant past are always exaggerated, but eventually, someone outdoes them... that's when new legends are born!"
+> "Stop meddling in Team Rocket's affairs!"
 
-&mdash; [**Shikaku Nara**](https://myanimelist.net/character.php?q=Shikaku%20Nara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Rocket Grunt**](https://myanimelist.net/character.php?q=Rocket%20Grunt&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
