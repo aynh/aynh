@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And I'll be happy to vouch for his insanity!"
+> "Everyone gets help from someone else at some point in their lives. So someday, you should help someone too."
 
-&mdash; [**Haruka**](https://myanimelist.net/character.php?q=Haruka&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Suzuha Amane**](https://myanimelist.net/character.php?q=Suzuha%20Amane&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
