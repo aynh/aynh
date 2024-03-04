@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To be able to forgive those who have wronged you... only the truly strong can do that."
+> "Under normal circumstances, humans should have continued to evolve as the greatest creatures upon this earth, but we were actually regressing. A rotten world. Politics, law, education... Was there anybody around who could correct this world? But someone had to do it."
 
-&mdash; [**Kanako Watanabe**](https://myanimelist.net/character.php?q=Kanako%20Watanabe&cat=character), [**Star Driver**](https://myanimelist.net/search/all?q=Star%20Driver&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
