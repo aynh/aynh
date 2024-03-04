@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That’s right. I’m nice. After everything that has happened in my life, I still haven’t gone after anyone or anything in revenge. If I were normal I would have destroyed the world by now. In a sense it makes me a savior of sorts."
+> "I consider your class of demon very worthy, worthy to fight, and worthy to die."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Youko Kurama**](https://myanimelist.net/character.php?q=Youko%20Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
