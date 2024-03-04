@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't get to choose who you fall for. The heart doesn't always work the way you want it to. You should just follow your feelings honestly. You'll be happier that way."
+> "You clearly have nerves of steel. But, I'd say you still have much to learn about the world."
 
-&mdash; [**Ayumi Sanda**](https://myanimelist.net/character.php?q=Ayumi%20Sanda&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
+&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
