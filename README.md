@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your own path is for you to find out on your own."
+> "That’s right. I’m nice. After everything that has happened in my life, I still haven’t gone after anyone or anything in revenge. If I were normal I would have destroyed the world by now. In a sense it makes me a savior of sorts."
 
-&mdash; [**Subaru**](https://myanimelist.net/character.php?q=Subaru&cat=character), [**.hack//SIGN**](https://myanimelist.net/search/all?q=.hack%2F%2FSIGN&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
