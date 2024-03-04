@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Uh, my name... is... Ketchup! No, wait! My name is really Tom Ato!"
+> "The guards will show you to your chamber. The one that used to be the bad chamber, until the recent refurbishing that is. Of course, we've been calling it the new chamber, but we really should number them. Uh, take them to the refurbished chamber that was once bad!"
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**King Bumi**](https://myanimelist.net/character.php?q=King%20Bumi&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
