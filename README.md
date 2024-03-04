@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Under normal circumstances, humans should have continued to evolve as the greatest creatures upon this earth, but we were actually regressing. A rotten world. Politics, law, education... Was there anybody around who could correct this world? But someone had to do it."
+> "Country of birth, time period, parents, location... various factors make people's lives unequal from the very beginning."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Death Parade**](https://myanimelist.net/character.php?q=Death%20Parade&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
