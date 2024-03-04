@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You’re wrong! None of that makes any sense! Grief and suffering isn’t something that can be taken away by dying in a fight! You have to resolve your problems by talking and explaining your points of view. Relying on others for it is wrong!"
+> "To be able to forgive those who have wronged you... only the truly strong can do that."
 
-&mdash; [**Mato Kuroi**](https://myanimelist.net/character.php?q=Mato%20Kuroi&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
+&mdash; [**Kanako Watanabe**](https://myanimelist.net/character.php?q=Kanako%20Watanabe&cat=character), [**Star Driver**](https://myanimelist.net/search/all?q=Star%20Driver&cat=all)
