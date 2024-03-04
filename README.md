@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has a sword within their hearts; the purer the heart, the sharper the sword."
+> "Your own path is for you to find out on your own."
 
-&mdash; [**Gankutsuou**](https://myanimelist.net/character.php?q=Gankutsuou&cat=character), [**Gankutsuou**](https://myanimelist.net/search/all?q=Gankutsuou&cat=all)
+&mdash; [**Subaru**](https://myanimelist.net/character.php?q=Subaru&cat=character), [**.hack//SIGN**](https://myanimelist.net/search/all?q=.hack%2F%2FSIGN&cat=all)
