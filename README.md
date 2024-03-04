@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I could kill you, but I wont become like you, who uses power for his own egoism."
+> "Inuyasha, you and I were fated to never meet again."
 
-&mdash; [**Toki Fujiwara**](https://myanimelist.net/character.php?q=Toki%20Fujiwara&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
