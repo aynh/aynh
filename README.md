@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You clearly have nerves of steel. But, I'd say you still have much to learn about the world."
+> "A dream isn't something that someone tells you to go for. It's something you fulfill of your own will."
 
-&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
