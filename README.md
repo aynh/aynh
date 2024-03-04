@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A dream isn't something that someone tells you to go for. It's something you fulfill of your own will."
+> "Don't be so quick to throw away your life. No matter how disgraceful or embarrassing it may be, you need to keep struggling to find your way out until the very end."
 
-&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Clare**](https://myanimelist.net/character.php?q=Clare&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
