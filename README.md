@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I consider your class of demon very worthy, worthy to fight, and worthy to die."
+> "I could kill you, but I wont become like you, who uses power for his own egoism."
 
-&mdash; [**Youko Kurama**](https://myanimelist.net/character.php?q=Youko%20Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Toki Fujiwara**](https://myanimelist.net/character.php?q=Toki%20Fujiwara&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
