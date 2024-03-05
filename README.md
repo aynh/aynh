@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He, who knows how to do something, is the servant of he, who knows why that thing must be done."
+> "There are people who don't know you, who are saying a lot of awful things. But just saying stuff is easy, and anyone can do it. However...There's no one out there who could take your place."
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Mutta Namba**](https://myanimelist.net/character.php?q=Mutta%20Namba&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
