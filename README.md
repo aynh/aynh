@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Detective, don't waste your time trying to change their minds. Fight by their meaningless rules and you'll be pulled down with them. There's only one real law of the dark tournament: the strongest man prevails. I've retrieved enough energy to rip my way out, let's show this entire stadium a new definition for victory!"
+> "The hot blood that flows through my body... is not something that can be suppressed by other people!"
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Bulat**](https://myanimelist.net/character.php?q=Bulat&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
