@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you need a reason to not want to lose?"
+> "*about Katsura, who apparently got his head hit very hard* Forget his name, this guy's questioning his own existence!"
 
-&mdash; [**Shōyō Hinata**](https://myanimelist.net/character.php?q=Sh%C5%8Dy%C5%8D%20Hinata&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
