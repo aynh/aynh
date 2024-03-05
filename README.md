@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's always room for free food."
+> "I don't intentionally ignore anyone. Their words simply don't resonate with me."
 
-&mdash; [**Kasumi Fuu**](https://myanimelist.net/character.php?q=Kasumi%20Fuu&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Asaba Yuki**](https://myanimelist.net/character.php?q=Asaba%20Yuki&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
