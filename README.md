@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Rather than regret doing nothing, regret something that you've done."
+> "I yearn for you more than anyone else. I love you Akito... And that is the irrevocable unwavering truth.(shigures answer to akitos question 'do you like me?' during a child hood flashback)"
 
-&mdash; [**Tenma Tsukamoto**](https://myanimelist.net/character.php?q=Tenma%20Tsukamoto&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
