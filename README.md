@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*about Katsura, who apparently got his head hit very hard* Forget his name, this guy's questioning his own existence!"
+> "If we give up before we try, then nothing is going to happen."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Eli Ayase**](https://myanimelist.net/character.php?q=Eli%20Ayase&cat=character), [**Love Live! School idol project**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project&cat=all)
