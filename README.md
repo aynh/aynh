@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Can you do me a favor? Could you kill me with your fangs? Can you still not forgive me? Am I still a traitor?"
+> "Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt?"
 
-&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
