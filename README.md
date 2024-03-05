@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt?"
+> "Destiny is a mysterious thing. It lets people reach their intended destinations."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Iraha Lemercier**](https://myanimelist.net/character.php?q=Iraha%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
