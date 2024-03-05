@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are people who don't know you, who are saying a lot of awful things. But just saying stuff is easy, and anyone can do it. However...There's no one out there who could take your place."
+> "Oh! My little scythey boy!"
 
-&mdash; [**Mutta Namba**](https://myanimelist.net/character.php?q=Mutta%20Namba&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Blair**](https://myanimelist.net/character.php?q=Blair&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
