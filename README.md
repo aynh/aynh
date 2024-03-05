@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want what another man can give me. If he grants me anything, then it's his to give and not my own."
+> "You are coming with me, we are going to hell."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
