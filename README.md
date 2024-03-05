@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we give up before we try, then nothing is going to happen."
+> "Detective, don't waste your time trying to change their minds. Fight by their meaningless rules and you'll be pulled down with them. There's only one real law of the dark tournament: the strongest man prevails. I've retrieved enough energy to rip my way out, let's show this entire stadium a new definition for victory!"
 
-&mdash; [**Eli Ayase**](https://myanimelist.net/character.php?q=Eli%20Ayase&cat=character), [**Love Live! School idol project**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
