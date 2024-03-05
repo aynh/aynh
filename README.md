@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Remember this... no matter where you go, the strength of your mind and spirit is the most powerful magic of all."
+> "Can you do me a favor? Could you kill me with your fangs? Can you still not forgive me? Am I still a traitor?"
 
-&mdash; [**Princess Emeraude**](https://myanimelist.net/character.php?q=Princess%20Emeraude&cat=character), [**Magic Knight Rayearth**](https://myanimelist.net/search/all?q=Magic%20Knight%20Rayearth&cat=all)
+&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
