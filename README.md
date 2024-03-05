@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The hot blood that flows through my body... is not something that can be suppressed by other people!"
+> "I guess, as long as I have life, all I can do is fight with all my might."
 
-&mdash; [**Bulat**](https://myanimelist.net/character.php?q=Bulat&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Subaru Natsuki**](https://myanimelist.net/character.php?q=Subaru%20Natsuki&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
