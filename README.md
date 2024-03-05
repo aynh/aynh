@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Does it hurt? Relish the taste, because it is going to be the last sensation you feel in this life."
+> "I want to break up while I can still say I love you."
 
-&mdash; [**Asakura Ryouko**](https://myanimelist.net/character.php?q=Asakura%20Ryouko&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Chihiro Shindou**](https://myanimelist.net/character.php?q=Chihiro%20Shindou&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
