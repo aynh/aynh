@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Destiny is a mysterious thing. It lets people reach their intended destinations."
+> "Who cares about snow? Snow can't touch me, I could be naked out here and it wouldn't bother me at all."
 
-&mdash; [**Iraha Lemercier**](https://myanimelist.net/character.php?q=Iraha%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
