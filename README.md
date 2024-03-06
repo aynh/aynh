@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen up! Youth doesn't last all that long! These precious three years of your youth will zip by and you'll be left with nothing but regrets if you spend them running away in delusions and fantasies, so you have to make it clear whether you like someone or not!"
+> "Nicol was fifteen. He loved the piano and Kira just cut him down."
 
-&mdash; [**Akira Fujieda**](https://myanimelist.net/character.php?q=Akira%20Fujieda&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
