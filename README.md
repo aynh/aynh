@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The strong feed upon weak. It's such an obligingly simple rule. Except in this world, my friends tried to be strong."
+> "This young girl, whose small body is only half the size of mine, has taught me that tears can flow from these silver eyes."
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
