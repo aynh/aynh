@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because of our weakness, we trained our eyes, ears and the ability to think. Learning how to survive, that's our trait as humans! The human species can't use magic and can't even perceive it—but because we are weak, we have the wisdom to run away from magic and the intelligence to see through it! We don't have any extraordinary senses. But because we are weak, by learning and gaining experience, we gained the wisdom to achieve the unachievable—to predict the future...Rejoice! We are humans; we are the most talented people! Precisely because we were born without any ability, we can achieve anything. This is the will of the weakest race!"
+> "Listen up! Youth doesn't last all that long! These precious three years of your youth will zip by and you'll be left with nothing but regrets if you spend them running away in delusions and fantasies, so you have to make it clear whether you like someone or not!"
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Akira Fujieda**](https://myanimelist.net/character.php?q=Akira%20Fujieda&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
