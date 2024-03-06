@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you hurt somebody or if someone hurts you, - the same red blood will be shed."
+> "Embrace your dreams...and whatever happens, protect your honor...AS SOLDIER!"
 
-&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Zack Fair**](https://myanimelist.net/character.php?q=Zack%20Fair&cat=character), [**Final Fantasy VII: Crisis Core**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Crisis%20Core&cat=all)
