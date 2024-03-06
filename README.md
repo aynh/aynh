@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know no one expects much from me! And I know better than anyone how useless a C Class hero is! I know I'm too weak even for B Class! I know more than anyone else that I'll never beat you! But I must fight you anyway! I'm the only one left! It's not about winning or losing! I just have to stand here and face you!"
+> "Because of our weakness, we trained our eyes, ears and the ability to think. Learning how to survive, that's our trait as humans! The human species can't use magic and can't even perceive it—but because we are weak, we have the wisdom to run away from magic and the intelligence to see through it! We don't have any extraordinary senses. But because we are weak, by learning and gaining experience, we gained the wisdom to achieve the unachievable—to predict the future...Rejoice! We are humans; we are the most talented people! Precisely because we were born without any ability, we can achieve anything. This is the will of the weakest race!"
 
-&mdash; [**Mumen Rider**](https://myanimelist.net/character.php?q=Mumen%20Rider&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
