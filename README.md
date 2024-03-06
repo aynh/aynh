@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's more cruel to give someone false hope, you know."
+> "The best way to succeed is to use your own abilities to the fullest."
 
-&mdash; [**Michiru Kinushima**](https://myanimelist.net/character.php?q=Michiru%20Kinushima&cat=character), [**Plastic Memories**](https://myanimelist.net/search/all?q=Plastic%20Memories&cat=all)
+&mdash; [**Yukio Okumura**](https://myanimelist.net/character.php?q=Yukio%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
