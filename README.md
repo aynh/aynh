@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This young girl, whose small body is only half the size of mine, has taught me that tears can flow from these silver eyes."
+> "Those with talent who aren't aware of themselves cause pain for those who have none."
 
-&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Fuyumi Irisu**](https://myanimelist.net/character.php?q=Fuyumi%20Irisu&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
