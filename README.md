@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who cares? Who cares if they're human or if they're something else? If they have boobs, what's the problem?"
+> "The strong feed upon weak. It's such an obligingly simple rule. Except in this world, my friends tried to be strong."
 
-&mdash; [**Sakurai Tomozo**](https://myanimelist.net/character.php?q=Sakurai%20Tomozo&cat=character), [**Sora no Otoshimono: Forte**](https://myanimelist.net/search/all?q=Sora%20no%20Otoshimono%3A%20Forte&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
