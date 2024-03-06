@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*referring to Haruhi* She must have been born dumb."
+> "It's more cruel to give someone false hope, you know."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Michiru Kinushima**](https://myanimelist.net/character.php?q=Michiru%20Kinushima&cat=character), [**Plastic Memories**](https://myanimelist.net/search/all?q=Plastic%20Memories&cat=all)
