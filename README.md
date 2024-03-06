@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's the kind of people they are. Whether it was me or not doesn't make a difference. A person falling to their doom, and without a second thought they would jump in to save them. It's impossible to just sit and let it happen. Without thinking of the consequences their bodies just move. That's what kind of idiocy is gathered here. That's the Yorozuya. Even if you forget everything else, as long as you remember that much, we're good. As long as you remember that, whomever your leader is, you guys will do fine."
+> "(Her dad) He'd always tell me that family isn't about being related by blood. Living under the same roof and caring for each other is what family is all about."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Charunee Kusakabe**](https://myanimelist.net/character.php?q=Charunee%20Kusakabe&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
