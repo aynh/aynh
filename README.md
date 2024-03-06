@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are coming with me, we are going to hell."
+> "That's the kind of people they are. Whether it was me or not doesn't make a difference. A person falling to their doom, and without a second thought they would jump in to save them. It's impossible to just sit and let it happen. Without thinking of the consequences their bodies just move. That's what kind of idiocy is gathered here. That's the Yorozuya. Even if you forget everything else, as long as you remember that much, we're good. As long as you remember that, whomever your leader is, you guys will do fine."
 
-&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
