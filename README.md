@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't judge me unless you have looked through my eyes, experienced what I went through and cried as many tears as me. Until then back-off, cause you have no idea."
+> "It seems I have overestimated you quite a bit. Your evolution did not even satisfy my expectations. This is the end."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
