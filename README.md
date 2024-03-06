@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The best way to succeed is to use your own abilities to the fullest."
+> "No matter what, anyone would hate to be weak as they get plundered. But if there's a chance, even if humans fail to get what they want, they can unexpectedly accept such an outcome."
 
-&mdash; [**Yukio Okumura**](https://myanimelist.net/character.php?q=Yukio%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
