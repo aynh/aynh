@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It seems I have overestimated you quite a bit. Your evolution did not even satisfy my expectations. This is the end."
+> "NOW, SPARKLE, MY HOUSE OF LEARNING!!"
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sohma Ayame**](https://myanimelist.net/character.php?q=Sohma%20Ayame&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
