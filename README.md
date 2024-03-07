@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not the fun and games you think. It's bizarre... sinister... cursed. (speaking of the curse to Tohru)"
+> "Time might separate us some day. But, even still, until then, let's stay together."
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Hotaru Takegawa**](https://myanimelist.net/character.php?q=Hotaru%20Takegawa&cat=character), [**Hotarubi no Mori e**](https://myanimelist.net/search/all?q=Hotarubi%20no%20Mori%20e&cat=all)
