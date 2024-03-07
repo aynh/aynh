@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what, anyone would hate to be weak as they get plundered. But if there's a chance, even if humans fail to get what they want, they can unexpectedly accept such an outcome."
+> "You shouldn't judge something without trying it first. Having a variety of experiences is what makes life worth living."
 
-&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Leticia Draculair**](https://myanimelist.net/character.php?q=Leticia%20Draculair&cat=character), [**Mondaiji-tachi Ga Isekai Kara Kuru Sou Desu Yo?**](https://myanimelist.net/search/all?q=Mondaiji-tachi%20Ga%20Isekai%20Kara%20Kuru%20Sou%20Desu%20Yo%3F&cat=all)
