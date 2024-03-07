@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not very good at sensing people's boundaries. Without knowing how far is too far, I gradually get closer and closer. It's terrifying. Being unable to sense that is terrifying."
+> "As long as you keep anything about me within you... Always, my heart will be with you."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
