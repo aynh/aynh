@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm Hatake Kakashi. Things I like and things I hate? I don't feel like telling you that. My dreams for the future? Never really thought about that. As for my hobbies... I have lots of hobbies."
+> "To deceive your enemy, begin with your ally."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Hattori Heiji**](https://myanimelist.net/character.php?q=Hattori%20Heiji&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
