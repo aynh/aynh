@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The difference between the novice and the master is that the master has failed more times than the novice has tried."
+> "I'm Hatake Kakashi. Things I like and things I hate? I don't feel like telling you that. My dreams for the future? Never really thought about that. As for my hobbies... I have lots of hobbies."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
