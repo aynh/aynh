@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Miracles are illusions caused by insufficient observation and understanding. They're just... glorious misunderstandings."
+> "Live by your own rules. And have reality accept your own rules. If you are able to do that, the future is all yours."
 
-&mdash; [**Tanya Degurechaff**](https://myanimelist.net/character.php?q=Tanya%20Degurechaff&cat=character), [**Youjo Senki**](https://myanimelist.net/search/all?q=Youjo%20Senki&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
