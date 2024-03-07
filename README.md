@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You shouldn't judge something without trying it first. Having a variety of experiences is what makes life worth living."
+> "Men are not men on the battlefield. We turn into some other creature. You can do the cruelest things... It doesn't even matter if it's an order or not. To protect yourself, your mind shuts out any emotions you have. It's like a steel door. But once the war is over, you can't keep it closed forever."
 
-&mdash; [**Leticia Draculair**](https://myanimelist.net/character.php?q=Leticia%20Draculair&cat=character), [**Mondaiji-tachi Ga Isekai Kara Kuru Sou Desu Yo?**](https://myanimelist.net/search/all?q=Mondaiji-tachi%20Ga%20Isekai%20Kara%20Kuru%20Sou%20Desu%20Yo%3F&cat=all)
+&mdash; [**Fullmetal Alchemist**](https://myanimelist.net/character.php?q=Fullmetal%20Alchemist&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
