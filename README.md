@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you think I’m a nuisance, no matter where you go, I’ll find you. I’ll always be listening for your voice. When the rain falls, when the wind blows, when the flowers scatter, when shadow looms. In every sign, I’ll search for your voice."
+> "It's not the fun and games you think. It's bizarre... sinister... cursed. (speaking of the curse to Tohru)"
 
-&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
