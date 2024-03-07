@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Since then… I’ve started to think…about things with the worst case outcome first. By doing so, even if you did get hurt a little bit, it wouldn’t end up being a lasting wound."
+> "My, my. So dangerous."
 
-&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
