@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All the people I saw from my cage...All the things I saw from my cage, that was the whole world to me. At first, all I could sense was the hostility of the people looking at me from outside...And their feelings of fear. Piercing gazes, hurled stones, whips, sticks...Everything outside the cage was frightening, a source of pain...But eventually I began to realize something. I began to see their other emotions, not just their hostility and fear of me. They were the emotions of families, lovers, and friends who came to the sideshow...Emotions meant for each other."
+> "Remember how you're supposed to let go right away when you fall off a horse and hit the ground? You don't need to hurt yourself for no reason. If you don't let go, you'll get dragged by the horse and get hurt."
 
-&mdash; [**Kuklo**](https://myanimelist.net/character.php?q=Kuklo&cat=character), [**Shingeki no Kyojin: Before the Fall**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Before%20the%20Fall&cat=all)
+&mdash; [**Aki Mikage (Silver Spoon)**](https://myanimelist.net/character.php?q=Aki%20Mikage%20(Silver%20Spoon)&cat=character), [**Silver Spoon**](https://myanimelist.net/search/all?q=Silver%20Spoon&cat=all)
