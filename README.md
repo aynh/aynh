@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know the power of my zanpakuto, Suzumebachi. If someone gets hit twice in the same spot... They die!"
+> "All I ever did was pay attention to myself. And I'm not even sure I saw myself clearly."
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Luke Fon Fabre**](https://myanimelist.net/character.php?q=Luke%20Fon%20Fabre&cat=character), [**Tales of the Abyss**](https://myanimelist.net/search/all?q=Tales%20of%20the%20Abyss&cat=all)
