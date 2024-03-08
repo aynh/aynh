@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can go anywhere you want in this world with a single blade. This may be a virtual world, but I feel more alive here than in the real world."
+> "People's mind are like alien existence. We don't know where they are, and we can barely scratch the surface of what they really are."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/character.php?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
