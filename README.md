@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Still I've never thought of myself as an unfortunate person. Of course I am not a fortunate person either. In the first place a fortunate person could never write plays or novels. I write while loving my misfortune almost as if I'm tasting it."
+> "If you were to write a story with me in the lead role, it would certainly be... a tragedy."
 
-&mdash; [**Takada**](https://myanimelist.net/character.php?q=Takada&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
