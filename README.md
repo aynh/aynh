@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Magic is anything you can think of. It can be felt in infinite ways... As light, as darkness, as red, as blue. It is living freely, together along side Fairy Tail."
+> "All the people I saw from my cage...All the things I saw from my cage, that was the whole world to me. At first, all I could sense was the hostility of the people looking at me from outside...And their feelings of fear. Piercing gazes, hurled stones, whips, sticks...Everything outside the cage was frightening, a source of pain...But eventually I began to realize something. I began to see their other emotions, not just their hostility and fear of me. They were the emotions of families, lovers, and friends who came to the sideshow...Emotions meant for each other."
 
-&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kuklo**](https://myanimelist.net/character.php?q=Kuklo&cat=character), [**Shingeki no Kyojin: Before the Fall**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Before%20the%20Fall&cat=all)
