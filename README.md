@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My motto is to be stronger than yesterday, if I have to I'll be stronger than half a day ago, even a minute ago!"
+> "A heaven that only watches has no meaning."
 
-&mdash; [**Rock Lee**](https://myanimelist.net/character.php?q=Rock%20Lee&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Su-won**](https://myanimelist.net/character.php?q=Su-won&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
