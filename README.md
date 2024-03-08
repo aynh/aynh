@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The country? the skies? You can have them. I'm busy just protecting what's right in front of me. I don't know what'll happen to me in the future, but if something has fallen at my feet, then the least I can do is pick it up."
+> "As the survivors, we carry the feelings of those who've passed away on our shoulders."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Akame**](https://myanimelist.net/character.php?q=Akame&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
