@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People's mind are like alien existence. We don't know where they are, and we can barely scratch the surface of what they really are."
+> "Man fears the darkness, and so he scrapes away at the edges of it with fire. He creates life by diminishing the Darkness."
 
-&mdash; [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/character.php?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
+&mdash; [**Rei Ayanami**](https://myanimelist.net/character.php?q=Rei%20Ayanami&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
