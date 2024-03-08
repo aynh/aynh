@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As the survivors, we carry the feelings of those who've passed away on our shoulders."
+> "Magic is anything you can think of. It can be felt in infinite ways... As light, as darkness, as red, as blue. It is living freely, together along side Fairy Tail."
 
-&mdash; [**Akame**](https://myanimelist.net/character.php?q=Akame&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
