@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you were to write a story with me in the lead role, it would certainly be... a tragedy."
+> "My motto is to be stronger than yesterday, if I have to I'll be stronger than half a day ago, even a minute ago!"
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Rock Lee**](https://myanimelist.net/character.php?q=Rock%20Lee&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
