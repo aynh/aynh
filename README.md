@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They often say that humans can't live alone. But you can live pretty long by yourself. Instead of feeling alone in a group, it's better to be alone in your solitude."
+> "You can go anywhere you want in this world with a single blade. This may be a virtual world, but I feel more alive here than in the real world."
 
-&mdash; [**Faye Valentine**](https://myanimelist.net/character.php?q=Faye%20Valentine&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
