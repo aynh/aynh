@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It was like you brought color to my life. You changed my life, all by yourself."
+> "Surviving means continuing to shoulder one's burden. When you can't handle that strain, then you'll be the one to die next."
 
-&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
