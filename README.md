@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The way you perceive yourself doesn't match the way others perceive you. Those who work hard despite that discrepancy shine brighter than anyone else!"
+> "It was like you brought color to my life. You changed my life, all by yourself."
 
-&mdash; [**Kō Ōsaki**](https://myanimelist.net/character.php?q=K%C5%8D%20%C5%8Csaki&cat=character), [**Shōnen Hollywood - Holly Stage for 49**](https://myanimelist.net/search/all?q=Sh%C5%8Dnen%20Hollywood%20-%20Holly%20Stage%20for%2049&cat=all)
+&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
