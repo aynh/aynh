@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Man fears the darkness, and so he scrapes away at the edges of it with fire. He creates life by diminishing the Darkness."
+> "People have emotions. A troublesome attribute that's not only invisible, but also changes easily. If it's friendship or love, then that's fine. But if by some trigger it changes to malice and vengeance, then that could bring forth thoughts of murder."
 
-&mdash; [**Rei Ayanami**](https://myanimelist.net/character.php?q=Rei%20Ayanami&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
