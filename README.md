@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even I... know what it's like to be jealous. (referring to Kureno and Akito's relationship)"
+> "Sokka, you're supposed to put the tarp on top of the tent. You know, so we don't get rained on?"
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
