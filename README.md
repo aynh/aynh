@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sokka, you're supposed to put the tarp on top of the tent. You know, so we don't get rained on?"
+> "You are defeated yet you will not step back, why not?"
 
-&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Dracule Mihawk**](https://myanimelist.net/character.php?q=Dracule%20Mihawk&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
