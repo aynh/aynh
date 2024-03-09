@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Thanks for the real vote of confidence. You two should be cheerleaders, you'd look cute in skirts!"
+> "No one would intentionally set an easily accessible place as their goal. It's a challenge, because it's difficult. It is a dream because it can't be achieved easily."
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Isashiki Jun**](https://myanimelist.net/character.php?q=Isashiki%20Jun&cat=character), [**Diamond No Ace**](https://myanimelist.net/search/all?q=Diamond%20No%20Ace&cat=all)
