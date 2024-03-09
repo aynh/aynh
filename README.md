@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing can remain the same forever, because if you don't change you can't improve... Facing this inescapable ''reality'' if you don't grow... You'll be crushed... For everyone to ascend and accomplish their dreams. They must grow."
+> "If I can be with you when the world ends, it'll be enough for me."
 
-&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Blue**](https://myanimelist.net/character.php?q=Blue&cat=character), [**Wolf’s Rain**](https://myanimelist.net/search/all?q=Wolf%E2%80%99s%20Rain&cat=all)
