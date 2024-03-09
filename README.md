@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's only one certainty in life. A strong man stands above and conquers all!"
+> "Discouraging, isn't it? It's always easier to tear down than to build... And much more difficult to tie than to untie."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Ayasegawa Yumichika**](https://myanimelist.net/character.php?q=Ayasegawa%20Yumichika&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
