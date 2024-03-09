@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're not the first person I went out with... But you're my first love."
+> "It's not like we lost anything when there was nothing between us to start with. We could never really be equals. I've always been alone."
 
-&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Izumiko Suzuhara**](https://myanimelist.net/character.php?q=Izumiko%20Suzuhara&cat=character), [**RDG: Red Data Girl**](https://myanimelist.net/search/all?q=RDG%3A%20Red%20Data%20Girl&cat=all)
