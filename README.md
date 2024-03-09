@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People like you... are the reason why people like me need medication."
+> "Even I... know what it's like to be jealous. (referring to Kureno and Akito's relationship)"
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
