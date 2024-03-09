@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People can't live without their memories. But hey can't live on their memories alone either. They have to wake up from their dreams. Those dreams will become sadness if they don't. Even if you wake up from your dream, your memories will still be there. So please smile. I want our memories to be happy to the very end. I wish everyone would keep smiling so that everyone could be happy and everybody could be warmer."
+> "Those who don't give up no matter how many walls they run into, those are the ones who'll make their dreams come true."
 
-&mdash; [**Minagi Tohno**](https://myanimelist.net/character.php?q=Minagi%20Tohno&cat=character), [**Air**](https://myanimelist.net/search/all?q=Air&cat=all)
+&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
