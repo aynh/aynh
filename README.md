@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who don't give up no matter how many walls they run into, those are the ones who'll make their dreams come true."
+> "If you have no money, I believe all you can do is work."
 
-&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Sakamoto**](https://myanimelist.net/character.php?q=Sakamoto&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
