@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Run-chan was chasing a butterfly and was about to get hit by a car..."
+> "Because it has powers that surpass everything, a king must cut off his own desires and never use it."
 
-&mdash; [**Ichii Tooru**](https://myanimelist.net/character.php?q=Ichii%20Tooru&cat=character), [**A Channel**](https://myanimelist.net/search/all?q=A%20Channel&cat=all)
+&mdash; [**Durandal Tobari Kumohira**](https://myanimelist.net/character.php?q=Durandal%20Tobari%20Kumohira&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
