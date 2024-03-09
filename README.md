@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I can be with you when the world ends, it'll be enough for me."
+> "A dream isn't something that someone tells you to go for. It's something you fulfill of your own will."
 
-&mdash; [**Blue**](https://myanimelist.net/character.php?q=Blue&cat=character), [**Wolf’s Rain**](https://myanimelist.net/search/all?q=Wolf%E2%80%99s%20Rain&cat=all)
+&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
