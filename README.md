@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That was worth an academy award, Light."
+> "Such shallow emotions evoked by simple and cheerful stories won't solve anything! What people need is a more tangible sense of values with which to resolve the conflicts of everyday life! Even if that causes others to think of you as warped, as long as you can remain true to yourself until the moment you die; that is what I believe true dignity is!"
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Sachi Nanjou**](https://myanimelist.net/character.php?q=Sachi%20Nanjou&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
