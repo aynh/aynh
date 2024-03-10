@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "London bridge is falling down dude!"
+> "There can be no happiness in a world where the undesirables are thrown away."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Monkey D. Dragon**](https://myanimelist.net/character.php?q=Monkey%20D.%20Dragon&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
