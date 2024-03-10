@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don’t make decisions on your own without saying what’s important."
+> "It's called a miracle because it doesn't happen."
 
-&mdash; [**Juugo Yama**](https://myanimelist.net/character.php?q=Juugo%20Yama&cat=character), [**Ryuugajou Nanana No Maizoukin**](https://myanimelist.net/search/all?q=Ryuugajou%20Nanana%20No%20Maizoukin&cat=all)
+&mdash; [**Shiori Misaka**](https://myanimelist.net/character.php?q=Shiori%20Misaka&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
