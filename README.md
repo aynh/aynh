@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have not changed at all. There were two of me to begin with. It was merely a swap between us. I have no intent on hiding this. Whether or not you believe it is up to you, Tetsuya. However, if you want to call it a 'change', then that was because it was necessary. The team did not change because I had changed. I changed because the team had changed."
+> "I haven't lived all that long yet, but there is something I firmly believe in. The people who have the ability to change something in this world, all without exception, have the guts to abandon things important to them if they have to. They are those who can abandon even their humanity."
 
-&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko's Basketball TV 3**](https://myanimelist.net/search/all?q=Kuroko's%20Basketball%20TV%203&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
