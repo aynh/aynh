@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why do you find it easy to kill? These are lives dammit!"
+> "Damn that witch. How am I supposed to be cool when she is all hot and naked like that huh?"
 
-&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
