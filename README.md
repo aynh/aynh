@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's called a miracle because it doesn't happen."
+> "I never feel more human than when I'm fighting real monsters."
 
-&mdash; [**Shiori Misaka**](https://myanimelist.net/character.php?q=Shiori%20Misaka&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
