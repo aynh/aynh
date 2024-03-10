@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sticking through with a lie to protect someone, is probably harder than telling the truth."
+> "My own mother thought I was a monster. She was right of course... but it still hurt."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Azula**](https://myanimelist.net/character.php?q=Azula&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
