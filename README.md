@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I no longer even dream, for I no longer sleep. So I had this golden enclosed garden made. However, now the only place where I can be myself is in this room. And my wealth is just this one glass of water."
+> "Inside your mouth, it's rat-ta-ta-ta-ta-ta-ta, wonderful."
 
-&mdash; [**The Count of Monte Cristo**](https://myanimelist.net/character.php?q=The%20Count%20of%20Monte%20Cristo&cat=character), [**Gankutsuou: The Count of Monte Cristo**](https://myanimelist.net/search/all?q=Gankutsuou%3A%20The%20Count%20of%20Monte%20Cristo&cat=all)
+&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
