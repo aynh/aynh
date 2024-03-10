@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Such shallow emotions evoked by simple and cheerful stories won't solve anything! What people need is a more tangible sense of values with which to resolve the conflicts of everyday life! Even if that causes others to think of you as warped, as long as you can remain true to yourself until the moment you die; that is what I believe true dignity is!"
+> "But still... Not trying to undo misunderstandings is the same as telling a lie."
 
-&mdash; [**Sachi Nanjou**](https://myanimelist.net/character.php?q=Sachi%20Nanjou&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Yotsugi Ononoki**](https://myanimelist.net/character.php?q=Yotsugi%20Ononoki&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
