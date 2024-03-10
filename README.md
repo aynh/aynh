@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not a crime if no one knows about it."
+> "London bridge is falling down dude!"
 
-&mdash; [**Nyaruko**](https://myanimelist.net/character.php?q=Nyaruko&cat=character), [**Haiyore! Nyaruko-san**](https://myanimelist.net/search/all?q=Haiyore!%20Nyaruko-san&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
