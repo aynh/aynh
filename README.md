@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We’re all afraid, you know.. to get up on stage. Maybe you’ll mess up. Maybe they’ll totally reject you. Even so, you grit your teeth and get up on stage anyway. Something compels us… moves us to play music."
+> "Sticking through with a lie to protect someone, is probably harder than telling the truth."
 
-&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
