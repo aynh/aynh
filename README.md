@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm impressed. No one has ever gotten the better of me like that. It is almost a shame to take the bending of someone so talented. ALMOST."
+> "Why do you find it easy to kill? These are lives dammit!"
 
-&mdash; [**Amon**](https://myanimelist.net/character.php?q=Amon&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
