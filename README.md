@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Discouraging, isn't it? It's always easier to tear down than to build... And much more difficult to tie than to untie."
+> "It's not a crime if no one knows about it."
 
-&mdash; [**Ayasegawa Yumichika**](https://myanimelist.net/character.php?q=Ayasegawa%20Yumichika&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Nyaruko**](https://myanimelist.net/character.php?q=Nyaruko&cat=character), [**Haiyore! Nyaruko-san**](https://myanimelist.net/search/all?q=Haiyore!%20Nyaruko-san&cat=all)
