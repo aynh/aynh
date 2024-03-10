@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There can be no happiness in a world where the undesirables are thrown away."
+> "All living things eventually die. It's unavoidable. But as long as you remember, it will live on in your heart forever."
 
-&mdash; [**Monkey D. Dragon**](https://myanimelist.net/character.php?q=Monkey%20D.%20Dragon&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Lisanna Strauss**](https://myanimelist.net/character.php?q=Lisanna%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
