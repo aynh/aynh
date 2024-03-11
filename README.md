@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you are facing a bitter aspect of life... Drugs and murder are foul, without any excuse. Deserve a red card, for a loser."
+> "Even if this is a twisted way to go about it, even if a guaranteed way to save our hearts cannot be found, even so, it doesn't mean that people like us don't try and struggle."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
