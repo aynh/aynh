@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never feel more human than when I'm fighting real monsters."
+> "If you force me to pick one… It’d be black. It covers up the things inside of me that I don’t want to be known about. Well, for the same reason… Black is the color I hate too."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Subaru Okiya**](https://myanimelist.net/character.php?q=Subaru%20Okiya&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
