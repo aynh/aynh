@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was wrong. I wasn't eating ghouls. I'm the one who was being eaten."
+> "There's no point. Would apologizing serve any purpose? If it will, I'll do it."
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Mei Misaki**](https://myanimelist.net/character.php?q=Mei%20Misaki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
