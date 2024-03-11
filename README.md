@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans constantly feel pain in their hearts. Because the heart is so sensitive to pain, humans also feel that to live is to suffer."
+> "The brain is a microcosm, creating its own stories. People then live out these stories."
 
-&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Seiichi Kirima**](https://myanimelist.net/character.php?q=Seiichi%20Kirima&cat=character), [**Boogiepop Phantom**](https://myanimelist.net/search/all?q=Boogiepop%20Phantom&cat=all)
