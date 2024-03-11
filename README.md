@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every living person is bound to have embarrassing memories and things that they want to keep secret."
+> "What's the problem... to being different? Even if Vincent-sama is a Baskerville, as you say, even if he is completely different from me, it doesn't matter. I don't care if we're different! And if he really is that different, that's just one more reason to try to understand him!"
 
-&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Ada Vessalius**](https://myanimelist.net/character.php?q=Ada%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
