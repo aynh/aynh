@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing is unforgivable. So if you cannot forgive him, it means you do not want to."
+> "Sadness is just another wall that blocks you from moving on. I know it's hard to get past it, but you got to break through."
 
-&mdash; [**Shirley Fenette**](https://myanimelist.net/character.php?q=Shirley%20Fenette&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
