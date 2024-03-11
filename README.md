@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Instead of sighing about the past, I'd rather be happy to face the present."
+> "Don't worry. When people break their old selves they embark a journey to find their new selves."
 
-&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
