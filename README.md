@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who cares? Who cares if they're human or if they're something else? If they have boobs, what's the problem?"
+> "I was wrong. I wasn't eating ghouls. I'm the one who was being eaten."
 
-&mdash; [**Sakurai Tomozo**](https://myanimelist.net/character.php?q=Sakurai%20Tomozo&cat=character), [**Sora no Otoshimono: Forte**](https://myanimelist.net/search/all?q=Sora%20no%20Otoshimono%3A%20Forte&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
