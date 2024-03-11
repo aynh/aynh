@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you force me to pick one… It’d be black. It covers up the things inside of me that I don’t want to be known about. Well, for the same reason… Black is the color I hate too."
+> "Who cares? Who cares if they're human or if they're something else? If they have boobs, what's the problem?"
 
-&mdash; [**Subaru Okiya**](https://myanimelist.net/character.php?q=Subaru%20Okiya&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Sakurai Tomozo**](https://myanimelist.net/character.php?q=Sakurai%20Tomozo&cat=character), [**Sora no Otoshimono: Forte**](https://myanimelist.net/search/all?q=Sora%20no%20Otoshimono%3A%20Forte&cat=all)
