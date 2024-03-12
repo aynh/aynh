@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kyon-kun. If I become ruined for marriage will you take me?"
+> "[to Zuko] You know what the worst part of being born over a hundred years ago is? I miss all the friends I used to hang out with. Before the war started, I used to always visit my friend Kuzon. The two of us, we'd get in and out of so much trouble together. He was one of the best friends I ever had, and he was from the Fire Nation just like you. If we knew each other back then, do you think we could have been friends too?"
 
-&mdash; [**Mikuru Asahina**](https://myanimelist.net/character.php?q=Mikuru%20Asahina&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
