@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When the guarantee of safety is dangled right in front of their eyes, humans will turn their eye from probability."
+> "I want to beat them. Even though I'm not cool, or strong, or just, or beautiful, or cute, or pretty, I want to beat the cool, strong, just, beautiful, cute, and pretty people. Even though I wasn't blessed with talent, even though I'm stupid and have a bad personality, have bad grades, am misguided and am a good for nothing, I want to beat the talented, smart, likeable, overachieving people. I want to beat those with friends when I can't have friends. I want to beat the people who work hard when I can't work hard. I want to beat the the victorious people when I can't win. I want to beat the happy people when I'm miserable. Even if I'm hated, even if I'm despised, even if I'm useless, I want to prove that I'm better than the main characters!"
 
-&mdash; [**Saori Shibuki**](https://myanimelist.net/character.php?q=Saori%20Shibuki&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
+&mdash; [**Misogi Kumagawa**](https://myanimelist.net/character.php?q=Misogi%20Kumagawa&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
