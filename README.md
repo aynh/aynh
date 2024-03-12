@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If that treetop is school, and the ground is this place here... we all found our strength down on the ground. While looking up... and getting looked down on... we learned plenty about how scary heights were before we started climbing. That's why we can go our own way now. Still... Somewhere along the way we forgot our fear of heights, so we do still fall to the ground every now and then. So learn here. You can go on to school once you have a game plan. That's my secret lesson, from me to you."
+> "I'll never dream about things that I know won't come true."
 
-&mdash; [**Nagisa Shiota**](https://myanimelist.net/character.php?q=Nagisa%20Shiota&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Chiriko Tsurumi**](https://myanimelist.net/character.php?q=Chiriko%20Tsurumi&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
