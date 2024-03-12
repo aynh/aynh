@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If this world wasn't a complete hell for me, that's because you were alive."
+> "I'll be back."
 
-&mdash; [**Ein**](https://myanimelist.net/character.php?q=Ein&cat=character), [**Phantom: Requiem For The Phantom**](https://myanimelist.net/search/all?q=Phantom%3A%20Requiem%20For%20The%20Phantom&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
