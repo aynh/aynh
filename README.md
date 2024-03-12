@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If a prediction is right, then it's like you only have one future. Like that future has been decided. But if it's wrong, then you have an almost infinite number of possibilities. And that means that even the tiniest twist of fate can change your future. I want to believe that I have choices - that the path I walk has many different turns, and many different roads to follow!"
+> "Huh?!? Aliens!? What kind of a person believes in aliens anyway?! I know. A STUPID ONE."
 
-&mdash; [**Fujibayashi Ryou**](https://myanimelist.net/character.php?q=Fujibayashi%20Ryou&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Maebara Keiichi**](https://myanimelist.net/character.php?q=Maebara%20Keiichi&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
