@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everybody loves somebody. In time, everybody falls in love with somebody. Just as I found you."
+> "When the guarantee of safety is dangled right in front of their eyes, humans will turn their eye from probability."
 
-&mdash; [**Dera Mochimazzi**](https://myanimelist.net/character.php?q=Dera%20Mochimazzi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
+&mdash; [**Saori Shibuki**](https://myanimelist.net/character.php?q=Saori%20Shibuki&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
