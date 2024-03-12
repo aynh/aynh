@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Huh?!? Aliens!? What kind of a person believes in aliens anyway?! I know. A STUPID ONE."
+> "People live on by forgetting their memories. But there are some memories that should never be forgotten."
 
-&mdash; [**Maebara Keiichi**](https://myanimelist.net/character.php?q=Maebara%20Keiichi&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
+&mdash; [**Gendou Ikari**](https://myanimelist.net/character.php?q=Gendou%20Ikari&cat=character), [**Evangelion: 2.0 You Can Not Advance**](https://myanimelist.net/search/all?q=Evangelion%3A%202.0%20You%20Can%20Not%20Advance&cat=all)
