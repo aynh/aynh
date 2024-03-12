@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Evil doesn't always seep out. It's possible to hide it if you’re careful and skilled."
+> "If this world wasn't a complete hell for me, that's because you were alive."
 
-&mdash; [**Dog**](https://myanimelist.net/character.php?q=Dog&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
+&mdash; [**Ein**](https://myanimelist.net/character.php?q=Ein&cat=character), [**Phantom: Requiem For The Phantom**](https://myanimelist.net/search/all?q=Phantom%3A%20Requiem%20For%20The%20Phantom&cat=all)
