@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[with a bow and arrow ready to fire] Not as pretty as his, huh? What would you know about it? You live in a time where they don't even have SHAMPOO."
+> "When you're upset, try making the intelligent decision. And then, you might actually get something you want for a change."
 
-&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Tōdō Kaoru**](https://myanimelist.net/character.php?q=T%C5%8Dd%C5%8D%20Kaoru&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
