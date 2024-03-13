@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mm, she's strong and scary. I bet she's single."
+> "The fact that you consider yourself as an equal to me, is being arrogant in itself."
 
-&mdash; [**Kabuto Yakushi**](https://myanimelist.net/character.php?q=Kabuto%20Yakushi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
