@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who lack resolve are incapable of even wiping away their own tears."
+> "Even though there's such a thing as an impossible game, there's no such thing as an impossible reality."
 
-&mdash; [**Satsuki Kiryuuin**](https://myanimelist.net/character.php?q=Satsuki%20Kiryuuin&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
