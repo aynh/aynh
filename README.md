@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're your own worst enemy. If your worries and doubts torment you, then just stop thinking about them."
+> "Know what makes Ganta so amazing? He always gets up again."
 
-&mdash; [**Binboda Momiji**](https://myanimelist.net/character.php?q=Binboda%20Momiji&cat=character), [**Binbougami Ga!**](https://myanimelist.net/search/all?q=Binbougami%20Ga!&cat=all)
+&mdash; [**Shiro**](https://myanimelist.net/character.php?q=Shiro&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
