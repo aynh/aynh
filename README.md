@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everybody can fight. It's just a choice of whether you should."
+> "Children don't grow up looking at perfect parents. Rather, using their imperfect parents as anti-teachers, children nourish a spirit of independence."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
