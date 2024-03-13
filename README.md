@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The fact that you consider yourself as an equal to me, is being arrogant in itself."
+> "In general, men prefer to let their actions speak instead of words. When they're in pain, they don't want to burden anyone with it, not if they can help it. They don't want anyone to worry about them. That's how they are. Even so, there may come a time when they'll ask for your help. And when they do, I know that you'll be there for them. Isn't that enough?"
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
