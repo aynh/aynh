@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Power is not will, it is the phenomenon of physically making things happen."
+> "Everyone in this place is unhappy. And since they're unhappy, they're probably looking for someone worse off than they are."
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
