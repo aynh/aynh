@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Know what makes Ganta so amazing? He always gets up again."
+> "We are all like fireworks. We climb, shine, and always go our separate ways and become further apart. But even if that time comes, let's not disappear like a firework. Let's continue to shine... Forever."
 
-&mdash; [**Shiro**](https://myanimelist.net/character.php?q=Shiro&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
