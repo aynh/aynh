@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[looking through a periscope at the dust cloud Toph made] Hey... Look at that dust cloud. It's so...poofy! [Mimes by closing and opening her hand] Poof!"
+> "Mm, she's strong and scary. I bet she's single."
 
-&mdash; [**Ty Lee**](https://myanimelist.net/character.php?q=Ty%20Lee&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kabuto Yakushi**](https://myanimelist.net/character.php?q=Kabuto%20Yakushi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
