@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things you can't turn back, even if you want to."
+> "*to Shinpachi* Was your sister raised by gorillas?"
 
-&mdash; [**Jūdai Yūki**](https://myanimelist.net/character.php?q=J%C5%ABdai%20Y%C5%ABki&cat=character), [**Yu-Gi-Oh! GX**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20GX&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
