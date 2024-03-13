@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Shinpachi* Was your sister raised by gorillas?"
+> "The longer you live... The more you realize that reality is just made of pain, suffering and emptiness..."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
