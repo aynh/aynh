@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're useless, Lucy. You can't understand a woman's heart."
+> "A name has nothing to do with loving someone."
 
-&mdash; [**Happy**](https://myanimelist.net/character.php?q=Happy&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Seiji Yagiri**](https://myanimelist.net/character.php?q=Seiji%20Yagiri&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
