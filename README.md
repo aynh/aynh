@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even though there's such a thing as an impossible game, there's no such thing as an impossible reality."
+> "I've never considered finding that notebook and gaining that power a misfortune."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
