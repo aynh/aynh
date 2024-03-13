@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Spilled water will never return to its container."
+> "Power is not will, it is the phenomenon of physically making things happen."
 
-&mdash; [**Hei**](https://myanimelist.net/character.php?q=Hei&cat=character), [**Darker than Black**](https://myanimelist.net/search/all?q=Darker%20than%20Black&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
