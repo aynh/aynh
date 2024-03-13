@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The longer you live... The more you realize that reality is just made of pain, suffering and emptiness..."
+> "Those who lack resolve are incapable of even wiping away their own tears."
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Satsuki Kiryuuin**](https://myanimelist.net/character.php?q=Satsuki%20Kiryuuin&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
