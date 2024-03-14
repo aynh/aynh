@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you let anger and revenge consume you... You'll find yourself unable to behold the beautiful sights right before your eyes."
+> "The death of a culture, is the death of a people."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Miles**](https://myanimelist.net/character.php?q=Miles&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
