@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's good to not have any enemies, but it's normal to unintentionally make a few along the way."
+> "No matter where I might have met you, I'm sure I'd come to love you."
 
-&mdash; [**Saya Irino**](https://myanimelist.net/character.php?q=Saya%20Irino&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
+&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
