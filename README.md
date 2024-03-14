@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Any technique is worthless before my eyes."
+> "I just want the weak, who do get swept along with the flow, be considered human too."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Annie Leonhardt**](https://myanimelist.net/character.php?q=Annie%20Leonhardt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
