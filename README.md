@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Right and wrong are not what separate us and our enemies, it's our perspectives that separate us. Both sides blame one another. There's no good or bad side, just two sides holding different views."
+> "Someone saying that they are happy doesn't necessarily mean that they are happy, right?"
 
-&mdash; [**Squall Leonhart**](https://myanimelist.net/character.php?q=Squall%20Leonhart&cat=character), [**Final Fantasy VIII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VIII&cat=all)
+&mdash; [**Tsubasa Hanekawa**](https://myanimelist.net/character.php?q=Tsubasa%20Hanekawa&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
