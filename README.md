@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter where I might have met you, I'm sure I'd come to love you."
+> "Being prepared to die doesn't mean shit. The real hard part, is being prepared to live."
 
-&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Midou Ban**](https://myanimelist.net/character.php?q=Midou%20Ban&cat=character), [**Getbackers**](https://myanimelist.net/search/all?q=Getbackers&cat=all)
