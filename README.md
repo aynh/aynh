@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Moping around with sadness and sorrow... what will come of it? Even dead people can do that. However, I'll live and stand on my own two legs. If we are going to die one day, wouldn't it be better to have no regrets?"
+> "No matter what you do, no matter where you go, you can't get away from your nature."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Oomine Daiya**](https://myanimelist.net/character.php?q=Oomine%20Daiya&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
