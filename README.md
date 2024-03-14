@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it's the army's job to end a war, it's the king's job to find a place for it to end."
+> "Our differences are what let us understand each other. We've worked together to come this far, there are no doubts or regret anymore. I'll overcome this fight and prove that even we can come to an understanding."
 
-&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
+&mdash; [**Tsukune Aono**](https://myanimelist.net/character.php?q=Tsukune%20Aono&cat=character), [**Rosario Vampire**](https://myanimelist.net/search/all?q=Rosario%20Vampire&cat=all)
