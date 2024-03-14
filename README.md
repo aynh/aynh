@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someone saying that they are happy doesn't necessarily mean that they are happy, right?"
+> "It's good to not have any enemies, but it's normal to unintentionally make a few along the way."
 
-&mdash; [**Tsubasa Hanekawa**](https://myanimelist.net/character.php?q=Tsubasa%20Hanekawa&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Saya Irino**](https://myanimelist.net/character.php?q=Saya%20Irino&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
