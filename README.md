@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only brute warriors find glory in destruction!"
+> "If you let anger and revenge consume you... You'll find yourself unable to behold the beautiful sights right before your eyes."
 
-&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
