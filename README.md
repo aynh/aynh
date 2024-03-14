@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Spring will be here soon. Spring, the season I met you, is coming. A Spring without you...is coming."
+> "No matter the reason, I don't think anyone who loses consciousness in the battlefield has any right to survive!"
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
