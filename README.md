@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter the reason, I don't think anyone who loses consciousness in the battlefield has any right to survive!"
+> "Only brute warriors find glory in destruction!"
 
-&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
+&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
