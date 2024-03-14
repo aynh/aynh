@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You shouldn't judge a person based on circumstantial evidence."
+> "Right and wrong are not what separate us and our enemies, it's our perspectives that separate us. Both sides blame one another. There's no good or bad side, just two sides holding different views."
 
-&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Squall Leonhart**](https://myanimelist.net/character.php?q=Squall%20Leonhart&cat=character), [**Final Fantasy VIII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VIII&cat=all)
