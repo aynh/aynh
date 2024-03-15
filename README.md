@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I make my own decisions, and see them to the very end. I had to find my resolve, so I could remain true to myself."
+> "In this world, there are crimes too depraved to ever be forgiven."
 
-&mdash; [**Saya Kisaragi**](https://myanimelist.net/character.php?q=Saya%20Kisaragi&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
+&mdash; [**Tomio Ookawa**](https://myanimelist.net/character.php?q=Tomio%20Ookawa&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
