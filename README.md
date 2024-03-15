@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Tamaki* It's easy to feel sorry for him, but the hardships that he endured as a child, molded him into the person he is today. He'll be fine, the Host Club is his refuge, which means when all is said and done... he still has us."
+> "Tohru, I can't stand not being with you... I... because I love you."
 
-&mdash; [**Kyoya Ootori**](https://myanimelist.net/character.php?q=Kyoya%20Ootori&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
