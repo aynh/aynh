@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All creatures want to believe in something bigger than themselves. They cannot live without blind obedience. And to escape the pressure of that trust, those in whom faith is placed in turn look for someone higher than themselves. And then those people in turn look for someone even stronger. That is how all Kings are born. That is how all Gods are born."
+> "Thanks for the real vote of confidence. You two should be cheerleaders, you'd look cute in skirts!"
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
