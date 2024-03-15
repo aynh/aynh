@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is my darkness. Nothing anyone says can console me."
+> "I make my own decisions, and see them to the very end. I had to find my resolve, so I could remain true to myself."
 
-&mdash; [**Mato Kuroi**](https://myanimelist.net/character.php?q=Mato%20Kuroi&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
+&mdash; [**Saya Kisaragi**](https://myanimelist.net/character.php?q=Saya%20Kisaragi&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
