@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't go thinking that there's a world where it's natural to be happy! Even if you start complaining, nothing will change! You need to make things fun by yourself!"
+> "I don't need you anymore. I'm tired of you. (To Haru)"
 
-&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
