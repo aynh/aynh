@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We ran through our school that was filled with noises, screams, life and death."
+> "We want the ones we can't have and ignore the ones that want us but then, we end up with none in the end."
 
-&mdash; [**Takashi Komuro**](https://myanimelist.net/character.php?q=Takashi%20Komuro&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
