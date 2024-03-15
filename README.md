@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our differences are what let us understand each other. We've worked together to come this far, there are no doubts or regret anymore. I'll overcome this fight and prove that even we can come to an understanding."
+> "Flattery will get you everywhere."
 
-&mdash; [**Tsukune Aono**](https://myanimelist.net/character.php?q=Tsukune%20Aono&cat=character), [**Rosario Vampire**](https://myanimelist.net/search/all?q=Rosario%20Vampire&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
