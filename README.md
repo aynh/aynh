@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tohru, I can't stand not being with you... I... because I love you."
+> "It's only the end if you give up!"
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Elfman Strauss**](https://myanimelist.net/character.php?q=Elfman%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
