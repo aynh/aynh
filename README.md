@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't need you anymore. I'm tired of you. (To Haru)"
+> "There were a lot of people who were kind to begin with. No, they were probably good people but, I don't want to see the disappointment in their eyes anymore. I don't really want to meet kind of people anymore."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Natsume Takeshi**](https://myanimelist.net/character.php?q=Natsume%20Takeshi&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
