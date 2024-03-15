@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Forgive my rudeness, but to hide your true self and make a vain display... I think that's just running away from reality. To know what you are really like, and acknowledge it... A positive thinking of enjoying yourself... isn't that what true strength is?"
+> "A sound soul dwells within sound skin and sound cuticles."
 
-&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
