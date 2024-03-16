@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are no guarantees. But if there’s a chance it could help everyone avoid the calamity, isn’t it worth it? It’s sad when people die."
+> "Well, I don't think we can deny the distinct possibility that the world we are in now was freshly created, by Her, last night! In any case, it's an honor to meet you and Miss Suzumiya again. *laughing softly* Be seeing you after class!"
 
-&mdash; [**Mei Misaki**](https://myanimelist.net/character.php?q=Mei%20Misaki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
+&mdash; [**Itsuki Koizumi**](https://myanimelist.net/character.php?q=Itsuki%20Koizumi&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
