@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Relationships do not always improve... Sometimes they decline... But... it still counts as a victory if it all works out in the end... Let’s keep it at that..."
+> "Having people acknowledge your existence is a wonderful thing."
 
-&mdash; [**The Will of the Whole Misaka Network**](https://myanimelist.net/character.php?q=The%20Will%20of%20the%20Whole%20Misaka%20Network&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
