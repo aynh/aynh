@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At first, everyone is disgusted. Afraid to bear the sin of killing people. Afraid to receive punishment for replenishing themselves with the life of another. But, once you realize that you won't be punished for killing people, you get used to the guilt pretty soon. The guilt of using humans for food. Aren't humans the same?"
+> "Tell me, what do you think is the ultimate fear? I really thought I'd already reached the darkest of the dark, but then, ahead of me, I beheld a darkness even greater still."
 
-&mdash; [**Mutou Tohru**](https://myanimelist.net/character.php?q=Mutou%20Tohru&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
