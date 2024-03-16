@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because the sight of your beautiful smile causes the fountain inside of me to start overflowing."
+> "Why you little... nobody takes a shot at me!"
 
-&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Shani Andras**](https://myanimelist.net/character.php?q=Shani%20Andras&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
