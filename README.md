@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, I don't think we can deny the distinct possibility that the world we are in now was freshly created, by Her, last night! In any case, it's an honor to meet you and Miss Suzumiya again. *laughing softly* Be seeing you after class!"
+> "The best way to remove your lies is to make them come true."
 
-&mdash; [**Itsuki Koizumi**](https://myanimelist.net/character.php?q=Itsuki%20Koizumi&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Suzaku Kururugi**](https://myanimelist.net/character.php?q=Suzaku%20Kururugi&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
