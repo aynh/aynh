@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We can't let the past be mere water under the bridge. Even so, there's no reason that we can't come together."
+> "Red is supposed to be the color of fate, right? Even if its annoying right now, it might connect to something good when you least expect it."
 
-&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Zen Wistalia**](https://myanimelist.net/character.php?q=Zen%20Wistalia&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
