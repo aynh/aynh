@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Kagome, angry at her for saying she believes in him] You are nuts! This sword is good for nothing! Me, I'll live, I'm half demon. You though, you ain't got a chance."
+> "But the big difference is who I work for. I'd rather die than be a yes-man to someone I don't even like."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Shalnark**](https://myanimelist.net/character.php?q=Shalnark&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
