@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after Hisagi thanks him] Aren't you clever? Is that supposed to be sarcastic?"
+> "Because the sight of your beautiful smile causes the fountain inside of me to start overflowing."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
