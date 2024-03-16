@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So, you would question me, you filthy mongrel? Me, the one true king? If you cannot now discern my identity in the presence of my magnificent glory, then you’re ignorant blindness will serve to seal your doom!"
+> "Choosing another way of life means throwing away all you've done so far and becoming a new self..."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Konan**](https://myanimelist.net/character.php?q=Konan&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
