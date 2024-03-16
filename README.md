@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The best way to remove your lies is to make them come true."
+> "[to Kagome, angry at her for saying she believes in him] You are nuts! This sword is good for nothing! Me, I'll live, I'm half demon. You though, you ain't got a chance."
 
-&mdash; [**Suzaku Kururugi**](https://myanimelist.net/character.php?q=Suzaku%20Kururugi&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
