@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is a poor knight indeed who slays one who defies him. The key is to show yourself to be superior that they will not defy you in the first place."
+> "I sunk again. *after sinking in the desert*"
 
-&mdash; [**Slaine Troyard**](https://myanimelist.net/character.php?q=Slaine%20Troyard&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
