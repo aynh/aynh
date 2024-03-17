@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm prepared for it all. Even if my chest hurts, even if I'm ripped apart, I won't let myself taste any regret."
+> "At night the moon shines with daylight. Our dreams are an ocean… each wave is the dream of an individual. The tide is controlled by the pull of the moon… it illuminates our dreams. If you open the moon, you will discover the path to dreams. When one finds death, they are submerged in the ocean of dreams. At the end of life’s path is a door that leads us to this ocean. Our dreams transcend the self to reach this sea… connecting us all within its lunar tide."
 
-&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
+&mdash; [**Gen Fudou**](https://myanimelist.net/character.php?q=Gen%20Fudou&cat=character), [**Sousei no Aquarion**](https://myanimelist.net/search/all?q=Sousei%20no%20Aquarion&cat=all)
