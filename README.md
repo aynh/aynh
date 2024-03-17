@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are all sorts of goodbyes. There are sad goodbyes, and sometimes goodbyes you're thankful for, that take a load off your mind. It often happens that someone you say goodbye to unexpectedly returns, all self-conscious. Then there are times when, anticipating that, you put on the front of a short goodbye, only to have them not return so soon. And then there are goodbyes that last forever, true goodbyes that only happen once in your life."
+> "If a prediction is right, then it's like you only have one future. Like that future has been decided. But if it's wrong, then you have an almost infinite number of possibilities. And that means that even the tiniest twist of fate can change your future. I want to believe that I have choices - that the path I walk has many different turns, and many different roads to follow!"
 
-&mdash; [**Yasaburou Shimogamo**](https://myanimelist.net/character.php?q=Yasaburou%20Shimogamo&cat=character), [**Uchouten Kazoku**](https://myanimelist.net/search/all?q=Uchouten%20Kazoku&cat=all)
+&mdash; [**Fujibayashi Ryou**](https://myanimelist.net/character.php?q=Fujibayashi%20Ryou&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
