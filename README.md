@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's only one certainty in life. A strong man stands above and conquers all!"
+> "I'm prepared for it all. Even if my chest hurts, even if I'm ripped apart, I won't let myself taste any regret."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
