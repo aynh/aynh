@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Save your breath. The laws of alchemy don't justify murder!"
+> "But am I... am I normal? I have strength. I can kill with my bare hands. I bleed red, but the pain always goes away quickly. Sometimes I see things in my head that never happened. I am a cyborg. I'll never be useful as anything else."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Henrietta**](https://myanimelist.net/character.php?q=Henrietta&cat=character), [**Gunslinger Girl**](https://myanimelist.net/search/all?q=Gunslinger%20Girl&cat=all)
