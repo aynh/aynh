@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not eating early. In my country, we always ate hot dogs during class."
+> "What took a very long time to build up takes mere moments to destroy. But you can always start over. Next time around, you'll do a better job."
 
-&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kenji Makabe**](https://myanimelist.net/character.php?q=Kenji%20Makabe&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
