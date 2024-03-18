@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The final door is about to open! And I am the one opening it! Then the world that we know of will come to an end! This world of insatiable desires will end!"
+> "Trying to pilot that mobile suit? You're in way over your head, Natural!"
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Miguel Aiman**](https://myanimelist.net/character.php?q=Miguel%20Aiman&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
