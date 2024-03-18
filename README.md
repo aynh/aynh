@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It may be better to go and regret it rather than staying here and regretting it. If you don’t move forward, you can’t gain anything."
+> "So many faces looking like they're thinking even though they're not. So disgusting."
 
-&mdash; [**Futaki Kanata**](https://myanimelist.net/character.php?q=Futaki%20Kanata&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Anemone**](https://myanimelist.net/character.php?q=Anemone&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
