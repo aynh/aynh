@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What took a very long time to build up takes mere moments to destroy. But you can always start over. Next time around, you'll do a better job."
+> "A smile is a seed of happiness. Anything can be made with it."
 
-&mdash; [**Kenji Makabe**](https://myanimelist.net/character.php?q=Kenji%20Makabe&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Kai**](https://myanimelist.net/character.php?q=Kai&cat=character), [**Neo Angelique Abyss**](https://myanimelist.net/search/all?q=Neo%20Angelique%20Abyss&cat=all)
