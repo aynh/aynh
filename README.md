@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you could calculate feelings, then we'd be in a digital age by now... The remaining answer that you couldn't calculate is what they call the feelings of people."
+> "You have the strongest armour, because you are the weakest!"
 
-&mdash; [**Shizuka Hiratsuka**](https://myanimelist.net/character.php?q=Shizuka%20Hiratsuka&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
