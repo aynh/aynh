@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A smile is a seed of happiness. Anything can be made with it."
+> "[in her head] My happiness comes from the kindness of those around me."
 
-&mdash; [**Kai**](https://myanimelist.net/character.php?q=Kai&cat=character), [**Neo Angelique Abyss**](https://myanimelist.net/search/all?q=Neo%20Angelique%20Abyss&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
