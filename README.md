@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have the strongest armour, because you are the weakest!"
+> "I'm not eating early. In my country, we always ate hot dogs during class."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
