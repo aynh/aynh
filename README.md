@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But am I... am I normal? I have strength. I can kill with my bare hands. I bleed red, but the pain always goes away quickly. Sometimes I see things in my head that never happened. I am a cyborg. I'll never be useful as anything else."
+> "Everything in existence has a flaw. Not to mention humans, but air, will, and even time. It's natural to have an end if it has a beginning."
 
-&mdash; [**Henrietta**](https://myanimelist.net/character.php?q=Henrietta&cat=character), [**Gunslinger Girl**](https://myanimelist.net/search/all?q=Gunslinger%20Girl&cat=all)
+&mdash; [**Ryougi Shiki**](https://myanimelist.net/character.php?q=Ryougi%20Shiki&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
