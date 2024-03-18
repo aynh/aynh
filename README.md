@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are so voracious, though. They eat everything from plants to animals... almost as if they think they are the top living creature to roam the earth. No being is more full of themselves as the humans."
+> "Why am I always the one handing out apologies?"
 
-&mdash; [**Hildegard**](https://myanimelist.net/character.php?q=Hildegard&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
