@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is full of choices unseen. With the willingness to notice, anyone can choose a world of their very own, from an infinity of choices."
+> "Save your breath. The laws of alchemy don't justify murder!"
 
-&mdash; [**Shinku**](https://myanimelist.net/character.php?q=Shinku&cat=character), [**Rozen Maiden**](https://myanimelist.net/search/all?q=Rozen%20Maiden&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
