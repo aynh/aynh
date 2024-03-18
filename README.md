@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, dying for honor isn't such a bad thing. Because it's hard to survive and live in misery."
+> "The world is full of choices unseen. With the willingness to notice, anyone can choose a world of their very own, from an infinity of choices."
 
-&mdash; [**Kouichirou Marito**](https://myanimelist.net/character.php?q=Kouichirou%20Marito&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
+&mdash; [**Shinku**](https://myanimelist.net/character.php?q=Shinku&cat=character), [**Rozen Maiden**](https://myanimelist.net/search/all?q=Rozen%20Maiden&cat=all)
