@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So many faces looking like they're thinking even though they're not. So disgusting."
+> "Well, dying for honor isn't such a bad thing. Because it's hard to survive and live in misery."
 
-&mdash; [**Anemone**](https://myanimelist.net/character.php?q=Anemone&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Kouichirou Marito**](https://myanimelist.net/character.php?q=Kouichirou%20Marito&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
