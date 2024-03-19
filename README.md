@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The difference in ability... What about it? Do you think I should give up just because you're stronger than me?"
+> "Love requires no reason. That is what makes it love!"
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
