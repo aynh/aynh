@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There stood a high school boy, who for selfish reasons had twice beaten an elementary school girl unconscious, and had gotten all nihistically worked up about it. Actually, that's still me."
+> "I'm afraid when something is truly lost, one can never get it back again."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
