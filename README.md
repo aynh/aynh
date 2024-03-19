@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you hurt somebody... or if somebody hurts you, the same red blood will be shed"
+> "[thinking] If I'm still sane by the time I finish their training it'll be a miracle!"
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
