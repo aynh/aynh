@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What we need now is not the diary of the past, but instead the calendar of the future."
+> "I always wanted to become stronger. At first it was to protect myself. Next, it was to protect Hak, who gave up everything for me. Now, it's to repay my friends, who enabled me to live."
 
-&mdash; [**Dusty Attenborough**](https://myanimelist.net/character.php?q=Dusty%20Attenborough&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Yona**](https://myanimelist.net/character.php?q=Yona&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
