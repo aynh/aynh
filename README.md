@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not about wanting to do something that you can do, it's about what you do. It's not about wanting to become someone, it's about who you want to become."
+> "Schools are facilities where human society secludes the troublesome children by age criteria."
 
-&mdash; [**Licht Jekylland Todoroki**](https://myanimelist.net/character.php?q=Licht%20Jekylland%20Todoroki&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
+&mdash; [**Hampnie Hambart**](https://myanimelist.net/character.php?q=Hampnie%20Hambart&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
