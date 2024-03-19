@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm afraid when something is truly lost, one can never get it back again."
+> "[sarcastically, after Aang tells him about his flying bison] Right, and this is Katara, my flying sister."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
