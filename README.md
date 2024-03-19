@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who decides limits? And based on what? You said you worked hard? Well, maybe you need to work a little harder. Is that really the limit of your strength? Could the you of tomorrow beat you today? Instead of giving in, move forward."
+> "A woman's happiness is in throwing everything away to live for love."
 
-&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Daisuke Yamamoto**](https://myanimelist.net/character.php?q=Daisuke%20Yamamoto&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
