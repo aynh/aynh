@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you have love in your life, you must keep living."
+> "The difference in ability... What about it? Do you think I should give up just because you're stronger than me?"
 
-&mdash; [**Juvia Loxar**](https://myanimelist.net/character.php?q=Juvia%20Loxar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
