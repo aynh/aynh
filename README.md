@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People started growing crops because going hunting without knowing if you'd catch anything was a pain. People dug wells because going all the way to the river was a pain. Laziness is the mother of human progress."
+> "If you hurt somebody... or if somebody hurts you, the same red blood will be shed"
 
-&mdash; [**Ikta Solork**](https://myanimelist.net/character.php?q=Ikta%20Solork&cat=character), [**Alderamin on the Sky**](https://myanimelist.net/search/all?q=Alderamin%20on%20the%20Sky&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
