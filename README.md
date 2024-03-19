@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I always wanted to become stronger. At first it was to protect myself. Next, it was to protect Hak, who gave up everything for me. Now, it's to repay my friends, who enabled me to live."
+> "A peaceful every day life hides its fragility. Fear and violence aren't just something in another world, completely unrelated to us. If a disaster happens, we can't change it. But as long as we small gears are linked together, we can keep moving forward, even if it's only one small step at a time."
 
-&mdash; [**Yona**](https://myanimelist.net/character.php?q=Yona&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
