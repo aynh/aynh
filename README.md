@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Manga that's born from people taking responsibility for their own work, banging their head in frustration, feeling cornered, and like they want to escape, and then using that extreme situation, mental ability, stamina, and panic to create... would never lose to some soul-less manga that's just made up of other people's ideas without any kind of resolve!"
+> "*to Ichigo* I thought you were interesting before, but now you're just a creepy kid."
 
-&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
