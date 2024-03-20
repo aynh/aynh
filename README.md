@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I won't ever be the best at anything. Or rather, you might say that I've stopped trying to be."
+> "If someone lives, they will surely die. That is the absolute rule of this world."
 
-&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Kazuki Kazami**](https://myanimelist.net/character.php?q=Kazuki%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
