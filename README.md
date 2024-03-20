@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's human nature. We have regrets, and go on blaming ourselves forever."
+> "There are always things more important than someone's dream..."
 
-&mdash; [**Kazuki Kuwanomi**](https://myanimelist.net/character.php?q=Kazuki%20Kuwanomi&cat=character), [**Plastic Memories**](https://myanimelist.net/search/all?q=Plastic%20Memories&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
