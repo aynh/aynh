@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's time I started living my own life."
+> "I won't ever be the best at anything. Or rather, you might say that I've stopped trying to be."
 
-&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
