@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To unite dreams beneath a banner of conquest. I praise your efforts. But, warriors... did you not understand? That all dreams must disappear when the dreamer wakes. Every last one of them. Therefore, it was inevitable that I would stand in your way. King of Conquerors, know the end of your eternal dream. I, myself, shall show you harsh reality. Now awaken, Ea! A worthy stage has been set for you! Look up and behold... Enuma Elish!"
+> "People don't simply disappear from this world when they die. They only truly die when they are forgotten by those who are alive. That's why it doesn't matter whether I lived or died. No one knows of my existence, and I don't have I don't have a single friend. But... if you all won't forget about me... that is enough even if I die. With just that... I would be more alive than I ever have been."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Tokou Nanami**](https://myanimelist.net/character.php?q=Tokou%20Nanami&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
