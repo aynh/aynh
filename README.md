@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don’t waste your time following someone around unless you like him. Stalking is a sign of love."
+> "Freedom, isn’t something earned through suffering or pushing yourself. You must accept yourself just as you are and live according to the flow of things; that is true freedom."
 
-&mdash; [**Aoi Yamada**](https://myanimelist.net/character.php?q=Aoi%20Yamada&cat=character), [**Working!!**](https://myanimelist.net/search/all?q=Working!!&cat=all)
+&mdash; [**Monk Zuikou**](https://myanimelist.net/character.php?q=Monk%20Zuikou&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
