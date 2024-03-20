@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just walk the path you believe in. And don't forget, you're the main character of your own life story!"
+> "Manga that's born from people taking responsibility for their own work, banging their head in frustration, feeling cornered, and like they want to escape, and then using that extreme situation, mental ability, stamina, and panic to create... would never lose to some soul-less manga that's just made up of other people's ideas without any kind of resolve!"
 
-&mdash; [**Glenn Radars**](https://myanimelist.net/character.php?q=Glenn%20Radars&cat=character), [**Rokudenashi Majutsu Koushi to Akashic Records**](https://myanimelist.net/search/all?q=Rokudenashi%20Majutsu%20Koushi%20to%20Akashic%20Records&cat=all)
+&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
