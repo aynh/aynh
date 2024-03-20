@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sunday, May 14th at 14:15:30--the moment I got Senjōgahara's phone number."
+> "Anyone stronger than the god of destruction does not exist."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
