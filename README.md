@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People don't simply disappear from this world when they die. They only truly die when they are forgotten by those who are alive. That's why it doesn't matter whether I lived or died. No one knows of my existence, and I don't have I don't have a single friend. But... if you all won't forget about me... that is enough even if I die. With just that... I would be more alive than I ever have been."
+> "If all life is so important, then the most evil of all beings on this earth are without a doubt humans. If there weren't any people on earth, the environment and conditions that all living things live in would be drastically better. Even if there were no school to teach us the stuff we know, it would still be obvious to everyone, wouldn't it? Just think of all that's happened to the earth due to our desires and ego."
 
-&mdash; [**Tokou Nanami**](https://myanimelist.net/character.php?q=Tokou%20Nanami&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Kai**](https://myanimelist.net/character.php?q=Kai&cat=character), [**Suicide Island**](https://myanimelist.net/search/all?q=Suicide%20Island&cat=all)
