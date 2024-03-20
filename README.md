@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If someone lives, they will surely die. That is the absolute rule of this world."
+> "Mages of Fairy Tail... specialize in property damage!"
 
-&mdash; [**Kazuki Kazami**](https://myanimelist.net/character.php?q=Kazuki%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
