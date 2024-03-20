@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey bitch, get off me! I'm supposed to be on top!"
+> "It's time I started living my own life."
 
-&mdash; [**Jan Valentine**](https://myanimelist.net/character.php?q=Jan%20Valentine&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
