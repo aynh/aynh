@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only brute warriors find glory in destruction!"
+> "I wouldn´t mind being eaten, as long as it was by a scorchingly hot lady titan."
 
-&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Dot Pixis**](https://myanimelist.net/character.php?q=Dot%20Pixis&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
