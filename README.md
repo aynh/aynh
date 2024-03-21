@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People are all evil. In order to falsely believe yourself to be just, you must inevitably falsely believe that someone else is more evil than you."
+> "The night is in its darkest just before dawn. But keep your eyes open. If you avert your eyes from the dark, you'll be blinded by the rays of a new day. So keep your eyes open, no matter how dark the night ahead may be."
 
-&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach the Movie: Hell Verse**](https://myanimelist.net/search/all?q=Bleach%20the%20Movie%3A%20Hell%20Verse&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
