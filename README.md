@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don’t push your feelings onto others. No matter what pretty words you use, your kindness is just hypocrisy. You’re pretending to be nice only to make yourself feel better."
+> "There's nothing more repulsive than being touched by a guy you don't like."
 
-&mdash; [**Hallelujah Haptism**](https://myanimelist.net/character.php?q=Hallelujah%20Haptism&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Natsume Asako**](https://myanimelist.net/character.php?q=Natsume%20Asako&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
