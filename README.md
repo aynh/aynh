@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's always a lot easier to let something fall apart, than it is to try to hold it together."
+> "That is when I realized that in all of the world no one needed me. I was alone."
 
-&mdash; [**Ayasegawa Yumichika**](https://myanimelist.net/character.php?q=Ayasegawa%20Yumichika&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
