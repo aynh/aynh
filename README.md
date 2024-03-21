@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm always being told that I don't understand other people's feelings, and also that I don't understand what others are thinking. And I agree. But... If you don't try to stem the tears of a girl crying out for help, you're the lowest kind of man."
+> "There is one thing that makes a human a human... and that is their will."
 
-&mdash; [**Kasuka Heiwajima**](https://myanimelist.net/character.php?q=Kasuka%20Heiwajima&cat=character), [**Durarara!!×2**](https://myanimelist.net/search/all?q=Durarara!!%C3%972&cat=all)
+&mdash; [**Montana Max**](https://myanimelist.net/character.php?q=Montana%20Max&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
