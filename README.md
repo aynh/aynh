@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The desire to fly with ''real wings'' is what motivates you."
+> "If the father's responsibility is to protect the child... then my responsibility is to exceed the father."
 
-&mdash; [**Ringo Noyamano**](https://myanimelist.net/character.php?q=Ringo%20Noyamano&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
