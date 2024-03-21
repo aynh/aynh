@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just because of your angry, childish actions, do you know how many will suffer from it? Don't you go thinking that lives are not connected, you idiotic brat!"
+> "There is no sense in worrying about something you cannot control, so why bother?"
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Yoh Asakura**](https://myanimelist.net/character.php?q=Yoh%20Asakura&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
