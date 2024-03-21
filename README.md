@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the father's responsibility is to protect the child... then my responsibility is to exceed the father."
+> "There’s no knowing how others are feeling unless you ask them. And your feelings can’t get through to others unless you tell them directly."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
