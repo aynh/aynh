@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A great enough sorrow can stop time, but someday, time will start moving again. No matter how many years may pass."
+> "You know what, I wish I could give everyone a happy ending. But life isn't some romantic anime and I can't fix what's wrong in life stumbling around being oblivious and nice all the time."
 
-&mdash; [**Grandmother Sawatari**](https://myanimelist.net/character.php?q=Grandmother%20Sawatari&cat=character), [**Tamayura**](https://myanimelist.net/search/all?q=Tamayura&cat=all)
+&mdash; [**Kodaka Hasegawa**](https://myanimelist.net/character.php?q=Kodaka%20Hasegawa&cat=character), [**Boku wa Tomodachi ga Sukunai NEXT**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai%20NEXT&cat=all)
