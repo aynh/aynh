@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no knowing how others are feeling unless you ask them. And your feelings can’t get through to others unless you tell them directly."
+> "I'm always being told that I don't understand other people's feelings, and also that I don't understand what others are thinking. And I agree. But... If you don't try to stem the tears of a girl crying out for help, you're the lowest kind of man."
 
-&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Kasuka Heiwajima**](https://myanimelist.net/character.php?q=Kasuka%20Heiwajima&cat=character), [**Durarara!!×2**](https://myanimelist.net/search/all?q=Durarara!!%C3%972&cat=all)
