@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That is when I realized that in all of the world no one needed me. I was alone."
+> "Don’t push your feelings onto others. No matter what pretty words you use, your kindness is just hypocrisy. You’re pretending to be nice only to make yourself feel better."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Hallelujah Haptism**](https://myanimelist.net/character.php?q=Hallelujah%20Haptism&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
