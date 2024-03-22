@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm just a dude who's way ahead of his time you know? Does that mean I was born too early because time can't keep up with me?"
+> "There are things you can't see unless you change your standing."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Trafalgar Law**](https://myanimelist.net/character.php?q=Trafalgar%20Law&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
