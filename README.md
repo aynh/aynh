@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Can you not be something unless you're already somebody else's something?"
+> "I'm not going to protect you by being your shield or armor, but I'll be the dagger hidden below your pillow."
 
-&mdash; [**Ross**](https://myanimelist.net/character.php?q=Ross&cat=character), [**Senyuu. 2**](https://myanimelist.net/search/all?q=Senyuu.%202&cat=all)
+&mdash; [**Shuu Tsukiyama**](https://myanimelist.net/character.php?q=Shuu%20Tsukiyama&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
