@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is there... somebody precious to you?"
+> "Sometimes things go badly, even if nobody really did anything wrong."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kouhei Inuzuma**](https://myanimelist.net/character.php?q=Kouhei%20Inuzuma&cat=character), [**Amaama to Inazuma**](https://myanimelist.net/search/all?q=Amaama%20to%20Inazuma&cat=all)
