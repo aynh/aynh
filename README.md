@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't wanna see your face ever again. Keep that helmet on until you die."
+> "If a technological feat is possible, man will do it. Almost as if it’s wired into the core of our being."
 
-&mdash; [**Kurogane**](https://myanimelist.net/character.php?q=Kurogane&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Motoko Kusanagi**](https://myanimelist.net/character.php?q=Motoko%20Kusanagi&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
