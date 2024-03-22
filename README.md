@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ash to ashes, dust to dust, trash to trash can and useless people to uselessness box."
+> "Farewell, warrior of the sky. I pray... you don't forgive me."
 
-&mdash; [**Tsukiko Tsutsukakushi**](https://myanimelist.net/character.php?q=Tsukiko%20Tsutsukakushi&cat=character), [**Hentai Ouji To Warawanai Neko**](https://myanimelist.net/search/all?q=Hentai%20Ouji%20To%20Warawanai%20Neko&cat=all)
+&mdash; [**Kira Izuru**](https://myanimelist.net/character.php?q=Kira%20Izuru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
