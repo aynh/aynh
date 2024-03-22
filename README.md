@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes things go badly, even if nobody really did anything wrong."
+> "Hey, Tsubaki, come out of there already. You haven't lost to him, have you? You can put on a better show than that, come back out on stage. Encore, encore. Tsubaki encore, give us an encore!"
 
-&mdash; [**Kouhei Inuzuma**](https://myanimelist.net/character.php?q=Kouhei%20Inuzuma&cat=character), [**Amaama to Inazuma**](https://myanimelist.net/search/all?q=Amaama%20to%20Inazuma&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
