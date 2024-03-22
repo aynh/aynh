@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Crying over ill luck won't do you any good. You must believe tomorrow will be better than today and smile."
+> "The mistakes people make are eventually labeled as experience. But with a true mistake, there will be no experience to be gained. Because the mistake you made taking me as your opponent will leave you with no future."
 
-&mdash; [**Amane Rui**](https://myanimelist.net/character.php?q=Amane%20Rui&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
+&mdash; [**Hades**](https://myanimelist.net/character.php?q=Hades&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
