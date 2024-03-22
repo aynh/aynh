@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Katara* Try to understand. I need to capture him to restore something I've lost. [Katara jerks her head away from Zuko] Perhaps in exchange, I can restore something you've lost."
+> "I've done it! After years of climbing the ladder, I've finally made it! Now that I have control of all good, no one can stop me! I now rule the human race! First, I will restore all the long-abandoned customs! Control the people! Control the goods! Control the economy! Once that's done, I can easily take over the nation! I'm in position to wield all of the power! Time to implement a dictatorial democracy! I can be a tyrant!"
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**UNESCO Director**](https://myanimelist.net/character.php?q=UNESCO%20Director&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
