@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A dream... It's something you do for yourself, not for others."
+> "Choosing another way of life means throwing away all you've done so far and becoming a new self..."
 
-&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Konan**](https://myanimelist.net/character.php?q=Konan&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
