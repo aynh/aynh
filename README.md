@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only a fool refuses a woman who offers herself."
+> "If you're just living for your own sake, it's all up to you. No hard feelings. No regrets."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
