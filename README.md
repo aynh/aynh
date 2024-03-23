@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unfortunately... being a hero is a limited-time thing. When you grow up, it becomes harder to call yourself one. I wish it hadn't taken me so long to realize that."
+> "FUCK YOU. I'm human, the real deal, right down to the fuckin' marrow of my bones. Don't lump me together with you faggot-ass monsters."
 
-&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/stay night: Unlimited Blade Works**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night%3A%20Unlimited%20Blade%20Works&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
