@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But I wasn't slacking at all. I practiced till I passed out. I gave my all. And if I still turned in a sloppy performance after all that, then... That's who I am now. It's the current me, playing with everything I've got."
+> "The way you perceive yourself doesn't match the way others perceive you. Those who work hard despite that discrepancy shine brighter than anyone else!"
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Kō Ōsaki**](https://myanimelist.net/character.php?q=K%C5%8D%20%C5%8Csaki&cat=character), [**Shōnen Hollywood - Holly Stage for 49**](https://myanimelist.net/search/all?q=Sh%C5%8Dnen%20Hollywood%20-%20Holly%20Stage%20for%2049&cat=all)
