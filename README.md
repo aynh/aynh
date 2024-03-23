@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Give a man a break, and you'll end up broken."
+> "Even if mistaken, even if cruel, even if stupid, if many people acknowledge it, I found out that it can become the right thing. I found out that righteousness was able to be infinitely mass-produced. I found out that righteousness was established by the number of people. I found out that maneuvering for a majority was everything."
 
-&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Owarimonogatari**](https://myanimelist.net/search/all?q=Owarimonogatari&cat=all)
