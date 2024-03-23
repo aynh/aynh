@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our hearts beat in the same rhythm, so why does time flow differently for the two of us?"
+> "[after Princess Yue unexpectedly kisses him] Okay, now I'm really confused. Happy, but confused."
 
-&mdash; [**Saya Otonashi**](https://myanimelist.net/character.php?q=Saya%20Otonashi&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
