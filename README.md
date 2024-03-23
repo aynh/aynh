@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When it comes to catching Spinda, we sure are the Winda!"
+> "Our hearts beat in the same rhythm, so why does time flow differently for the two of us?"
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Saya Otonashi**](https://myanimelist.net/character.php?q=Saya%20Otonashi&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
