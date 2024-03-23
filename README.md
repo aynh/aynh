@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, life is like the weather. It can be sunny or cloudy. Sometimes it rains, and sometimes it storms."
+> "When it comes to catching Spinda, we sure are the Winda!"
 
-&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
