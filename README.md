@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to do damage to the other ship you have to ram them in the middle! Now do it again!"
+> "Unfortunately... being a hero is a limited-time thing. When you grow up, it becomes harder to call yourself one. I wish it hadn't taken me so long to realize that."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/stay night: Unlimited Blade Works**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night%3A%20Unlimited%20Blade%20Works&cat=all)
