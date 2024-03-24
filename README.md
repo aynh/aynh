@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who know despair, once knew hope. Those who know loss, once knew love."
+> "This is the end of my dream. My wings forgot how to fly, since I only kept pretending to flap them. Is there a meaning to wings that can't fly?"
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Misuzu Kamio**](https://myanimelist.net/character.php?q=Misuzu%20Kamio&cat=character), [**Air**](https://myanimelist.net/search/all?q=Air&cat=all)
