@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not like I had aspirations to be a hero or anything. However, I'm positive we followed a code of justice that all of us believed in without condition or compromise."
+> "Remember that everyone you meet is afraid of something, loves something, and has lost something."
 
-&mdash; [**Togusa**](https://myanimelist.net/character.php?q=Togusa&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
