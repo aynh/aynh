@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People live on by forgetting their memories. But there are some memories that should never be forgotten."
+> "Ah... what a beautiful sound. It doesn't get any better than that. I can feel it deep in my bones, like a part of me I never noticed before. That sound is an extension of my being. And this land - this land that's governed by death - I will paint it red with this shard of destruction."
 
-&mdash; [**Gendou Ikari**](https://myanimelist.net/character.php?q=Gendou%20Ikari&cat=character), [**Evangelion: 2.0 You Can Not Advance**](https://myanimelist.net/search/all?q=Evangelion%3A%202.0%20You%20Can%20Not%20Advance&cat=all)
+&mdash; [**Solf J. Kimblee**](https://myanimelist.net/character.php?q=Solf%20J.%20Kimblee&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
