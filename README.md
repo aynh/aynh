@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am of no more use as his tool. Please, kill me."
+> "I'm the smartest member in the Straw Hat group."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Nami**](https://myanimelist.net/character.php?q=Nami&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
