@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just because you're tough doesn't mean you can do whatever you want, right?"
+> "Konoha's Uchiha clan and the Mist's Seven Shinobi-gatana seem petty before his name."
 
-&mdash; [**Ayumu Kato**](https://myanimelist.net/character.php?q=Ayumu%20Kato&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
+&mdash; [**Kisame Hoshigaki**](https://myanimelist.net/character.php?q=Kisame%20Hoshigaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
