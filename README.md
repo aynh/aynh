@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "On this hand, imagine that these four fingers represent the animals, and the thumb represents plants. Then let's say people are here... On the tip of the middle finger, farthest from the heart."
+> "It's not like I had aspirations to be a hero or anything. However, I'm positive we followed a code of justice that all of us believed in without condition or compromise."
 
-&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Togusa**](https://myanimelist.net/character.php?q=Togusa&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
