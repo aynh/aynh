@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm always being told that I don't understand other people's feelings, and also that I don't understand what others are thinking. And I agree. But... If you don't try to stem the tears of a girl crying out for help, you're the lowest kind of man."
+> "Also, the 'fear' experience is a little different from yours, I imagine. You're afraid of what you might lose, right? But I'm afraid of what I've already lost."
 
-&mdash; [**Kasuka Heiwajima**](https://myanimelist.net/character.php?q=Kasuka%20Heiwajima&cat=character), [**Durarara!!×2**](https://myanimelist.net/search/all?q=Durarara!!%C3%972&cat=all)
+&mdash; [**Kyōko Kirigiri**](https://myanimelist.net/character.php?q=Ky%C5%8Dko%20Kirigiri&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
