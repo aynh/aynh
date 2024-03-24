@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Holding in your own feelings like that... ye think tha' no one's gonna get hurt since ye're not lettin' it show to anyone? Tha's just the same as goin' 'round hurting everyone anyway!! What ye're doin' isn't ye keepin' everyone dear to ye!! Ye're just protectin' yerself!!! Ye're just 'fraid of gettin' hurt! Losin' yer nerve! Ye're just scared!!"
+> "*points to Jet*Don't give me that art of war crap! And you!*points to the other man*You take too long to take a sh*t!"
 
-&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
