@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At a place where you feel most restful… Next to the person you find most dear. People's lives are repetitions of inflicting pain on each other. It's understandable to doubt others. But being unable to trust anything is the same as being unable to feel other people's love. Aren’t you, perhaps, feeling lonely? Aren’t you, perhaps, living slavishly? Are you able to laugh with an honest heart?"
+> "If you begin to regret, you'll dull your future decisions and let others make your choices for you. All that's left for you then is to die. Nobody can foretell the outcome. Each decision you make holds meaning only by affecting your next decision."
 
-&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Erwin Smith**](https://myanimelist.net/character.php?q=Erwin%20Smith&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
