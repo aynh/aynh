@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you truly desire greatness, you must first know what makes you weak!"
+> "People live on by forgetting their memories. But there are some memories that should never be forgotten."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Gendou Ikari**](https://myanimelist.net/character.php?q=Gendou%20Ikari&cat=character), [**Evangelion: 2.0 You Can Not Advance**](https://myanimelist.net/search/all?q=Evangelion%3A%202.0%20You%20Can%20Not%20Advance&cat=all)
