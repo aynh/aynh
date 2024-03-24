@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Also, the 'fear' experience is a little different from yours, I imagine. You're afraid of what you might lose, right? But I'm afraid of what I've already lost."
+> "I don't mind the regret, if I fail in attempt to achieve my dreams. What I don't wanna regret is not chasing those dreams."
 
-&mdash; [**Kyōko Kirigiri**](https://myanimelist.net/character.php?q=Ky%C5%8Dko%20Kirigiri&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Akito Takagi**](https://myanimelist.net/character.php?q=Akito%20Takagi&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
