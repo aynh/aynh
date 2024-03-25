@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not asking you to love me. No, actually, please don't love me. But please let me be in love with you."
+> "If you’re too lucky, people will get jealous of you."
 
-&mdash; [**Fuyou Kaede**](https://myanimelist.net/character.php?q=Fuyou%20Kaede&cat=character), [**Shuffle!**](https://myanimelist.net/search/all?q=Shuffle!&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
