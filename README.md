@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yuusuke... Dammit Yuusuke, listen to me! Everyone has to fight with time to find their place before their inevitable death. Toguro... he ran away from that fight. Don't you ever do the same. No human is ever a one man show. Every decision that you make will affect the countless people who care about you. Do you understand? You can't be a cocky kid anymore."
+> "As I had encountered kindness, I wanted to be kind myself. I wanted to be able to do something, just like others had done for me."
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
