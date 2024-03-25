@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know... You like me more than you think you do."
+> "Taking away someone's freedom is the ugliest thing one can do in this world. People like that ought to decay into dirt and come back as thorny roses."
 
-&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Jae-ha**](https://myanimelist.net/character.php?q=Jae-ha&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
