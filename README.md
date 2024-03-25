@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When we die, our bodies disintegrate and become part of the reishi that make up Soul Society. And when that time comes...where does your heart go? It gets passed on to your nakama (comrades). If you pass it on to them, then your heart will always live on within them. Kuchiki, that's why...you must never, ever, ever die alone. Got it, Kuchiki?"
+> "Yuusuke... Dammit Yuusuke, listen to me! Everyone has to fight with time to find their place before their inevitable death. Toguro... he ran away from that fight. Don't you ever do the same. No human is ever a one man show. Every decision that you make will affect the countless people who care about you. Do you understand? You can't be a cocky kid anymore."
 
-&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
