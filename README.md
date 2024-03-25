@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As I had encountered kindness, I wanted to be kind myself. I wanted to be able to do something, just like others had done for me."
+> "The fastest way to happiness is to avoid looking at reality."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Ame Ochibana**](https://myanimelist.net/character.php?q=Ame%20Ochibana&cat=character), [**Denpa teki na Kanojo**](https://myanimelist.net/search/all?q=Denpa%20teki%20na%20Kanojo&cat=all)
