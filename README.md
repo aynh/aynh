@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let me tell you something about dying. It hurts like hell."
+> "Fact is genius's can take all the hard work of the common folk and turn the whole entire thing around, so that it's like it was all for nothing. As one of those with talent, let me apologize. I know it's unfair but... TOUGH SHIT, SUCKER'S!!"
 
-&mdash; [**Heero Yuy**](https://myanimelist.net/character.php?q=Heero%20Yuy&cat=character), [**Mobile Suit Gundam Wing**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Wing&cat=all)
+&mdash; [**Takamura Mamoru**](https://myanimelist.net/character.php?q=Takamura%20Mamoru&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
