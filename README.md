@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I humbly call the Gods of Harvest. Follow my wishes, leave none unfulfilled!"
+> "You know... You like me more than you think you do."
 
-&mdash; [**Izumo Kamiki**](https://myanimelist.net/character.php?q=Izumo%20Kamiki&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
