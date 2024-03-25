@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That rose whip of his must be ten feet long. Where does he stash it? All the ways I can think of sound kinda painful."
+> "People have the strength to overcome their obstacles – everyone can."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Belldandy**](https://myanimelist.net/character.php?q=Belldandy&cat=character), [**Aah! Megami-Sama**](https://myanimelist.net/search/all?q=Aah!%20Megami-Sama&cat=all)
