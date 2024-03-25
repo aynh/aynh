@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'You can't run away' is an ideal for the strong. You're not always wrong. Society, the world, the people around you - often someone else is in the wrong. To think that you can change is adapting to this cruel, indifferent, trashy world. It's admitting defeat and servility. You're simply deceiving yourself by dressing it up with pretty words."
+> "I thought that would be the only way I could become the world's strongest man. But you know... It didn't work. Your heart isn't something you can get rid of. If you're trying to get rid of your heart, your heart is making you do it. You can never abandon everything to get stronger. The one thing you can never stop is falling in love with someone!"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Adlet Mayer**](https://myanimelist.net/character.php?q=Adlet%20Mayer&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
