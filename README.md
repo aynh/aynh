@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fact is genius's can take all the hard work of the common folk and turn the whole entire thing around, so that it's like it was all for nothing. As one of those with talent, let me apologize. I know it's unfair but... TOUGH SHIT, SUCKER'S!!"
+> "I realized one morning... That I hate this world. This world is made of countless boxes. People bend and stuff their bodies into their own boxes. And stay there for the rest of their lives. And eventually, inside the box, they forget: what they looked like; what they loved; who they loved. That's why I'm getting out of my box. I'm one of the chosen. That's why I'm going to destroy this world."
 
-&mdash; [**Takamura Mamoru**](https://myanimelist.net/character.php?q=Takamura%20Mamoru&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
+&mdash; [**Sanetoshi Watase**](https://myanimelist.net/character.php?q=Sanetoshi%20Watase&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
