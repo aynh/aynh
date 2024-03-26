@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate all these damn rich people."
+> "If I were the rain, that binds together the heavens and the earth, whom in all eternity will never mingle, would I be able to bind two hearts together?"
 
-&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
