@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just want to keep looking at her."
+> "It's not that you can fall in love with someone new because you forgot the old. It's because you fall in love with someone new, that you're able to forget about the old. Only love can heal a heart that was hurt by love."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Bokura ga Ita**](https://myanimelist.net/character.php?q=Bokura%20ga%20Ita&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
