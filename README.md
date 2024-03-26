@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Taking away someone's freedom is the ugliest thing one can do in this world. People like that ought to decay into dirt and come back as thorny roses."
+> "Nothing amazing happens here. Only the ordinary."
 
-&mdash; [**Jae-ha**](https://myanimelist.net/character.php?q=Jae-ha&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Naota Nandaba**](https://myanimelist.net/character.php?q=Naota%20Nandaba&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
