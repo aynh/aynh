@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's only one world for us, and things in it are set up so that we can find happiness in it."
+> "Sometimes, I wonder why people fall in love. Why do we abandon ourselves... to these painful and burdensome feelings?"
 
-&mdash; [**Ryuuguu Rena**](https://myanimelist.net/character.php?q=Ryuuguu%20Rena&cat=character), [**Higurashi no Naku Koro ni Rei**](https://myanimelist.net/search/all?q=Higurashi%20no%20Naku%20Koro%20ni%20Rei&cat=all)
+&mdash; [**Nejima Yukari**](https://myanimelist.net/character.php?q=Nejima%20Yukari&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
