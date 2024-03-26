@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate people with a big heart. All they do is look down on you from above. They don’t give a damn about the petty struggles of the people serving under them. If that’s what it means to be a king, then that’s just sad and pathetic."
+> "Victory isn't something you are given. It is something you take."
 
-&mdash; [**Saruhiko Fushimi**](https://myanimelist.net/character.php?q=Saruhiko%20Fushimi&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
+&mdash; [**Ushiromiya Battler**](https://myanimelist.net/character.php?q=Ushiromiya%20Battler&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
