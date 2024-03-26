@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not that you can fall in love with someone new because you forgot the old. It's because you fall in love with someone new, that you're able to forget about the old. Only love can heal a heart that was hurt by love."
+> "*thinking* Normally, one would call an ambulance or ask for help from one of the nearby residents, but this particular boy decided to carry the unconscious, innocent girl... and where the hell are you taking her, bastard?"
 
-&mdash; [**Bokura ga Ita**](https://myanimelist.net/character.php?q=Bokura%20ga%20Ita&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
