@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you saying I can be god?"
+> "To reach the top we must crush their dreams and climb atop their shattered hopes. The will to win at any cost, to obliterate the enemy if necessary, without ambition there is no way to move up."
 
-&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Agito Wanijima**](https://myanimelist.net/character.php?q=Agito%20Wanijima&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
