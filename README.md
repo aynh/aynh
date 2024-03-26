@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The  pain on these wounds will last only a second. The pain of your death would last a lifetime."
+> "You talk big yet you're nothing but Akito's toy! (To Yuki)"
 
-&mdash; [**Kenshiro**](https://myanimelist.net/character.php?q=Kenshiro&cat=character), [**Fist of the North Star**](https://myanimelist.net/search/all?q=Fist%20of%20the%20North%20Star&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
