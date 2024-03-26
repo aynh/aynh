@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A dream isn't something that someone tells you to go for. It's something you fulfill of your own will."
+> "I didn't say get naked, stupid. I just can't stand seeing you in those clothes."
 
-&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
