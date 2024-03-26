@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For people like us, we do not have a choice over the environment we're in, but we get to decide what we will make of it and what path we will take from there."
+> "I hate people with a big heart. All they do is look down on you from above. They don’t give a damn about the petty struggles of the people serving under them. If that’s what it means to be a king, then that’s just sad and pathetic."
 
-&mdash; [**Yu Fujikura**](https://myanimelist.net/character.php?q=Yu%20Fujikura&cat=character), [**Princess Lover!**](https://myanimelist.net/search/all?q=Princess%20Lover!&cat=all)
+&mdash; [**Saruhiko Fushimi**](https://myanimelist.net/character.php?q=Saruhiko%20Fushimi&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
