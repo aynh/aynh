@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I didn't say get naked, stupid. I just can't stand seeing you in those clothes."
+> "For people like us, we do not have a choice over the environment we're in, but we get to decide what we will make of it and what path we will take from there."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Yu Fujikura**](https://myanimelist.net/character.php?q=Yu%20Fujikura&cat=character), [**Princess Lover!**](https://myanimelist.net/search/all?q=Princess%20Lover!&cat=all)
