@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because she learned about happiness, she feels lonely for the first time. And because she knows unhappiness, she understands happiness for the first time."
+> "And so it all begins. This boy's name is Yusuke. He's 14 years old and is supposed to be the hero of the story... but oddly enough, he's dead."
 
-&mdash; [**Himura Yuu**](https://myanimelist.net/character.php?q=Himura%20Yuu&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Yu Yu Hakusho**](https://myanimelist.net/character.php?q=Yu%20Yu%20Hakusho&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
