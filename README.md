@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing amazing happens here. Only the ordinary."
+> "A dream isn't something that someone tells you to go for. It's something you fulfill of your own will."
 
-&mdash; [**Naota Nandaba**](https://myanimelist.net/character.php?q=Naota%20Nandaba&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
