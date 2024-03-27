@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, I give up. Can't win against fools."
+> "Even if he hates me, being able to die with the knowledge that the one I love will never forget me… there is no greater happiness a woman could desire."
 
-&mdash; [**Jigo**](https://myanimelist.net/character.php?q=Jigo&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Hakaze Kusaribe**](https://myanimelist.net/character.php?q=Hakaze%20Kusaribe&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
