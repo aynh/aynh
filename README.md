@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's because I loved her the most that I wanted to kill her as swiftly as possible."
+> "Well, I give up. Can't win against fools."
 
-&mdash; [**Akame**](https://myanimelist.net/character.php?q=Akame&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Jigo**](https://myanimelist.net/character.php?q=Jigo&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
