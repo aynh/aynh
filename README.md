@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you are facing a bitter aspect of life... Drugs and murder are foul, without any excuse. Deserve a red card, for a loser."
+> "I've wanted to make him taste his own pathetic failure with all my heart."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
