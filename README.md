@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kindness is weakness. Your weakness will delay the trigger by a moment. This world doesn't treat kindness kindly."
+> "Run-chan was chasing a butterfly and was about to get hit by a car..."
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Ichii Tooru**](https://myanimelist.net/character.php?q=Ichii%20Tooru&cat=character), [**A Channel**](https://myanimelist.net/search/all?q=A%20Channel&cat=all)
