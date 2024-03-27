@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The weak are destined to lie beneath the boots of the strong. If that angers you, overcome your deficits."
+> "Ha ha! Eat my dust, rat-boy! (to Yuki)"
 
-&mdash; [**Esdeath**](https://myanimelist.net/character.php?q=Esdeath&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
