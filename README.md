@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've wanted to make him taste his own pathetic failure with all my heart."
+> "You can believe in anything. But it's your heart...That ultimately decides."
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
