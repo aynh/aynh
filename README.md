@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can believe in anything. But it's your heart...That ultimately decides."
+> "If you save Kaien, then what becomes of his pride? If you go to his aid now, his life will be saved. But... at the same time, it would end up killing his pride for all eternity."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
