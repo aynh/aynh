@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A very small degree of hope is sufficient to cause the birth of love."
+> "Why can't I steal him from her? There are no rules in the game of love!"
 
-&mdash; [**Sayonara Zetsubou Sensei**](https://myanimelist.net/character.php?q=Sayonara%20Zetsubou%20Sensei&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
+&mdash; [**Odagiri Nene**](https://myanimelist.net/character.php?q=Odagiri%20Nene&cat=character), [**Yamada-kun to 7-nin no Majo**](https://myanimelist.net/search/all?q=Yamada-kun%20to%207-nin%20no%20Majo&cat=all)
