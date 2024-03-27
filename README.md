@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Run-chan was chasing a butterfly and was about to get hit by a car..."
+> "A very small degree of hope is sufficient to cause the birth of love."
 
-&mdash; [**Ichii Tooru**](https://myanimelist.net/character.php?q=Ichii%20Tooru&cat=character), [**A Channel**](https://myanimelist.net/search/all?q=A%20Channel&cat=all)
+&mdash; [**Sayonara Zetsubou Sensei**](https://myanimelist.net/character.php?q=Sayonara%20Zetsubou%20Sensei&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
