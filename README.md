@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't give alcohol to minors!"
+> "Man fears the darkness, and so he scrapes away at the edges of it with fire. He creates life by diminishing the Darkness."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Rei Ayanami**](https://myanimelist.net/character.php?q=Rei%20Ayanami&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
