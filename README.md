@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why can't I steal him from her? There are no rules in the game of love!"
+> "It's because I loved her the most that I wanted to kill her as swiftly as possible."
 
-&mdash; [**Odagiri Nene**](https://myanimelist.net/character.php?q=Odagiri%20Nene&cat=character), [**Yamada-kun to 7-nin no Majo**](https://myanimelist.net/search/all?q=Yamada-kun%20to%207-nin%20no%20Majo&cat=all)
+&mdash; [**Akame**](https://myanimelist.net/character.php?q=Akame&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
