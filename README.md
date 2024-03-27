@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Man fears the darkness, and so he scrapes away at the edges of it with fire. He creates life by diminishing the Darkness."
+> "Kindness is weakness. Your weakness will delay the trigger by a moment. This world doesn't treat kindness kindly."
 
-&mdash; [**Rei Ayanami**](https://myanimelist.net/character.php?q=Rei%20Ayanami&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
