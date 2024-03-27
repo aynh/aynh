@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I realized why I was lost. It's not because I didn't have a map... It was because I didn't have a destination."
+> "Every one of us must do what's in their power! If we're going to die anyway, then it's better to die fighting than to do nothing!"
 
-&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
