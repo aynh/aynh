@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never knew until the first years came, that we all cared about different things."
+> "The biggest mistake in my life is that i was born!"
 
-&mdash; [**Chihaya Ayase**](https://myanimelist.net/character.php?q=Chihaya%20Ayase&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Itoshiki Nozomu**](https://myanimelist.net/character.php?q=Itoshiki%20Nozomu&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
