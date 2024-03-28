@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am the Dark Flame Master. Perish, enveloped in the flames of darkness!"
+> "Even when our eyes are closed, there's a whole world out there, that lives outside of ourselves and our dreams."
 
-&mdash; [**Togashi Yuuta**](https://myanimelist.net/character.php?q=Togashi%20Yuuta&cat=character), [**Chuunibyou Demo Koi Ga Shitai!**](https://myanimelist.net/search/all?q=Chuunibyou%20Demo%20Koi%20Ga%20Shitai!&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
