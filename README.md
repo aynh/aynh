@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Um well Miss Maka? Can you do me a favor and help me out with your father? I can't get him off my leg."
+> "But don't forget... as long as you're in my division, I'm on your side until death and beyond."
 
-&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
