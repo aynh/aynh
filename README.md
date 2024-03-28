@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But don't forget... as long as you're in my division, I'm on your side until death and beyond."
+> "Violence, greed, slaughter, corruption, defeat, failure, immorality, humiliation… These are everywhere. As long as you live, you will face them."
 
-&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Hampnie Hambart**](https://myanimelist.net/character.php?q=Hampnie%20Hambart&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
