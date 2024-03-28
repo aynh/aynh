@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The meaning to our existence... is to live. To remember those who have died and face the world. God doesn't exist. I will. Through my own will."
+> "But don't forget... as long as you're in my division, I'm on your side until death and beyond."
 
-&mdash; [**Setsuna F. Seiei**](https://myanimelist.net/character.php?q=Setsuna%20F.%20Seiei&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
