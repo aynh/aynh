@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want everyone to feel safe again soon...I want this to be a world where people can without fighting each other."
+> "However, I do know one guy who whines, cries, and throws tantrums but still manages to save everyone. He's a crazy man who's not afraid of anything. Even though he's been scarred from head to toe, he'll always be there."
 
-&mdash; [**Hange Zoe**](https://myanimelist.net/character.php?q=Hange%20Zoe&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
