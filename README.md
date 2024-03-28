@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How does one figure out if they're in love with a member of the opposite sex?"
+> "Just as no matter how hard you try to keep it away, despair will attack you again and again. In the same manner, hope will return to you. Again and again."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Kazuma Sohma**](https://myanimelist.net/character.php?q=Kazuma%20Sohma&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
