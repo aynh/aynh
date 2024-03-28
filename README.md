@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, you’ll run into a situation which is dangerous, but which you can't run from. Sometimes, you know you’ll lose, but you have to advance anyway. If you can't be a smart man, then you should be the stupidest man of all. What do you think?"
+> "Um well Miss Maka? Can you do me a favor and help me out with your father? I can't get him off my leg."
 
-&mdash; [**Duran**](https://myanimelist.net/character.php?q=Duran&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
