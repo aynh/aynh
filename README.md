@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whats the probability of drawing the ace of spades from a deck with no jokers? Normaly it would be 150. But what if its a brand new deck? The position of cards in a new deck are typically identical, so that means if you take out the jokers and draw the card at the very bottom, it's the ace of spades almost 100% of the time. Oh that's right! I didn't say a word about it being a new deck. Rather, you didn't ask. Being in the 'no' gives you the power to turn the probability of winning from 1.92% to 100%. The more knowledge of a party will be the inevitable victor."
+> "The meaning to our existence... is to live. To remember those who have died and face the world. God doesn't exist. I will. Through my own will."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Setsuna F. Seiei**](https://myanimelist.net/character.php?q=Setsuna%20F.%20Seiei&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
