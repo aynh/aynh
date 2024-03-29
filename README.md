@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I fail to make my every-minute reports, a gang of 5,000 brutes will attack your whole family."
+> "*to Kikyo* I swear... I will never let Naraku harm you."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
