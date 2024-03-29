@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world...God's divine creation...Is so brimming with love...Yet there is no love in the hearts of men."
+> "I guess I just want the person I love to be happy. I just want to do something for him."
 
-&mdash; [**Canute**](https://myanimelist.net/character.php?q=Canute&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Sana Inui**](https://myanimelist.net/character.php?q=Sana%20Inui&cat=character), [**Mashiroiro Symphony - The color of lovers**](https://myanimelist.net/search/all?q=Mashiroiro%20Symphony%20-%20The%20color%20of%20lovers&cat=all)
