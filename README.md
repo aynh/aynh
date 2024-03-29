@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I guess I just want the person I love to be happy. I just want to do something for him."
+> "You want to walk into a Fire Nation town when they're all fired up with their, you know, fire?"
 
-&mdash; [**Sana Inui**](https://myanimelist.net/character.php?q=Sana%20Inui&cat=character), [**Mashiroiro Symphony - The color of lovers**](https://myanimelist.net/search/all?q=Mashiroiro%20Symphony%20-%20The%20color%20of%20lovers&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
