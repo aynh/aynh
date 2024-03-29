@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more battles we fought, the more our confidence grew. We weren't afraid of anything back then. But the difference between victory and defeat is paper-thin. We didn't realize this and were arrogant."
+> "I'm prepared for anything! Up until now, I have been running away from every fight, afraid of losing. But running away is even worse than losing. Unless one continues to fight, without succumbing to the pain of defeat, it is impossible to achieve victory. That is what people I love taught me."
 
-&mdash; [**Hayashi**](https://myanimelist.net/character.php?q=Hayashi&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Hanyuu**](https://myanimelist.net/character.php?q=Hanyuu&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
