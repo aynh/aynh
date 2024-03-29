@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you do evil out of a hatred for evil, that rage and hate will merely birth new conflict."
+> "Beautiful night, isn't it, Police Girl? It's especially beautiful, of course, if you're a bloodsucker."
 
-&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
