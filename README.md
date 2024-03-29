@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is dying that scary to you?"
+> "Is there truly any human who is not arrogant?"
 
-&mdash; [**Minato Arisato**](https://myanimelist.net/character.php?q=Minato%20Arisato&cat=character), [**Persona 3 The Movie #1 Spring of Birth**](https://myanimelist.net/search/all?q=Persona%203%20The%20Movie%20%231%20Spring%20of%20Birth&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
