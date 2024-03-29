@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is right... what is wrong... you can't easily tell the difference. That's why you must keep thinking, whether what you are doing is right or not. That act itself, alone, can be called right."
+> "Let's show him...that the good guys always win."
 
-&mdash; [**Koutarou Amon**](https://myanimelist.net/character.php?q=Koutarou%20Amon&cat=character), [**Tokyo Ghoul:re**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%3Are&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
