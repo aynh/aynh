@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm prepared for anything! Up until now, I have been running away from every fight, afraid of losing. But running away is even worse than losing. Unless one continues to fight, without succumbing to the pain of defeat, it is impossible to achieve victory. That is what people I love taught me."
+> "So you're trying to accept everyone and their feelings, aren't you? I think you already know this, but if you keep trying to do this 'accepting' thing with everyone, you're liable to be torn to bits."
 
-&mdash; [**Hanyuu**](https://myanimelist.net/character.php?q=Hanyuu&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
+&mdash; [**Rachnera Arachnera**](https://myanimelist.net/character.php?q=Rachnera%20Arachnera&cat=character), [**Monster Musume no Iru Nichijou**](https://myanimelist.net/search/all?q=Monster%20Musume%20no%20Iru%20Nichijou&cat=all)
