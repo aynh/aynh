@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But don't forget... as long as you're in my division, I'm on your side until death and beyond."
+> "If you find a raw diamond, wanting it to become polished is natural right?"
 
-&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kuu Hizuri**](https://myanimelist.net/character.php?q=Kuu%20Hizuri&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
