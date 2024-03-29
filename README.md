@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They are your words! This is your heart! Our desire to help our friends belongs to us!"
+> "If there is a creator, he surely made this world too large. This is inconvenient for us small, fearful humans. For all the world's vastness, we can't measure the distance between ourselves. There are 6 billion of us, yet still, everyone is alone. That is why we are all frantically searching for that one person we need no distance from."
 
-&mdash; [**Happy**](https://myanimelist.net/character.php?q=Happy&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kou Ichinomiya**](https://myanimelist.net/character.php?q=Kou%20Ichinomiya&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
