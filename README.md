@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You want to walk into a Fire Nation town when they're all fired up with their, you know, fire?"
+> "If I fail to make my every-minute reports, a gang of 5,000 brutes will attack your whole family."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
