@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you find a raw diamond, wanting it to become polished is natural right?"
+> "They are your words! This is your heart! Our desire to help our friends belongs to us!"
 
-&mdash; [**Kuu Hizuri**](https://myanimelist.net/character.php?q=Kuu%20Hizuri&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
+&mdash; [**Happy**](https://myanimelist.net/character.php?q=Happy&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
