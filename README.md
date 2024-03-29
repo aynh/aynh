@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Beautiful night, isn't it, Police Girl? It's especially beautiful, of course, if you're a bloodsucker."
+> "It's a mystery. Just because of a simple sentence... I get shaken... or I get happy. Kyo-kun is mysterious indeed. (After Kyo says, 'You wanna kill some time... with me?')"
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
