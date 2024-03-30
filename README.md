@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to change, don't wait for someone else to make it happen. Do it yourself."
+> "It is foolish to listen to one who will not listen to you. Do as you wish."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
