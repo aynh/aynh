@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Still I've never thought of myself as an unfortunate person. Of course I am not a fortunate person either. In the first place a fortunate person could never write plays or novels. I write while loving my misfortune almost as if I'm tasting it."
+> "People who want to leave are going to leave. But not everyone is like that."
 
-&mdash; [**Takada**](https://myanimelist.net/character.php?q=Takada&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
+&mdash; [**Yoshihisa Manabe**](https://myanimelist.net/character.php?q=Yoshihisa%20Manabe&cat=character), [**Kotoura-san**](https://myanimelist.net/search/all?q=Kotoura-san&cat=all)
