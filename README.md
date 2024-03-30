@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Knocking others down to gain an advantage is a fruitless endeavor. It means they've given up on winning any other way."
+> "A fight isn't won once a victor is decided, it's won when someone loses."
 
-&mdash; [**Saiki Michiru**](https://myanimelist.net/character.php?q=Saiki%20Michiru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Izayoi Sakamaki**](https://myanimelist.net/character.php?q=Izayoi%20Sakamaki&cat=character), [**Mondaiji-tachi Ga Isekai Kara Kuru Sou Desu Yo?**](https://myanimelist.net/search/all?q=Mondaiji-tachi%20Ga%20Isekai%20Kara%20Kuru%20Sou%20Desu%20Yo%3F&cat=all)
