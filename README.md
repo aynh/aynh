@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[singing] Total slaughter, total slaughter. I won't leave a single man alive. La de da de die, genocide. La de da de dud, an ocean of blood. Let's begin the killing time."
+> "If you want to be strong, smile! He who can smile, even when he's so sad that he wants to die, when it's so painful that he wants to give it all up and run away, is the one who becomes strong."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Atro Spiker**](https://myanimelist.net/character.php?q=Atro%20Spiker&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
