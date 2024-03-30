@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It makes you sad when someone suddenly just up and disappears without a word. If you're just going to end up hurt in the end, you're better off not forming any bonds at all."
+> "And without any buildup or fanfare, we now see Nagato Yuki. Even if she were ordinary, she sure doesn't look like a normal person and naturally, she was actually an evil magician. And an alien on top of that."
 
-&mdash; [**Yozora Mikazuki**](https://myanimelist.net/character.php?q=Yozora%20Mikazuki&cat=character), [**Boku wa Tomodachi ga Sukunai**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
