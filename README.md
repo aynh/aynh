@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We have no choice but to accept the one and only life we're given, no matter how cruel and heartless it might be."
+> "Shining brightly even for a split second is better than living a dull-grey life for eternity."
 
-&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Jing**](https://myanimelist.net/character.php?q=Jing&cat=character), [**Jing: King of Bandits**](https://myanimelist.net/search/all?q=Jing%3A%20King%20of%20Bandits&cat=all)
