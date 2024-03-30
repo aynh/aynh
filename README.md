@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bonds are what they are because they can be cut."
+> "Still I've never thought of myself as an unfortunate person. Of course I am not a fortunate person either. In the first place a fortunate person could never write plays or novels. I write while loving my misfortune almost as if I'm tasting it."
 
-&mdash; [**Miyaichi Rio**](https://myanimelist.net/character.php?q=Miyaichi%20Rio&cat=character), [**Ana Satsujin**](https://myanimelist.net/search/all?q=Ana%20Satsujin&cat=all)
+&mdash; [**Takada**](https://myanimelist.net/character.php?q=Takada&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
