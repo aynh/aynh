@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one's heart."
+> "Sanae-san told me, places that I can cry are in a toilet, or in daddy's arms."
 
-&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Okazaki Ushio**](https://myanimelist.net/character.php?q=Okazaki%20Ushio&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
