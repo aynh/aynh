@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is a meaning for wings that cannot fly! It's a precious memory of when you once flew in the sky."
+> "Bonds are what they are because they can be cut."
 
-&mdash; [**Yukito Kunisaki**](https://myanimelist.net/character.php?q=Yukito%20Kunisaki&cat=character), [**Air**](https://myanimelist.net/search/all?q=Air&cat=all)
+&mdash; [**Miyaichi Rio**](https://myanimelist.net/character.php?q=Miyaichi%20Rio&cat=character), [**Ana Satsujin**](https://myanimelist.net/search/all?q=Ana%20Satsujin&cat=all)
