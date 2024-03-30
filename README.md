@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Shining brightly even for a split second is better than living a dull-grey life for eternity."
+> "After the first note resonated through the hall, You became everything I yearn for."
 
-&mdash; [**Jing**](https://myanimelist.net/character.php?q=Jing&cat=character), [**Jing: King of Bandits**](https://myanimelist.net/search/all?q=Jing%3A%20King%20of%20Bandits&cat=all)
+&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
