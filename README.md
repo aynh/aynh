@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who want to leave are going to leave. But not everyone is like that."
+> "Zealotry and prejudice more than anything, bring harm to the people of the land."
 
-&mdash; [**Yoshihisa Manabe**](https://myanimelist.net/character.php?q=Yoshihisa%20Manabe&cat=character), [**Kotoura-san**](https://myanimelist.net/search/all?q=Kotoura-san&cat=all)
+&mdash; [**Arslan**](https://myanimelist.net/character.php?q=Arslan&cat=character), [**The Heroic Legend of Arslan**](https://myanimelist.net/search/all?q=The%20Heroic%20Legend%20of%20Arslan&cat=all)
