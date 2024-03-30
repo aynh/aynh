@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And without any buildup or fanfare, we now see Nagato Yuki. Even if she were ordinary, she sure doesn't look like a normal person and naturally, she was actually an evil magician. And an alien on top of that."
+> "I'm not highly aware. I'm highly self-aware."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
