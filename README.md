@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The only principle is that there is no principles."
+> "Hey, yo, check this out! It's a moonwalk, it's a moonwalk! Head spin!"
 
-&mdash; [**Kurapika**](https://myanimelist.net/character.php?q=Kurapika&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
