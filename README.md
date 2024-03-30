@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey, yo, check this out! It's a moonwalk, it's a moonwalk! Head spin!"
+> "If you want to change, don't wait for someone else to make it happen. Do it yourself."
 
-&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
