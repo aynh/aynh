@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not highly aware. I'm highly self-aware."
+> "Knocking others down to gain an advantage is a fruitless endeavor. It means they've given up on winning any other way."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Saiki Michiru**](https://myanimelist.net/character.php?q=Saiki%20Michiru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
