@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After the first note resonated through the hall, You became everything I yearn for."
+> "You can't keep something without fighting for it."
 
-&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Hajime Kanzaki**](https://myanimelist.net/character.php?q=Hajime%20Kanzaki&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
