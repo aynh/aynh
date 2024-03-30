@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sanae-san told me, places that I can cry are in a toilet, or in daddy's arms."
+> "[singing] Total slaughter, total slaughter. I won't leave a single man alive. La de da de die, genocide. La de da de dud, an ocean of blood. Let's begin the killing time."
 
-&mdash; [**Okazaki Ushio**](https://myanimelist.net/character.php?q=Okazaki%20Ushio&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
