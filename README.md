@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don’t need a good reason to save a friend. If you want to save them, then save them. I know someone who kept saying those stupid things even when he was driven to the brink of death, and he really did save over 10,000 people in the end. And that idiot that saved so many people is trying to save someone today like always. I know I can’t stop him. No matter how much I don’t want him to do anything dangerous, seeing him off with a push to the back is the sign of a good woman!"
+> "Killing others is never justice, no matter what kind of noble cause one upholds."
 
-&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Seishin Muroi**](https://myanimelist.net/character.php?q=Seishin%20Muroi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
