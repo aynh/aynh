@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*points to Jet*Don't give me that art of war crap! And you!*points to the other man*You take too long to take a sh*t!"
+> "I don't want fear for a future, that may not even come, to stop me from acting today."
 
-&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Simon**](https://myanimelist.net/character.php?q=Simon&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
