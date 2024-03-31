@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whoever said one's first love is bittersweet, is a liar. It is only bitter."
+> "I've no interest in a 'Reality'."
 
-&mdash; [**Renton Thurston**](https://myanimelist.net/character.php?q=Renton%20Thurston&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
