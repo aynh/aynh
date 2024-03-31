@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are some things you can't say to someone, no matter how close you are."
+> "Laziness is the mother of all bad habits. But ultimately she is a mother and we should respect her."
 
-&mdash; [**Nanami Aoyama**](https://myanimelist.net/character.php?q=Nanami%20Aoyama&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
