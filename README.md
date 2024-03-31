@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't have any regrets. I'm glad I met you, Sousuke Sagara."
+> "You have no effect on me because you are flat chested!"
 
-&mdash; [**Kaname Chidori**](https://myanimelist.net/character.php?q=Kaname%20Chidori&cat=character), [**Full Metal Panic!**](https://myanimelist.net/search/all?q=Full%20Metal%20Panic!&cat=all)
+&mdash; [**Laharl**](https://myanimelist.net/character.php?q=Laharl&cat=character), [**Disgaea**](https://myanimelist.net/search/all?q=Disgaea&cat=all)
