@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do your best, no matter how many times you fail!"
+> "There are some things you can't say to someone, no matter how close you are."
 
-&mdash; [**Takeshi Tatsumi**](https://myanimelist.net/character.php?q=Takeshi%20Tatsumi&cat=character), [**Giant Killing**](https://myanimelist.net/search/all?q=Giant%20Killing&cat=all)
+&mdash; [**Nanami Aoyama**](https://myanimelist.net/character.php?q=Nanami%20Aoyama&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
