@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I have to win through underhanded means, I'd rather just stand right here until I die."
+> "We're going to explore the outside world someday, right? Far beyond these walls, there's flaming water, land made of ice, and fields of sand spread wide. It's the world my parents wanted to go to."
 
-&mdash; [**Hayabusa Shou**](https://myanimelist.net/character.php?q=Hayabusa%20Shou&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
