@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Killing others is never justice, no matter what kind of noble cause one upholds."
+> "Whoever said one's first love is bittersweet, is a liar. It is only bitter."
 
-&mdash; [**Seishin Muroi**](https://myanimelist.net/character.php?q=Seishin%20Muroi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Renton Thurston**](https://myanimelist.net/character.php?q=Renton%20Thurston&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
