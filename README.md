@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't wear these beads just to make a fashion statement. These are my spirit beads - my link to the afterlife."
+> "The subtle light that is born when people's feelings come together. That light embraces felicity, evil, sin, and happiness. The light blazes forth... illuminating the whole truth."
 
-&mdash; [**Anna Kyoyama**](https://myanimelist.net/character.php?q=Anna%20Kyoyama&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
