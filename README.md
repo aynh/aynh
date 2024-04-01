@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's easy for girls to take advantage of your kindness, so be careful."
+> "I don't understand the feelings of the weak. The law of the world is survival at its fittest. Its how the weak are weeded out. It just means those people that died were too weak. Its only natural for the weak to perish."
 
-&mdash; [**Suruga Kanbaru**](https://myanimelist.net/character.php?q=Suruga%20Kanbaru&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Esdeath**](https://myanimelist.net/character.php?q=Esdeath&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
