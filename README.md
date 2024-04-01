@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All people have sanctuary which mustn't be touched. A scar of sadness which mustn't be entered. The living confront each other to achieve their ideals. In a quiet voice, the man in the white coat told me... that he had finally found me, that he wanted my life. That man smiled a smile deeper than darkness. Legato Bluesummers, a man fascinated by Death..."
+> "When a girl calls someone a 'nice guy', it means she couldn't care less about him."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
