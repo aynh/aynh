@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That, I don't want to do. You may feel that I'm currently an abnormal Nagato Yuki. That judgement is correct. But I myself cannot accept that I am abnormal... because if I do, I'll become alone. I was scared, so I tried to hide it."
+> "Don't understand? Then think more. If you can only think by calculating, then keep doing so until you can't. Think of all the answers you can and destroy them one by one with the process of elimination. Whatever remains is your answer."
 
-&mdash; [**Yuki Nagato**](https://myanimelist.net/character.php?q=Yuki%20Nagato&cat=character), [**The Disappearance of Nagato Yuki-chan**](https://myanimelist.net/search/all?q=The%20Disappearance%20of%20Nagato%20Yuki-chan&cat=all)
+&mdash; [**Shizuka Hiratsuka**](https://myanimelist.net/character.php?q=Shizuka%20Hiratsuka&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
