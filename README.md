@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not a hero because I want your approval. I do it because I want to!"
+> "It's easy for girls to take advantage of your kindness, so be careful."
 
-&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Suruga Kanbaru**](https://myanimelist.net/character.php?q=Suruga%20Kanbaru&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
