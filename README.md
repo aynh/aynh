@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Run until you can't run anymore, and then run again. Constant effort is life's greatest shortcut."
+> "Why don't you give it a try? You don't need to come up with a reason, you try things because you want to. Isn't that how you start doing things that you really like?"
 
-&mdash; [**Coach Kamogawa**](https://myanimelist.net/character.php?q=Coach%20Kamogawa&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
+&mdash; [**Nozomi Tōjō**](https://myanimelist.net/character.php?q=Nozomi%20T%C5%8Dj%C5%8D&cat=character), [**Love Live! School idol project**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project&cat=all)
