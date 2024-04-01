@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how much he wants it, he can't be a normal human anymore. *about Rin*"
+> "What exactly is the end? The end. The end. The end. I've seen the end over and over. What is the end?"
 
-&mdash; [**Yukio Okumura**](https://myanimelist.net/character.php?q=Yukio%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
