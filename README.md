@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We ran through our school that was filled with noises, screams, life and death."
+> "Hotaru, do you think the day will come that I'll lose it (the ability to see spirits) as well?  A one-sided visit and troublesome days...is that freedom? or...At that time, a small firefly (Hotaru) passed by and whispered something to me.  But I could not understand the words of a bug.  Farewell, Hotaru.  I wonder if that person understood...just that person."
 
-&mdash; [**Takashi Komuro**](https://myanimelist.net/character.php?q=Takashi%20Komuro&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
