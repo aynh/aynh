@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What exactly is the end? The end. The end. The end. I've seen the end over and over. What is the end?"
+> "You should treat me with awe and wonder!"
 
-&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
