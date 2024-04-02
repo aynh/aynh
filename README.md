@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In every world, once you die, you're gone."
+> "Don’t be so stuck-up. Just enjoy this! Killing and being killed. They are just a way to pass time."
 
-&mdash; [**Akihiko Kayaba**](https://myanimelist.net/character.php?q=Akihiko%20Kayaba&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
