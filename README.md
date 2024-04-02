@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't understand anything, do you?! The most important thing isn't power, it isn't courage, it isn't even having friends! The only thing that matters is that you can rely on ME."
+> "Well, if I had to give a reason for my actions, I guess it's because I love people. I guess I wanted to see the faces that mankind has to offer."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
