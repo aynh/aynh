@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if people refuse to accept you, it doesn't change the fact that I accept you and don't want you to leave."
+> "They're human beings who are more appealing that real girls with warm blood flowing through their veins! That's what you have to be!"
 
-&mdash; [**Shido Itsuka**](https://myanimelist.net/character.php?q=Shido%20Itsuka&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
+&mdash; [**Tomoya Aki**](https://myanimelist.net/character.php?q=Tomoya%20Aki&cat=character), [**Saenai Heroine no Sodatekata**](https://myanimelist.net/search/all?q=Saenai%20Heroine%20no%20Sodatekata&cat=all)
