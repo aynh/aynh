@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, who knows who might kill who."
+> "When you talk properly, you get your feelings across properly, right?"
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Shouta Kazehaya**](https://myanimelist.net/character.php?q=Shouta%20Kazehaya&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
