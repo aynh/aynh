@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as the kindness received from others... is returned back, it's fine even if it takes time."
+> "We ran through our school that was filled with noises, screams, life and death."
 
-&mdash; [**Isogi Toshio**](https://myanimelist.net/character.php?q=Isogi%20Toshio&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Takashi Komuro**](https://myanimelist.net/character.php?q=Takashi%20Komuro&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
