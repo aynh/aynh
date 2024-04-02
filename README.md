@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The frog in the well can't communicate with the ocean creatures, as it knows the depth of the sky. It's because the frog lived inside a cramped and small space, so he knows better than anyone, how precious freedom is."
+> "You're either incompetent or you're spineless cowards. How pathetic. You can just sit here and suck on your fingers. Yeah, do that."
 
-&mdash; [**Akito Wanijima**](https://myanimelist.net/character.php?q=Akito%20Wanijima&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
