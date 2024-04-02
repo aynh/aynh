@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tell me, if you have something more important than your life, and you have to give up your life to protect that, what would you do? In that case, isn't there only one answer? Give up your life."
+> "My mom always says, strangers are just friends you haven't met yet."
 
-&mdash; [**Hwan Sung-Gong**](https://myanimelist.net/character.php?q=Hwan%20Sung-Gong&cat=character), [**The Gamer**](https://myanimelist.net/search/all?q=The%20Gamer&cat=all)
+&mdash; [**Jaune Arc**](https://myanimelist.net/character.php?q=Jaune%20Arc&cat=character), [**RWBY**](https://myanimelist.net/search/all?q=RWBY&cat=all)
