@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I love the word 'fate'. Because, you know how they talk about 'fated encounters'? A single encounter can completely change your life. Such special encounters are not just coincidences. They're definitely... fate. Of course, life is not all happy encounters. There are many painful, sad moments. But this is what I think: sad and painful things definitely happen for a reason. Nothing in this world is pointless."
+> "Everyone is sacrificing something precious to them in order to save something else. Is that the reason for human action?"
 
-&mdash; [**Ringo Oginome**](https://myanimelist.net/character.php?q=Ringo%20Oginome&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Shijima Kurookano**](https://myanimelist.net/character.php?q=Shijima%20Kurookano&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
