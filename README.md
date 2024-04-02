@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They're human beings who are more appealing that real girls with warm blood flowing through their veins! That's what you have to be!"
+> "The final curtain falls at the very moment a person gives up."
 
-&mdash; [**Tomoya Aki**](https://myanimelist.net/character.php?q=Tomoya%20Aki&cat=character), [**Saenai Heroine no Sodatekata**](https://myanimelist.net/search/all?q=Saenai%20Heroine%20no%20Sodatekata&cat=all)
+&mdash; [**Miwa Ichigen**](https://myanimelist.net/character.php?q=Miwa%20Ichigen&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
