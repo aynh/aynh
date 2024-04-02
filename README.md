@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People cry, not because they're weak. Its because they've been strong for too long."
+> "Are you telling me to flee from my foe!? The blood of a coward doesn't flow through these veins!"
 
-&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Elliot Nightray**](https://myanimelist.net/character.php?q=Elliot%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
