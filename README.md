@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, if I had to give a reason for my actions, I guess it's because I love people. I guess I wanted to see the faces that mankind has to offer."
+> "In every world, once you die, you're gone."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Akihiko Kayaba**](https://myanimelist.net/character.php?q=Akihiko%20Kayaba&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
