@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone is sacrificing something precious to them in order to save something else. Is that the reason for human action?"
+> "People cry, not because they're weak. Its because they've been strong for too long."
 
-&mdash; [**Shijima Kurookano**](https://myanimelist.net/character.php?q=Shijima%20Kurookano&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
