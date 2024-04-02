@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Classification of fantasy and reality is itself a fantasy that humans created... Life begins when you make a distinction between yourself and others. From that moment on, the world becomes a stage for the story in which you are the main character. All humans live in a fantasy in which they are the main character. But the world doesn't recognize you as the main character at all. What nonsense. Everyone lives their entire life tormented by this confusion. There's only one way out of this hell. To place yourself in a position that is neither the main character nor a supporting role. In other words, the author."
+> "The frog in the well can't communicate with the ocean creatures, as it knows the depth of the sky. It's because the frog lived inside a cramped and small space, so he knows better than anyone, how precious freedom is."
 
-&mdash; [**The Author**](https://myanimelist.net/character.php?q=The%20Author&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
+&mdash; [**Akito Wanijima**](https://myanimelist.net/character.php?q=Akito%20Wanijima&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
