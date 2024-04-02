@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're either incompetent or you're spineless cowards. How pathetic. You can just sit here and suck on your fingers. Yeah, do that."
+> "Tell me, if you have something more important than your life, and you have to give up your life to protect that, what would you do? In that case, isn't there only one answer? Give up your life."
 
-&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Hwan Sung-Gong**](https://myanimelist.net/character.php?q=Hwan%20Sung-Gong&cat=character), [**The Gamer**](https://myanimelist.net/search/all?q=The%20Gamer&cat=all)
