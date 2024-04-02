@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you talk properly, you get your feelings across properly, right?"
+> "Even if people refuse to accept you, it doesn't change the fact that I accept you and don't want you to leave."
 
-&mdash; [**Shouta Kazehaya**](https://myanimelist.net/character.php?q=Shouta%20Kazehaya&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Shido Itsuka**](https://myanimelist.net/character.php?q=Shido%20Itsuka&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
