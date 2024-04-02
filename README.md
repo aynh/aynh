@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you telling me to flee from my foe!? The blood of a coward doesn't flow through these veins!"
+> "What is the resulting amperage when applying 3.0V to a conductor with 20ohm resistance?"
 
-&mdash; [**Elliot Nightray**](https://myanimelist.net/character.php?q=Elliot%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Yuzuru Otonashi**](https://myanimelist.net/character.php?q=Yuzuru%20Otonashi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
