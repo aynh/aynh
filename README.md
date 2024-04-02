@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My mom always says, strangers are just friends you haven't met yet."
+> "I love the word 'fate'. Because, you know how they talk about 'fated encounters'? A single encounter can completely change your life. Such special encounters are not just coincidences. They're definitely... fate. Of course, life is not all happy encounters. There are many painful, sad moments. But this is what I think: sad and painful things definitely happen for a reason. Nothing in this world is pointless."
 
-&mdash; [**Jaune Arc**](https://myanimelist.net/character.php?q=Jaune%20Arc&cat=character), [**RWBY**](https://myanimelist.net/search/all?q=RWBY&cat=all)
+&mdash; [**Ringo Oginome**](https://myanimelist.net/character.php?q=Ringo%20Oginome&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
