@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Leave her out of this... who we let in this house is really none of your concern. You're the one who doesn't belong here. (to Kyo)"
+> "When captured birds grow wiser, they try to open the cage with their beaks. They don't give up, because they want to fly again."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Genma Shiranui**](https://myanimelist.net/character.php?q=Genma%20Shiranui&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
