@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Captain Kuro* So, you don’t like to get hit, huh? Well, you’re about to have a very bad day."
+> "Tears and rain, fall down on my face, my body is unable to stay yet my heart is unwilling to leave."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
