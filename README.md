@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end the shape and form don't matter at all, it's only the soul that matters, right? Nothing else."
+> "The future is always blank. Only your willpower can leave footsteps there."
 
-&mdash; [**Soul Eater**](https://myanimelist.net/character.php?q=Soul%20Eater&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Satoru Fujinuma**](https://myanimelist.net/character.php?q=Satoru%20Fujinuma&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
