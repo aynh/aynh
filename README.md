@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All these things you guys seek....hard work, guts, faith....I'll crush them all."
+> "Once you've been loved once and have loved once, you cannot forget it."
 
-&mdash; [**Atsushi Murasakibara**](https://myanimelist.net/character.php?q=Atsushi%20Murasakibara&cat=character), [**Kuroko's Basketball**](https://myanimelist.net/search/all?q=Kuroko's%20Basketball&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
