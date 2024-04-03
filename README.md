@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no more trusted observer than someone who suspects you."
+> "Another story of Fruits Basket manga has begun. I have something very important to tell everyone. Yuki is actually...A GIRL!"
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
