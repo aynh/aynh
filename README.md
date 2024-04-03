@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Assassins Rule Number Two - Transpositional Thinking: Analyze the target in order to predict his thoughts and movements."
+> "Let me get this straight. You're going to defeat me with a creampuff and an elf?"
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Seto Kaiba**](https://myanimelist.net/character.php?q=Seto%20Kaiba&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
