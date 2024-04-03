@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I, Okazaki Nagisa, will no longer cry. No matter what painful things I face, I’ll hang in there and overcome it. But, I might cry during moments of happiness. I hope that you can get along… with someone like me."
+> "Friends are a good thing, even if they tread a different path."
 
-&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
