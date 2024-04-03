@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The''present' is a leaf floating on top of the river. It moves along with the flow from past to future."
+> "It wasn't the pain that hurt me. Rather, it was the feeling of me being ripped apart, and the sound of the knife plunging deep, deep into my heart. That incomparably bittersweet fear. My body shook and trembled at the thought of it. My silent weeping contained my uneasiness, my loneliness, my will to live. My tears aren't from the pain either, or from the fear of the encounter. It was for the brush of death that I had never before experienced, but had now fallen in love with, even though I pray every night for the strength to live."
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Fujou Kirie**](https://myanimelist.net/character.php?q=Fujou%20Kirie&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
