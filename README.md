@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let me get this straight. You're going to defeat me with a creampuff and an elf?"
+> "If we're unable to climb down the mountain, then we won't know whether there's another mountain to climb up."
 
-&mdash; [**Seto Kaiba**](https://myanimelist.net/character.php?q=Seto%20Kaiba&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
