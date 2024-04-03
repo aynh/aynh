@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you've been loved once and have loved once, you cannot forget it."
+> "The''present' is a leaf floating on top of the river. It moves along with the flow from past to future."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
