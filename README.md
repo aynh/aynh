@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Crying is the same thing as pouring all your frustations and regrets out of your body. You may use it as a weapon, but that's just too easy. Whenever you feel like crying, just smile instead. That's what it means to be a man. You get it?"
+> "I, Okazaki Nagisa, will no longer cry. No matter what painful things I face, I’ll hang in there and overcome it. But, I might cry during moments of happiness. I hope that you can get along… with someone like me."
 
-&mdash; [**Tatsumi Oga**](https://myanimelist.net/character.php?q=Tatsumi%20Oga&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
+&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
