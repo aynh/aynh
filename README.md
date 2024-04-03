@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we're unable to climb down the mountain, then we won't know whether there's another mountain to climb up."
+> "There's no more trusted observer than someone who suspects you."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
