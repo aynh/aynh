@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Another story of Fruits Basket manga has begun. I have something very important to tell everyone. Yuki is actually...A GIRL!"
+> "A lot of the times, you're going into a situation you know nothing about. So what you need is to be quick to act... and make tough decisions in worst-case scenarios."
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
