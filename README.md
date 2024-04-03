@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know love. The convenience store was selling it. For 298 yen."
+> "I've already made up my mind, to the statement: 'The most important thing in life is money'. I answered 'No'."
 
-&mdash; [**Mayoi Hachikuji**](https://myanimelist.net/character.php?q=Mayoi%20Hachikuji&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
