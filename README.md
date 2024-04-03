@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When captured birds grow wiser, they try to open the cage with their beaks. They don't give up, because they want to fly again."
+> "Crying is the same thing as pouring all your frustations and regrets out of your body. You may use it as a weapon, but that's just too easy. Whenever you feel like crying, just smile instead. That's what it means to be a man. You get it?"
 
-&mdash; [**Genma Shiranui**](https://myanimelist.net/character.php?q=Genma%20Shiranui&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Tatsumi Oga**](https://myanimelist.net/character.php?q=Tatsumi%20Oga&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
