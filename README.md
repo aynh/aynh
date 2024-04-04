@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I realized it one day. The lyrics I struggled to create are only made up so I would have something to sing. Nothing genuine can come out of these flat and boring and ambiguous lives we're living, out of faking your worries for the sake of it."
+> "If miracles only happen once, what are they called the second time?"
 
-&mdash; [**Ritsuko Ayukawa**](https://myanimelist.net/character.php?q=Ritsuko%20Ayukawa&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
