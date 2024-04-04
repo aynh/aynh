@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, life is like the weather. It can be sunny or cloudy. Sometimes it rains, and sometimes it storms."
+> "Things are getting interesting now."
 
-&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
