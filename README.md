@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Right now, I'm afraid of losing you. Although my life hasn't been very fortunate until now, I'm glad if I caught your eye because of that misfortune. Because of that, I was able to fall for you. So we'll definitely do something, but I want to wait just a bit. So, right now, the last thing I can offer you... Is this starry sky."
+> "Stupid ocean!!! Ya want me to kill you? Huh??"
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
