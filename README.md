@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you are trying to rebuild a build that was made incorrectly, you first have to destroy it. I thought this was the true."
+> "The things that are most important aren't written in books. You have to learn them by experiencing them yourself."
 
-&mdash; [**Seta Soujirou**](https://myanimelist.net/character.php?q=Seta%20Soujirou&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
