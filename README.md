@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mighty Katara..? I like that."
+> "Well, life is like the weather. It can be sunny or cloudy. Sometimes it rains, and sometimes it storms."
 
-&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
