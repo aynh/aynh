@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I die here, then I'm a man that could only make it this far."
+> "Wear the best shoes you can, because those shoes will take you to great places."
 
-&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Todo Shizuka**](https://myanimelist.net/character.php?q=Todo%20Shizuka&cat=character), [**Hana Yori Dango**](https://myanimelist.net/search/all?q=Hana%20Yori%20Dango&cat=all)
