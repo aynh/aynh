@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Wear the best shoes you can, because those shoes will take you to great places."
+> "Death by a god of death, this may be a proud moment."
 
-&mdash; [**Todo Shizuka**](https://myanimelist.net/character.php?q=Todo%20Shizuka&cat=character), [**Hana Yori Dango**](https://myanimelist.net/search/all?q=Hana%20Yori%20Dango&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
