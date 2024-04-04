@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, isn't it said that life has its ups and downs? It's fun because downs come after ups, but if life was full of downs, wouldn't it get boring?"
+> "It's not whether you can or not. You just do it."
 
-&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Kitahara Haruki**](https://myanimelist.net/character.php?q=Kitahara%20Haruki&cat=character), [**White Album 2**](https://myanimelist.net/search/all?q=White%20Album%202&cat=all)
