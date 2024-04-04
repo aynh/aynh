@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The things that are most important aren't written in books. You have to learn them by experiencing them yourself."
+> "I guess I just want the person I love to be happy. I just want to do something for him."
 
-&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sana Inui**](https://myanimelist.net/character.php?q=Sana%20Inui&cat=character), [**Mashiroiro Symphony - The color of lovers**](https://myanimelist.net/search/all?q=Mashiroiro%20Symphony%20-%20The%20color%20of%20lovers&cat=all)
