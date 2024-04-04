@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After the first note resonated through the hall, You became everything I yearn for."
+> "*to Inuyasha* You fight as though you're still a child."
 
-&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
