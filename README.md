@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A flower can't choose the place where it blooms and a child can't choose the parents he's born to."
+> "*to Aang* Protection and power are overrated. I think you are very wise to choose happiness and love."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
