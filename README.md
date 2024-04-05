@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you really want to be strong... Stop caring about what your surrounding thinks of you!"
+> "Yo... Are you ready for me to break your neck... Rat-boy?"
 
-&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
