@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People live in order to be satisfied. And they hope to die while still satisfied. So, not knowing how to make yourself become satisfied is very tough."
+> "So, what are you saying? You mean if your wife wasn't controlling you, you wouldn't be a villain? You mean you've never thought it's just because you're incompetent? And what's that supposed to mean anyway? (To the story, 'Mogeta')"
 
-&mdash; [**Ushiromiya Ange**](https://myanimelist.net/character.php?q=Ushiromiya%20Ange&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
