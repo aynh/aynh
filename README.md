@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's like I'd want to ask what justice is doing right now if it existed in this world. Well, justice is empty and ineffectual."
+> "I'm inadequate in everything."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
