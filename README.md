@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But even though she's gone... she's not really gone, right? That the light won't go on in that apartment... is a lie, right?"
+> "It's like I'd want to ask what justice is doing right now if it existed in this world. Well, justice is empty and ineffectual."
 
-&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
