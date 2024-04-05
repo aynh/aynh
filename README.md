@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm inadequate in everything."
+> "If you really want to be strong... Stop caring about what your surrounding thinks of you!"
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
