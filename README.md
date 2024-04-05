@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after kissing Okabe] There was a scientific rationale for that! Because... important memories, including, but not limited to, one's first kiss, are stored in the hippocampus, which makes them harder to forget. So I figured..."
+> "That's exactly the way it should be. Doing only unexpected things, otherwise, I'll lose my reputation as a perverted outer-space human."
 
-&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
