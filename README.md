@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm sure there's a reason that, even after I stopped being lost, I stayed here. I won't leave until I know what that reason is."
+> "But even though she's gone... she's not really gone, right? That the light won't go on in that apartment... is a lie, right?"
 
-&mdash; [**Mayoi Hachikuji**](https://myanimelist.net/character.php?q=Mayoi%20Hachikuji&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
