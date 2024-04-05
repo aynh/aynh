@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How is this possible? I must be the first person in history who was flushed down the toilet!"
+> "Unless I grip the sword, I cannot protect you. While gripping the sword, I cannot embrace you."
 
-&mdash; [**Yuri Shibuya**](https://myanimelist.net/character.php?q=Yuri%20Shibuya&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
