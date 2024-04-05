@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Emotions? Nope, I've got nothin' like that. I told you when we first met, didn't I? I'm a snake. With cold skin, no emotions, that slithers around searching for prey with its tongue, swallowing down whatever looks tasty."
+> "I'm sure there's a reason that, even after I stopped being lost, I stayed here. I won't leave until I know what that reason is."
 
-&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Mayoi Hachikuji**](https://myanimelist.net/character.php?q=Mayoi%20Hachikuji&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
