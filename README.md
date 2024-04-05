@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unless I grip the sword, I cannot protect you. While gripping the sword, I cannot embrace you."
+> "If you keep lying like that, no one, not even yourself, will believe you anymore."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Aladdin**](https://myanimelist.net/character.php?q=Aladdin&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
