@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ashitaka... can you save the girl you love?"
+> "There are always lazy people to deal with when you act as a group. Splitting into pairs and handling out jobs is more efficient."
 
-&mdash; [**Moro**](https://myanimelist.net/character.php?q=Moro&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Kazuki Kazami**](https://myanimelist.net/character.php?q=Kazuki%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
