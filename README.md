@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "With out strong opponents, living isn't fun. It's perfect if I can't win."
+> "If I fail to make my every-minute reports, a gang of 5,000 brutes will attack your whole family."
 
-&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
