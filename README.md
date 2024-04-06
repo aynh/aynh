@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You guys sure are a worthless bunch. If you wanna wallow in your tears, save it for after you've done everything you can!"
+> "At times the life of a single man is worth more than that of a million, I thought that'd be common sense to a soldier."
 
-&mdash; [**Seiya Kanie**](https://myanimelist.net/character.php?q=Seiya%20Kanie&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
+&mdash; [**Diethard Ried**](https://myanimelist.net/character.php?q=Diethard%20Ried&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
