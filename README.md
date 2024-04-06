@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I like people who put in effort, even if they're not good at it."
+> "Learn to treasure your life because unfortunately, it can be taken away from you anytime."
 
-&mdash; [**Mitsukuni Haninozuka**](https://myanimelist.net/character.php?q=Mitsukuni%20Haninozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
