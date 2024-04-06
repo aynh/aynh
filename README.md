@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because she learned about happiness, she feels lonely for the first time. And because she knows unhappiness, she understands happiness for the first time."
+> "One who does something he hates just because he's told to.. is called an errand boy."
 
-&mdash; [**Himura Yuu**](https://myanimelist.net/character.php?q=Himura%20Yuu&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
