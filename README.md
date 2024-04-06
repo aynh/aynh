@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Learn to treasure your life because unfortunately, it can be taken away from you anytime."
+> "If there's a miracle that can be reached by fighting to the end, then I want to see it."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Amano Yukiteru**](https://myanimelist.net/character.php?q=Amano%20Yukiteru&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
