@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One who does something he hates just because he's told to.. is called an errand boy."
+> "Are we friends? Or are we foes? That kind of thing you decide for yourselves!"
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
