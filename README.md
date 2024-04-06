@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Where is your tail? (Searching for tail in Bulma's butt)"
+> "Even the strongest of opponents always has a weakness."
 
-&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
