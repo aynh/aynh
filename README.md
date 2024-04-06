@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there's a miracle that can be reached by fighting to the end, then I want to see it."
+> "Where is your tail? (Searching for tail in Bulma's butt)"
 
-&mdash; [**Amano Yukiteru**](https://myanimelist.net/character.php?q=Amano%20Yukiteru&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
