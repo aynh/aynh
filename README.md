@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I fail to make my every-minute reports, a gang of 5,000 brutes will attack your whole family."
+> "Taking away someone's freedom is the ugliest thing one can do in this world. People like that ought to decay into dirt and come back as thorny roses."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Jae-ha**](https://myanimelist.net/character.php?q=Jae-ha&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
