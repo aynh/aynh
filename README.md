@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you keep lying like that, no one, not even yourself, will believe you anymore."
+> "Because she learned about happiness, she feels lonely for the first time. And because she knows unhappiness, she understands happiness for the first time."
 
-&mdash; [**Aladdin**](https://myanimelist.net/character.php?q=Aladdin&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
+&mdash; [**Himura Yuu**](https://myanimelist.net/character.php?q=Himura%20Yuu&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
