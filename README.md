@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you have faith, your dreams will surely come true."
+> "Don't start a fight if you can't end it."
 
-&mdash; [**Katsura Kotarou**](https://myanimelist.net/character.php?q=Katsura%20Kotarou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
