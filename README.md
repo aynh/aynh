@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the ideal world can be found in a bad game, it can be found in the real world as well."
+> "Everyone’s gonna die. It’s a natural part of life. But if life has no purpose, you’re dead already."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf’s Rain**](https://myanimelist.net/search/all?q=Wolf%E2%80%99s%20Rain&cat=all)
