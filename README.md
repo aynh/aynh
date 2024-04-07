@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We have choices. Some people like to stand in the rain without an umbrella. That's what it means to live free."
+> "All living things eventually die. It's unavoidable. But as long as you remember, it will live on in your heart forever."
 
-&mdash; [**Roger Smith**](https://myanimelist.net/character.php?q=Roger%20Smith&cat=character), [**The Big O**](https://myanimelist.net/search/all?q=The%20Big%20O&cat=all)
+&mdash; [**Lisanna Strauss**](https://myanimelist.net/character.php?q=Lisanna%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
