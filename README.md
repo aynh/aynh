@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Broken promises, regardless of how horrid transform into rage that stinks to the ocean floor. Through those bonds, we're drawn together countless times."
+> "I want out of this damn moat!"
 
-&mdash; [**Narumi Fujishima**](https://myanimelist.net/character.php?q=Narumi%20Fujishima&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
