@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All living things eventually die. It's unavoidable. But as long as you remember, it will live on in your heart forever."
+> "Alright then! Come here! Come over here, Black Star's giving you a big hug!"
 
-&mdash; [**Lisanna Strauss**](https://myanimelist.net/character.php?q=Lisanna%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
