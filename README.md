@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Aki, you can't lie when you confess to someone. I'm trying to comfort you know, but if I just wanted to comfort you, I won't confess to you. I confessed to you like this because I really like you. But I do find it a little annoying how you fidget around like this, and I really hate you for blaming yourself and regretting your actions. -- and I really hate you when you said that a girl, who summoned all her courage to confess to you, is lying."
+> "Assassins Rule Number Three - Speed: Take out the target before the target notices your presence."
 
-&mdash; [**Shimada Minami**](https://myanimelist.net/character.php?q=Shimada%20Minami&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
