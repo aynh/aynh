@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone’s gonna die. It’s a natural part of life. But if life has no purpose, you’re dead already."
+> "Of what worth is a king who fails to protect the powerless?"
 
-&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf’s Rain**](https://myanimelist.net/search/all?q=Wolf%E2%80%99s%20Rain&cat=all)
+&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
