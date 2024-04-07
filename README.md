@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Violence is the greatest power of the world!"
+> "You may be able to get stronger with simply the right attitude. In other words, train your spirit before worrying about strength through power and technology."
 
-&mdash; [**Meruem**](https://myanimelist.net/character.php?q=Meruem&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
