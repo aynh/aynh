@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Alright then! Come here! Come over here, Black Star's giving you a big hug!"
+> "If we make it back to the real world, I'll find you. And fall in love with you all over again."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
