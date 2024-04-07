@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Assassins Rule Number Three - Speed: Take out the target before the target notices your presence."
+> "You're proud of your white clothes?.. It sounds like a laundry detergent commercial."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Pesche Guatiche**](https://myanimelist.net/character.php?q=Pesche%20Guatiche&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
