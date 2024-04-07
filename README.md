@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want out of this damn moat!"
+> "Human potential for evolution is limitless."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Netero**](https://myanimelist.net/character.php?q=Netero&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
