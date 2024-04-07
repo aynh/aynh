@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Of what worth is a king who fails to protect the powerless?"
+> "Violence is the greatest power of the world!"
 
-&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Meruem**](https://myanimelist.net/character.php?q=Meruem&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
