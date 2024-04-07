@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Leave people to their own thoughts, and sooner or later they start questioning the powers that be. If you're in a position of power, the last thing you want folks to ask is whether or not the way things are, is the way they have to be."
+> "Sometimes you have days like this. Days where the most trivial little thing... Ends up getting you wrapped up in some big, annoying trouble."
 
-&mdash; [**Sunda Granitz**](https://myanimelist.net/character.php?q=Sunda%20Granitz&cat=character), [**Fractale**](https://myanimelist.net/search/all?q=Fractale&cat=all)
+&mdash; [**Annie Leonhardt**](https://myanimelist.net/character.php?q=Annie%20Leonhardt&cat=character), [**Shingeki no Kyojin: Lost Girls**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Lost%20Girls&cat=all)
