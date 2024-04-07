@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes you have days like this. Days where the most trivial little thing... Ends up getting you wrapped up in some big, annoying trouble."
+> "Even though it's painful sometimes, if you keep on living then good things can happen."
 
-&mdash; [**Annie Leonhardt**](https://myanimelist.net/character.php?q=Annie%20Leonhardt&cat=character), [**Shingeki no Kyojin: Lost Girls**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Lost%20Girls&cat=all)
+&mdash; [**Nana Komatsu**](https://myanimelist.net/character.php?q=Nana%20Komatsu&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
