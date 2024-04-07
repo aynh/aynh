@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human potential for evolution is limitless."
+> "Leave people to their own thoughts, and sooner or later they start questioning the powers that be. If you're in a position of power, the last thing you want folks to ask is whether or not the way things are, is the way they have to be."
 
-&mdash; [**Netero**](https://myanimelist.net/character.php?q=Netero&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Sunda Granitz**](https://myanimelist.net/character.php?q=Sunda%20Granitz&cat=character), [**Fractale**](https://myanimelist.net/search/all?q=Fractale&cat=all)
