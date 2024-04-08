@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing is unforgivable. So if you cannot forgive him, it means you do not want to."
+> "I'm not going to lie to you, Vegeta, although the answer may be difficult for you to hear. This is the truth. Goku devoted his life to protecting the lives of other. Because of his selflessness, when he died, he was allowed to keep his body and travel to King Kai's Planet. You, on the other hand, have spent your life in pursuit of your own selfish desires. You've caused too much pain. When you die, you will not receive the same reward."
 
-&mdash; [**Shirley Fenette**](https://myanimelist.net/character.php?q=Shirley%20Fenette&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
