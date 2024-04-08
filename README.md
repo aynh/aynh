@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everybody has things they aren't good at or can't do. We cover each other's weakness. That's what a party's for."
+> "Because of the existence of love - sacrifice is born. As well as hate. Then one comprehends... one knows PAIN."
 
-&mdash; [**Manato**](https://myanimelist.net/character.php?q=Manato&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
