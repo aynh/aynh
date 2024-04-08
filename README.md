@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's best to go up against strong guys, if you want to get stronger."
+> "My will is society's will. My eyes are society's eyes. Since you vowed to respect the law, you cannot deny me... no matter how much you despise latent criminals."
 
-&mdash; [**Shōyō Hinata**](https://myanimelist.net/character.php?q=Sh%C5%8Dy%C5%8D%20Hinata&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
+&mdash; [**Sakuya Tougane**](https://myanimelist.net/character.php?q=Sakuya%20Tougane&cat=character), [**Psycho-Pass 2**](https://myanimelist.net/search/all?q=Psycho-Pass%202&cat=all)
