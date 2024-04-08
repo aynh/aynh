@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A man has the right to dream. There are endless possibilities stretched out before him."
+> "Do you always want to live hiding behind the mask you put up for the sake of others?! You're you, and there's nothing wrong with that."
 
-&mdash; [**Outlaw Star**](https://myanimelist.net/character.php?q=Outlaw%20Star&cat=character), [**Outlaw Star**](https://myanimelist.net/search/all?q=Outlaw%20Star&cat=all)
+&mdash; [**Ymir**](https://myanimelist.net/character.php?q=Ymir&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
