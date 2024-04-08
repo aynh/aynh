@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is built upon the taking of another life. If you have the resolve to kill, then you have the obligation to eat."
+> "Everybody has things they aren't good at or can't do. We cover each other's weakness. That's what a party's for."
 
-&mdash; [**Usagi Yuzuha**](https://myanimelist.net/character.php?q=Usagi%20Yuzuha&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
+&mdash; [**Manato**](https://myanimelist.net/character.php?q=Manato&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
