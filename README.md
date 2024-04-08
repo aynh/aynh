@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder if our hearts really do determine our feelings. Or are they just some sort of aroma in the air?"
+> "Failing doesn't give you a reason to give up as long as you believe."
 
-&mdash; [**Jinno Yuu**](https://myanimelist.net/character.php?q=Jinno%20Yuu&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
