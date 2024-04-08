@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you forget your fear you become reckless."
+> "They call me the 'demon child'."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Nico Robin**](https://myanimelist.net/character.php?q=Nico%20Robin&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
