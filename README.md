@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They call me the 'demon child'."
+> "*after Shinpachi caught up to him, while running from the police* What a nice boy you are. Have you come to return my wooden sword? That's all right. It was just a souvenir I bought on a school trip."
 
-&mdash; [**Nico Robin**](https://myanimelist.net/character.php?q=Nico%20Robin&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
