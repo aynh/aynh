@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The one hundred years we were apart were meant to bring me power and make you weak! Yoruichi!"
+> "Kyon. The contest begins the second someone challenges you. Anything the loser says otherwise is merely an excuse."
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
