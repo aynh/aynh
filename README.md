@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You suddenly appeared in front of me in this hell. The day that I would get to meet you...I always wanted to apologize to you...I only endured because of that! I kept on living."
+> "They say those who die, go to heaven. I don't think so. I think when we die, we go to live on in someone else's heart. We live on in their memories. Just like how our parents stay in our hearts. But with time, memories fade. That's why people wish to leave something behind. They don't want to be forgotten. Nobody wants to be forgotten."
 
-&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Kaito Kirishima**](https://myanimelist.net/character.php?q=Kaito%20Kirishima&cat=character), [**Ano Natsu de Matteru**](https://myanimelist.net/search/all?q=Ano%20Natsu%20de%20Matteru&cat=all)
