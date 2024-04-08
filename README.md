@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because of the existence of love - sacrifice is born. As well as hate. Then one comprehends... one knows PAIN."
+> "Nobu is idealizing me, that’s why he fell in love with me. If you knew the real me, it would shatter your illusion. Then come on. Shatter my illusion. Because I don’t know what else I can do to stop loving you."
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Nana Komatsu**](https://myanimelist.net/character.php?q=Nana%20Komatsu&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
