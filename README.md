@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*after Shinpachi caught up to him, while running from the police* What a nice boy you are. Have you come to return my wooden sword? That's all right. It was just a souvenir I bought on a school trip."
+> "The one hundred years we were apart were meant to bring me power and make you weak! Yoruichi!"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
