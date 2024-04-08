@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Last words to Hashirama] As comrades, huh... well... if that's how... we... will.... *smiles*"
+> "Hey, Shippo. Your village called.They're asking for their idiot!"
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
