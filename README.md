@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even innocent foolish children will grow up in the face of pain, until their thoughts and beliefs are the same as their doubts."
+> "Hey Kaiba, maybe we should duel sometimes."
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
+&mdash; [**Joey Wheeler**](https://myanimelist.net/character.php?q=Joey%20Wheeler&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
