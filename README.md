@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even I... know what it's like to be jealous. (referring to Kureno and Akito's relationship)"
+> "You shouldn't judge people by how they look."
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
