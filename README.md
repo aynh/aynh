@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are perfect for each other! She's strong, I'm strong. She's fun, I'm fun. She's beautiful... I'm GORGEOUS!"
+> "WHO ARE YOU CALLING SO SMALL YOU WANNA CRUSH LIKE AN ANT?!"
 
-&mdash; [**Bolin**](https://myanimelist.net/character.php?q=Bolin&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
