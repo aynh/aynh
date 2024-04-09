@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Neither God nor the Devil can give aid to those without the will to fight…"
+> "You know I think I understand now why you and I never had children…on some level we knew the world was ending, it may of seemed like we had found something else to obsess over but the truth is we’d given up on the future. That’s the real reason I was never able to get pregnant."
 
-&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Cher Degre**](https://myanimelist.net/character.php?q=Cher%20Degre&cat=character), [**Wolf’s Rain**](https://myanimelist.net/search/all?q=Wolf%E2%80%99s%20Rain&cat=all)
