@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh great, it's a kid! I thought I was rescuing a babe, a luscious damsel in distress, not some flat chested little girl."
+> "Even innocent foolish children will grow up in the face of pain, until their thoughts and beliefs are the same as their doubts."
 
-&mdash; [**Gourry Gabriev**](https://myanimelist.net/character.php?q=Gourry%20Gabriev&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
