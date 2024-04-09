@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If that bullet could also kill a player in the real world, and if you didn't shoot them, you or someone you loved would be killed, could you still pull the trigger?"
+> "Huh? DO whatever you want without DICE? As if someone like you could understand. What's so bad about wanting to reach higher than yourself? After all, you're already up there. The place where I've always longed to be. If anything, isn't this world at fault? There's plenty of proof this world was created unfairly. The Crime rate's higher than ever. Wealth is the determining factor in life, and so when the most prestigious universities held an experiment, 'Does appearance affect the outcome in a trail?' When comparing the results of the beautiful and the plain, the beautiful ones were declared innocent more often. Looks decide your worth. LOOKS, SEX, AGE, ETHNICITY, EDUCATION, JOB, once you realize that there will always be a 'High' and 'Low', the goal is clear. Higher... and Higher! I'm sure that looking down from the highest place will be beautiful sight, so I must reach higher!"
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Miju**](https://myanimelist.net/character.php?q=Miju&cat=character), [**Dice: The Cube That Changes Everything**](https://myanimelist.net/search/all?q=Dice%3A%20The%20Cube%20That%20Changes%20Everything&cat=all)
