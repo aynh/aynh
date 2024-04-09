@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans shouldn't just disregard something they cannot comprehend while also trying to define it."
+> "There ain't a single coward who'd turn tail and run from just that! Not among the men of the Shiba clan!"
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Ganju Shiba**](https://myanimelist.net/character.php?q=Ganju%20Shiba&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
