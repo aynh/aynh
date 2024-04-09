@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey Kaiba, maybe we should duel sometimes."
+> "Even I... know what it's like to be jealous. (referring to Kureno and Akito's relationship)"
 
-&mdash; [**Joey Wheeler**](https://myanimelist.net/character.php?q=Joey%20Wheeler&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
