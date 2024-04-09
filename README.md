@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Up until now, have you not faced the same enemies as I? That means you are my friend! So hold your chest high, and consider yourself my equal."
+> "If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud!"
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
