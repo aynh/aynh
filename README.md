@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know I think I understand now why you and I never had children…on some level we knew the world was ending, it may of seemed like we had found something else to obsess over but the truth is we’d given up on the future. That’s the real reason I was never able to get pregnant."
+> "It's not that you can fall in love with someone new because you forgot the old. It's because you fall in love with someone new, that you're able to forget about the old. Only love can heal a heart that was hurt by love."
 
-&mdash; [**Cher Degre**](https://myanimelist.net/character.php?q=Cher%20Degre&cat=character), [**Wolf’s Rain**](https://myanimelist.net/search/all?q=Wolf%E2%80%99s%20Rain&cat=all)
+&mdash; [**Bokura ga Ita**](https://myanimelist.net/character.php?q=Bokura%20ga%20Ita&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
