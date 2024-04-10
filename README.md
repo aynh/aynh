@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every power can be a poison or medicine depending on the user's intention."
+> "The avatar state is a defense mechanism - designed to empower you with all the skills and knowledge of the past avatars. The glow is the combination of all your past lives. Focusing their energy to your body."
 
-&mdash; [**Narumi Anjo**](https://myanimelist.net/character.php?q=Narumi%20Anjo&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
+&mdash; [**Roku**](https://myanimelist.net/character.php?q=Roku&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
