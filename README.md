@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The avatar state is a defense mechanism - designed to empower you with all the skills and knowledge of the past avatars. The glow is the combination of all your past lives. Focusing their energy to your body."
+> "Red is supposed to be the color of fate, right? Even if it’s annoying now, it might connect to something good when you least expect it."
 
-&mdash; [**Roku**](https://myanimelist.net/character.php?q=Roku&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Zen Wistalia**](https://myanimelist.net/character.php?q=Zen%20Wistalia&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
