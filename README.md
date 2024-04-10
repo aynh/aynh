@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To all the young ones in your group, you are no longer someone who passes through their lives and is forgotten. You have become someone very important to them. Your hardships are their hardships too."
+> "Yeah, I know. It's not good to be reading Jump at my age."
 
-&mdash; [**Fay D. Flourite**](https://myanimelist.net/character.php?q=Fay%20D.%20Flourite&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
