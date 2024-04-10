@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People live to save themselves."
+> "To turn someone down and to be turned down by someone... To be hurt by someone and to hurt someone... A love where no one gets hurt doesn't exist."
 
-&mdash; [**Sakunosuke Oda**](https://myanimelist.net/character.php?q=Sakunosuke%20Oda&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
+&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
