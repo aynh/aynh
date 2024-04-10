@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has an ability. And it means that everyone should use that ability to the fullest."
+> "An oasis for my withered heart in this harsh reality."
 
-&mdash; [**Chitoge Kirisaki**](https://myanimelist.net/character.php?q=Chitoge%20Kirisaki&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
