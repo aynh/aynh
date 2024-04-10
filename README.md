@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are two types of dreams. Dreams from when you're awake and dreams from when you sleep. And both of those can become reality, if you strongly wish for it."
+> "If I had been more decisive, and acted sooner, I could have stopped Sozin, and stopped the war before it started. I offer you this wisdom, Aang, you must be decisive."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Roku**](https://myanimelist.net/character.php?q=Roku&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
