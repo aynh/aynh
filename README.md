@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is basically like a soap bubble. It rides on the wind, flying here and there... and before you realize it - pop! It's gone. When it's about to disappear, you think that you could've flown a little higher. But by the time, it's already too late."
+> "Our fates... can be changed. All we have to do is try."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Renya Kagurazaka**](https://myanimelist.net/character.php?q=Renya%20Kagurazaka&cat=character), [**Kamisama To Unmei Kakumei No Paradox**](https://myanimelist.net/search/all?q=Kamisama%20To%20Unmei%20Kakumei%20No%20Paradox&cat=all)
