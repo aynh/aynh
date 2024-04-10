@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just because you look a little better, everyone comes running at you screaming and pretending to be friendly... Just because you look a little worse, everyone ignores you and uses you as a plaything or a slave... Isn't life so unfair?"
+> "[about Rau] But are you sure that's me? Oh well. He will be my successor in any case. Why should that woman's child be my heir? Keep a close eye on him and educate him well. Whatever you do, don't make him into another weakling."
 
-&mdash; [**Dong Taebin**](https://myanimelist.net/character.php?q=Dong%20Taebin&cat=character), [**Dice: The Cube That Changes Everything**](https://myanimelist.net/search/all?q=Dice%3A%20The%20Cube%20That%20Changes%20Everything&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
