@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our fates... can be changed. All we have to do is try."
+> "Tragic he said. I'm tragic?"
 
-&mdash; [**Renya Kagurazaka**](https://myanimelist.net/character.php?q=Renya%20Kagurazaka&cat=character), [**Kamisama To Unmei Kakumei No Paradox**](https://myanimelist.net/search/all?q=Kamisama%20To%20Unmei%20Kakumei%20No%20Paradox&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
