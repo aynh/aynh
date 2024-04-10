@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A miracle something like that won't come if you're waiting for it. A miracle is something you work for!"
+> "There are two types of dreams. Dreams from when you're awake and dreams from when you sleep. And both of those can become reality, if you strongly wish for it."
 
-&mdash; [**Taro Raimon**](https://myanimelist.net/character.php?q=Taro%20Raimon&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
