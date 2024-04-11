@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What I want isn't money or pretty dresses, but a place that recognizes me as who I am. Fairy Tail is my other family, and it is a far more warming family than here!"
+> "But even though she's gone... she's not really gone, right? That the light won't go on in that apartment... is a lie, right?"
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
