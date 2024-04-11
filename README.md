@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unfortunately, I don't have a nice eyeball like you, that can see this and that. All I can do to pursue one thing in front of me. So whether it's the abyss of death or an empty void, I won't fight for the manju offered to my grave. I'll fight for tomorrow's breakfast. That's all."
+> "If it's this world behind the eyelids, anybody can become the person I imagine them to be."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
