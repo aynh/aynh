@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To turn someone down and to be turned down by someone... To be hurt by someone and to hurt someone... A love where no one gets hurt doesn't exist."
+> "True beauty lies in things that last forever, never rotting or fading."
 
-&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Sasori**](https://myanimelist.net/character.php?q=Sasori&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
