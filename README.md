@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I see. So basically, you're a shinigami? And you came all the way from some place called Soul Society to vanquish evil spirits? Which means that monster earlier was one of those evil spirits? And it attacked that little girl? Okay, I belie- NO WAY I'LL BELIEVE THAT, DUMBASS!"
+> "Once drowned in the depths of darkness, you lose sight of light. When that light has dispersed there is no return. My light has died out long ago and so there's nothing back for me to go back, or look forward to I shall continue to indulge myself in this darkness until it completely consumes me, then I will be nothing but an empty course left on this cold & cruel world to rot."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Alois Trancy**](https://myanimelist.net/character.php?q=Alois%20Trancy&cat=character), [**Black Butler II**](https://myanimelist.net/search/all?q=Black%20Butler%20II&cat=all)
