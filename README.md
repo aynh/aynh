@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anime - it's not something that can be thought of in a hall for conferences. It is made out of strange juices current from the brain of animators."
+> "You'll discover that problems have a way of working themselves out if you talk to your friends."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Ryuuzen Gotou**](https://myanimelist.net/character.php?q=Ryuuzen%20Gotou&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
