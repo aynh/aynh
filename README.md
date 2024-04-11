@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once drowned in the depths of darkness, you lose sight of light. When that light has dispersed there is no return. My light has died out long ago and so there's nothing back for me to go back, or look forward to I shall continue to indulge myself in this darkness until it completely consumes me, then I will be nothing but an empty course left on this cold & cruel world to rot."
+> "The ones who aren't able to acknowledge their own selves are bound to fail."
 
-&mdash; [**Alois Trancy**](https://myanimelist.net/character.php?q=Alois%20Trancy&cat=character), [**Black Butler II**](https://myanimelist.net/search/all?q=Black%20Butler%20II&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
