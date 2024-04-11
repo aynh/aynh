@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's wrong with change? In life, if you don't take shortcuts, you're the only one losing out."
+> "What I want isn't money or pretty dresses, but a place that recognizes me as who I am. Fairy Tail is my other family, and it is a far more warming family than here!"
 
-&mdash; [**Chihiro Iwasaki**](https://myanimelist.net/character.php?q=Chihiro%20Iwasaki&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
