@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Honest feelings can sometimes lead to cruel endings."
+> "Very funny. Carrots, peppers, and bugs! Everyone has something they don't like and I don't like bugs!"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
