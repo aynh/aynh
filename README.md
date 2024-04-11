@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You'll discover that problems have a way of working themselves out if you talk to your friends."
+> "I'm gonna slit your stomach, take out your guts, and put them in a bowl. By the time I'm through with you, you're going to wish it was you who was dead."
 
-&mdash; [**Ryuuzen Gotou**](https://myanimelist.net/character.php?q=Ryuuzen%20Gotou&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
