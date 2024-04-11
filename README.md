@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's nothing happy about having your fate decided for you! You have to grab your own happiness!"
+> "What's wrong with change? In life, if you don't take shortcuts, you're the only one losing out."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Chihiro Iwasaki**](https://myanimelist.net/character.php?q=Chihiro%20Iwasaki&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
