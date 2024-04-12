@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The human world is a boring place with boring people doing boring things."
+> "The scar of my past will determine my future!"
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
