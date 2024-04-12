@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey! I'm totally an adult! I bitch and whine, lie through my teeth, and do things that are unfair."
+> "There is nothing more expensive than something free."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Maki Honoka**](https://myanimelist.net/character.php?q=Maki%20Honoka&cat=character), [**Kiznaiver**](https://myanimelist.net/search/all?q=Kiznaiver&cat=all)
