@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate this town. It’s too filled with memories I’d rather forget. I go to school every day, hang out with my friends, and then go home. There’s no place I’d rather not go ever again. I wonder if anything will ever change? Will that day ever come?"
+> "It must be the way you look, Vash the Stampede. Your very existence seems to cause me undue irritation."
 
-&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Legato Bluesummers**](https://myanimelist.net/character.php?q=Legato%20Bluesummers&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
