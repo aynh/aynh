@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Accept that your life will be painful, bite back your grief and find the power to stand again."
+> "I'm only attracted to girls in games!! Reality is just a shitty game."
 
-&mdash; [**Nakiami**](https://myanimelist.net/character.php?q=Nakiami&cat=character), [**Bounen No Zamned**](https://myanimelist.net/search/all?q=Bounen%20No%20Zamned&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
