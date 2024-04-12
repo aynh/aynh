@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pain is the way to bring peace."
+> "They want to believe that's true and when someone wants to believe something is true, they usually will."
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Henrietta**](https://myanimelist.net/character.php?q=Henrietta&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
