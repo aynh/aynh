@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The scar of my past will determine my future!"
+> "Unwilling to listen or see anything else, you lost yourself in your own world and became incapable of seeing the things around you."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Raiko Shimizu**](https://myanimelist.net/character.php?q=Raiko%20Shimizu&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
