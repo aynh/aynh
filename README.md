@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm tired if trying, sick of crying, I know I've been smiling, but inside I'm dying."
+> "They say that in hard times, you'll never in your life forget the person who gave you a cup of water."
 
-&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
+&mdash; [**Yumiko Sakaki**](https://myanimelist.net/character.php?q=Yumiko%20Sakaki&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
