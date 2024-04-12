@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unwilling to listen or see anything else, you lost yourself in your own world and became incapable of seeing the things around you."
+> "I'm tired if trying, sick of crying, I know I've been smiling, but inside I'm dying."
 
-&mdash; [**Raiko Shimizu**](https://myanimelist.net/character.php?q=Raiko%20Shimizu&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
