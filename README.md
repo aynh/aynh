@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was trying to take the easy way out by running away from everything. No matter the pain, I will keep living. So when I die, I'll feel I did the best I could."
+> "Why are you acting like you're the only one hurting when you pushed him away?"
 
-&mdash; [**Koala**](https://myanimelist.net/character.php?q=Koala&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Yukimura Tooru**](https://myanimelist.net/character.php?q=Yukimura%20Tooru&cat=character), [**Aoharu x Kikanjuu**](https://myanimelist.net/search/all?q=Aoharu%20x%20Kikanjuu&cat=all)
