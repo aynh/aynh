@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If a person you love doesn't love you back, you're worthless. That's what I always told myself."
+> "We are all like fireworks. We climb, shine, and always go our separate ways and become further apart. But even if that time comes, let's not disappear like a firework. Let's continue to shine... Forever."
 
-&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
