@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is nothing more expensive than something free."
+> "If a person you love doesn't love you back, you're worthless. That's what I always told myself."
 
-&mdash; [**Maki Honoka**](https://myanimelist.net/character.php?q=Maki%20Honoka&cat=character), [**Kiznaiver**](https://myanimelist.net/search/all?q=Kiznaiver&cat=all)
+&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
