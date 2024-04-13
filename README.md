@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The biggest mistake in my life is that i was born!"
+> "The more painful the memories one recollects, the better the laughter."
 
-&mdash; [**Itoshiki Nozomu**](https://myanimelist.net/character.php?q=Itoshiki%20Nozomu&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
