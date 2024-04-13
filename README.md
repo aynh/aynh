@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't ever forget that with each step a person is able to take on their own, they have become that much stronger."
+> "Never show your stupid self in public."
 
-&mdash; [**Tamahome**](https://myanimelist.net/character.php?q=Tamahome&cat=character), [**Fushigi Yugi**](https://myanimelist.net/search/all?q=Fushigi%20Yugi&cat=all)
+&mdash; [**Kanade Maki**](https://myanimelist.net/character.php?q=Kanade%20Maki&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
