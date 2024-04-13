@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*referring to Armstrong taking off his shirt* Did he have to strip?.."
+> "The biggest mistake in my life is that i was born!"
 
-&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Itoshiki Nozomu**](https://myanimelist.net/character.php?q=Itoshiki%20Nozomu&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
