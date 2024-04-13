@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop pouting! You learned something valuable. Remember the lesson, not the disappointment."
+> "To you, life was just something you acted out and ended, all according to someone else's script. That's why you were always quoting Shakespeare. However, Aika, I say that you were wrong! You did what you shouldn't have, and didn't do as you should have. Because you relied on someone else's script, you were wrong. I won't live my life by another person's script. Not by Hamlet or The Tempest. I don't know how many years in the future it will be... but I'll write and act my own ending."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
