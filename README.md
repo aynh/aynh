@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe being an author is a lonely line of work that asks you to pass through a narrow gate alone."
+> "Those three are best friends.  They have their respective secrets.  And they're deliberately trying not to give themselves away.  But neither Orihara or Shizuo had any secrets whatsoever.  And that resulted in the complete opposite kind of personal relationship."
 
-&mdash; [**Kanako Sakurai**](https://myanimelist.net/character.php?q=Kanako%20Sakurai&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
+&mdash; [**Shinra Kishitani**](https://myanimelist.net/character.php?q=Shinra%20Kishitani&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
