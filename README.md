@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Where do people stray off the path? When do they begin to obey their greed rather than their ideals? Or are ideals just prone to morphing easily into greed?"
+> "That's right! I admired his desire to save people because it was beautiful! But none of that feeling is my own! What else can you call it but hypocrisy?! I was driven by my obsessive need to help someone. I kept running, neither noticing the pain nor how wrong I was! But it's all a fake. Such hypocrisy can not save anything. No, first of all, I didn't even know what I wanted to save!"
 
-&mdash; [**Sion**](https://myanimelist.net/character.php?q=Sion&cat=character), [**No.6**](https://myanimelist.net/search/all?q=No.6&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
