@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Things learned as a child stay with you forever."
+> "I don't want that kind of twisted love."
 
-&mdash; [**Cosette Sara**](https://myanimelist.net/character.php?q=Cosette%20Sara&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
