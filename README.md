@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Hige* Coming from you, that sounds kind of fishy."
+> "Things learned as a child stay with you forever."
 
-&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Cosette Sara**](https://myanimelist.net/character.php?q=Cosette%20Sara&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
