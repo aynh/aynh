@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to grow just look above you, there are plenty of people perfect to serve as fodder for your growth."
+> "I believe being an author is a lonely line of work that asks you to pass through a narrow gate alone."
 
-&mdash; [**Kojirō Shinomiya**](https://myanimelist.net/character.php?q=Kojir%C5%8D%20Shinomiya&cat=character), [**Shokugeki no Sōma**](https://myanimelist.net/search/all?q=Shokugeki%20no%20S%C5%8Dma&cat=all)
+&mdash; [**Kanako Sakurai**](https://myanimelist.net/character.php?q=Kanako%20Sakurai&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
