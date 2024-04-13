@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Inuyasha* Your stupidity knows no boundaries. Run and hide while you can."
+> "Where do people stray off the path? When do they begin to obey their greed rather than their ideals? Or are ideals just prone to morphing easily into greed?"
 
-&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Sion**](https://myanimelist.net/character.php?q=Sion&cat=character), [**No.6**](https://myanimelist.net/search/all?q=No.6&cat=all)
