@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those three are best friends.  They have their respective secrets.  And they're deliberately trying not to give themselves away.  But neither Orihara or Shizuo had any secrets whatsoever.  And that resulted in the complete opposite kind of personal relationship."
+> "*to Hige* Coming from you, that sounds kind of fishy."
 
-&mdash; [**Shinra Kishitani**](https://myanimelist.net/character.php?q=Shinra%20Kishitani&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
