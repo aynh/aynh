@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*punches Kurogane* That was payback, Kuro-sama!"
+> "Goodbye, vice captain. Why don't you suck on some mayonnaise in the afterlife? [he shoots, blowing up the whole wall]"
 
-&mdash; [**Fay D. Flourite**](https://myanimelist.net/character.php?q=Fay%20D.%20Flourite&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
