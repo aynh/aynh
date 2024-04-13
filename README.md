@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Goodbye, vice captain. Why don't you suck on some mayonnaise in the afterlife? [he shoots, blowing up the whole wall]"
+> "To defeat evil, I shall become an even GREATER evil."
 
-&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
