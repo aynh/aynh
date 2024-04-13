@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Step one foot outside, and with one pull of a trigger, you can inflict a fatal injury; with one push of a button, you can blow up a whole lot of people at once. The world truly is a cavalcade of efficiency in violence. Still... whether hacking each other with stone axes, cutting each other with swords, shooting each other with guns, cursing each other with magic, or taking aim at each other with missiles, for some reason, there's a craving that grips us, from which we can't evolve away."
+> "Dressing up on the outside won’t change what’s on the inside."
 
-&mdash; [**Klaus von Reinherz**](https://myanimelist.net/character.php?q=Klaus%20von%20Reinherz&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Uka-no-Mitama-no-Kami**](https://myanimelist.net/character.php?q=Uka-no-Mitama-no-Kami&cat=character), [**Inari Kon Kon**](https://myanimelist.net/search/all?q=Inari%20Kon%20Kon&cat=all)
