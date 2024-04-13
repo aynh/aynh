@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dressing up on the outside won’t change what’s on the inside."
+> "And, Araragi-kun....I love you."
 
-&mdash; [**Uka-no-Mitama-no-Kami**](https://myanimelist.net/character.php?q=Uka-no-Mitama-no-Kami&cat=character), [**Inari Kon Kon**](https://myanimelist.net/search/all?q=Inari%20Kon%20Kon&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
