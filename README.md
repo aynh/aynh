@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To you, life was just something you acted out and ended, all according to someone else's script. That's why you were always quoting Shakespeare. However, Aika, I say that you were wrong! You did what you shouldn't have, and didn't do as you should have. Because you relied on someone else's script, you were wrong. I won't live my life by another person's script. Not by Hamlet or The Tempest. I don't know how many years in the future it will be... but I'll write and act my own ending."
+> "Don't ever forget that with each step a person is able to take on their own, they have become that much stronger."
 
-&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Tamahome**](https://myanimelist.net/character.php?q=Tamahome&cat=character), [**Fushigi Yugi**](https://myanimelist.net/search/all?q=Fushigi%20Yugi&cat=all)
