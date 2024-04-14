@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someone the exact opposite of Inuyasha.  That's the perfect guy for me."
+> "Come on, scribbles on the bathroom wall, please show me the path that I must follow!"
 
-&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Excel**](https://myanimelist.net/character.php?q=Excel&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
