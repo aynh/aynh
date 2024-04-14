@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People are stupid. If I don't do this, there will be no peace. Eventually, time will pass and the pain will heal. Eventually, checkmate's power will weaken and people will begin fighting again. This time, they will use the weapon themselves and once more know true pain. And for the short time, peace will come again. It will give birth to short period of peace within this endless chain of hatred. That's my wish."
+> "Okay, here's the plan: We go in, start hitting people, and see where it takes us."
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
