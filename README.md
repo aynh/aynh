@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Come on, scribbles on the bathroom wall, please show me the path that I must follow!"
+> "I think that what people who've committed crimes need isn't punishment, but rather the knowledge of the pain of being forgiven."
 
-&mdash; [**Excel**](https://myanimelist.net/character.php?q=Excel&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
+&mdash; [**Isogi Toshio**](https://myanimelist.net/character.php?q=Isogi%20Toshio&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
