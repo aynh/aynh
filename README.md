@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To defeat evil, I shall become an even GREATER evil."
+> "Just because someone is important to you, it doesn't necessarily mean that, that person is good. Even if you knew that person was evil... People cannot win against their loneliness."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
