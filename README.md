@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wouldn't learn German just to apologize, that would be too much work."
+> "At last, the sea lion has crossed the ocean and is heading up the hill! Attention soldiers of the Millennium battalion, this is a message from your commander! Friends, let's bring them Hell."
 
-&mdash; [**Asaba Yuki**](https://myanimelist.net/character.php?q=Asaba%20Yuki&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
+&mdash; [**Montana Max**](https://myanimelist.net/character.php?q=Montana%20Max&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
