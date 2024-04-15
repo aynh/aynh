@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do what you can until you learn what you need. If you're going to try something, you may as well aim for the top."
+> "To master the bending disciplines you must first master discipline itself, but you have no interest in this so I have no interest in you."
 
-&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Jeong Jeong**](https://myanimelist.net/character.php?q=Jeong%20Jeong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
