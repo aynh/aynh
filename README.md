@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter if you grew up without parents, and it doesn't matter if you don't believe in God. There's someone out there watching over you."
+> "Do what you can until you learn what you need. If you're going to try something, you may as well aim for the top."
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
