@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I didn’t choose you. Don’t you see this is all just an accident. You actually thought you were chosen because you’re so smart or something? Don’t be so vain. It just happened to fall around here and you just happen to pick it up, and that’s all there is to it."
+> "I've decided to take this unrequited love, and quietly put it away in a corner of my heart as a bittersweet page of my youth."
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
