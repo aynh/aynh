@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Be Yourself because an Original is worth more than a Copy"
+> "Pride is an eminent trait, but too much will cause arrogance. That is when it becomes disgusting."
 
-&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Duke Tōgō**](https://myanimelist.net/character.php?q=Duke%20T%C5%8Dg%C5%8D&cat=character), [**Golgo 13**](https://myanimelist.net/search/all?q=Golgo%2013&cat=all)
