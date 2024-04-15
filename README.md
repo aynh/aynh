@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At last, the sea lion has crossed the ocean and is heading up the hill! Attention soldiers of the Millennium battalion, this is a message from your commander! Friends, let's bring them Hell."
+> "Little by little, what you’ve begun will naturally become important to you. What you need at the start is a little bit of curiosity."
 
-&mdash; [**Montana Max**](https://myanimelist.net/character.php?q=Montana%20Max&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Kiyoko Shimizu**](https://myanimelist.net/character.php?q=Kiyoko%20Shimizu&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
