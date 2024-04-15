@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think that what people who've committed crimes need isn't punishment, but rather the knowledge of the pain of being forgiven."
+> "No point in wondering who someone really is, all you can do is trust them and accept them for who they are. Because the person you come to know is who that person really is."
 
-&mdash; [**Isogi Toshio**](https://myanimelist.net/character.php?q=Isogi%20Toshio&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
