@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've decided to take this unrequited love, and quietly put it away in a corner of my heart as a bittersweet page of my youth."
+> "Eating together makes food taste better and makes friends grow closer."
 
-&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Karuta Roromiya**](https://myanimelist.net/character.php?q=Karuta%20Roromiya&cat=character), [**Inu X Boku SS**](https://myanimelist.net/search/all?q=Inu%20X%20Boku%20SS&cat=all)
