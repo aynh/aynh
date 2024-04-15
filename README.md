@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The Present is ending. Here, countless versions of our past selves are always crying, laughing, falling in love, getting hurt, joking around, feeling happy and suffering. These feelings are born all the time and in the next moment, they became the past and die. It's over now. This is the end, but the truth is everyone's time is like that. Right after it's born, every moment becomes the past and dies."
+> "God, if this world, this story, is moving ahead according to the system you created... then I first need to destroy that illusion!"
 
-&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
