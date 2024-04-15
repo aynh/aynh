@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Little by little, what you’ve begun will naturally become important to you. What you need at the start is a little bit of curiosity."
+> "...A human's belief can make the impossible possible."
 
-&mdash; [**Kiyoko Shimizu**](https://myanimelist.net/character.php?q=Kiyoko%20Shimizu&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Kouta Tsuchiya**](https://myanimelist.net/character.php?q=Kouta%20Tsuchiya&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
