@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our bodies get bigger, but our hearts get torn up."
+> "Even if everyone calls you a liar, even if you hate yourself, I’ll be on your side."
 
-&mdash; [**Mikoto Suoh**](https://myanimelist.net/character.php?q=Mikoto%20Suoh&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
+&mdash; [**Inori Yuzuriha**](https://myanimelist.net/character.php?q=Inori%20Yuzuriha&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
