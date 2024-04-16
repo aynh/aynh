@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "While it takes time to recover from the loss of a loved one, having an opportunity to take your mind off things helps too."
+> "In order to save a life, you must throw another life away."
 
-&mdash; [**Yogi**](https://myanimelist.net/character.php?q=Yogi&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
+&mdash; [**Nishi Joichiro**](https://myanimelist.net/character.php?q=Nishi%20Joichiro&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
