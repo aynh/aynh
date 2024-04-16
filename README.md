@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Katsura, just stop this. No matter how elegant you think dying is, your death won't appease your conscience and won't change anything."
+> "If love is just a word, then why does it hurt so much if you realize it isn't there?"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
