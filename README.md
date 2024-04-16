@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "True Change cannot be made if it is bound by laws and limitations, predictions and imagination."
+> "You're not a good-for-nothing person. I think that being able to try your hardest to be something is a talent by itself."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
