@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're not a good-for-nothing person. I think that being able to try your hardest to be something is a talent by itself."
+> "Okay, I'll talk! Take the elevator to see my boss!"
 
-&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Rocket Grunt**](https://myanimelist.net/character.php?q=Rocket%20Grunt&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
