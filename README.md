@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Power is not the only connection you can have.  This world is filled with much warmer things."
+> "The frog in the well can't communicate with the ocean creatures, as it knows the depth of the sky. It's because the frog lived inside a cramped and small space, so he knows better than anyone, how precious freedom is."
 
-&mdash; [**Minerva Orland**](https://myanimelist.net/character.php?q=Minerva%20Orland&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Akito Wanijima**](https://myanimelist.net/character.php?q=Akito%20Wanijima&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
