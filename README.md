@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One thing I'm especially good at is finding Yano, whenever or wherever he may be. Because he's the one I love."
+> "I see. I feel a strong pulse."
 
-&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
