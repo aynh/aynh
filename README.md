@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If love is just a word, then why does it hurt so much if you realize it isn't there?"
+> "Yes, the seats are limited. There are always fewer seats called 'happiness' than there are people to fill them."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
