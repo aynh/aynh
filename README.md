@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Worrying about rejection may be the same as rejecting yourself."
+> "True Change cannot be made if it is bound by laws and limitations, predictions and imagination."
 
-&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
