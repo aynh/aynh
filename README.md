@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In order to save a life, you must throw another life away."
+> "Power is not the only connection you can have.  This world is filled with much warmer things."
 
-&mdash; [**Nishi Joichiro**](https://myanimelist.net/character.php?q=Nishi%20Joichiro&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
+&mdash; [**Minerva Orland**](https://myanimelist.net/character.php?q=Minerva%20Orland&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
