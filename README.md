@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yes, the seats are limited. There are always fewer seats called 'happiness' than there are people to fill them."
+> "Black Star, it's over between us."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
