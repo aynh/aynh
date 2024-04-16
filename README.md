@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are people in this world that enjoy being alone, but there isn't a single person who can bear solitude."
+> "They are two types of people. Those who let go and those who are let go. How many times have I watched people leave up until now? I may have been able to reach them if I'd reached out, but I was afraid of being pushed away, so I simply watched them disappear into the distance."
 
-&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Matsuoka Masamune**](https://myanimelist.net/character.php?q=Matsuoka%20Masamune&cat=character), [**Aoharu x Kikanjuu**](https://myanimelist.net/search/all?q=Aoharu%20x%20Kikanjuu&cat=all)
