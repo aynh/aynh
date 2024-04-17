@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you married someone, that means you love every side of your significant other that you already know. So if you find a new side after to love, doesn't that mean you'll love your partner even more?"
+> "What's important, is to know fear and yet take a step forward."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Rosette Christopher**](https://myanimelist.net/character.php?q=Rosette%20Christopher&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
