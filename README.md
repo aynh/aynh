@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Where will we be in five or ten years from now? No one knows. All we know right now, all we can see right now, is what's right in front of us. That's why we'll always live our 'right now' to the fullest!"
+> "You.... Could it be that you're just an idiot? *to Senjougahara*"
 
-&mdash; [**Kanzaki Tomoyo**](https://myanimelist.net/character.php?q=Kanzaki%20Tomoyo&cat=character), [**Inou Battle wa Nichijou-kei no Naka de**](https://myanimelist.net/search/all?q=Inou%20Battle%20wa%20Nichijou-kei%20no%20Naka%20de&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
