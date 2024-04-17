@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you're in the darkness, you only sink deeper into it. Keep the light shining."
+> "I am a god with a heart, but there’s one thing I cannot tolerate… people who don’t pay their proper respect to others."
 
-&mdash; [**Kenzo Tenma**](https://myanimelist.net/character.php?q=Kenzo%20Tenma&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
