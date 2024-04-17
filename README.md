@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's important, is to know fear and yet take a step forward."
+> "Loving a person isn’t about logic or reason."
 
-&mdash; [**Rosette Christopher**](https://myanimelist.net/character.php?q=Rosette%20Christopher&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
+&mdash; [**Yukari Hayasaka**](https://myanimelist.net/character.php?q=Yukari%20Hayasaka&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
