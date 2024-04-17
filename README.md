@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I thought that without you, everything would be so boring. The idea of someone else touching you... was just not okay. I only realized this recently. But I think... I've loved you for a long time, too."
+> "People cannot show each other their true feelings. Fear, suspicion, and resentment never subside."
 
-&mdash; [**Ooga Kazuomi**](https://myanimelist.net/character.php?q=Ooga%20Kazuomi&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
