@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is a reason nesessary? I don't know why you would kill someone. But as for saving someone... A logical mind isn't needed, right?"
+> "'Why must everyone make such a fuss over the death of a single soldier? The moment a soldier dons his uniform, he accepts the reality that he might be buried in it.'"
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
