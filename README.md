@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The piano is meant to be played like you're embracing it, right?"
+> "War is not heroic. War is not exhilarating. War is full of despair. It's dark. It's dreadful. It's a thing of sorrow and gloom."
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Kira Izuru**](https://myanimelist.net/character.php?q=Kira%20Izuru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
