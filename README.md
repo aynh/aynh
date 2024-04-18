@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you telling me to go back and put a corpse on trial?"
+> "You - Idiot! Go ahead and cry! When I'm with you, you don't have to hold back. *Usagi runs into his arms, sobbing*"
 
-&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Mamoru Chiba**](https://myanimelist.net/character.php?q=Mamoru%20Chiba&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
