@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[as Zhao threatens the moon spirit] Whatever you do to that spirit, I'll unleash on you tenfold! Let it go now!"
+> "Are you telling me to go back and put a corpse on trial?"
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
