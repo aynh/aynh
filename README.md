@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wanted to save you because you're you. I didn't want you to leave, because you're you. I can't find another reason. I don't need another reason to save you."
+> "Of the days that I have lived, only those I spent with you seemed real."
 
-&mdash; [**Bell Cranel**](https://myanimelist.net/character.php?q=Bell%20Cranel&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
+&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop: The Movie**](https://myanimelist.net/search/all?q=Cowboy%20Bebop%3A%20The%20Movie&cat=all)
