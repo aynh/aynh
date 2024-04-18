@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Leave people to their own thoughts, and sooner or later they start questioning the powers that be. If you're in a position of power, the last thing you want folks to ask is whether or not the way things are, is the way they have to be."
+> "Trying to change someone else's thinking is sheer arrogance."
 
-&mdash; [**Sunda Granitz**](https://myanimelist.net/character.php?q=Sunda%20Granitz&cat=character), [**Fractale**](https://myanimelist.net/search/all?q=Fractale&cat=all)
+&mdash; [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/character.php?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
