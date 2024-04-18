@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You - Idiot! Go ahead and cry! When I'm with you, you don't have to hold back. *Usagi runs into his arms, sobbing*"
+> "[after Aang enters the ring] Do people really want to see TWO little girls fighting out here?"
 
-&mdash; [**Mamoru Chiba**](https://myanimelist.net/character.php?q=Mamoru%20Chiba&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
+&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
