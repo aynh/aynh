@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past is the past. We cannot indulge ourselves in memories and destroy the present."
+> "You always seem to get in my way, Mu La Flaga. Though I imagine you'd say the same about me."
 
-&mdash; [**Murata Ken**](https://myanimelist.net/character.php?q=Murata%20Ken&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
