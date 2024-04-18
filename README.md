@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Beautiful flowers, too, eventually wither and fall. That's the fate of all living beings."
+> "Even though I don’t mind being alone, I don’t want others to think I’m lonely."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Ritsu Kawai**](https://myanimelist.net/character.php?q=Ritsu%20Kawai&cat=character), [**Bokura wa Minna Kawaisou**](https://myanimelist.net/search/all?q=Bokura%20wa%20Minna%20Kawaisou&cat=all)
