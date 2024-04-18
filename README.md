@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after Aang enters the ring] Do people really want to see TWO little girls fighting out here?"
+> "When the world shoves you around, you just gotta stand up and shove back. It's not like somebody's gonna save you if you start babbling excuses."
 
-&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
