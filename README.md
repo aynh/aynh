@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is my case! I'm going to solve it!! Don't get involved!"
+> "Who are you again? Sorry, I have a bad memory for ugly faces."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Ayasegawa Yumichika**](https://myanimelist.net/character.php?q=Ayasegawa%20Yumichika&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
