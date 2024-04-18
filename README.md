@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even though I don’t mind being alone, I don’t want others to think I’m lonely."
+> "For questions where your chance of being correct is 5050, it's best to go with your gut response."
 
-&mdash; [**Ritsu Kawai**](https://myanimelist.net/character.php?q=Ritsu%20Kawai&cat=character), [**Bokura wa Minna Kawaisou**](https://myanimelist.net/search/all?q=Bokura%20wa%20Minna%20Kawaisou&cat=all)
+&mdash; [**Maekawa**](https://myanimelist.net/character.php?q=Maekawa&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
