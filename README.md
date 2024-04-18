@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I'm not at my limit, means I'm not trying as hard as I can!"
+> "Those painful memories are what help us make it to tomorrow and become stronger."
 
-&mdash; [**Naru**](https://myanimelist.net/character.php?q=Naru&cat=character), [**Girl Friends**](https://myanimelist.net/search/all?q=Girl%20Friends&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
