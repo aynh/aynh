@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm the sniper king, sogeking."
+> "Noblesse oblige. You have the power but not using that power is a sin."
 
-&mdash; [**Usopp**](https://myanimelist.net/character.php?q=Usopp&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Nyx**](https://myanimelist.net/character.php?q=Nyx&cat=character), [**Neo Angelique Abyss**](https://myanimelist.net/search/all?q=Neo%20Angelique%20Abyss&cat=all)
