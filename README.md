@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wish for a heart. A heart of the man whom I'll never allow to forget me."
+> "The past is the past. We cannot indulge ourselves in memories and destroy the present."
 
-&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Murata Ken**](https://myanimelist.net/character.php?q=Murata%20Ken&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
