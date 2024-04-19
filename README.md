@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Self-sacrifice... A nameless shinobi who protects peace within its shadow. That is a true shinobi."
+> "Go ahead! I'll just turn you into the police for assaulting a minor! (To Kyo)"
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
