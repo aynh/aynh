@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I didn't come here to fight! I came here to hack at you violently!"
+> "If you tell a bald man his head is useful in the dark, you'll get punched in the face. Santa Claus says such cruel things."
 
-&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ayumu Kasuga**](https://myanimelist.net/character.php?q=Ayumu%20Kasuga&cat=character), [**Azumanga Daioh**](https://myanimelist.net/search/all?q=Azumanga%20Daioh&cat=all)
