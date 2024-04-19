@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A guy who can't do what needs to be done today, definitely can't do it tomorrow."
+> "No one’s going to criticize you if you get excited for something, or you laugh with all your heart! And if someone does, I’ll beat them up!"
 
-&mdash; [**Goro Shigeno**](https://myanimelist.net/character.php?q=Goro%20Shigeno&cat=character), [**Major**](https://myanimelist.net/search/all?q=Major&cat=all)
+&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
