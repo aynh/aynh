@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you tell a bald man his head is useful in the dark, you'll get punched in the face. Santa Claus says such cruel things."
+> "If you have enough breath to say you don't have energy, I haven't push you far enough!"
 
-&mdash; [**Ayumu Kasuga**](https://myanimelist.net/character.php?q=Ayumu%20Kasuga&cat=character), [**Azumanga Daioh**](https://myanimelist.net/search/all?q=Azumanga%20Daioh&cat=all)
+&mdash; [**Barbara**](https://myanimelist.net/character.php?q=Barbara&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
