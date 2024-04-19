@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life isn't about what can and can not be done, it's about doing it or not doing it!"
+> "If you don't have the courage to change things then you might as well just die!!!"
 
-&mdash; [**Shio Sakaki**](https://myanimelist.net/character.php?q=Shio%20Sakaki&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
