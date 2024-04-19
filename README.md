@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has something they like, something they have to do, or something they want to do."
+> "Once the thread of fate is tangled, it cannot be undone."
 
-&mdash; [**Yutaka Hasebe**](https://myanimelist.net/character.php?q=Yutaka%20Hasebe&cat=character), [**Servant X Service**](https://myanimelist.net/search/all?q=Servant%20X%20Service&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
