@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I can protect, I want to protect."
+> "I don't understand the feelings of the weak. The law of the world is survival at its fittest. Its how the weak are weeded out. It just means those people that died were too weak. Its only natural for the weak to perish."
 
-&mdash; [**Syaoran Li**](https://myanimelist.net/character.php?q=Syaoran%20Li&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Esdeath**](https://myanimelist.net/character.php?q=Esdeath&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
