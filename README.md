@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Go ahead! I'll just turn you into the police for assaulting a minor! (To Kyo)"
+> "A guy who can't do what needs to be done today, definitely can't do it tomorrow."
 
-&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Goro Shigeno**](https://myanimelist.net/character.php?q=Goro%20Shigeno&cat=character), [**Major**](https://myanimelist.net/search/all?q=Major&cat=all)
