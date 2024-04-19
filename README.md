@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's alright to feel sad. When you're sad, you should experience that sorrow fully. It's not too late to move on after that."
+> "Somebody's a little light on his feet. What's your fighting name, the Fancy Dancer?"
 
-&mdash; [**Urutori**](https://myanimelist.net/character.php?q=Urutori&cat=character), [**Utawarerumono**](https://myanimelist.net/search/all?q=Utawarerumono&cat=all)
+&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
