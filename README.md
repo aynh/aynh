@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one’s going to criticize you if you get excited for something, or you laugh with all your heart! And if someone does, I’ll beat them up!"
+> "I wouldn't call myself a saint, but I think I do alright. My mind's about as sharp as the average person. When it comes to an iron will or noble spirit, well... I might have to ask you to turn a blind eye there..."
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Amagiri Ayato**](https://myanimelist.net/character.php?q=Amagiri%20Ayato&cat=character), [**Gakusen Toshi Asterisk**](https://myanimelist.net/search/all?q=Gakusen%20Toshi%20Asterisk&cat=all)
