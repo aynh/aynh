@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why am I so bad at being good?"
+> "We once fought together for an ideal with our swords. It wasn't for power or for glory, but to create a peaceful world where people could live without fear. And if you should forget about that, then what did we fight the revolution for?"
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
