@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wouldn't call myself a saint, but I think I do alright. My mind's about as sharp as the average person. When it comes to an iron will or noble spirit, well... I might have to ask you to turn a blind eye there..."
+> "Sorry. Our world isn't as nice a place as yours. When it comes to war and killing, we have far more expertise than you do."
 
-&mdash; [**Amagiri Ayato**](https://myanimelist.net/character.php?q=Amagiri%20Ayato&cat=character), [**Gakusen Toshi Asterisk**](https://myanimelist.net/search/all?q=Gakusen%20Toshi%20Asterisk&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
