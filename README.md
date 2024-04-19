@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry. Our world isn't as nice a place as yours. When it comes to war and killing, we have far more expertise than you do."
+> "Everyone has something they like, something they have to do, or something they want to do."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Yutaka Hasebe**](https://myanimelist.net/character.php?q=Yutaka%20Hasebe&cat=character), [**Servant X Service**](https://myanimelist.net/search/all?q=Servant%20X%20Service&cat=all)
