@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you have enough breath to say you don't have energy, I haven't push you far enough!"
+> "It doesn't matter how much trash you pick up. You just have a pile of trash."
 
-&mdash; [**Barbara**](https://myanimelist.net/character.php?q=Barbara&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
