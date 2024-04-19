@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We once fought together for an ideal with our swords. It wasn't for power or for glory, but to create a peaceful world where people could live without fear. And if you should forget about that, then what did we fight the revolution for?"
+> "I didn't come here to fight! I came here to hack at you violently!"
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
