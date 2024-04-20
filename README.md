@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We've never worked together before, so don't worry about teamwork! Just stay out of each other's way. Fight the way you want to fight!"
+> "In some ways, the more one thinks, the closer one feels to getting the answer...but in the end, it's hard to tell what is really the safe answer. I started to dislike being like that at one point, and my motto is, 'make quick decisions and act fast.' I choose the first answer that feels 'right' to me."
 
-&mdash; [**Bors Elder**](https://myanimelist.net/character.php?q=Bors%20Elder&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
+&mdash; [**Shirasagi Yuki**](https://myanimelist.net/character.php?q=Shirasagi%20Yuki&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
