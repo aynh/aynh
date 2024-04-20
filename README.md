@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how hard or impossible it is, never lose sight of your goal."
+> "No matter how much talent you have, if you aren't the best, you're nothing because there can only be one king. If you're in his shadow, then history won't see you."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Takamura Mamoru**](https://myanimelist.net/character.php?q=Takamura%20Mamoru&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
