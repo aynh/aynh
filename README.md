@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey Kaiba, maybe we should duel sometimes."
+> "Sanae-san told me, places that I can cry are in a toilet, or in daddy's arms."
 
-&mdash; [**Joey Wheeler**](https://myanimelist.net/character.php?q=Joey%20Wheeler&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Okazaki Ushio**](https://myanimelist.net/character.php?q=Okazaki%20Ushio&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
