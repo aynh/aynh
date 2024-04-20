@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It looks to me like you've completely lost your touch."
+> "Red is supposed to be the color of fate, right? Even if its annoying right now, it might connect to something good when you least expect it."
 
-&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Zen Wistalia**](https://myanimelist.net/character.php?q=Zen%20Wistalia&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
