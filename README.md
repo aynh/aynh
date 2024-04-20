@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Some people think the act of investing efforts, trying your best is more precious than the result. But for mentors as well as their pupils, that approach feels bitter. 'I did my best', 'the fight was close'... words like that blow past and die out like a wind. Only the result is a stone. The stone you can reach by doing your best."
+> "If I have the power to make a difference, I should put it to good use."
 
-&mdash; [**Hidehiro Harada**](https://myanimelist.net/character.php?q=Hidehiro%20Harada&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Kira Yamato**](https://myanimelist.net/character.php?q=Kira%20Yamato&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
