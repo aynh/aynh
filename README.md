@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The word 'discipline' is something that I would never give up, no matter what. But it's not because it is my pride that I will not give it up. It's because I cannot give it up, that's why it is my pride."
+> "Even as a child, I found tremendous pleasure in spilling my enemy's blood. Their screams of agony were my music. Once I learned that my mother's frozen tear drop was valuable, I began wearing in open sight of everyone, hoping their greed would entice them to challenge me, thus giving me the opportunity for my next kill."
 
-&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
