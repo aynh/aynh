@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In some ways, the more one thinks, the closer one feels to getting the answer...but in the end, it's hard to tell what is really the safe answer. I started to dislike being like that at one point, and my motto is, 'make quick decisions and act fast.' I choose the first answer that feels 'right' to me."
+> "But we're alive, aren't we? We don't have any magic power, but we're alive! We have the strength to overcome the weakness and the fear! That's what it means to be alive!"
 
-&mdash; [**Shirasagi Yuki**](https://myanimelist.net/character.php?q=Shirasagi%20Yuki&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
