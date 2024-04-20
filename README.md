@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your voice sounds so lovely when you're whimpering in agony."
+> "I want to defeat the me that's dragging this failure around. I don't want to forget my failure. But if I carry it with me as a bad memory and keep running away, I will never change."
 
-&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
+&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
