@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's so lovely to have been born a Witch."
+> "Sometimes your biggest effort will be ignored, but your smallest mistake will be judged."
 
-&mdash; [**Eruka Frog**](https://myanimelist.net/character.php?q=Eruka%20Frog&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
