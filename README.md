@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sanae-san told me, places that I can cry are in a toilet, or in daddy's arms."
+> "It's so lovely to have been born a Witch."
 
-&mdash; [**Okazaki Ushio**](https://myanimelist.net/character.php?q=Okazaki%20Ushio&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Eruka Frog**](https://myanimelist.net/character.php?q=Eruka%20Frog&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
