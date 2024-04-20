@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Red is supposed to be the color of fate, right? Even if its annoying right now, it might connect to something good when you least expect it."
+> "Now you know what fear does to you. In the face of death you thought."
 
-&mdash; [**Zen Wistalia**](https://myanimelist.net/character.php?q=Zen%20Wistalia&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
+&mdash; [**Kasper Hekmatyar**](https://myanimelist.net/character.php?q=Kasper%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
