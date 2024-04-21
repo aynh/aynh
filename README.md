@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who cares about snow? Snow can't touch me, I could be naked out here and it wouldn't bother me at all."
+> "You can't carry me AND dodge at the same time, Tetsuzaemon!"
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
