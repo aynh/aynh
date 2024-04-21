@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(after Master Roshi tells him they have to dig in a farm) First we're the milkmen, and now we're stinkin' farmers. We never did this in Orin Temple."
+> "I have to accept that who I want to become and who I can actually become are different."
 
-&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
