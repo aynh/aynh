@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As a musician, in the process of learning from a teacher, your differences breed a sense of discomfort which you should cherish. It's because of those differences that we have individuality."
+> "Kurama, do not make me come over there and remove that precious thing you call a voice box."
 
-&mdash; [**Hiroko Seto**](https://myanimelist.net/character.php?q=Hiroko%20Seto&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
