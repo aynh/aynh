@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't feel as good on my foot now, change yourself back into a frog."
+> "[to himself as he chops at the ice] I'm just a guy with a boomerang. I didn't ask for all this flying and magic."
 
-&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
