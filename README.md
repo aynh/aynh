@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even as a child, I found tremendous pleasure in spilling my enemy's blood. Their screams of agony were my music. Once I learned that my mother's frozen tear drop was valuable, I began wearing in open sight of everyone, hoping their greed would entice them to challenge me, thus giving me the opportunity for my next kill."
+> "Just because someone is important to you, it doesn't necessarily mean that, that person is good. Even if you knew that person was evil... People cannot win against their loneliness."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
