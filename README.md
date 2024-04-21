@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't cry. It will make your face even uglier."
+> "Keeheehe. I like him. I'm going to make him my cat."
 
-&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Gajeel Redfox**](https://myanimelist.net/character.php?q=Gajeel%20Redfox&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
