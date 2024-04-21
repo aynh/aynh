@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People... need to be needed by someone in order to live. If a person isn't needed, they're worthless!"
+> "As a musician, in the process of learning from a teacher, your differences breed a sense of discomfort which you should cherish. It's because of those differences that we have individuality."
 
-&mdash; [**Moeka Kiryū**](https://myanimelist.net/character.php?q=Moeka%20Kiry%C5%AB&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Hiroko Seto**](https://myanimelist.net/character.php?q=Hiroko%20Seto&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
