@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kurama, do not make me come over there and remove that precious thing you call a voice box."
+> "A woman must always move with grace, whether you're wiping a table or drying sheets. Or in the fight for your life."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Ooe Kanade**](https://myanimelist.net/character.php?q=Ooe%20Kanade&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
