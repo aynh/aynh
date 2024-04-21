@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hide the truth. Manipulate information. Use intimidation."
+> "I felt like I was watching a dream I'd never wake up from. Before I knew it, the dream was all over."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
