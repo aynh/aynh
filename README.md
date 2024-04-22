@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Where do people stray off the path? When do they begin to obey their greed rather than their ideals? Or are ideals just prone to morphing easily into greed?"
+> "The depths of despair…. I feel so calm here. I won’t be tricked by anyone anymore, and I don’t have to resent anyone. There’s nothing here. Not even loving. Nothing but to keep dancing until I die away."
 
-&mdash; [**Sion**](https://myanimelist.net/character.php?q=Sion&cat=character), [**No.6**](https://myanimelist.net/search/all?q=No.6&cat=all)
+&mdash; [**Rue Kuroha**](https://myanimelist.net/character.php?q=Rue%20Kuroha&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
