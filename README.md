@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "CHILDBIRTH'S NOT ALCHEMY, YOU DOPE!"
+> "Even if things are painful and tough, people should appreciate what it means to be alive."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
