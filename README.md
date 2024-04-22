@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Does he really believe we would turn around after all that we've been through?"
+> "You got in an accident. You couldn't do anything afterward. It's okay to feel ashamed about that. But don't run from that shame! You have to carry that humiliation with you and live on!"
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
