@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have to accept that who I want to become and who I can actually become are different."
+> "There are some people who possess certain things that money cannot buy... as if it as as natural as breathing..."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Ryūichirō Isaka**](https://myanimelist.net/character.php?q=Ry%C5%ABichir%C5%8D%20Isaka&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
