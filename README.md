@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes people put up walls, not to keep others out, but to see who cares enough to break them down."
+> "The fact that you consider yourself as an equal to me, is being arrogant in itself."
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
