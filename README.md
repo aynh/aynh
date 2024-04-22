@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if things are painful and tough, people should appreciate what it means to be alive."
+> "Does he really believe we would turn around after all that we've been through?"
 
-&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
