@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My problem is probably that I don’t have any confidence about anything I do. Even if the thing I want most is right in front of me, I can’t help but imagine a future where I’m being rejected by it. I’m scared of getting hurt, so I run away from the people I love. What a good-for-nothing loser."
+> "I don’t like hurting others. But that doesn't mean I won’t bear arms to protect places and people dear to me."
 
-&mdash; [**Shōta Kisa**](https://myanimelist.net/character.php?q=Sh%C5%8Dta%20Kisa&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Kiriha Kurano**](https://myanimelist.net/character.php?q=Kiriha%20Kurano&cat=character), [**Rokujouma no Shinryakusha!?**](https://myanimelist.net/search/all?q=Rokujouma%20no%20Shinryakusha!%3F&cat=all)
