@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I say it doesn't hurt me, that means I can bear it."
+> "Once I'm dead, I won't even be able to remember you. So I'll win, no matter what. I'll live, no matter what!"
 
-&mdash; [**Killua Zoldyck**](https://myanimelist.net/character.php?q=Killua%20Zoldyck&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
