@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don’t like hurting others. But that doesn't mean I won’t bear arms to protect places and people dear to me."
+> "Where do people stray off the path? When do they begin to obey their greed rather than their ideals? Or are ideals just prone to morphing easily into greed?"
 
-&mdash; [**Kiriha Kurano**](https://myanimelist.net/character.php?q=Kiriha%20Kurano&cat=character), [**Rokujouma no Shinryakusha!?**](https://myanimelist.net/search/all?q=Rokujouma%20no%20Shinryakusha!%3F&cat=all)
+&mdash; [**Sion**](https://myanimelist.net/character.php?q=Sion&cat=character), [**No.6**](https://myanimelist.net/search/all?q=No.6&cat=all)
