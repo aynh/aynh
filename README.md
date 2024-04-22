@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once I'm dead, I won't even be able to remember you. So I'll win, no matter what. I'll live, no matter what!"
+> "From the moment a magus is born, he is someone that has 'power'. And some day, he will achieve a 'greater power'. This responsibility was already flowing in his 'blood' before he realized this destiny. That is what it means to be born into this world as the child of a magus."
 
-&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Tohsaka Tokiomi**](https://myanimelist.net/character.php?q=Tohsaka%20Tokiomi&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
