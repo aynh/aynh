@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is nothing more expensive than something free."
+> "Sometimes people put up walls, not to keep others out, but to see who cares enough to break them down."
 
-&mdash; [**Maki Honoka**](https://myanimelist.net/character.php?q=Maki%20Honoka&cat=character), [**Kiznaiver**](https://myanimelist.net/search/all?q=Kiznaiver&cat=all)
+&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
