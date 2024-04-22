@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You got in an accident. You couldn't do anything afterward. It's okay to feel ashamed about that. But don't run from that shame! You have to carry that humiliation with you and live on!"
+> "Courage must know fear and make fear its own! Fear upsets breathing! Conquer fear and your breath will never fail you! Hamon breathing comes from courage! A good human is a brave human! Courage is a marvel of humanity!"
 
-&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**William A. Zeppeli**](https://myanimelist.net/character.php?q=William%20A.%20Zeppeli&cat=character), [**JoJo's Bizarre Adventure: Phantom Blood**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Phantom%20Blood&cat=all)
