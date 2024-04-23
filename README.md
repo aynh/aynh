@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Giraffe! Giraffe! I love Giraffes!"
+> "If all humans were saints and sages, all truths would be exposed. And every just cause, expedient, ideal, and lie would no longer be necessary, yes?"
 
-&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kaishou Rinroku**](https://myanimelist.net/character.php?q=Kaishou%20Rinroku&cat=character), [**Un-Go**](https://myanimelist.net/search/all?q=Un-Go&cat=all)
