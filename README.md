@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A fight isn't won once a victor is decided, it's won when someone loses."
+> "(to Kagura) Sorry that's your cue to say 'Shigure you perv' and roll your eyes, slap me, whatever."
 
-&mdash; [**Izayoi Sakamaki**](https://myanimelist.net/character.php?q=Izayoi%20Sakamaki&cat=character), [**Mondaiji-tachi Ga Isekai Kara Kuru Sou Desu Yo?**](https://myanimelist.net/search/all?q=Mondaiji-tachi%20Ga%20Isekai%20Kara%20Kuru%20Sou%20Desu%20Yo%3F&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
