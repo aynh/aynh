@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, it IS a chore. Risking your life and keeping busy are all the same!"
+> "Right and wrong are not what separate us and our enemies, it's our perspectives that separate us. Both sides blame one another. There's no good or bad side, just two sides holding different views."
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Squall Leonhart**](https://myanimelist.net/character.php?q=Squall%20Leonhart&cat=character), [**Final Fantasy VIII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VIII&cat=all)
