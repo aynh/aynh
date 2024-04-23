@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "None of you will ever escape the curse, as I could not. Residents of the boxes like you could never gain anything. You will all simply disappear without leaving anything behind in this world. You won't even leave a fleck of dust behind - you will never be happy!"
+> "I wouldn´t mind being eaten, as long as it was by a scorchingly hot lady titan."
 
-&mdash; [**Sanetoshi Watase**](https://myanimelist.net/character.php?q=Sanetoshi%20Watase&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Dot Pixis**](https://myanimelist.net/character.php?q=Dot%20Pixis&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
