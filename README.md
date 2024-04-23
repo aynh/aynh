@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Right and wrong are not what separate us and our enemies, it's our perspectives that separate us. Both sides blame one another. There's no good or bad side, just two sides holding different views."
+> "Goodbyes are only one side of the coin. You can't say goodbye until you've said hello."
 
-&mdash; [**Squall Leonhart**](https://myanimelist.net/character.php?q=Squall%20Leonhart&cat=character), [**Final Fantasy VIII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VIII&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
