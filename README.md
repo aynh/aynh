@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You ain't gonna know unless you climb up yerself. Ain't no way to look if you don't try."
+> "Fun times are bound to end."
 
-&mdash; [**Kotoishi Naru**](https://myanimelist.net/character.php?q=Kotoishi%20Naru&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
