@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I thought that without you, everything would be so boring. The idea of someone else touching you... was just not okay. I only realized this recently. But I think... I've loved you for a long time, too."
+> "Anyone can die. It's living that requires courage."
 
-&mdash; [**Ooga Kazuomi**](https://myanimelist.net/character.php?q=Ooga%20Kazuomi&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
