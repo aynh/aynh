@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The impostor is an impostor because it can't be distinguished from the real thing. The proof of its falsity is in its resemblance to the real thing."
+> "I finished Hige off. I don't want to move any more either. I knew it from the beginning, I knew it somewhere in my heart. That's why I led a spontaneous life. I was confident after having met you... that I wasn't the one who would open Paradise. [groans]"
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
