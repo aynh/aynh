@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's nothing special about being born. Not a thing. Most of the universe is just death, nothing more. In this universe of ours, the birth of a new life on some corner of our planet is nothing but a tiny, insignificant flash. Death is a normal thing. So why live?"
+> "Courage is the magic that turns dreams into reality."
 
-&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Richter Abend**](https://myanimelist.net/character.php?q=Richter%20Abend&cat=character), [**Tales Of Symphonia**](https://myanimelist.net/search/all?q=Tales%20Of%20Symphonia&cat=all)
