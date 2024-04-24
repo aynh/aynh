@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[dying] Kuchiki, I dragged you into this...I'm sorry. You must've been scared. Thanks, Kuchiki. Thanks to you...I can leave my heart here."
+> "Silence implies consent."
 
-&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Izayoi Sakamaki**](https://myanimelist.net/character.php?q=Izayoi%20Sakamaki&cat=character), [**Mondaji-tachi ga Isekai kara Kuru Sou Desu yo?**](https://myanimelist.net/search/all?q=Mondaji-tachi%20ga%20Isekai%20kara%20Kuru%20Sou%20Desu%20yo%3F&cat=all)
