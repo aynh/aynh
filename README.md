@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Silence implies consent."
+> "Mongrels though they may be, they're still figures of some slight renown"
 
-&mdash; [**Izayoi Sakamaki**](https://myanimelist.net/character.php?q=Izayoi%20Sakamaki&cat=character), [**Mondaji-tachi ga Isekai kara Kuru Sou Desu yo?**](https://myanimelist.net/search/all?q=Mondaji-tachi%20ga%20Isekai%20kara%20Kuru%20Sou%20Desu%20yo%3F&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
