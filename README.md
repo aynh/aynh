@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's important is not what's right, but what we believe is right."
+> "From now on, Lacus Clyne will be singing the song of peace."
 
-&mdash; [**Escha Malier**](https://myanimelist.net/character.php?q=Escha%20Malier&cat=character), [**Atelier Escha & Logy: Alchemists of the Dusk Sky**](https://myanimelist.net/search/all?q=Atelier%20Escha%20%26%20Logy%3A%20Alchemists%20of%20the%20Dusk%20Sky&cat=all)
+&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
