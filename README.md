@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now that just looks horrible. It's like some feudal society. If that's what it takes to make friends in this world, forever alone is fine by me."
+> "I shall light a fire upon the fang that falls short, so that I needn't see that star...So that it shall not tear this throat of mine."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
