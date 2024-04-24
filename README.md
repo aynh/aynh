@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mongrels though they may be, they're still figures of some slight renown"
+> "There's nothing special about being born. Not a thing. Most of the universe is just death, nothing more. In this universe of ours, the birth of a new life on some corner of our planet is nothing but a tiny, insignificant flash. Death is a normal thing. So why live?"
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
