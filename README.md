@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But if that’s what you want to do, you might as well try. It’s just pathetic to give up on something before you even give it a shot."
+> "What's important is not what's right, but what we believe is right."
 
-&mdash; [**Reiko Mikami**](https://myanimelist.net/character.php?q=Reiko%20Mikami&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
+&mdash; [**Escha Malier**](https://myanimelist.net/character.php?q=Escha%20Malier&cat=character), [**Atelier Escha & Logy: Alchemists of the Dusk Sky**](https://myanimelist.net/search/all?q=Atelier%20Escha%20%26%20Logy%3A%20Alchemists%20of%20the%20Dusk%20Sky&cat=all)
