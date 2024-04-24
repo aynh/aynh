@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "From now on, Lacus Clyne will be singing the song of peace."
+> "There’s only one certainty in life. A strong man stands above and conquers all!"
 
-&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
