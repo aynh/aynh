@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A bond may seem like a beautiful thing from the outside...but if those involved see it as a burden, it's nothing but a shackle."
+> "That's why Kagome sent me, so I can protect you from being protected by him."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
