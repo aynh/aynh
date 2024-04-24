@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s only one certainty in life. A strong man stands above and conquers all!"
+> "The two of us aren't so different. My whole life I've desired from others. I felt bitter to the people around me and I closed off my heart...and a heart that lets nothing in..will become empty before you realize it. But in this world, you'll sometimes meet meddlesome people who will, even without asking, give you the love you need. And for someone like you or me, meeting such a person is very blissful."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Mei Aihara**](https://myanimelist.net/character.php?q=Mei%20Aihara&cat=character), [**Citrus**](https://myanimelist.net/search/all?q=Citrus&cat=all)
