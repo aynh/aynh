@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Courage is the magic that turns dreams into reality."
+> "A bond may seem like a beautiful thing from the outside...but if those involved see it as a burden, it's nothing but a shackle."
 
-&mdash; [**Richter Abend**](https://myanimelist.net/character.php?q=Richter%20Abend&cat=character), [**Tales Of Symphonia**](https://myanimelist.net/search/all?q=Tales%20Of%20Symphonia&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
