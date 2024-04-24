@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Goodbyes are only one side of the coin. You can't say goodbye until you've said hello."
+> "I was wrong. I wasn't eating ghouls. I'm the one who was being eaten."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
