@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[about Vash] The way he looked at me... it was as though he had shot the kid..."
+> "[dying] Kuchiki, I dragged you into this...I'm sorry. You must've been scared. Thanks, Kuchiki. Thanks to you...I can leave my heart here."
 
-&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
