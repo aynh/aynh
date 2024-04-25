@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This blank space represents infinite potential. One day, it may become anything."
+> "People aren't as complex as you think they are. They're simple, and they get sad or angry over simple things. That's how they are. They're quickly affected by the littlest things, and live without knowing where they're going to fall down. That's who people are!"
 
-&mdash; [**No Game No Life**](https://myanimelist.net/character.php?q=No%20Game%20No%20Life&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Chiyuki**](https://myanimelist.net/character.php?q=Chiyuki&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
