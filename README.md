@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To live is to die, to die is to live. Pure is unpure, unpure is pure."
+> "You shouldn't judge people by how they look."
 
-&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
