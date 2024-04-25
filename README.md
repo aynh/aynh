@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Quit acting like a spoiled child. What's important, the memories? The keys? The feelings of guilt? No. It's the power to save your friends. That's the power of a celestial spirit wizard."
+> "If I got angry at every little thing, my body wouldn't be able to hold it all."
 
-&mdash; [**Aquarius**](https://myanimelist.net/character.php?q=Aquarius&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
