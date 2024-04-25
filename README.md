@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've fought a valiant duel, my friend, and this is the hardest move I've ever had to make. But this ends now!"
+> "Ash will never really be alone cause he's got... me."
 
-&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
