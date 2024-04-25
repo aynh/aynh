@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Loyalty is only given meaning through one's actions."
+> "You've fought a valiant duel, my friend, and this is the hardest move I've ever had to make. But this ends now!"
 
-&mdash; [**Futayo Honda**](https://myanimelist.net/character.php?q=Futayo%20Honda&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
+&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
