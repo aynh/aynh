@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I can be with you when the world ends, it'll be enough for me."
+> "Who cares about school?! The real me lives on the Internet!"
 
-&mdash; [**Blue**](https://myanimelist.net/character.php?q=Blue&cat=character), [**Wolf’s Rain**](https://myanimelist.net/search/all?q=Wolf%E2%80%99s%20Rain&cat=all)
+&mdash; [**Natsume Asako**](https://myanimelist.net/character.php?q=Natsume%20Asako&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
