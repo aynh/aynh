@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who cares about school?! The real me lives on the Internet!"
+> "This blank space represents infinite potential. One day, it may become anything."
 
-&mdash; [**Natsume Asako**](https://myanimelist.net/character.php?q=Natsume%20Asako&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**No Game No Life**](https://myanimelist.net/character.php?q=No%20Game%20No%20Life&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
