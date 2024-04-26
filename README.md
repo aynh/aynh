@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone dies eventually, whether they have power or not. That's why you need to think about what you'll accomplish while you're alive."
+> "I don't like practice. I just hate losing even more."
 
-&mdash; [**Mary Macbeth**](https://myanimelist.net/character.php?q=Mary%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Atsushi Murasakibara**](https://myanimelist.net/character.php?q=Atsushi%20Murasakibara&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
