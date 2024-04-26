@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'I'm different.', 'It has nothing to do with me.', 'It's all happening in a different world.' Turning away from reality like that is just a kind of inadvertent malice..."
+> "For some time researchers have understood that moderate stress has beneficial effects. It boosts the immune system for example. Stress motivates and prepares us for action. It compels our body to survive. However, routine psycho pass checks take away the stress from us. There are patients whose stress reaction is so numb, they can’t even recognize the basic stimulation of their senses. Once that happens, it’s a neurological downward spiral, they become like living corpses. Eventually their autonomic nervous system stops working and their vital functions shut down."
 
-&mdash; [**Tieria Erde**](https://myanimelist.net/character.php?q=Tieria%20Erde&cat=character), [**Mobile Suit Gundam 00 2nd.Season**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000%202nd.Season&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
