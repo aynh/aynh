@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A rose will be born a rose. Different soil and water wouldn't change it into a different flower."
+> "Knowing what's in store for me means I have nothing to look forward to. If I know something good's going to happen... then when it does, I'm only half as happy about it because I knew in advance. And then when I know something bad is going to happen... when it does, I get overwhelmed with this sense of defeat... and feel even worse."
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**Kara no Kyoukai**](https://myanimelist.net/search/all?q=Kara%20no%20Kyoukai&cat=all)
+&mdash; [**Sarushima Maria**](https://myanimelist.net/character.php?q=Sarushima%20Maria&cat=character), [**Yamada-kun to 7-nin no Majo**](https://myanimelist.net/search/all?q=Yamada-kun%20to%207-nin%20no%20Majo&cat=all)
