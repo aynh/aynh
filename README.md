@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't like practice. I just hate losing even more."
+> "Hurt me with the truth. But never comfort me with a lie."
 
-&mdash; [**Atsushi Murasakibara**](https://myanimelist.net/character.php?q=Atsushi%20Murasakibara&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
