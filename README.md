@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I may not have anywhere to go... but I can't just selfishly disappear either."
+> "Everyone dies eventually, whether they have power or not. That's why you need to think about what you'll accomplish while you're alive."
 
-&mdash; [**Natsume Takeshi**](https://myanimelist.net/character.php?q=Natsume%20Takeshi&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Mary Macbeth**](https://myanimelist.net/character.php?q=Mary%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
