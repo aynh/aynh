@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Illegal contractees kill people to be able to change the past."
+> "A rose will be born a rose. Different soil and water wouldn't change it into a different flower."
 
-&mdash; [**Gilbert Nightray**](https://myanimelist.net/character.php?q=Gilbert%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**Kara no Kyoukai**](https://myanimelist.net/search/all?q=Kara%20no%20Kyoukai&cat=all)
