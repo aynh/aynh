@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who am I? One name you might have for me is the world, or you might call me the universe, or perhaps God, or perhaps the Truth. I am All, and I am One. So, of course, this also means that I am you. I am the truth of your despair, the inescapable price of your boastfulness. And now, I will bestow upon you the despair you deserve."
+> "[to Athrun] What is it you believe in? What is it you're fighting for now? Is it for that medal you received? Or your father's orders?"
 
-&mdash; [**Truth**](https://myanimelist.net/character.php?q=Truth&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
