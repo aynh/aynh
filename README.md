@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The trees cry out as they die, but you cannot hear them. I lie here. I listen to the pain of the forest and feel the ache of the bullet in my chest and dream of the day when I will finally crunch that gun woman's head in my jaws... She is my daughter. One of the wolf tribe. When the forest dies, so does she. I caught her human parents defiling my forest. They threw their baby at my feet as they ran away. Instead of eating her, I raised her as my own. Now my poor, ugly, beautiful daughter is neither human nor wolf."
+> "I envy you people. What I sought, but could not obtain. What I obtained, but could not obtain. Many things slipped out between my fingers, no matter what commandment I used."
 
-&mdash; [**Moro**](https://myanimelist.net/character.php?q=Moro&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
