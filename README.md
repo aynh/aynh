@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Knowing what's in store for me means I have nothing to look forward to. If I know something good's going to happen... then when it does, I'm only half as happy about it because I knew in advance. And then when I know something bad is going to happen... when it does, I get overwhelmed with this sense of defeat... and feel even worse."
+> "This is our show. We're the ones who are writing the script."
 
-&mdash; [**Sarushima Maria**](https://myanimelist.net/character.php?q=Sarushima%20Maria&cat=character), [**Yamada-kun to 7-nin no Majo**](https://myanimelist.net/search/all?q=Yamada-kun%20to%207-nin%20no%20Majo&cat=all)
+&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
