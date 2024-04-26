@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I smelled something: The scent of a Lunar Flower. It was coming from this city."
+> "[after Hisagi thanks him] Aren't you clever? Is that supposed to be sarcastic?"
 
-&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
