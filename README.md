@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen up, I don't care what you punks do around the universe. But with this, my sword… anywhere it can reach, is part of my country! Asses who blunder in and violate my things… whether it be a Shogun, whether it be space pirates, whether it be a meteorite - I'll destroy them!!"
+> "Have you ever thought about why you're so good and your parents are so bad? If you'd so kindly let me give away the answer; it's because even if you're cheating on someone or you're being cheated on, everyone laughs at bad jokes and eats over-sweet boiled vegetables."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
