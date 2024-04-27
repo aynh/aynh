@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I realized why I was lost. It's not because I didn't have a map... It was because I didn't have a destination."
+> "[to Hisagi] Open my eyes? You? Open my eyes? You never change."
 
-&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
