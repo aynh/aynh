@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how painful it might be... I'll do everything in my might! So please, you too, act according to what you believe in!"
+> "I realized why I was lost. It's not because I didn't have a map... It was because I didn't have a destination."
 
-&mdash; [**Syaoran Li**](https://myanimelist.net/character.php?q=Syaoran%20Li&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
