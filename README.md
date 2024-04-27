@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Forget all that formal crap 'bout comin' at me one at a time. I'll take all you bitches on!"
+> "It doesn't matter where I look, it's always idiots as far as the eye can see."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
