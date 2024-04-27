@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, Okabe, whether time is slow or fast, depends on perception. Theory of relativity is so romantic."
+> "No matter how painful it might be... I'll do everything in my might! So please, you too, act according to what you believe in!"
 
-&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Syaoran Li**](https://myanimelist.net/character.php?q=Syaoran%20Li&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
