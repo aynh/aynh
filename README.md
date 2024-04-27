@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter where I look, it's always idiots as far as the eye can see."
+> "*talking about King Bumi* This isn't about finding a teacher. This is about finding my friend."
 
-&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
