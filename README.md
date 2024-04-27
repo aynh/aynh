@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The stronger the light, the darker the shadow."
+> "The popular will win, the hated will lose, it's such a tragedy. Then I won't lose to anyone. I will become the strongest monster ever and change this scenario."
 
-&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Garou**](https://myanimelist.net/character.php?q=Garou&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
