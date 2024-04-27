@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pitiful shadow cloaked in darkness. Thy action cause men pain and suffering. Thy hollow soul drowns in thy sins. How would you like to see what death is like?"
+> "The stronger the light, the darker the shadow."
 
-&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
+&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
