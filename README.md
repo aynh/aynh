@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop pouting! You learned something valuable. Remember the lesson, not the disappointment."
+> "I  can neither live with you. Nor without you."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Uta**](https://myanimelist.net/character.php?q=Uta&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
