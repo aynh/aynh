@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Actually... Ponytails turn me on... that ponytail you had back then, it looked so good it was criminal!"
+> "Stop pouting! You learned something valuable. Remember the lesson, not the disappointment."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
