@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It looks like you're wishing you had died instead of someone else, but... isn't it wrong to think that way? No one can take the place of another. Each person has his own destiny."
+> "People do not exist to follow rules. Rules exist to protect the people."
 
-&mdash; [**Momo**](https://myanimelist.net/character.php?q=Momo&cat=character), [**Shinigami no Ballad**](https://myanimelist.net/search/all?q=Shinigami%20no%20Ballad&cat=all)
+&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
