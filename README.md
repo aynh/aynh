@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I  can neither live with you. Nor without you."
+> "You know, Okabe, whether time is slow or fast, depends on perception. Theory of relativity is so romantic."
 
-&mdash; [**Uta**](https://myanimelist.net/character.php?q=Uta&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
