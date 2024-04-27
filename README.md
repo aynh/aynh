@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The popular will win, the hated will lose, it's such a tragedy. Then I won't lose to anyone. I will become the strongest monster ever and change this scenario."
+> "It's too late to regret. Reality is just cruelly moving forward."
 
-&mdash; [**Garou**](https://myanimelist.net/character.php?q=Garou&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Tobi**](https://myanimelist.net/character.php?q=Tobi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
