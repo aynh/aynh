@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People cannot change the past. All we can do, is accept our own actions. If you still wish to be burdened by your sins, let it show in your future actions. It is your choice how to perceive something that has already happened."
+> "Actually... Ponytails turn me on... that ponytail you had back then, it looked so good it was criminal!"
 
-&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
