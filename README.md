@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The real sin is averting your eyes and failing to believe in anyone."
+> "People cannot change the past. All we can do, is accept our own actions. If you still wish to be burdened by your sins, let it show in your future actions. It is your choice how to perceive something that has already happened."
 
-&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
