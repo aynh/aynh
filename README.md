@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Learn to embrace the fear of feeling about what it's like to contemplate what it is to know true pain. Because when I had nothing and no one - I always had Pain."
+> "You are calm and intelligent, but youth can invite disaster. Do not fight alone."
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Dr. Kuseno**](https://myanimelist.net/character.php?q=Dr.%20Kuseno&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
