@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's still a form of love. To those with the emotion of love, acts of rebelling, anger, cursing, fighting, and killing do not work in contradiction to that emotion. Rather, too strong a love could quicken them. What the other wishes is not all there is to love."
+> "Strength isn't just about winning. Even if my attempts are pathetic and comical, and even if I'm covered in the mud of my defeat, if I can keep fighting and look up at the sky as I lie on the ground, that alone is proof of true strength!"
 
-&mdash; [**Khamsin Nbh'w**](https://myanimelist.net/character.php?q=Khamsin%20Nbh'w&cat=character), [**Shakugan no Shana III**](https://myanimelist.net/search/all?q=Shakugan%20no%20Shana%20III&cat=all)
+&mdash; [**Haruyuki Arita**](https://myanimelist.net/character.php?q=Haruyuki%20Arita&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
