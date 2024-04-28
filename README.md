@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never knew until the first years came, that we all cared about different things."
+> "The village does have its dark side and its inconsistencies, but I'm still Konoha's Itachi Uchiha."
 
-&mdash; [**Chihaya Ayase**](https://myanimelist.net/character.php?q=Chihaya%20Ayase&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
