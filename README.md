@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The village does have its dark side and its inconsistencies, but I'm still Konoha's Itachi Uchiha."
+> "Good evening, Espada. There has been an enemy attack. But first...Let us brew some tea."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
