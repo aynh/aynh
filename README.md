@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My problem is probably that I don’t have any confidence about anything I do. Even if the thing I want most is right in front of me, I can’t help but imagine a future where I’m being rejected by it. I’m scared of getting hurt, so I run away from the people I love. What a good-for-nothing loser."
+> "For questions where your chance of being correct is 5050, it's best to go with your gut response."
 
-&mdash; [**Shōta Kisa**](https://myanimelist.net/character.php?q=Sh%C5%8Dta%20Kisa&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Maekawa**](https://myanimelist.net/character.php?q=Maekawa&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
