@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Enough. I've had enough. I'm dropping out."
+> "I am not so grand, not as a god. I am Horo, and Horo is all that I am."
 
-&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
