@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The Philosopher's Stone: those who possess it, no longer bound by the laws of equivalent exchange in alchemy, can gain without sacrifice...create without equal exchange. We searched for it... and we found it."
+> "Even when times are at their hardest, don't let it show on your face. If the captain is shaken, the team will waver."
 
-&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Tetsuya Yūki**](https://myanimelist.net/character.php?q=Tetsuya%20Y%C5%ABki&cat=character), [**Diamond No Ace**](https://myanimelist.net/search/all?q=Diamond%20No%20Ace&cat=all)
