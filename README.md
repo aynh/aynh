@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even when times are at their hardest, don't let it show on your face. If the captain is shaken, the team will waver."
+> "Does becoming adult mean you lose a lot of things?"
 
-&mdash; [**Tetsuya Yūki**](https://myanimelist.net/character.php?q=Tetsuya%20Y%C5%ABki&cat=character), [**Diamond No Ace**](https://myanimelist.net/search/all?q=Diamond%20No%20Ace&cat=all)
+&mdash; [**Chisaki Hiradaira**](https://myanimelist.net/character.php?q=Chisaki%20Hiradaira&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
