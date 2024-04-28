@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are calm and intelligent, but youth can invite disaster. Do not fight alone."
+> "I never knew until the first years came, that we all cared about different things."
 
-&mdash; [**Dr. Kuseno**](https://myanimelist.net/character.php?q=Dr.%20Kuseno&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Chihaya Ayase**](https://myanimelist.net/character.php?q=Chihaya%20Ayase&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
