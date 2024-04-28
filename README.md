@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am not so grand, not as a god. I am Horo, and Horo is all that I am."
+> "Pawns? Isn't that such an ugly term to use? We should call them the foundation for our futures. But it's a fact that they'll be sacrificed."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
