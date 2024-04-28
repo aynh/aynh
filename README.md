@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Enjoy your life today. Yesterday is gone, and the tomorrow might never come."
+> "I have no use for a religion that's been forsaken by its own god."
 
-&mdash; [**Takeshi Yamamoto**](https://myanimelist.net/character.php?q=Takeshi%20Yamamoto&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
