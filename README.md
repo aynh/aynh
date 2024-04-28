@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Hisagi] Open my eyes? You? Open my eyes? You never change."
+> "It's still a form of love. To those with the emotion of love, acts of rebelling, anger, cursing, fighting, and killing do not work in contradiction to that emotion. Rather, too strong a love could quicken them. What the other wishes is not all there is to love."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Khamsin Nbh'w**](https://myanimelist.net/character.php?q=Khamsin%20Nbh'w&cat=character), [**Shakugan no Shana III**](https://myanimelist.net/search/all?q=Shakugan%20no%20Shana%20III&cat=all)
