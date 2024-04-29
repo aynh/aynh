@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Atone for my sins? [...] I have no sins to atone for, nor have I forced such a meaningless concept on anyone."
+> "In the end the shape and form don't matter at all, it's only the soul that matters right? Nothing else."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
