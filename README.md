@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't let yourself be blinded by fear or anger.  Everything is only as it is."
+> "I never rely on luck. It's all my own choice. It leads me to the future."
 
-&mdash; [**Nui**](https://myanimelist.net/character.php?q=Nui&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Kagura Mikazuchi**](https://myanimelist.net/character.php?q=Kagura%20Mikazuchi&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
