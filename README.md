@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you make fiction just as valuable as reality, then any reality you don't need can be a delusion."
+> "Unwavering Faith and Resilient Bonds will bring even miracles to your side."
 
-&mdash; [**Erika Karisawa**](https://myanimelist.net/character.php?q=Erika%20Karisawa&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
