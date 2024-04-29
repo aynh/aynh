@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past and the future are not the same, but they're not completely separate either."
+> "Ancient creatures died and left naught but fossil fuels, like coal and petroleum. Without that sacrifice, our present energy civilization would not exist. That sort of sacrifice is what is always demanded."
 
-&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Souji Mikage**](https://myanimelist.net/character.php?q=Souji%20Mikage&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
