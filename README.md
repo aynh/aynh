@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A peaceful every day life hides its fragility. Fear and violence aren't just something in another world, completely unrelated to us. If a disaster happens, we can't change it. But as long as we small gears are linked together, we can keep moving forward, even if it's only one small step at a time."
+> "They say time and a people’s heart are inversely proportional. The more it passes, the more they grow apart. It seems there are some rare exceptions though."
 
-&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
