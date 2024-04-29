@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I fell for you out of my own free will. So if I ever fall out of love, that'll be my own decision too."
+> "We cannot be satisfied until we have eliminated all others. It has nothing to do with reason. It is instinct."
 
-&mdash; [**Chiho Sasaki**](https://myanimelist.net/character.php?q=Chiho%20Sasaki&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
+&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
