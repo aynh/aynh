@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end the shape and form don't matter at all, it's only the soul that matters right? Nothing else."
+> "Evil doesn't always seep out. It's possible to hide it if you’re careful and skilled."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Dog**](https://myanimelist.net/character.php?q=Dog&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
