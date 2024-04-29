@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say time and a people’s heart are inversely proportional. The more it passes, the more they grow apart. It seems there are some rare exceptions though."
+> "[to Sesshoumaru after he steals the Tetsuaiga] Blah, blah, blah. A guy gets his hands on a new sword, and already he's lookin' for a soap box to stand on and preach it to the world!"
 
-&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
