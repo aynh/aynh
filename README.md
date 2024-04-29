@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never rely on luck. It's all my own choice. It leads me to the future."
+> "Atone for my sins? [...] I have no sins to atone for, nor have I forced such a meaningless concept on anyone."
 
-&mdash; [**Kagura Mikazuchi**](https://myanimelist.net/character.php?q=Kagura%20Mikazuchi&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
