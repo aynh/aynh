@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ancient creatures died and left naught but fossil fuels, like coal and petroleum. Without that sacrifice, our present energy civilization would not exist. That sort of sacrifice is what is always demanded."
+> "What's the point of worrying about the past? A real star keeps moving forward."
 
-&mdash; [**Souji Mikage**](https://myanimelist.net/character.php?q=Souji%20Mikage&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
