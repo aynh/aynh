@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Make one peep and I will rape you."
+> "Don't bother coming to the darkness that you don't need to see... I don't want to show you the darkness that doesn't belong to you... Don't let yourself be hurt so much anymore... Rather, let me be your strength."
 
-&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Natsume Hyuuga**](https://myanimelist.net/character.php?q=Natsume%20Hyuuga&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
