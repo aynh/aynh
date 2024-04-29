@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you expect something in return, your good deed is no longer just a good deed."
+> "The past and the future are not the same, but they're not completely separate either."
 
-&mdash; [**Kayo Senju**](https://myanimelist.net/character.php?q=Kayo%20Senju&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
+&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
