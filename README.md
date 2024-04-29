@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Evil doesn't always seep out. It's possible to hide it if you’re careful and skilled."
+> "I fell for you out of my own free will. So if I ever fall out of love, that'll be my own decision too."
 
-&mdash; [**Dog**](https://myanimelist.net/character.php?q=Dog&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
+&mdash; [**Chiho Sasaki**](https://myanimelist.net/character.php?q=Chiho%20Sasaki&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
