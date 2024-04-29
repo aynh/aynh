@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no such thing as a limit on being the best. You can always go for more. That's what it means to be human. No... That's what it means to be me."
+> "Every story has an ending. One day, we won’t be able to stay together."
 
-&mdash; [**Claire Stanfield**](https://myanimelist.net/character.php?q=Claire%20Stanfield&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
