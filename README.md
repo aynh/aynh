@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's the point of worrying about the past? A real star keeps moving forward."
+> "If you make fiction just as valuable as reality, then any reality you don't need can be a delusion."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Erika Karisawa**](https://myanimelist.net/character.php?q=Erika%20Karisawa&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
