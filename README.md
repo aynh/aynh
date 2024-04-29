@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "By the way, I don't get my skills from a pocketwatch."
+> "A peaceful every day life hides its fragility. Fear and violence aren't just something in another world, completely unrelated to us. If a disaster happens, we can't change it. But as long as we small gears are linked together, we can keep moving forward, even if it's only one small step at a time."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
