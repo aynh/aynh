@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't bother coming to the darkness that you don't need to see... I don't want to show you the darkness that doesn't belong to you... Don't let yourself be hurt so much anymore... Rather, let me be your strength."
+> "By the way, I don't get my skills from a pocketwatch."
 
-&mdash; [**Natsume Hyuuga**](https://myanimelist.net/character.php?q=Natsume%20Hyuuga&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
