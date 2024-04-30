@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Does the world hate me or something? I've always rejected it in an exceedingly friendly manner."
+> "*talking about King Bumi* This isn't about finding a teacher. This is about finding my friend."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
