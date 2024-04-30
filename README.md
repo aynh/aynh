@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as no one got hurt, it's all good. Who cares who saved who?"
+> "Don’t be so stuck-up. Just enjoy this! Killing and being killed. They are just a way to pass time."
 
-&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
