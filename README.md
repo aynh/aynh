@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is the best way to fill a gap in the heart."
+> "You can never tell a good seed from a bad seed until it blossoms."
 
-&mdash; [**Elusia de Lute Ima**](https://myanimelist.net/character.php?q=Elusia%20de%20Lute%20Ima&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Labrador**](https://myanimelist.net/character.php?q=Labrador&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
