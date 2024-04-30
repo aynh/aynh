@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let me tell you about the difference between you and me. It's like the story of the monkey trying to capture the moon. However close he thinks he is to the moon, it's still just the reflection of the moon in the middle of the lake. No matter how he struggles to capture that 'moon', he inevitably sinks to the bottom of that lake to no avail. You will never reach me."
+> "Who'd eat a pervert's banana? *blushing*"
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
