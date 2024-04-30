@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no encounter without meaning. I've encountered many people on my journey, and those meetings meant something."
+> "You find a glimmer of hope, only to lose it. That is when your despair tastes the most divine."
 
-&mdash; [**Cardfight!! Vanguard G**](https://myanimelist.net/character.php?q=Cardfight!!%20Vanguard%20G&cat=character), [**Cardfight!! Vanguard G**](https://myanimelist.net/search/all?q=Cardfight!!%20Vanguard%20G&cat=all)
+&mdash; [**Takaya Kurisu**](https://myanimelist.net/character.php?q=Takaya%20Kurisu&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
