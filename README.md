@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I realized it one day. The lyrics I struggled to create are only made up so I would have something to sing. Nothing genuine can come out of these flat and boring and ambiguous lives we're living, out of faking your worries for the sake of it."
+> "Someday, maybe you’ll find someone like you to share your pain with. I can’t tell you when that will happen.... But the important thing is to not reject them."
 
-&mdash; [**Ritsuko Ayukawa**](https://myanimelist.net/character.php?q=Ritsuko%20Ayukawa&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Mei Tachibana**](https://myanimelist.net/character.php?q=Mei%20Tachibana&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
