@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don’t be so stuck-up. Just enjoy this! Killing and being killed. They are just a way to pass time."
+> "I don't want to regret anything. I want to make all the tragedies that happened into meaningful things by believing that my path is right."
 
-&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
