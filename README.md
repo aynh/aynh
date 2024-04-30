@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can never tell a good seed from a bad seed until it blossoms."
+> "Even crabs have to go on a journey sometime."
 
-&mdash; [**Labrador**](https://myanimelist.net/character.php?q=Labrador&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
