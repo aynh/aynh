@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someday, maybe you’ll find someone like you to share your pain with. I can’t tell you when that will happen.... But the important thing is to not reject them."
+> "Love is the best way to fill a gap in the heart."
 
-&mdash; [**Mei Tachibana**](https://myanimelist.net/character.php?q=Mei%20Tachibana&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
+&mdash; [**Elusia de Lute Ima**](https://myanimelist.net/character.php?q=Elusia%20de%20Lute%20Ima&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
