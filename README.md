@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life can bring lots of hardships, but it's always important to keep in mind that there are people around you who care for you, and are willing to help you through whatever you're dealing with."
+> "Let me tell you about the difference between you and me. It's like the story of the monkey trying to capture the moon. However close he thinks he is to the moon, it's still just the reflection of the moon in the middle of the lake. No matter how he struggles to capture that 'moon', he inevitably sinks to the bottom of that lake to no avail. You will never reach me."
 
-&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
