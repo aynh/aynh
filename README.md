@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Sesshoumaru after he steals the Tetsuaiga] Blah, blah, blah. A guy gets his hands on a new sword, and already he's lookin' for a soap box to stand on and preach it to the world!"
+> "Hey, I'll have you know that I almost really did kick the bucket during that training, so don't you dare sum it all up in one word, even if it is a nice one like 'potential'."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Sanosuke Sagara**](https://myanimelist.net/character.php?q=Sanosuke%20Sagara&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
