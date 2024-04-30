@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bitter crimson tears flow from lifeless eyes, and mingle with the endless sands... Bestowing ever greater power upon the demon god."
+> "If I have to win through underhanded means, I'd rather just stand right here until I die."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Hayabusa Shou**](https://myanimelist.net/character.php?q=Hayabusa%20Shou&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
