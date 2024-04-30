@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All things shine at their most brilliant when they're being broken."
+> "Bitter crimson tears flow from lifeless eyes, and mingle with the endless sands... Bestowing ever greater power upon the demon god."
 
-&mdash; [**Urisu**](https://myanimelist.net/character.php?q=Urisu&cat=character), [**Selector Spread Wixoss**](https://myanimelist.net/search/all?q=Selector%20Spread%20Wixoss&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
