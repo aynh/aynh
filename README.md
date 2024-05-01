@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Suna, maybe people all have a hot, molten core inside their hearts, but they just live their lives, never showing it to the world, as if nothing is really going on."
+> "Your happiness is in a much more vast world. Look for it. Find it. (to Hatsuharu)"
 
-&mdash; [**Takeo Gouda**](https://myanimelist.net/character.php?q=Takeo%20Gouda&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
