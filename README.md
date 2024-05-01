@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't need a reason to love someone."
+> "Our mom put us in one of those *points to dresses* when we were little. We still get called 'her darling little girls' at our family reunions."
 
-&mdash; [**Makoto Isshiki**](https://myanimelist.net/character.php?q=Makoto%20Isshiki&cat=character), [**Chuunibyo Demo Koi ga Shitai!**](https://myanimelist.net/search/all?q=Chuunibyo%20Demo%20Koi%20ga%20Shitai!&cat=all)
+&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
