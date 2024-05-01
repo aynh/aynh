@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[thinking at the grave of Tosen's friend] O' anonymous friend of Tousen... If you had been there...What would you have said to stop him?"
+> "Perhaps the distant part of the sky always seems clearest, so that we will always strive to reach it."
 
-&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
