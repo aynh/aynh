@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your soul is mine!"
+> "Mysterious things, when you were a child you used to think 'They exist for sure!', but all of a sudden it changes to, 'It would be nice if they existed.' I wonder when and why you stop believing."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Akari Mizunashi**](https://myanimelist.net/character.php?q=Akari%20Mizunashi&cat=character), [**Aria the Animation**](https://myanimelist.net/search/all?q=Aria%20the%20Animation&cat=all)
