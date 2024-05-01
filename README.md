@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world is the destiny of mankind controlled by some transcendental entity or law? Is it like the hand of god hovering from above? Perhaps men have no control even over their own will."
+> "You can't spell 'slaughter' without 'laughter.'"
 
-&mdash; [**Berserk**](https://myanimelist.net/character.php?q=Berserk&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Hollow Ichigo**](https://myanimelist.net/character.php?q=Hollow%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
