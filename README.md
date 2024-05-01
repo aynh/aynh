@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Inuyasha* Your stupidity knows no boundaries. Run and hide while you can."
+> "The world isn't something that is all planned out. It's something you make yourself."
 
-&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
