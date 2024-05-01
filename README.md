@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Perhaps the distant part of the sky always seems clearest, so that we will always strive to reach it."
+> "I killed many people to act on my ideal. I killed so many that I stopped caring about innocent people and I saved a thousand times as many as I killed."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
