@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are always things more important than someone's dream..."
+> "I am not going to take sides, I am neutral. I am talking about standpoints here, that is all. Miss Class Representative (Hanekawa Tsubasa) has her point of view and her parents have their own. There is no way for an outsider to know which of them is right. Actually, there is not a right one in the first place. It is just about who is easier to agree with."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
