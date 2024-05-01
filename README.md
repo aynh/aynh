@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't spell 'slaughter' without 'laughter.'"
+> "Scrambled it trouble down."
 
-&mdash; [**Hollow Ichigo**](https://myanimelist.net/character.php?q=Hollow%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
