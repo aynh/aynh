@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it's fear that you speak of, then I'll stand and face it. I'll never give up. The only time I lose is when I die!"
+> "In this world, there is no such thing as 'absolute'!"
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Hokuto Sumeragi**](https://myanimelist.net/character.php?q=Hokuto%20Sumeragi&cat=character), [**X**](https://myanimelist.net/search/all?q=X&cat=all)
