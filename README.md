@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your happiness is in a much more vast world. Look for it. Find it. (to Hatsuharu)"
+> "[thinking at the grave of Tosen's friend] O' anonymous friend of Tousen... If you had been there...What would you have said to stop him?"
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
