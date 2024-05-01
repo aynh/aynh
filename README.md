@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our mom put us in one of those *points to dresses* when we were little. We still get called 'her darling little girls' at our family reunions."
+> "If it's fear that you speak of, then I'll stand and face it. I'll never give up. The only time I lose is when I die!"
 
-&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
