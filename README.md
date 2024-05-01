@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, there is no such thing as 'absolute'!"
+> "There are always things more important than someone's dream..."
 
-&mdash; [**Hokuto Sumeragi**](https://myanimelist.net/character.php?q=Hokuto%20Sumeragi&cat=character), [**X**](https://myanimelist.net/search/all?q=X&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
