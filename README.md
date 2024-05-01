@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My smile is nothing more than a pose, I can give it to anyone, anytime, anywhere..."
+> "I'll enjoy shaving you to death."
 
-&mdash; [**Kojima Mizuiro**](https://myanimelist.net/character.php?q=Kojima%20Mizuiro&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kisame Hoshigaki**](https://myanimelist.net/character.php?q=Kisame%20Hoshigaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
