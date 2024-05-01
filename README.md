@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't care where I get hurt, as long as my injuries are visible."
+> "*to Inuyasha* Your stupidity knows no boundaries. Run and hide while you can."
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
