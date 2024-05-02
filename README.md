@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no one who can live their whole life being completely uncorrupted."
+> "'Goodbye' is the word that I've come to hate the most."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Goro Shigeno**](https://myanimelist.net/character.php?q=Goro%20Shigeno&cat=character), [**Major**](https://myanimelist.net/search/all?q=Major&cat=all)
