@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no sense in worrying about something you cannot control, so why bother?"
+> "There are times when you have to give up on one thing to preserve the other. Your mother couldn't. That isn't kindness. That's just being weak."
 
-&mdash; [**Yoh Asakura**](https://myanimelist.net/character.php?q=Yoh%20Asakura&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Rize Kamishiro**](https://myanimelist.net/character.php?q=Rize%20Kamishiro&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
