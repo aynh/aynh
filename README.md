@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am who I am now because of my past. Calling any choice I made a mistake would be calling who I am now a mistake."
+> "If it’s possible for one person to be hurt by another, then it’s possible for that person to be healed by another."
 
-&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
