@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is an emotional thing. I will say nothing in praise of it... It is antagonistic to clear reasoning. It's the same in tennis. Love is 0. No matter how many zeroes you add together, you'll just lose miserably."
+> "It's where all parallel lines meet. Where conflicting ideas are reconciled. It is... above the horizon."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Horizon Ariadust**](https://myanimelist.net/character.php?q=Horizon%20Ariadust&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
