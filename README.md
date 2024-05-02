@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you look back after a long life, you'll realize there's nothing that's really worth risking your life for."
+> "I won't run, I will stand and look ahead to what I must do, I must face the fear, I won't let it control me anymore, I will use my heart that holds my courage and my bravery to move me forward to what I must do."
 
-&mdash; [**Mackenzie Glen**](https://myanimelist.net/character.php?q=Mackenzie%20Glen&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
