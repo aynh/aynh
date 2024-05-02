@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is absurd to divide people into good and bad. People are either charming or tedious."
+> "So maybe I can't defend against attacks from multiple angles, but sometimes a good defense is just kicking ass!"
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
