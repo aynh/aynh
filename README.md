@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You’re wrong! None of that makes any sense! Grief and suffering isn’t something that can be taken away by dying in a fight! You have to resolve your problems by talking and explaining your points of view. Relying on others for it is wrong!"
+> "The choice we're making might be one of evil as well. For we call for peace, but with weapons in our hands. Nevertheless, allow us to break of endless conflict. Give us strength."
 
-&mdash; [**Mato Kuroi**](https://myanimelist.net/character.php?q=Mato%20Kuroi&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
+&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
