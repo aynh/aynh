@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Poets say love can't be bought with money. Preachers say that there are things more important than money. So even though we work hard just to earn money, how can we obtain something more important than that?"
+> "[thinking as Nel tells her to cheer for Ichigo] That's right. To begin with, I came here just thinking I wanted to protect everyone. But when I heard they had come to save me, I couldn't help but feel a little glad, just a bit in my heart. When I look at Kurosaki-kun in that mask, I think that he might not have come here to save me at all. Even though it's wrong, they shouldn't be going that far for me."
 
-&mdash; [**Mark**](https://myanimelist.net/character.php?q=Mark&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
