@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it’s possible for one person to be hurt by another, then it’s possible for that person to be healed by another."
+> "You’re wrong! None of that makes any sense! Grief and suffering isn’t something that can be taken away by dying in a fight! You have to resolve your problems by talking and explaining your points of view. Relying on others for it is wrong!"
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Mato Kuroi**](https://myanimelist.net/character.php?q=Mato%20Kuroi&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
