@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is important to survival isn't the ability to hide and protect yourself, it is to stand up and fight the Kabane."
+> "There's no one who can live their whole life being completely uncorrupted."
 
-&mdash; [**Biba Amatori**](https://myanimelist.net/character.php?q=Biba%20Amatori&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
