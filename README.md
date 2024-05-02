@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't beg for it, earn it. Do it, and you'll be rewarded."
+> "It is only through the eyes of others that our lives have any meaning."
 
-&mdash; [**Renton Thurston**](https://myanimelist.net/character.php?q=Renton%20Thurston&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
