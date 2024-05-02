@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Goodbye' is the word that I've come to hate the most."
+> "I am who I am now because of my past. Calling any choice I made a mistake would be calling who I am now a mistake."
 
-&mdash; [**Goro Shigeno**](https://myanimelist.net/character.php?q=Goro%20Shigeno&cat=character), [**Major**](https://myanimelist.net/search/all?q=Major&cat=all)
+&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
