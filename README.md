@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is only through the eyes of others that our lives have any meaning."
+> "People become stronger because they have things they cannot forget. That's what you call growth."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Tsunade**](https://myanimelist.net/character.php?q=Tsunade&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
