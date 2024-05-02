@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Accepting one's own strength, and the strength of others, is an important quality of a swordsman."
+> "When you look back after a long life, you'll realize there's nothing that's really worth risking your life for."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Mackenzie Glen**](https://myanimelist.net/character.php?q=Mackenzie%20Glen&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
