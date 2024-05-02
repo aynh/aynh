@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To enjoy my youth properly. She might've been talking about something like this. To live without thinking about consequences or what's around me with all my strength. That's what it was about..."
+> "There is no sense in worrying about something you cannot control, so why bother?"
 
-&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Yoh Asakura**](https://myanimelist.net/character.php?q=Yoh%20Asakura&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
