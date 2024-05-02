@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I won't run, I will stand and look ahead to what I must do, I must face the fear, I won't let it control me anymore, I will use my heart that holds my courage and my bravery to move me forward to what I must do."
+> "Poets say love can't be bought with money. Preachers say that there are things more important than money. So even though we work hard just to earn money, how can we obtain something more important than that?"
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Mark**](https://myanimelist.net/character.php?q=Mark&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
