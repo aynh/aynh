@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I envy you just for having someone who's worried about you."
+> "I would rather be a brainless monkey than a heartless monster."
 
-&mdash; [**Mayu**](https://myanimelist.net/character.php?q=Mayu&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Goku**](https://myanimelist.net/character.php?q=Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
