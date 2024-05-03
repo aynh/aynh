@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ugly? I'll have you know they call me The Rose of Martial Arts around here!"
+> "About Whitebeard 'Even in death, his body did not fall. His figure, taking down enemies while losing half of his head, was truly monstrous. The total number of sword wounds he received in this battle was 267. He was shot by 152 bullets. And was hit by 46 cannonballs. And despite all this, his proud back, over the course of his entire life as a pirate, never received a single scar from running away!'"
 
-&mdash; [**Kaoru Kamiya**](https://myanimelist.net/character.php?q=Kaoru%20Kamiya&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Whitebeard**](https://myanimelist.net/character.php?q=Whitebeard&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
