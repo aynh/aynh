@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Assassins Rule Number Two - Transpositional Thinking: Analyze the target in order to predict his thoughts and movements."
+> "(thinking) I can't stand up...on my own. I can't go...any further. Not...all by myself."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
