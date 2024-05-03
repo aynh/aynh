@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hearts are fragile. But hearts that support each other are as strong as steel."
+> "Tornado Flip!"
 
-&mdash; [**Jodie Hayward**](https://myanimelist.net/character.php?q=Jodie%20Hayward&cat=character), [**El Cazador de la Bruja**](https://myanimelist.net/search/all?q=El%20Cazador%20de%20la%20Bruja&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
