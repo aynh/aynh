@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Silence means approaching quietly!"
+> "Fear isn't a bad thing. There are some things that can only be done by cowards."
 
-&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Shun Izuki**](https://myanimelist.net/character.php?q=Shun%20Izuki&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
