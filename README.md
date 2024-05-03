@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As time goes by without anyone eating it, it starts getting dry and looking anything but appetizing, and no one's willing to make a move, but when the busboy takes it you go 'wait, we're not done with that yet.' kinda on reflex. But then you end up leaving without eating it."
+> "Sorry, I don't have time to be arrested."
 
-&mdash; [**Konata Izumi**](https://myanimelist.net/character.php?q=Konata%20Izumi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
