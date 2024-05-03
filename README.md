@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are three things I cannot tolerate: cowardice, bad haircuts, and military insurrection. It is very unfortunate that our friend Vegeta possesses all three of these."
+> "This is called the 'Rippling Sword'. 'Rippling Ophelia'... Great name, don't you think? But it's not too well known yet. Because most of the people who've seen it are dead."
 
-&mdash; [**Frieza**](https://myanimelist.net/character.php?q=Frieza&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
