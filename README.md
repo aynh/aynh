@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look what happens when you're not fast enough! You get CUT! It's more fun when it hurts a little bit though, isn't it?"
+> "Silence means approaching quietly!"
 
-&mdash; [**Grell Sutcliff**](https://myanimelist.net/character.php?q=Grell%20Sutcliff&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
