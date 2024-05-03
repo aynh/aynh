@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To rule time is to rule the world."
+> "Assassins Rule Number Two - Transpositional Thinking: Analyze the target in order to predict his thoughts and movements."
 
-&mdash; [**Suzuha Amane**](https://myanimelist.net/character.php?q=Suzuha%20Amane&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
