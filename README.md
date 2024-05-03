@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "With a keen eye for detail one truth always prevails."
+> "Hearts are fragile. But hearts that support each other are as strong as steel."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Jodie Hayward**](https://myanimelist.net/character.php?q=Jodie%20Hayward&cat=character), [**El Cazador de la Bruja**](https://myanimelist.net/search/all?q=El%20Cazador%20de%20la%20Bruja&cat=all)
