@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Aah... I said I'd 'answer you' ... Not that I'd 'give you a straight answer'."
+> "If I don't have to do it, I won't. If I have to do it, I'll make it quick."
 
-&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
