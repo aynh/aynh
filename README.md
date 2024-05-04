@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just because you die... doesn't mean that the people you killed will come back to life... instead using this sword to save just one more soul is repentance in true sense."
+> "When one person kills, resentment is born. That resentment makes a person kill again. To sever that vicious cycle--that is the purpose of this sword that cannot kill."
 
 &mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
