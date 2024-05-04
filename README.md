@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When one person kills, resentment is born. That resentment makes a person kill again. To sever that vicious cycle--that is the purpose of this sword that cannot kill."
+> "People who sin say that they had to... had to survive. People who sin say that it's too late to stop now. The shadow called Sin dogs them steadily from behind, silently, without a word. Remorse and Agony are repeated, only to end up at Despair. But what sinners don't know, or what they have forgotten, is that there is a light, a light which keeps shining on them ever so warmly. A light that will never fade."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
