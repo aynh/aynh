@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're gonna hit it, hit it until it breaks!"
+> "I think it's good if someone smiles when you smile at them. The beauty of voluntary acts can foster goodwill in the hearts of others. Love which doesn't ask for collateral gives us respect as people. However it's wrong to sustain that. In time, the strain will bloom into the flower called Lie...the thorny flower which hurts people."
 
-&mdash; [**Tooru Oikawa**](https://myanimelist.net/character.php?q=Tooru%20Oikawa&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
