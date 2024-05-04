@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Forgiveness is the only way to end the war."
+> "I won’t lose to my own decisions, no matter what. That’s the proof that I’m me."
 
-&mdash; [**Yūya Sakaki**](https://myanimelist.net/character.php?q=Y%C5%ABya%20Sakaki&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
+&mdash; [**Nanana Ryuugajou**](https://myanimelist.net/character.php?q=Nanana%20Ryuugajou&cat=character), [**Ryuugajou Nanana No Maizoukin**](https://myanimelist.net/search/all?q=Ryuugajou%20Nanana%20No%20Maizoukin&cat=all)
