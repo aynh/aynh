@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I didn't abduct her. It was voluntary arrest."
+> "Infinite wisdom requires infinite perspective. Only by experiencing each element, each moment separately and in their own time, does the beauty of the whole become apparent."
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Bubblegum Crisis: Tokyo 2040**](https://myanimelist.net/search/all?q=Bubblegum%20Crisis%3A%20Tokyo%202040&cat=all)
