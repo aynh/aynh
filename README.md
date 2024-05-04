@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The most precious thing is different for every human. They resist and kill each other because of their difference. It has nothing to do with the inability to sense the other's most important thing."
+> "Don't be frightened by the waves. If we read the flow of the waves and accept them, we can overcome it. There's no wave that can't be overcome!!"
 
-&mdash; [**Shijima Kurookano**](https://myanimelist.net/character.php?q=Shijima%20Kurookano&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Sinbad**](https://myanimelist.net/character.php?q=Sinbad&cat=character), [**Magi: Adventure of Sinbad**](https://myanimelist.net/search/all?q=Magi%3A%20Adventure%20of%20Sinbad&cat=all)
