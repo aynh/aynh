@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think that no one wants to see others' sins."
+> "They often say that stupid thoughts are no better than sleeping."
 
-&mdash; [**Yuusuke Kanda**](https://myanimelist.net/character.php?q=Yuusuke%20Kanda&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Ushiromiya Kyrie**](https://myanimelist.net/character.php?q=Ushiromiya%20Kyrie&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
