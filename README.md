@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unfortunately, I don't have a nice eyeball like you, that can see this and that. All I can do to pursue one thing in front of me. So whether it's the abyss of death or an empty void, I won't fight for the manju offered to my grave. I'll fight for tomorrow's breakfast. That's all."
+> "[dying] Kuchiki, I dragged you into this...I'm sorry. You must've been scared. Thanks, Kuchiki. Thanks to you...I can leave my heart here."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
