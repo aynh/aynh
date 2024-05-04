@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're always worried about crushing the ants beneath you... you won't be able to walk."
+> "If you're gonna hit it, hit it until it breaks!"
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Tooru Oikawa**](https://myanimelist.net/character.php?q=Tooru%20Oikawa&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
