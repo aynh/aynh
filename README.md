@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am the white void, I am the cold steel, I am the just sword, with blade in hand shall I reap the sins of this world, and cleanse them in the fires of destruction! I am Hakumen! The end has come."
+> "Unfortunately, I don't have a nice eyeball like you, that can see this and that. All I can do to pursue one thing in front of me. So whether it's the abyss of death or an empty void, I won't fight for the manju offered to my grave. I'll fight for tomorrow's breakfast. That's all."
 
-&mdash; [**Hakumen**](https://myanimelist.net/character.php?q=Hakumen&cat=character), [**BlazBlue: Alter Memory**](https://myanimelist.net/search/all?q=BlazBlue%3A%20Alter%20Memory&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
