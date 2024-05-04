@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think that in the end, I just care a lot about myself. I was the only one that I loved and respected. That's why I was scared to know what the others thought about me. I was afraid to get hurt, so I ran away and locked myself into my shell."
+> "I am the white void, I am the cold steel, I am the just sword, with blade in hand shall I reap the sins of this world, and cleanse them in the fires of destruction! I am Hakumen! The end has come."
 
-&mdash; [**Kirara**](https://myanimelist.net/character.php?q=Kirara&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Hakumen**](https://myanimelist.net/character.php?q=Hakumen&cat=character), [**BlazBlue: Alter Memory**](https://myanimelist.net/search/all?q=BlazBlue%3A%20Alter%20Memory&cat=all)
