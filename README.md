@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't like it, the dark circles under my eyes will come back and I don't know how to deal with the dark circles!"
+> "I think that no one wants to see others' sins."
 
-&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Yuusuke Kanda**](https://myanimelist.net/character.php?q=Yuusuke%20Kanda&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
