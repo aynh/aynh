@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't have anywhere to go back to. All we can do is keep moving forward."
+> "It doesen't matter how far away a leader is from it's group, a leader is always a leader."
 
-&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Takeshi**](https://myanimelist.net/character.php?q=Takeshi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
