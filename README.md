@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether a fish lives in a clear stream or a water ditch, so long as it continues swimming forward, it will grow up beautifully."
+> "Death on the battlefield comes regardless of class, royal or common. The loser must die!"
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
