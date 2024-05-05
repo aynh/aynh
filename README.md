@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Family? Let me tell you what kind of link I have with them. They are just lumps of meat linked by hatred and murderous intent!"
+> "Success comes only to those who have dared to stand up without fear!"
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
