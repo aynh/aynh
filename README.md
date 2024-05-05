@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think that sometimes things just won't go the way we want them to. And every day there's bound to be something that makes us mad when there's nothing we can do to change the state of affairs. But that's not entirely true, either. We have to give these kinds of things some real thought as well. If we're sitting back and waiting for the future to arrive - we don't have anything invested in tomorrow. I don't want a tomorrow like that."
+> "The world you can see isn't all out there. In the world there are a lot of fascinating things that no living soul has ever seen! And just in knowing that is one cause for happiness. I'm sure you can find happiness meant for you! It might be something you might not quite understand yet. But you'll find it, that much is certain!"
 
-&mdash; [**Kouji Aiba**](https://myanimelist.net/character.php?q=Kouji%20Aiba&cat=character), [**Infinite Ryvius**](https://myanimelist.net/search/all?q=Infinite%20Ryvius&cat=all)
+&mdash; [**Fujitaka Kinomoto**](https://myanimelist.net/character.php?q=Fujitaka%20Kinomoto&cat=character), [**Cardcaptor Sakura**](https://myanimelist.net/search/all?q=Cardcaptor%20Sakura&cat=all)
