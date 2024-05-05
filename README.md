@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The thread of human hope is spun with the flax of sorrow."
+> "Love provides the worth of everything in the world. Without love...gold, silver, horses, and women...all are worthless."
 
-&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Father Willibald**](https://myanimelist.net/character.php?q=Father%20Willibald&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
