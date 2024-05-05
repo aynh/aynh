@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A man that can't hold on to his beliefs can only be pathetic, dead or alive."
+> "There are things that you can only learn by facing the unknown, be it a different species, different values, or upbringing."
 
-&mdash; [**Hajime Saitou**](https://myanimelist.net/character.php?q=Hajime%20Saitou&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Yoshiyuki Nakajima**](https://myanimelist.net/character.php?q=Yoshiyuki%20Nakajima&cat=character), [**Silver Spoon**](https://myanimelist.net/search/all?q=Silver%20Spoon&cat=all)
