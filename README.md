@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*referring to Haruhi* It would appear that she views guys on the same level as potatoes."
+> "Eventually, someday, whatever! If it will break, and we'll be free then that's good enough for me! (To Tohru)"
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
