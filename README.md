@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are not the man you used to be. You are stronger and wiser and freer than you ever used to be. And now you have come at the crossroads of destiny. It's time for you to choose. It's time for you to choose good."
+> "It's strange isn't it. The two groups, which looked like they hated each other, are now shining the same color as they vanish into the distant sky."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
