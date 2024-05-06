@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I force myself to smile. It seems I'm the type of person who ends up being hated."
+> "Strength begins in understanding your own weakness."
 
-&mdash; [**Sai**](https://myanimelist.net/character.php?q=Sai&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
