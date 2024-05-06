@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's a cruel and random world. And yet the chaos is all so beautiful."
+> "When one person is cursed, two graves are dug."
 
-&mdash; [**Dante**](https://myanimelist.net/character.php?q=Dante&cat=character), [**Devil May Cry**](https://myanimelist.net/search/all?q=Devil%20May%20Cry&cat=all)
+&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
