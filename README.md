@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Awww maaan, and I really didn't feel like using it this early either. Better watch closely, and make sure you don't tell a soul! Bankai!!"
+> "It's a cruel and random world. And yet the chaos is all so beautiful."
 
-&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Dante**](https://myanimelist.net/character.php?q=Dante&cat=character), [**Devil May Cry**](https://myanimelist.net/search/all?q=Devil%20May%20Cry&cat=all)
