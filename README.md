@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Papa was only 18 years old when I was born. He used to read a lot of books to me back then."
+> "Awww maaan, and I really didn't feel like using it this early either. Better watch closely, and make sure you don't tell a soul! Bankai!!"
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
