@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Heaven is a six-tatami, one room, second floor apartment on Earth. Being a NEET is the best."
+> "*To Haruhi, when at her home*  You like strawberries, right? Here, you can have mine."
 
-&mdash; [**Urushihara Hanzou**](https://myanimelist.net/character.php?q=Urushihara%20Hanzou&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
+&mdash; [**Takashi Morinozuka**](https://myanimelist.net/character.php?q=Takashi%20Morinozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
