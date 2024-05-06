@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm the smartest member in the Straw Hat group."
+> "What keeps me alive in this world is neither bodily organs, nor muscles - it's my soul!"
 
-&mdash; [**Nami**](https://myanimelist.net/character.php?q=Nami&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
