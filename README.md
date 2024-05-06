@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Haruhi, when at her home*  You like strawberries, right? Here, you can have mine."
+> "If it's almost there, it means it's still not complete."
 
-&mdash; [**Takashi Morinozuka**](https://myanimelist.net/character.php?q=Takashi%20Morinozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
