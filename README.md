@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Manipulating the pieces according to your strategy... That is what defines a King."
+> "You should just steal the things you want."
 
-&mdash; [**Minerva Orland**](https://myanimelist.net/character.php?q=Minerva%20Orland&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Five**](https://myanimelist.net/character.php?q=Five&cat=character), [**Terror in Resonance**](https://myanimelist.net/search/all?q=Terror%20in%20Resonance&cat=all)
