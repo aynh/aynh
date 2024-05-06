@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Eventually, someday, whatever! If it will break, and we'll be free then that's good enough for me! (To Tohru)"
+> "Examined from another angle, your faults and weaknesses can be weapons."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Nagisa Shiota**](https://myanimelist.net/character.php?q=Nagisa%20Shiota&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
