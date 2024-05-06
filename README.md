@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You should just steal the things you want."
+> "I like people who put in effort, even if they're not good at it."
 
-&mdash; [**Five**](https://myanimelist.net/character.php?q=Five&cat=character), [**Terror in Resonance**](https://myanimelist.net/search/all?q=Terror%20in%20Resonance&cat=all)
+&mdash; [**Mitsukuni Haninozuka**](https://myanimelist.net/character.php?q=Mitsukuni%20Haninozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
