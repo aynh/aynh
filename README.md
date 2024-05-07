@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will slay all my enemies."
+> "Canaan is still alive. Her existence is shining so brightly. Too bright for the naked eyes to look at directly... I'm a bit scared, but I want to touch it. I want to touch her radiance."
 
-&mdash; [**Van Fanel**](https://myanimelist.net/character.php?q=Van%20Fanel&cat=character), [**The Vision of Escaflowne**](https://myanimelist.net/search/all?q=The%20Vision%20of%20Escaflowne&cat=all)
+&mdash; [**Maria Oosawa**](https://myanimelist.net/character.php?q=Maria%20Oosawa&cat=character), [**CANAAN**](https://myanimelist.net/search/all?q=CANAAN&cat=all)
