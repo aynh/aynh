@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Setbacks are inevitable to superstars. Adversity is what separates the good from the great. After all, stars can only shine during the night."
+> "There is no such thing as 'truth' or 'lies' in this world; there never has been. There are only plain, hard facts. And yet, all beings who exist in this world acknowledge only those 'facts' that are convenient to them, and take them to be the 'truth'. They do so because they know no other way of living. However, for those powerless beings who comprise the majority of this world's population, inconvenient facts that affirm their very existence, are their only truth."
 
-&mdash; [**Watari Ryouta**](https://myanimelist.net/character.php?q=Watari%20Ryouta&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
