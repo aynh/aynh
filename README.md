@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know that I have no strengths to offer. It irritates me how weak I am. But let me protect them!"
+> "[about Ulquiorra Cifer, after he takes out Ichigo] I'll teach him what happens when you steal someone else's prey."
 
-&mdash; [**Yona**](https://myanimelist.net/character.php?q=Yona&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
