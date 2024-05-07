@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Awww maaan, and I really didn't feel like using it this early either. Better watch closely, and make sure you don't tell a soul! Bankai!!"
+> "They all grow up, the youths that are going to live in this era. Go forward, youths. Like a wind on a field. Your burning blood, sweat, and tears... are as beautiful as a parasol. Show no fear, youths."
 
-&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
