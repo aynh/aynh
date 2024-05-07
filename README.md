@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, there are things you have to protect even if your hands get stained with blood."
+> "Everyone's the same, no exceptions.  All of them, equal before god."
 
-&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
