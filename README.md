@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The real fun is in constantly pushing beyond your limits. So if you're thinking of everything as a game, you won't be able to fully experience it."
+> "My happiness can only be made by my own hands. My happiness doesn't depend on anyone but me!"
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
