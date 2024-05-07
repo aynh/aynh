@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I'm bad at doubting others, I'd rather believe in them! If I get tricked, I'll think about what to do when it happens! Things are simpler that way!"
+> "A true warrior would never beg someone for his life."
 
-&mdash; [**Shirota Mahiru**](https://myanimelist.net/character.php?q=Shirota%20Mahiru&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
+&mdash; [**Kira Izuru**](https://myanimelist.net/character.php?q=Kira%20Izuru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
