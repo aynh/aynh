@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For those who love another... To disobey, to rage, to curse, to fight, to kill... None of these disproves that love. A love that's too strong may even make those more likely."
+> "So what if the government collapses or the country is ruined? I'm not civic-minded! All I want to do is stand tall and live on until the day I collapse and die!"
 
-&mdash; [**Khamsin Nbh'w**](https://myanimelist.net/character.php?q=Khamsin%20Nbh'w&cat=character), [**Shakugan no Shana III**](https://myanimelist.net/search/all?q=Shakugan%20no%20Shana%20III&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
