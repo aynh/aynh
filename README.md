@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[about Ulquiorra Cifer, after he takes out Ichigo] I'll teach him what happens when you steal someone else's prey."
+> "Truly and deeply, thank you for giving, my life to me."
 
-&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kanade Tachibana**](https://myanimelist.net/character.php?q=Kanade%20Tachibana&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
