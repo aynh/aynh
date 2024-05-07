@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one's gonna save me. People just accept help selfishly, for their own sake."
+> "They say the temperature of tea and a women's heart are difficult in any age."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Ronove**](https://myanimelist.net/character.php?q=Ronove&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
