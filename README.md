@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So what if the government collapses or the country is ruined? I'm not civic-minded! All I want to do is stand tall and live on until the day I collapse and die!"
+> "I will slay all my enemies."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Van Fanel**](https://myanimelist.net/character.php?q=Van%20Fanel&cat=character), [**The Vision of Escaflowne**](https://myanimelist.net/search/all?q=The%20Vision%20of%20Escaflowne&cat=all)
