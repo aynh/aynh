@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My happiness can only be made by my own hands. My happiness doesn't depend on anyone but me!"
+> "No one's gonna save me. People just accept help selfishly, for their own sake."
 
-&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
