@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A true warrior would never beg someone for his life."
+> "Setbacks are inevitable to superstars. Adversity is what separates the good from the great. After all, stars can only shine during the night."
 
-&mdash; [**Kira Izuru**](https://myanimelist.net/character.php?q=Kira%20Izuru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Watari Ryouta**](https://myanimelist.net/character.php?q=Watari%20Ryouta&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
