@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say the temperature of tea and a women's heart are difficult in any age."
+> "In this world, there are things you have to protect even if your hands get stained with blood."
 
-&mdash; [**Ronove**](https://myanimelist.net/character.php?q=Ronove&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
