@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Thinking] What a sucker. He doesn't know I can re-establish control over my puppet within a blink of an eye. It's what makes me an expert puppet master. And so what if Crow's body is out of commission? I don't need his body. Every part of him is a lethal weapon. [To Shino] Looks like you underestimated me, bug boy. For the last time! There's enough poison on that to drop an elephant, so you're dead."
+> "In the world of sports, quickness doesn't necessarily mean having the fastest time. It could also mean the acceleration from zero to maximum speed or the deceleration from maximum speed to zero. This is known as agility."
 
-&mdash; [**Kankuro**](https://myanimelist.net/character.php?q=Kankuro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Midorima Shintarou**](https://myanimelist.net/character.php?q=Midorima%20Shintarou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
