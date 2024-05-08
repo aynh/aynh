@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're the idiot. 3D girls are way too much trouble. The first is 'the most beautiful girl in school', which is a dating sim trope that doesn't exist in reality. The second is having two of the 'most beautiful girl in school' is contradictory. And the third is the wildly mistaken notion that a 2D-only otaku like me could possibly have a 3D girlfriend."
+> "A skilled dictator is much more beneficial to humanity than a democracy of ignorant people."
 
-&mdash; [**Tomoya Aki**](https://myanimelist.net/character.php?q=Tomoya%20Aki&cat=character), [**Saenai Heroine no Sodatekata**](https://myanimelist.net/search/all?q=Saenai%20Heroine%20no%20Sodatekata&cat=all)
+&mdash; [**Gene Smilas**](https://myanimelist.net/character.php?q=Gene%20Smilas&cat=character), [**Code Geass: Boukoku No Akito**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Boukoku%20No%20Akito&cat=all)
