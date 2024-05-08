@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's something wrong with people who seek reality in fiction."
+> "You don't know anything. What the hell is up with you? Trying to be the hero? Feel like some all-powerful main character? So annoying! Why? When? Where? What? How will you do and just who will you become? You're just pretending by spouting your ideals! You have nothing! You won't become someone."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Lawless**](https://myanimelist.net/character.php?q=Lawless&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
