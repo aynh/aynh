@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You listen carefully, Sena. That's the one person you definitely do not want to associate with! That one called Hiruma, he's like a demon! Once he gets his eye on you, he'll drain all the life out of you until there's nothing left but skin and bones!"
+> "When you are miserable, you need something that is even more miserable than you to feel good about yourself."
 
-&mdash; [**Anezaki Mamori**](https://myanimelist.net/character.php?q=Anezaki%20Mamori&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
+&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
