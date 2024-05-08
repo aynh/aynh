@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can certainly fulfill your wish to 'save someone'. But a wish for you to save yourself, does not exist. You will embrace a borrowed ideal that is not yours, and you will probably pursue it until you die."
+> "If you wanna climb a mountain, you obviously aim for the top, but you gotta enjoy the scenery too."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
