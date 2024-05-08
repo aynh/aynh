@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Panicking leads to an early grave."
+> "There's more to a real man than just his good looks!"
 
-&mdash; [**Esdeath**](https://myanimelist.net/character.php?q=Esdeath&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Uno**](https://myanimelist.net/character.php?q=Uno&cat=character), [**Nanbaka**](https://myanimelist.net/search/all?q=Nanbaka&cat=all)
