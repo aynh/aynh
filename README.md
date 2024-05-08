@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The impostor is an impostor because it can't be distinguished from the real thing. The proof of its falsity is in its resemblance to the real thing."
+> "You're young. Time is on your side. You'll grow up and I'll grow old. Someday you'll likely beat me. It's only natural. Even the strongest man must die."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Askeladd**](https://myanimelist.net/character.php?q=Askeladd&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
