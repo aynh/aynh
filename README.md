@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To unite dreams beneath a banner of conquest. I praise your efforts. But, warriors... did you not understand? That all dreams must disappear when the dreamer wakes. Every last one of them. Therefore, it was inevitable that I would stand in your way. King of Conquerors, know the end of your eternal dream. I, myself, shall show you harsh reality. Now awaken, Ea! A worthy stage has been set for you! Look up and behold... Enuma Elish!"
+> "You can certainly fulfill your wish to 'save someone'. But a wish for you to save yourself, does not exist. You will embrace a borrowed ideal that is not yours, and you will probably pursue it until you die."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
