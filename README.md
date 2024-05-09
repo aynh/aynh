@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't cry. It will make your face even uglier."
+> "Well, I give up. Can't win against fools."
 
-&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Jigo**](https://myanimelist.net/character.php?q=Jigo&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
