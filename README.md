@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how much you treasure them, both people and things will die someday. The bonds, the feelings, the memories, the hearts, and the lives. There's nothing in this world that won't die. There's nothing that won't break. Happiness is nothing more than a fabrication; a false mirage. That's why... That's why we should treasure them. So that we can face the farewell that'll one day visit us without regret. Because it'll break, it is precious. Let's make it precious."
+> "Listen, even if someone is suffering before you, the kind of person that can take up arms without hesitation to shoot down the villain is no better than a villain himself. The kind that doesn’t care about others, doesn’t give 2nd chances; someone that kills if given a reason, is definitely not a hero. You don’t have to become that kind of person. That’s my specialty. Only I have to go through that."
 
-&mdash; [**Mizuki Hayama**](https://myanimelist.net/character.php?q=Mizuki%20Hayama&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
