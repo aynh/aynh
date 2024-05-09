@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Peace cannot be kept by force. It can only be achieved by understanding."
+> "If that treetop is school, and the ground is this place here... we all found our strength down on the ground. While looking up... and getting looked down on... we learned plenty about how scary heights were before we started climbing. That's why we can go our own way now. Still... Somewhere along the way we forgot our fear of heights, so we do still fall to the ground every now and then. So learn here. You can go on to school once you have a game plan. That's my secret lesson, from me to you."
 
-&mdash; [**Setsuna F. Seiei**](https://myanimelist.net/character.php?q=Setsuna%20F.%20Seiei&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Nagisa Shiota**](https://myanimelist.net/character.php?q=Nagisa%20Shiota&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
