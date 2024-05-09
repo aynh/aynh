@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When 'colors' mix, they become muddy and messy. But when they all blend together, the final result is the color that wins against all others... Black."
+> "Cute, cute Nanao-chaaaan. Lovely, lovely Nanao -- AHHHHHHH!!!!"
 
-&mdash; [**Ittetsu Takeda**](https://myanimelist.net/character.php?q=Ittetsu%20Takeda&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
