@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey, Shippo. Your village called.They're asking for their idiot!"
+> "Attention, gun-toting extremists! Can you hear me all right, or did you blow your ears out playing target practice?"
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
