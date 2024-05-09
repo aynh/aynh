@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[about Vash] The way he looked at me... it was as though he had shot the kid..."
+> "Hey, Shippo. Your village called.They're asking for their idiot!"
 
-&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
