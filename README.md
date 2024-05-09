@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[holds up juice box] How do you drink from this?"
+> "I want to break up while I can still say I love you."
 
-&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Chihiro Shindou**](https://myanimelist.net/character.php?q=Chihiro%20Shindou&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
