@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just because it's illogical, that doesn't make it wrong."
+> "Smiles are what connect people! It allows them to communicate through their souls! Souls that are connected... Will never lose to power that only relies on control!"
 
-&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Yuzu Hiiragi**](https://myanimelist.net/character.php?q=Yuzu%20Hiiragi&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
