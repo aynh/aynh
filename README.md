@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Attention, gun-toting extremists! Can you hear me all right, or did you blow your ears out playing target practice?"
+> "No matter how much you treasure them, both people and things will die someday. The bonds, the feelings, the memories, the hearts, and the lives. There's nothing in this world that won't die. There's nothing that won't break. Happiness is nothing more than a fabrication; a false mirage. That's why... That's why we should treasure them. So that we can face the farewell that'll one day visit us without regret. Because it'll break, it is precious. Let's make it precious."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Mizuki Hayama**](https://myanimelist.net/character.php?q=Mizuki%20Hayama&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
