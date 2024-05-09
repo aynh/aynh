@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to break up while I can still say I love you."
+> "Don't cry. It will make your face even uglier."
 
-&mdash; [**Chihiro Shindou**](https://myanimelist.net/character.php?q=Chihiro%20Shindou&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
