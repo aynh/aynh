@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fool… I belong among the heavens? Yet you would have me trod upon the ground?! Your impudence has guaranteed your death! Mongrel! When I am through with you, nothing will remain of your corpse!"
+> "Look, all it means is that when I lose it, it's cause things make no sense.  If there was any logic to it, then I wouldn't get pissed even if I got shot or stabbed."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Shizuo Heiwajima**](https://myanimelist.net/character.php?q=Shizuo%20Heiwajima&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
