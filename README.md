@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tell me, are all you Saiyans so full of yourselves? Is this how you hide your incompetence? We androids will always be superior to your kind."
+> "The biggest mistake in my life is that i was born!"
 
-&mdash; [**Android 17**](https://myanimelist.net/character.php?q=Android%2017&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Itoshiki Nozomu**](https://myanimelist.net/character.php?q=Itoshiki%20Nozomu&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
