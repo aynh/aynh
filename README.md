@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look, all it means is that when I lose it, it's cause things make no sense.  If there was any logic to it, then I wouldn't get pissed even if I got shot or stabbed."
+> "I don't want someone that can easily be replaced by others. What I need is... what I really want is... someone that will be with me no matter what. A best friend."
 
-&mdash; [**Shizuo Heiwajima**](https://myanimelist.net/character.php?q=Shizuo%20Heiwajima&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Ginbei Haruomi Sawatari**](https://myanimelist.net/character.php?q=Ginbei%20Haruomi%20Sawatari&cat=character), [**Onii-chan Dakedo Ai Sae Areba Kankeinai yo ne!**](https://myanimelist.net/search/all?q=Onii-chan%20Dakedo%20Ai%20Sae%20Areba%20Kankeinai%20yo%20ne!&cat=all)
