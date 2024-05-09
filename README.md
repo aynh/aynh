@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time is not money. You can't buy time, now can you?"
+> "Just because it's illogical, that doesn't make it wrong."
 
-&mdash; [**Kirisaki Hana**](https://myanimelist.net/character.php?q=Kirisaki%20Hana&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
