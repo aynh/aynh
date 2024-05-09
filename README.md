@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I took the life of the woman I was supposed to call mother in the process of being born... in order to become the world's strongest shinobi... I became the incarnation of sand..."
+> "When 'colors' mix, they become muddy and messy. But when they all blend together, the final result is the color that wins against all others... Black."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ittetsu Takeda**](https://myanimelist.net/character.php?q=Ittetsu%20Takeda&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
