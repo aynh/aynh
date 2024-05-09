@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If that treetop is school, and the ground is this place here... we all found our strength down on the ground. While looking up... and getting looked down on... we learned plenty about how scary heights were before we started climbing. That's why we can go our own way now. Still... Somewhere along the way we forgot our fear of heights, so we do still fall to the ground every now and then. So learn here. You can go on to school once you have a game plan. That's my secret lesson, from me to you."
+> "Fool… I belong among the heavens? Yet you would have me trod upon the ground?! Your impudence has guaranteed your death! Mongrel! When I am through with you, nothing will remain of your corpse!"
 
-&mdash; [**Nagisa Shiota**](https://myanimelist.net/character.php?q=Nagisa%20Shiota&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
