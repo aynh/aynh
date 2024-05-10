@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how hard you try, you cannot exceed your true capabilities."
+> "Denying possibility is denying thought."
 
-&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
+&mdash; [**Alcor**](https://myanimelist.net/character.php?q=Alcor&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
