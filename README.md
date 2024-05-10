@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you point a sword at someone, either you kill them or they kill you, there ain't no in between. So quit talkin' like a fuckin' pussy. Anyone who can't handle that should just SHUT THE FUCK UP and GET OVER IT!"
+> "Who the hell are they? Pedophile yakuza?"
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Shimura Shinpachi**](https://myanimelist.net/character.php?q=Shimura%20Shinpachi&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
