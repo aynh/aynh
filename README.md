@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you think you're the main character of some kind of sob story? You don't want to see people get hurt, so you cover your eyes and ears. Using your grief to hide the suffering is the easiest path to take. But I won't forgive you if you do. You're a Brave aren't you? Do you intend to live as someone who's always protected by others!? Fight! What will you solve by running away? The ability to keep going forward is strength as well! Physical strength is not all there is to it!"
+> "I'm no one. I don't want to be anyone. All I care about is completing the moon's eye plan. This world is completely worthless. There is nothing left in it but misery."
 
-&mdash; [**Anastasia**](https://myanimelist.net/character.php?q=Anastasia&cat=character), [**Brave 10**](https://myanimelist.net/search/all?q=Brave%2010&cat=all)
+&mdash; [**Obito Uchiha**](https://myanimelist.net/character.php?q=Obito%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
