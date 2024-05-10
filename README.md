@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People's lives don't belong to anyone. Anyone, except themselves. But people have a path. The path of how to use that life."
+> "We are but men, drawn to act in the name of revenge that we deem to be justice. But... if there is justice in revenge then that same justice will breed only more revenge... and trigger a cycle of hatred."
 
-&mdash; [**Ei Sei**](https://myanimelist.net/character.php?q=Ei%20Sei&cat=character), [**Kingdom**](https://myanimelist.net/search/all?q=Kingdom&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
