@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The heart moves where the heart wills."
+> "When you point a sword at someone, either you kill them or they kill you, there ain't no in between. So quit talkin' like a fuckin' pussy. Anyone who can't handle that should just SHUT THE FUCK UP and GET OVER IT!"
 
-&mdash; [**Twenty-Fifth Baam**](https://myanimelist.net/character.php?q=Twenty-Fifth%20Baam&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
