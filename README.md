@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being prepared to die doesn't mean shit. The real hard part, is being prepared to live."
+> "The heart moves where the heart wills."
 
-&mdash; [**Midou Ban**](https://myanimelist.net/character.php?q=Midou%20Ban&cat=character), [**Getbackers**](https://myanimelist.net/search/all?q=Getbackers&cat=all)
+&mdash; [**Twenty-Fifth Baam**](https://myanimelist.net/character.php?q=Twenty-Fifth%20Baam&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
