@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Cute, cute Nanao-chaaaan. Lovely, lovely Nanao -- AHHHHHHH!!!!"
+> "Oh man, my heart is pounding. I'm eating snacks in the middle of class! I ate it! I totally ate it! Boldly eating snacks in the middle of class! I'm being so reckless!"
 
-&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ooyama**](https://myanimelist.net/character.php?q=Ooyama&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
