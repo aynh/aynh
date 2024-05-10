@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh man, my heart is pounding. I'm eating snacks in the middle of class! I ate it! I totally ate it! Boldly eating snacks in the middle of class! I'm being so reckless!"
+> "It is a tasteless life if you don't have something you regret."
 
-&mdash; [**Ooyama**](https://myanimelist.net/character.php?q=Ooyama&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Inu X Boku SS**](https://myanimelist.net/character.php?q=Inu%20X%20Boku%20SS&cat=character), [**Inu X Boku SS**](https://myanimelist.net/search/all?q=Inu%20X%20Boku%20SS&cat=all)
