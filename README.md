@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If someone were to drown in the seas for my sake, then I would be released from stone and return to life... to live once more. But if I were to return to life one day, which would give me the most important thing - I would then cry alone. I would cry longing for my stone. Of what use would my blood even be if it were to ripen like wine for it would not be able to bring back the one who loved me most from the water's depth."
+> "The reason we hurt others is because we don't understand their pain."
 
-&mdash; [**Cossette d'Auvergne**](https://myanimelist.net/character.php?q=Cossette%20d'Auvergne&cat=character), [**Le Portrait de Petit Cossette**](https://myanimelist.net/search/all?q=Le%20Portrait%20de%20Petit%20Cossette&cat=all)
+&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
