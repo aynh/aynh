@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If at some point in life, you made a mistake or keep failing over and over again, and you can't help but think it's useless and you're a good for nothing; Remember, you're only taking a detour. And I'm sure further along your path will come a day where you think, 'It was a good life experience'. That's why it'll be fine."
+> "What a terrible story. But appropriate for our world. Sometimes I feel like I'm walking over a giant pile of shit. Morality and justice don't really suit me. Words like that and what comes out of asses are surprisingly similar."
 
-&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
