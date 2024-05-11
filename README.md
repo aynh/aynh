@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Friends are like balloons. Once you let them go, you can't get them back. So I'm going to tie you to my heart, so to never lose you."
+> "Maybe I'm not perfect. Maybe I have a long way to go. But someday... someday I'll be able to stand and walk on my own. Without hurting anyone... and without being a burden. (to Kazuma)"
 
-&mdash; [**Alibaba Saluja**](https://myanimelist.net/character.php?q=Alibaba%20Saluja&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
