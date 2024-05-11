@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The bells are very loud today."
+> "The scariest thing about killing people is getting used to it! When you kill someone and realize you won't be punished... That's when people forget all about punishment!"
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Satomi Rentarou**](https://myanimelist.net/character.php?q=Satomi%20Rentarou&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
