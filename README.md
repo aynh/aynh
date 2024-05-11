@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[referring to a group of thugs] I disposed of some dangerous beasts. Mere animals that just happened to resemble humans."
+> "Even if I was someone, people couldn't comprehend me. And even if they could, they wouldn't be able to communicate it to those around them. I do not belong to the world. That is the world's limit, the boundary between the world and the self."
 
-&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Ergo Proxy**](https://myanimelist.net/character.php?q=Ergo%20Proxy&cat=character), [**Ergo Proxy**](https://myanimelist.net/search/all?q=Ergo%20Proxy&cat=all)
