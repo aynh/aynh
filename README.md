@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Rather than leaving someone to die, I'd much rather die together with them."
+> "Sometimes life is like jazz, and goes in an unexpected direction..."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Kaoru Nishimi**](https://myanimelist.net/character.php?q=Kaoru%20Nishimi&cat=character), [**Kids on the Slope**](https://myanimelist.net/search/all?q=Kids%20on%20the%20Slope&cat=all)
