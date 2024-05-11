@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say the temperature of tea and a women's heart are difficult in any age."
+> "Enduring and forgiving are two different things. You must not forget the unjustness of society. As a human being, you must hold the event in contempt. Yet, you must endure. You must put an end to the chain of hatred!"
 
-&mdash; [**Ronove**](https://myanimelist.net/character.php?q=Ronove&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Scar's Master**](https://myanimelist.net/character.php?q=Scar's%20Master&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
