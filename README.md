@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Chad and Orihime] Your transformation is not a disease. You were just given the key to the door in front of you. There's no need to know the cause. No need for sorrow or sadness. What comes next is up to you. You can use your keys to open the door...or lock it tight. And if you do choose to open it... You can still decide not to pass through."
+> "If at some point in life, you made a mistake or keep failing over and over again, and you can't help but think it's useless and you're a good for nothing; Remember, you're only taking a detour. And I'm sure further along your path will come a day where you think, 'It was a good life experience'. That's why it'll be fine."
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
