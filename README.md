@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What a terrible story. But appropriate for our world. Sometimes I feel like I'm walking over a giant pile of shit. Morality and justice don't really suit me. Words like that and what comes out of asses are surprisingly similar."
+> "A comedienne is no match for an ex girlfriend."
 
-&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
+&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
