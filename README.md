@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe I'm not perfect. Maybe I have a long way to go. But someday... someday I'll be able to stand and walk on my own. Without hurting anyone... and without being a burden. (to Kazuma)"
+> "How does one figure out if they're in love with a member of the opposite sex?"
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
