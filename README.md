@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think manga and life are the same thing. A weekly manga lasts for a week, and life lasts until you die. It's making the best of whatever time you're given. So, you can't hold back. 'Conceit' and 'Luck' are important, but the most important one is 'Hard Work'."
+> "I want to hear who you are, not what you have."
 
-&mdash; [**Akito Takagi**](https://myanimelist.net/character.php?q=Akito%20Takagi&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Nino**](https://myanimelist.net/character.php?q=Nino&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
