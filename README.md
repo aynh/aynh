@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I was someone, people couldn't comprehend me. And even if they could, they wouldn't be able to communicate it to those around them. I do not belong to the world. That is the world's limit, the boundary between the world and the self."
+> "You only understand the true value of things after you've lost them."
 
-&mdash; [**Ergo Proxy**](https://myanimelist.net/character.php?q=Ergo%20Proxy&cat=character), [**Ergo Proxy**](https://myanimelist.net/search/all?q=Ergo%20Proxy&cat=all)
+&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
