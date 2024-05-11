@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How does one figure out if they're in love with a member of the opposite sex?"
+> "[referring to a group of thugs] I disposed of some dangerous beasts. Mere animals that just happened to resemble humans."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
