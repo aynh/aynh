@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to hear who you are, not what you have."
+> "Death is like being born, but backwards. It only hurts for a little while, then a new life begins. A life with no sorrow, no pain, a glorious new beginning. A beginning that will last an eternity."
 
-&mdash; [**Nino**](https://myanimelist.net/character.php?q=Nino&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
