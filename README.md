@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I said she's not an Angel. She's a human, just like us. Didn't you notice?"
+> "My face feels heavy, and I can't walk in these shoes."
 
-&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
