@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't understand anything, do you?! The most important thing isn't power, it isn't courage, it isn't even having friends! The only thing that matters is that you can rely on ME."
+> "Let me tell you how important it is to keep your mouth shut. Me, I've seen so many damn people going on and on about 'these will be the last words you ever hear' and 'take these words with you to the afterlife', and then that gives whoever they're fighting an opening to strike back. Crazy, isn't it? I see it all the time, in books, in plays, even in real life! I don't even know why, but somehow the more comfortable someone is with killing, the more they flap their mouth when it comes time to do the deed, yakking on and on and on. As you might have guessed, I myself happen to be such a person! And therefore, as such, in light of that revelation, I'll say that one is enough, and since that one is of course myself, I want you all to shut up. You're boring. Swallow those words and take them to the afterlife yourself, if you want them delivered there so damn much."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ladd Russo**](https://myanimelist.net/character.php?q=Ladd%20Russo&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
