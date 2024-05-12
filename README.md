@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A lone warrior surviving hundreds of battles, when it comes to losing, I'm the strongest."
+> "You always seem to get in my way, Mu La Flaga. Though I imagine you'd say the same about me."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Comedy wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Comedy%20wa%20Machigatteiru&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
