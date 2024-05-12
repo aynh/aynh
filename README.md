@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let us commence, Zaraki! Your favorite game of carnage!!"
+> "Yes, I have no reason to take part in the Absurd and Unreasonable real world."
 
-&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
