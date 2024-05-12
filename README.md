@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who seem kindest, are often the most insidiously cruel."
+> "You don't understand anything, do you?! The most important thing isn't power, it isn't courage, it isn't even having friends! The only thing that matters is that you can rely on ME."
 
-&mdash; [**Karyuudo Tsukishima**](https://myanimelist.net/character.php?q=Karyuudo%20Tsukishima&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
