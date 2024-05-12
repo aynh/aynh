@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can kill anything that exists - even if it's a god."
+> "It’s the most powerful words in the world. No just argument or eloquence can stand a chance against it. It’s… ”So what?”"
 
-&mdash; [**Ryougi Shiki**](https://myanimelist.net/character.php?q=Ryougi%20Shiki&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
