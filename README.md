@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times when people who are different cannot understand each other. Even if you think you understand the other person, you really don't. And what awaits in the end, usually, is despair."
+> "A lone warrior surviving hundreds of battles, when it comes to losing, I'm the strongest."
 
-&mdash; [**Corticarte Apa Lagranges**](https://myanimelist.net/character.php?q=Corticarte%20Apa%20Lagranges&cat=character), [**Shinkyoku Soukai Polyphonica**](https://myanimelist.net/search/all?q=Shinkyoku%20Soukai%20Polyphonica&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Comedy wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Comedy%20wa%20Machigatteiru&cat=all)
