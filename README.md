@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yes, I have no reason to take part in the Absurd and Unreasonable real world."
+> "Maybe there’s only a dark road up ahead. But you still have to believe and keep going. Believe that the stars will light your path, even a little bit."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
