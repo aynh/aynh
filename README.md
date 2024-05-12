@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Right now, I'm letting you live. And I'll continue to keep you alive... until you've grown enough to become worth killing."
+> "Souls of the dead are like a bunch of leftover feelings from those who've died."
 
-&mdash; [**Hisoka**](https://myanimelist.net/character.php?q=Hisoka&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Yakumo Saitō**](https://myanimelist.net/character.php?q=Yakumo%20Sait%C5%8D&cat=character), [**Psychic Detective Yakumo**](https://myanimelist.net/search/all?q=Psychic%20Detective%20Yakumo&cat=all)
