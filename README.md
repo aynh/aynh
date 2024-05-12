@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You always seem to get in my way, Mu La Flaga. Though I imagine you'd say the same about me."
+> "Right now, I'm letting you live. And I'll continue to keep you alive... until you've grown enough to become worth killing."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Hisoka**](https://myanimelist.net/character.php?q=Hisoka&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
