@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Souls of the dead are like a bunch of leftover feelings from those who've died."
+> "We're always trying to justify our actions with ideals. But ideals cannot give grounds for killing another person. The act of taking a life will always be considered... evil."
 
-&mdash; [**Yakumo Saitō**](https://myanimelist.net/character.php?q=Yakumo%20Sait%C5%8D&cat=character), [**Psychic Detective Yakumo**](https://myanimelist.net/search/all?q=Psychic%20Detective%20Yakumo&cat=all)
+&mdash; [**Yoshimura**](https://myanimelist.net/character.php?q=Yoshimura&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
