@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You meet someone and then part ways. It’s a natural part of the human experience. No one can promise they’ll be together forever."
+> "There are times when people who are different cannot understand each other. Even if you think you understand the other person, you really don't. And what awaits in the end, usually, is despair."
 
-&mdash; [**Nana**](https://myanimelist.net/character.php?q=Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Corticarte Apa Lagranges**](https://myanimelist.net/character.php?q=Corticarte%20Apa%20Lagranges&cat=character), [**Shinkyoku Soukai Polyphonica**](https://myanimelist.net/search/all?q=Shinkyoku%20Soukai%20Polyphonica&cat=all)
