@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is more afraid of change than destruction."
+> "People who are confident in themselves never talk about expectations. 'Expectation' is a word rooted in giving up. It leaves you with no other choice. It makes it obvious that you're powerless."
 
-&mdash; [**Akari Koumoto**](https://myanimelist.net/character.php?q=Akari%20Koumoto&cat=character), [**Jitsu wa Watashi wa**](https://myanimelist.net/search/all?q=Jitsu%20wa%20Watashi%20wa&cat=all)
+&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
