@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's a thin line between recklessness and courage."
+> "If you've decided that you can't do it even before you act, you have already made it into something impossible."
 
-&mdash; [**Lisa Eostre**](https://myanimelist.net/character.php?q=Lisa%20Eostre&cat=character), [**Walkure Romanze**](https://myanimelist.net/search/all?q=Walkure%20Romanze&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
