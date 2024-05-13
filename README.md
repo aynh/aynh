@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do what you can until you learn what you need. If you're going to try something, you may as well aim for the top."
+> "People aren't so simple that they can accept anything and everything."
 
-&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Guy Cecil**](https://myanimelist.net/character.php?q=Guy%20Cecil&cat=character), [**Tales of the Abyss**](https://myanimelist.net/search/all?q=Tales%20of%20the%20Abyss&cat=all)
