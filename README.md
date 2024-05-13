@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Does a death wish cause you to talk to me that way?"
+> "What took a very long time to build up takes mere moments to destroy. But you can always start over. Next time around, you'll do a better job."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kenji Makabe**](https://myanimelist.net/character.php?q=Kenji%20Makabe&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
