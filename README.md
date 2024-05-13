@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It was an egg-cident! Get it? 'Egg?"
+> "There's a thin line between recklessness and courage."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Lisa Eostre**](https://myanimelist.net/character.php?q=Lisa%20Eostre&cat=character), [**Walkure Romanze**](https://myanimelist.net/search/all?q=Walkure%20Romanze&cat=all)
