@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you've decided that you can't do it even before you act, you have already made it into something impossible."
+> "Love is more afraid of change than destruction."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Akari Koumoto**](https://myanimelist.net/character.php?q=Akari%20Koumoto&cat=character), [**Jitsu wa Watashi wa**](https://myanimelist.net/search/all?q=Jitsu%20wa%20Watashi%20wa&cat=all)
