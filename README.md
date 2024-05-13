@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You'll never know what's right or wrong until everything is over."
+> "It's not justice if you don't go overboard."
 
-&mdash; [**Soldier Blue**](https://myanimelist.net/character.php?q=Soldier%20Blue&cat=character), [**Terra E**](https://myanimelist.net/search/all?q=Terra%20E&cat=all)
+&mdash; [**Myouri Unzen**](https://myanimelist.net/character.php?q=Myouri%20Unzen&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
