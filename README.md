@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A world where power is everything. A world where the weak are trampled on and crushed. That’s why I… prayed to get stronger. To be strong like him."
+> "Fight with all your might. With those young kids, give your mind and heart a solid workout. Let your heart, which had dried up and gotten stiff, beat once more."
 
-&mdash; [**Hidetora Toujo**](https://myanimelist.net/character.php?q=Hidetora%20Toujo&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
+&mdash; [**Yoake Ryou**](https://myanimelist.net/character.php?q=Yoake%20Ryou&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
