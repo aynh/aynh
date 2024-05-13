@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My face feels heavy, and I can't walk in these shoes."
+> "You'll never know what's right or wrong until everything is over."
 
-&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Soldier Blue**](https://myanimelist.net/character.php?q=Soldier%20Blue&cat=character), [**Terra E**](https://myanimelist.net/search/all?q=Terra%20E&cat=all)
