@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "AHA-HA-HA! Alchemists are scientists. We don't believe in unprovable concepts like 'God'. *Rose looks angry* We strive to uncover the principles of creation in the matter of the world, to pursue truth... *gazes at Leto statue* it's ironic that we scientists... who don't believe in God... are in a sense the closest things to him."
+> "None of you will ever escape the curse, as I could not. Residents of the boxes like you could never gain anything. You will all simply disappear without leaving anything behind in this world. You won't even leave a fleck of dust behind - you will never be happy!"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Sanetoshi Watase**](https://myanimelist.net/character.php?q=Sanetoshi%20Watase&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
