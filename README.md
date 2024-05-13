@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't be stupid. You're just a human. So back off, shut up, and butt out. *to Kagome*"
+> "Do what you can until you learn what you need. If you're going to try something, you may as well aim for the top."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
