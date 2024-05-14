@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And what of it? If you're good on the inside, then looks don't matter!"
+> "How does one figure out if they're in love with a member of the opposite sex?"
 
-&mdash; [**Kei Enomoto**](https://myanimelist.net/character.php?q=Kei%20Enomoto&cat=character), [**Hatsukoi Limited**](https://myanimelist.net/search/all?q=Hatsukoi%20Limited&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
