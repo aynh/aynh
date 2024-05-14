@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One of the things Blank loves best is saying 'No' to people who think they've got an absolute advantage."
+> "A scar indicates that something is missing. You lost something important, and there's a hole in your heart. Having that empty hole can lead to anger, hate, despair, or... it can make you reach for the sky."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Fuuko Kurasaki**](https://myanimelist.net/character.php?q=Fuuko%20Kurasaki&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
