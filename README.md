@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The important thing is to think of something nobody else is thinking of. 'Ignorance is a sin' is not about knowledge - it's about wisdom."
+> "Team isn't just something to be protected. A team also protects you. We don't support each because we are a team. We are a team because we support each other."
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
