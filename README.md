@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you think reality is just living comfortably and following your own whims, can you seriously dare to call yourself a soldier?"
+> "The important thing is to think of something nobody else is thinking of. 'Ignorance is a sin' is not about knowledge - it's about wisdom."
 
-&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
