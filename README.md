@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why do you have to pay money to eat?! Can't we all just share?! Where is freedom in the world?! All are slaves to labor!! The rich grow fat... While the poor die!!"
+> "How does it feel to not exist?"
 
-&mdash; [**Hammerhead**](https://myanimelist.net/character.php?q=Hammerhead&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Mei Misaki**](https://myanimelist.net/character.php?q=Mei%20Misaki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
