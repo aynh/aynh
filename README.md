@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We aren't flying away from everyone to leave them, but rather so we might see them again someday."
+> "Loneliness is peaceful, but there'll be no one to share happiness with."
 
-&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
