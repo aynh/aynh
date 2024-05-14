@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How does it feel to not exist?"
+> "Every time you hurt others, you're the one who end up being hurt."
 
-&mdash; [**Mei Misaki**](https://myanimelist.net/character.php?q=Mei%20Misaki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
+&mdash; [**Takashi Morinozuka**](https://myanimelist.net/character.php?q=Takashi%20Morinozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
