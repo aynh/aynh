@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "War is not heroic. War is not exhilarating. War is full of despair. It's dark. It's dreadful. It's a thing of sorrow and gloom."
+> "A detective who corners a culprit with their reasoning and drives them to suicide in front of himself - is no different than a murderer."
 
-&mdash; [**Kira Izuru**](https://myanimelist.net/character.php?q=Kira%20Izuru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
