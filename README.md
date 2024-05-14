@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...And the unbreaking bonds will... The bonds will... Ah, what was it? Ah, well. There was a bunch of stuff about the unbreakable bonds that you'll have to deal with while your guts overflow! Show the results of your everyday training and guts! Show off that splendor and guts to those weaklings without it! To make this tournament the best memory ever! By overcoming all sorts obstacles through trial and hardship and getting up everytime we fall down! OVERCOME EVERYTHING WITH GUTS!!"
+> "Even when the answer’s obvious, making one wait for it is the worst thing you can do."
 
-&mdash; [**Sogiita Gunha**](https://myanimelist.net/character.php?q=Sogiita%20Gunha&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
