@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, there are very few people who actually trust each other."
+> "One of the things Blank loves best is saying 'No' to people who think they've got an absolute advantage."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
