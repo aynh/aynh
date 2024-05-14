@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A scar indicates that something is missing. You lost something important, and there's a hole in your heart. Having that empty hole can lead to anger, hate, despair, or... it can make you reach for the sky."
+> "It doesn't hurt! It's not hot! I'm not scared! I will not be beaten!"
 
-&mdash; [**Fuuko Kurasaki**](https://myanimelist.net/character.php?q=Fuuko%20Kurasaki&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
