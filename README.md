@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You wouldn't get an answer no matter how much you think about it. Love is not Japanese nor Math. It doesn't need thoughts of reasons. You will be aware of it when that person is next to you."
+> "I bet dead people are easier to get along with."
 
-&mdash; [**Yuyuka Nekota**](https://myanimelist.net/character.php?q=Yuyuka%20Nekota&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
