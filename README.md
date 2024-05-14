@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm rather proud of my ability to tell lies. I can trick not only others, but even my own heart."
+> "I don't have have much time. It's not that I'm busy, but I'm only willing to give you about two and a half more minutes of my life!"
 
-&mdash; [**Ludenberg Celestia**](https://myanimelist.net/character.php?q=Ludenberg%20Celestia&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Shizuo Heiwajima**](https://myanimelist.net/character.php?q=Shizuo%20Heiwajima&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
