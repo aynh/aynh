@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If one really wants to change the world...they have to do it by their own hands!"
+> "And what of it? If you're good on the inside, then looks don't matter!"
 
-&mdash; [**Lucy Ashley**](https://myanimelist.net/character.php?q=Lucy%20Ashley&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kei Enomoto**](https://myanimelist.net/character.php?q=Kei%20Enomoto&cat=character), [**Hatsukoi Limited**](https://myanimelist.net/search/all?q=Hatsukoi%20Limited&cat=all)
