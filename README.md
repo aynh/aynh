@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How does one figure out if they're in love with a member of the opposite sex?"
+> "You wouldn't get an answer no matter how much you think about it. Love is not Japanese nor Math. It doesn't need thoughts of reasons. You will be aware of it when that person is next to you."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Yuyuka Nekota**](https://myanimelist.net/character.php?q=Yuyuka%20Nekota&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
