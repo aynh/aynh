@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Orihime] I've repaid my debt to you. Now, you're gonna accompany me on a little errand."
+> "Courage is a word of justice. It means the quality of mind that enables one to face apprehension with confidence and resolution. It is not right to use it as an excuse to kill someone."
 
-&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
