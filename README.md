@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's when things are tough that you have to keep your head up high. You won't find hope lying on the ground."
+> "If you ask anyone to name a universal rule that governs animals and humans alike, I bet you most people would answer 'survival of the fittest'. There are strong people and there are weak people. At a glance, it looks like the difference is pretty clear-cut. But the truth is, there's a lot more to it than just a simple battle of 'strong' against 'weak', of kill or be killed. You must understand what I'm talking about too, right? The true meaning of 'survival of the fittest' isn't as simple as all that."
 
-&mdash; [**Inspector Sayama**](https://myanimelist.net/character.php?q=Inspector%20Sayama&cat=character), [**Zetman**](https://myanimelist.net/search/all?q=Zetman&cat=all)
+&mdash; [**Riruka Dokugamine**](https://myanimelist.net/character.php?q=Riruka%20Dokugamine&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
