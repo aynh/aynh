@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't give up! There's no shame in falling down! True shame is to not stand up again!"
+> "[To Orihime] I've repaid my debt to you. Now, you're gonna accompany me on a little errand."
 
-&mdash; [**Midorima Shintarou**](https://myanimelist.net/character.php?q=Midorima%20Shintarou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
