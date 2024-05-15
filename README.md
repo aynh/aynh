@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's painful when you get disappointed by the person you look up to."
+> "The death of a culture, is the death of a people."
 
-&mdash; [**Misaki Ayuzawa**](https://myanimelist.net/character.php?q=Misaki%20Ayuzawa&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Miles**](https://myanimelist.net/character.php?q=Miles&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
