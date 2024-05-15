@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's not possible. With your ability, you couldn't even make one of my knees touch the ground."
+> "I'll admit, Black Star makes some dumb calls from time to time, but the important thing is I'm here to back him up no matter how big a fool he is. If we're fools, we're fools together, that's the kind of team we are."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
