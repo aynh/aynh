@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you ask anyone to name a universal rule that governs animals and humans alike, I bet you most people would answer 'survival of the fittest'. There are strong people and there are weak people. At a glance, it looks like the difference is pretty clear-cut. But the truth is, there's a lot more to it than just a simple battle of 'strong' against 'weak', of kill or be killed. You must understand what I'm talking about too, right? The true meaning of 'survival of the fittest' isn't as simple as all that."
+> "That's not possible. With your ability, you couldn't even make one of my knees touch the ground."
 
-&mdash; [**Riruka Dokugamine**](https://myanimelist.net/character.php?q=Riruka%20Dokugamine&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
