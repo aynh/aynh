@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What do you think about your world? Is it fun? Is it easy to live in?"
+> "Is it okay for me to have my own life now, father, now that I'm not 'special' anymore?"
 
-&mdash; [**Tet**](https://myanimelist.net/character.php?q=Tet&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
