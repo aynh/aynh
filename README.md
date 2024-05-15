@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't just run away, especially from the things you want to forget!"
+> "What do you think about your world? Is it fun? Is it easy to live in?"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Tet**](https://myanimelist.net/character.php?q=Tet&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
