@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The society you all live in has long since turned into the Liar Game. Still, what all of you demonstrated through this game is that 'Believing' is by no means, an easy path to follow. Sometimes, taking it means allowing yourself be deceived or suffering heavy damage you will not ever recover from. And yet, 'Trust' born when you forget your personal interests and join forces to fight against the odds together holds tremendous power."
+> "It's painful when you get disappointed by the person you look up to."
 
-&mdash; [**Artier**](https://myanimelist.net/character.php?q=Artier&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Misaki Ayuzawa**](https://myanimelist.net/character.php?q=Misaki%20Ayuzawa&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
