@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Courage is a word of justice. It means the quality of mind that enables one to face apprehension with confidence and resolution. It is not right to use it as an excuse to kill someone."
+> "It's when things are tough that you have to keep your head up high. You won't find hope lying on the ground."
 
-&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Inspector Sayama**](https://myanimelist.net/character.php?q=Inspector%20Sayama&cat=character), [**Zetman**](https://myanimelist.net/search/all?q=Zetman&cat=all)
