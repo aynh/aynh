@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen here. Don't say you can't. Words bind you the minute you say them. Believe in yourself! You can do anything!"
+> "Who wants to have their life planned out for them."
 
-&mdash; [**Tenka Kumō**](https://myanimelist.net/character.php?q=Tenka%20Kum%C5%8D&cat=character), [**Donten ni Warau**](https://myanimelist.net/search/all?q=Donten%20ni%20Warau&cat=all)
+&mdash; [**Killua Zoldyck**](https://myanimelist.net/character.php?q=Killua%20Zoldyck&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
