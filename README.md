@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We once fought together for an ideal with our swords. It wasn't for power or for glory, but to create a peaceful world where people could live without fear. And if you should forget about that, then what did we fight the revolution for?"
+> "It's natural for a person to deny he's a failure as a human being. That's why he searches for somebody who is more miserable than himself. That's why so much animosity exists on the internet. Those who aren't able to find a more miserable person, turn to the internet and call other people losers, even though they've never met. Just to make themselves feel superior. Isn't that pathetic? There's a sense of security that comes from speaking badly of someone else. But that isn't true salvation."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Satou Tatsuhiro**](https://myanimelist.net/character.php?q=Satou%20Tatsuhiro&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
