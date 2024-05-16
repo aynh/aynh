@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One day a man had a dream. He dreamed that he was a butterfly. He fluttered and fluttered, flew and flew. He so loved the feeling of freedom that he decided that he was a butterfly. But when he woke up, he wasn't a butterfly. He was a human after all. Then the man thought, 'I wonder if I, The Man, dreamed that I was a butterfly or if this moment is truly the dream. Maybe the man I am now is a dream that a butterfly is having."
+> "It may seem like we're all playing the same game, but in our minds, it is totally different."
 
-&mdash; [**Doumeki Haruka**](https://myanimelist.net/character.php?q=Doumeki%20Haruka&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Sonora Kashima**](https://myanimelist.net/character.php?q=Sonora%20Kashima&cat=character), [**Stella Jogakuin Koutou-ka C³-bu**](https://myanimelist.net/search/all?q=Stella%20Jogakuin%20Koutou-ka%20C%C2%B3-bu&cat=all)
