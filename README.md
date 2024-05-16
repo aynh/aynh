@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The sounds you find pretty, and the sounds the other members find pretty... Are they really the same?"
+> "Having happy and beautiful memories won't always bring you salvation. The more beautiful a memory is, the more painful it can become. It can even become terrifying. Both for the one who's leaving... And for the one left behind."
 
-&mdash; [**Len Tsukimori**](https://myanimelist.net/character.php?q=Len%20Tsukimori&cat=character), [**Kiniro no Corda: Blue♪Sky**](https://myanimelist.net/search/all?q=Kiniro%20no%20Corda%3A%20Blue%E2%99%AASky&cat=all)
+&mdash; [**Isla**](https://myanimelist.net/character.php?q=Isla&cat=character), [**Plastic Memories**](https://myanimelist.net/search/all?q=Plastic%20Memories&cat=all)
