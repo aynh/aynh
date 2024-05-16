@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In addition to knowing the secrets of the universe, I can assure you, I am quite potty trained."
+> "There is a word 'world'. Until about the time I was in middle school, I vaguely thought the word meant the area where the signals from my cell would reach."
 
-&mdash; [**Koenma**](https://myanimelist.net/character.php?q=Koenma&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Voices of a Distant Star**](https://myanimelist.net/character.php?q=Voices%20of%20a%20Distant%20Star&cat=character), [**Voices of a Distant Star**](https://myanimelist.net/search/all?q=Voices%20of%20a%20Distant%20Star&cat=all)
