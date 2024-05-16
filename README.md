@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is a word 'world'. Until about the time I was in middle school, I vaguely thought the word meant the area where the signals from my cell would reach."
+> "You can’t cause a change without some courage and determination."
 
-&mdash; [**Voices of a Distant Star**](https://myanimelist.net/character.php?q=Voices%20of%20a%20Distant%20Star&cat=character), [**Voices of a Distant Star**](https://myanimelist.net/search/all?q=Voices%20of%20a%20Distant%20Star&cat=all)
+&mdash; [**Usui Haruaki**](https://myanimelist.net/character.php?q=Usui%20Haruaki&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
