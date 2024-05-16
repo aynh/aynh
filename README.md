@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It may seem like we're all playing the same game, but in our minds, it is totally different."
+> "Even though everything is going to disappear, it isn't supposed to be meaningless. It's exactly because you know you're going to part ways, that now and only now is your only chance."
 
-&mdash; [**Sonora Kashima**](https://myanimelist.net/character.php?q=Sonora%20Kashima&cat=character), [**Stella Jogakuin Koutou-ka C³-bu**](https://myanimelist.net/search/all?q=Stella%20Jogakuin%20Koutou-ka%20C%C2%B3-bu&cat=all)
+&mdash; [**Onoya An**](https://myanimelist.net/character.php?q=Onoya%20An&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
