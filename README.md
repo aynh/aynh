@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't hesitate to tell the people you care about the feelings you have for them, because they may not be there tomorrow."
+> "If many negative emotions gather, they will end up influencing the entire world. But on the other hand, it is also possible to gather positive emotions and lead the world in that direction."
 
-&mdash; [**Akagi**](https://myanimelist.net/character.php?q=Akagi&cat=character), [**Kantai Collection: KanColle**](https://myanimelist.net/search/all?q=Kantai%20Collection%3A%20KanColle&cat=all)
+&mdash; [**Scar's Brother**](https://myanimelist.net/character.php?q=Scar's%20Brother&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
