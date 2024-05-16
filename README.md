@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If many negative emotions gather, they will end up influencing the entire world. But on the other hand, it is also possible to gather positive emotions and lead the world in that direction."
+> "Doubt them. Question them, suspect them... and take a good, long look into their hearts. Humans are the kind of beings that can't put their pain into words, after all."
 
-&mdash; [**Scar's Brother**](https://myanimelist.net/character.php?q=Scar's%20Brother&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
