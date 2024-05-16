@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Gin-chan told me to pay people back double for revenge!"
+> "Yeah, I know. It's not good to be reading Jump at my age."
 
-&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
