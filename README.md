@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death is to good for trash like you. This is your punishment which is even harder than death. Atone for your sin by living... A life of fulfillment."
+> "One day a man had a dream. He dreamed that he was a butterfly. He fluttered and fluttered, flew and flew. He so loved the feeling of freedom that he decided that he was a butterfly. But when he woke up, he wasn't a butterfly. He was a human after all. Then the man thought, 'I wonder if I, The Man, dreamed that I was a butterfly or if this moment is truly the dream. Maybe the man I am now is a dream that a butterfly is having."
 
-&mdash; [**Ogami Rei**](https://myanimelist.net/character.php?q=Ogami%20Rei&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
+&mdash; [**Doumeki Haruka**](https://myanimelist.net/character.php?q=Doumeki%20Haruka&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
