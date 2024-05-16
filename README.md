@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Doubt them. Question them, suspect them... and take a good, long look into their hearts. Humans are the kind of beings that can't put their pain into words, after all."
+> "The sounds you find pretty, and the sounds the other members find pretty... Are they really the same?"
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Len Tsukimori**](https://myanimelist.net/character.php?q=Len%20Tsukimori&cat=character), [**Kiniro no Corda: Blue♪Sky**](https://myanimelist.net/search/all?q=Kiniro%20no%20Corda%3A%20Blue%E2%99%AASky&cat=all)
