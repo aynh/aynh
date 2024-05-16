@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how hurt someone is, they're meant to overcome it and try to go forward."
+> "I hate waiting, but if waiting means being able to be with you I'll wait for as long as forever."
 
-&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
