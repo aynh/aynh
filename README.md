@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "By looking at what's blocking our way, with an open mind, a wall can be turned into a wide-open door."
+> "Don't hesitate to tell the people you care about the feelings you have for them, because they may not be there tomorrow."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Akagi**](https://myanimelist.net/character.php?q=Akagi&cat=character), [**Kantai Collection: KanColle**](https://myanimelist.net/search/all?q=Kantai%20Collection%3A%20KanColle&cat=all)
