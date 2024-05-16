@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah, I know. It's not good to be reading Jump at my age."
+> "Listen here. Don't say you can't. Words bind you the minute you say them. Believe in yourself! You can do anything!"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Tenka Kumō**](https://myanimelist.net/character.php?q=Tenka%20Kum%C5%8D&cat=character), [**Donten ni Warau**](https://myanimelist.net/search/all?q=Donten%20ni%20Warau&cat=all)
