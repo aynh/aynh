@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A man's weight consists nothing but what he burdens himself with."
+> "There are times when there's a great pleasure waiting at the end of laments, pains, and near-death experiences."
 
-&mdash; [**Mondo Oowada**](https://myanimelist.net/character.php?q=Mondo%20Oowada&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Hinagiku Katsura**](https://myanimelist.net/character.php?q=Hinagiku%20Katsura&cat=character), [**Hayate the Combat Butler**](https://myanimelist.net/search/all?q=Hayate%20the%20Combat%20Butler&cat=all)
