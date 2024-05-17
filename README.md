@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times when there's a great pleasure waiting at the end of laments, pains, and near-death experiences."
+> "There is no way to train your heart to be invulnerable."
 
-&mdash; [**Hinagiku Katsura**](https://myanimelist.net/character.php?q=Hinagiku%20Katsura&cat=character), [**Hayate the Combat Butler**](https://myanimelist.net/search/all?q=Hayate%20the%20Combat%20Butler&cat=all)
+&mdash; [**Lubbock**](https://myanimelist.net/character.php?q=Lubbock&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
