@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My mind is being eaten away... Kaji-san, it's unravelling my mind! What do I do? It's defiling my mind!"
+> "Children don't grow up looking at perfect parents. Rather, using their imperfect parents as anti-teachers, children nourish a spirit of independence."
 
-&mdash; [**Souryuu Asuka Langley**](https://myanimelist.net/character.php?q=Souryuu%20Asuka%20Langley&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
