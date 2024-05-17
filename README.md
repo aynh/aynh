@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no way to train your heart to be invulnerable."
+> "It should be natural for you to drink until dawn with someone you get along with, even if he may be your enemy."
 
-&mdash; [**Lubbock**](https://myanimelist.net/character.php?q=Lubbock&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Lancer**](https://myanimelist.net/character.php?q=Lancer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
