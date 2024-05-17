@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you value your peaceful everyday life, protect it for yourself."
+> "Pride is not something you can surrender."
 
-&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
