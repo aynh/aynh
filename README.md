@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When a man faces fear, his soul is tested. What he was born to seek... what he was born to achieve... his true nature will become clear."
+> "I can't exactly fight a war with a big smile on my face."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
