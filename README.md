@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how crazy it may be, or how dangerous it may be, even if it's something personal, it doesn't matter! Anything that you're worried about, I'll worry right along with you and think of a solution! Just like you did for me all those times!"
+> "People get corrupted. Not even saints and heroes are safe. There's nothing you can do to prevent it. That's our salvation."
 
-&mdash; [**Alibaba Saluja**](https://myanimelist.net/character.php?q=Alibaba%20Saluja&cat=character), [**Magi - The Kingdom of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Kingdom%20of%20Magic&cat=all)
+&mdash; [**Yuuki Shinjuurou**](https://myanimelist.net/character.php?q=Yuuki%20Shinjuurou&cat=character), [**Un-Go**](https://myanimelist.net/search/all?q=Un-Go&cat=all)
