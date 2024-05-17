@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't exactly fight a war with a big smile on my face."
+> "Before I am a Servant, I am a knight. I can only serve but one lord."
 
-&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Lancer**](https://myanimelist.net/character.php?q=Lancer&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
