@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those stars look like they're close to each other, but they're actually very far away, aren't they? It's like Kitamura-kun and I. The things you see aren't always real. How hard must I try in order to understand the unseen truth?"
+> "Unnecessary thoughts will only interfere with your plays."
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Gouenji Shuuya**](https://myanimelist.net/character.php?q=Gouenji%20Shuuya&cat=character), [**Inazuma Eleven**](https://myanimelist.net/search/all?q=Inazuma%20Eleven&cat=all)
