@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Treasure the experience. Dreams fade away after you wake up."
+> "The scariest thing about killing people is getting used to it! When you kill someone and realize you won't be punished... That's when people forget all about punishment!"
 
-&mdash; [**Hitoha Miyamizu**](https://myanimelist.net/character.php?q=Hitoha%20Miyamizu&cat=character), [**Kimi no Na wa**](https://myanimelist.net/search/all?q=Kimi%20no%20Na%20wa&cat=all)
+&mdash; [**Satomi Rentarou**](https://myanimelist.net/character.php?q=Satomi%20Rentarou&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
