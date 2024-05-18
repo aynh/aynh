@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People get corrupted. Not even saints and heroes are safe. There's nothing you can do to prevent it. That's our salvation."
+> "I think that loving someone is utterly useless. The more you want to be loved the more it will make you miserable"
 
-&mdash; [**Yuuki Shinjuurou**](https://myanimelist.net/character.php?q=Yuuki%20Shinjuurou&cat=character), [**Un-Go**](https://myanimelist.net/search/all?q=Un-Go&cat=all)
+&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
