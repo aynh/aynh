@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "“Your hard work will be rewarded.” What kind of idiot came up with that nonsense?"
+> "All suffering in the world is born from an individual's incompetence."
 
-&mdash; [**Hyuuga Junpei**](https://myanimelist.net/character.php?q=Hyuuga%20Junpei&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Yakumo Oomori**](https://myanimelist.net/character.php?q=Yakumo%20Oomori&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
