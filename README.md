@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Aah... I said I'd 'answer you' ... Not that I'd 'give you a straight answer'."
+> "[To Gilgamesh] That's right. I don't create swords. I create a world that contains infinite swords. This is the only magic allowed for me. There's no need to be surprised. These are all imitations. As you say, these are all trifling swords. But there is no rule that says an imitation cannot defeat the original. If you say you are the original, I will surpass every one of your weapons and destroy your existence. Here I come, King of Heroes! Do you have enough swords in stock?"
 
-&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
