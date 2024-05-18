@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All suffering in the world is born from an individual's incompetence."
+> "Sinful? Corrupt? I don't understand your logic. Why must pleasure and sin be connected? Pleasure gotten through evil means could be a sin. But pleasure can also result from good deeds. What kind of philosophy calls pleasure itself a sin?"
 
-&mdash; [**Yakumo Oomori**](https://myanimelist.net/character.php?q=Yakumo%20Oomori&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
