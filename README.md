@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's Valentine's day, silly! It's the day when lovers are together!"
+> "Get over here, Zuko. Being part of the group also means being part of group hugs."
 
-&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
