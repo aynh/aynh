@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry, but I hate people who act innocent but are actually opportunists."
+> "Aah... I said I'd 'answer you' ... Not that I'd 'give you a straight answer'."
 
-&mdash; [**Nai**](https://myanimelist.net/character.php?q=Nai&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
+&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
