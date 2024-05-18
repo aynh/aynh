@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Beautiful night, isn't it, Police Girl? It's especially beautiful, of course, if you're a bloodsucker."
+> "“Your hard work will be rewarded.” What kind of idiot came up with that nonsense?"
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Hyuuga Junpei**](https://myanimelist.net/character.php?q=Hyuuga%20Junpei&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
