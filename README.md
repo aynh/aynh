@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yes, the seats are limited. There are always fewer seats called 'happiness' than there are people to fill them."
+> "Sorry, but I hate people who act innocent but are actually opportunists."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Nai**](https://myanimelist.net/character.php?q=Nai&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
