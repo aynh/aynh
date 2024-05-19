@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They are your words! This is your heart! Our desire to help our friends belongs to us!"
+> "Yeah, I'm being stupid.  I know that it's out of question. I know how this will end. I'll be left with nothing.  Even so, I want us to think, writhe, struggle... and find... [something genuine]."
 
-&mdash; [**Happy**](https://myanimelist.net/character.php?q=Happy&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
