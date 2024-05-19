@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't go thinking that there's a world where it's natural to be happy! Even if you start complaining, nothing will change! You need to make things fun by yourself!"
+> "I'm just a guy who's a hero for fun."
 
-&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
