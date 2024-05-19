@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What takes reason a hundred years to build a bridge to only takes the wings of faith a single night to reach."
+> "Don't go thinking that there's a world where it's natural to be happy! Even if you start complaining, nothing will change! You need to make things fun by yourself!"
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
