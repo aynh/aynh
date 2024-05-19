@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For the time being, all an idiot like me can do is to keep moving forward..."
+> "In this world, guns are always within arm's reach, and sadly they are more trustworthy than kindness."
 
-&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
