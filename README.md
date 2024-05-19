@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We probably are.  I can't explain it very well, but it seems that lately it doesn't matter, human or spirit.  If your hearts touch, it's the same thing.  When you're all alone, you get lonely, and the first step is always scary."
+> "Sun, it's just a mass of hydrogen... Get too close to it and all you do is burn."
 
-&mdash; [**Natsume Takeshi**](https://myanimelist.net/character.php?q=Natsume%20Takeshi&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
