@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is nothing shameful about running away. Some things are just out of people's hands. If you think you're gonna die, just run."
+> "Courage must know fear and make fear its own! Fear upsets breathing! Conquer fear and your breath will never fail you! Hamon breathing comes from courage! A good human is a brave human! Courage is a marvel of humanity!"
 
-&mdash; [**Broken Blade**](https://myanimelist.net/character.php?q=Broken%20Blade&cat=character), [**Broken Blade**](https://myanimelist.net/search/all?q=Broken%20Blade&cat=all)
+&mdash; [**William A. Zeppeli**](https://myanimelist.net/character.php?q=William%20A.%20Zeppeli&cat=character), [**JoJo's Bizarre Adventure: Phantom Blood**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Phantom%20Blood&cat=all)
