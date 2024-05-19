@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sun, it's just a mass of hydrogen... Get too close to it and all you do is burn."
+> "[thinking] If I'm still sane by the time I finish their training it'll be a miracle!"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
