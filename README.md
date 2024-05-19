@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans only can reveal their true potential during an absolutely critical situation."
+> "We probably are.  I can't explain it very well, but it seems that lately it doesn't matter, human or spirit.  If your hearts touch, it's the same thing.  When you're all alone, you get lonely, and the first step is always scary."
 
-&mdash; [**Anna Kyouyama**](https://myanimelist.net/character.php?q=Anna%20Kyouyama&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Natsume Takeshi**](https://myanimelist.net/character.php?q=Natsume%20Takeshi&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
