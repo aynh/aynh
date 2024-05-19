@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People usually don't look back to see how far they've come while they're still walking. Of course, when they come to a standstill, the more progress they've made, the more betrayed they feel by their expectations."
+> "I don't have anywhere to go back to. All we can do is keep moving forward."
 
-&mdash; [**Shizuka Hiratsuka**](https://myanimelist.net/character.php?q=Shizuka%20Hiratsuka&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
