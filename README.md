@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't have anywhere to go back to. All we can do is keep moving forward."
+> "[to Toboe] I wanted to take you to paradise."
 
-&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
