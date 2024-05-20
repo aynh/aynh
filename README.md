@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, guns are always within arm's reach, and sadly they are more trustworthy than kindness."
+> "Quiet down or I'll shoot you bastards!"
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
