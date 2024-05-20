@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "By exchanging notes, you get to know one another, to understand one another. As if your souls were connected and your hearts were overlapping. It's a conversation through instruments. A miracle that creates harmony. In that moment, music transcends words."
+> "It's not the fun and games you think. It's bizarre... sinister... cursed. (speaking of the curse to Tohru)"
 
-&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
