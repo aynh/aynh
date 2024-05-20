@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Wrong, holy man. All we want is to get our bodies normal again. See, we don't lie about what's possible. We didn't start a cult."
+> "At night the moon shines with daylight. Our dreams are an ocean… each wave is the dream of an individual. The tide is controlled by the pull of the moon… it illuminates our dreams. If you open the moon, you will discover the path to dreams. When one finds death, they are submerged in the ocean of dreams. At the end of life’s path is a door that leads us to this ocean. Our dreams transcend the self to reach this sea… connecting us all within its lunar tide."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Gen Fudou**](https://myanimelist.net/character.php?q=Gen%20Fudou&cat=character), [**Sousei no Aquarion**](https://myanimelist.net/search/all?q=Sousei%20no%20Aquarion&cat=all)
