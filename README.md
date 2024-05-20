@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes you have to fight for the things that are worth fighting for."
+> "Games are not boring. Games purify our souls and leave room for new development that challenges the mind! They are the products of human wisdom!"
 
-&mdash; [**Arrietty**](https://myanimelist.net/character.php?q=Arrietty&cat=character), [**Karigurashi no Arrietty**](https://myanimelist.net/search/all?q=Karigurashi%20no%20Arrietty&cat=all)
+&mdash; [**Seto Kaiba**](https://myanimelist.net/character.php?q=Seto%20Kaiba&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
