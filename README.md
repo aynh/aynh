@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are many things in this world that can't be protected simply by thinking of them or praying for them. To protect our lambs from having their dreams stolen and fading into despair, we Bishops bear arms and fight."
+> "Suppose someone said 'humans are foolish'... Obviously, that person would be talking about themselves as well. If you want to understand human beings, you need to do more than just watch them. You need to pay attention to what they themselves are watching. What are you watching? You are the ones who I'm watching. It may be hard to believe, but I like you guys. You know what they say... The opposite of love is not hatred, but indifference. An indifferent person would lack the drive to kill or hurt. My mind keeps jumping around. Am I nervous...? Did I underestimate my enemy so much that I stepped in too deep...? ...What a silly thought."
 
-&mdash; [**Castor**](https://myanimelist.net/character.php?q=Castor&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
