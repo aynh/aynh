@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pretending to get along is just hypocritical. If you don't like me, that's fine. People are free to like and hate what they want."
+> "Broken promises, regardless of how horrid transform into rage that stinks to the ocean floor. Through those bonds, we're drawn together countless times."
 
-&mdash; [**Rachnera Arachnera**](https://myanimelist.net/character.php?q=Rachnera%20Arachnera&cat=character), [**Monster Musume no Iru Nichijou**](https://myanimelist.net/search/all?q=Monster%20Musume%20no%20Iru%20Nichijou&cat=all)
+&mdash; [**Narumi Fujishima**](https://myanimelist.net/character.php?q=Narumi%20Fujishima&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
