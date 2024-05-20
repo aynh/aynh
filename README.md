@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bring on the hardship. It's preferred in a path of carnage."
+> "There are many things in this world that can't be protected simply by thinking of them or praying for them. To protect our lambs from having their dreams stolen and fading into despair, we Bishops bear arms and fight."
 
-&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Castor**](https://myanimelist.net/character.php?q=Castor&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
