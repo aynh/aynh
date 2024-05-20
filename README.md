@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do not lose to the obstacles that you will meet in the future. I have my own set of goals but do not pursue them because of my laziness."
+> "If I were to live out life without any mistakes that would be great. But... there is no such path. Falling, tripping, losing the way, making mistakes, little by little, walking one step at a time, this is the only way to live out life."
 
-&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
