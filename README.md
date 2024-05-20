@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "With so much at stake... are you willing to take the one in 10,000 chance?"
+> "[after Princess Yue unexpectedly kisses him] Okay, now I'm really confused. Happy, but confused."
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
