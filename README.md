@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm always being told that I don't understand other people's feelings, and also that I don't understand what others are thinking. And I agree. But... If you don't try to stem the tears of a girl crying out for help, you're the lowest kind of man."
+> "Pretending to get along is just hypocritical. If you don't like me, that's fine. People are free to like and hate what they want."
 
-&mdash; [**Kasuka Heiwajima**](https://myanimelist.net/character.php?q=Kasuka%20Heiwajima&cat=character), [**Durarara!!×2**](https://myanimelist.net/search/all?q=Durarara!!%C3%972&cat=all)
+&mdash; [**Rachnera Arachnera**](https://myanimelist.net/character.php?q=Rachnera%20Arachnera&cat=character), [**Monster Musume no Iru Nichijou**](https://myanimelist.net/search/all?q=Monster%20Musume%20no%20Iru%20Nichijou&cat=all)
