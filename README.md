@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not the fun and games you think. It's bizarre... sinister... cursed. (speaking of the curse to Tohru)"
+> "Killing for your own ideas... even a bandit could do that if it's killing a complete stranger. However, it's a completely different thing when it comes to killing a relative or a friend. Desire alone isn't enough. You need indomitable will and unwavering beliefs."
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Ichijiku Chisato**](https://myanimelist.net/character.php?q=Ichijiku%20Chisato&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
