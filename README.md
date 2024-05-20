@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Often people have it wrong, mistakenly believing...that showing mercy to an enemy is kindness. They spare the foe whose life is in their hands... But don't you see? It's an empty existence... to go on living... alone and unloved... when defeat's already cost you your dream!"
+> "I think there are many things in this world we are better off not knowing. Sometimes the truth is the cruelest thing of all. Not everyone can bear it."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Maria Akitsuki**](https://myanimelist.net/character.php?q=Maria%20Akitsuki&cat=character), [**Shinsekai Yori**](https://myanimelist.net/search/all?q=Shinsekai%20Yori&cat=all)
