@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don’t interact with the people around you, it’d be hard for anyone to approach you."
+> "I don’t believe in crap like coincidence, fate, or destiny."
 
-&mdash; [**Haimura Kiri**](https://myanimelist.net/character.php?q=Haimura%20Kiri&cat=character), [**Dansai Bunri no Crime Edge**](https://myanimelist.net/search/all?q=Dansai%20Bunri%20no%20Crime%20Edge&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
