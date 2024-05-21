@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter where I look, it's always idiots as far as the eye can see."
+> "You must be prepared to face the worst possible scenarios. Because harsh reality strikes without warning."
 
-&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Hunter X Hunter**](https://myanimelist.net/character.php?q=Hunter%20X%20Hunter&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
