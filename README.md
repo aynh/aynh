@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A true hero is a sage with a clean heart, a fake hero is a fool with an ignoble heart. The sage will be saved and the fool will be punished."
+> "To all the young ones in your group, you are no longer someone who passes through their lives and is forgotten. You have become someone very important to them. Your hardships are their hardships too."
 
-&mdash; [**Blue Owl**](https://myanimelist.net/character.php?q=Blue%20Owl&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
+&mdash; [**Fay D. Flourite**](https://myanimelist.net/character.php?q=Fay%20D.%20Flourite&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
