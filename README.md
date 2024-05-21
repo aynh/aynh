@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You must be prepared to face the worst possible scenarios. Because harsh reality strikes without warning."
+> "A true hero is a sage with a clean heart, a fake hero is a fool with an ignoble heart. The sage will be saved and the fool will be punished."
 
-&mdash; [**Hunter X Hunter**](https://myanimelist.net/character.php?q=Hunter%20X%20Hunter&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Blue Owl**](https://myanimelist.net/character.php?q=Blue%20Owl&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
