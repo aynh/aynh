@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anime - it's not something that can be thought of in a hall for conferences. It is made out of strange juices current from the brain of animators."
+> "Being free can mean many different things, but I think it's truest meaning is having a free heart that can't be bound by anything. So no matter what choice you make, as long as you remain who you are, you will forever be free."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Rei Ryugazaki**](https://myanimelist.net/character.php?q=Rei%20Ryugazaki&cat=character), [**Free! Eternal Summer**](https://myanimelist.net/search/all?q=Free!%20Eternal%20Summer&cat=all)
