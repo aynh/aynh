@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't like the terms 'good person' or 'bad person' because it's impossible to be entirely good to everyone or entirely bad to everyone. To some, you are a good person, while to others, you are a bad person."
+> "Anime - it's not something that can be thought of in a hall for conferences. It is made out of strange juices current from the brain of animators."
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
