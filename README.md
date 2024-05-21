@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Honestly, there isn't much meaning to the splendid names given to you by your parents. What does have meaning, is what the person behind that name does during their actual lifetime. The name doesn't make the person. The name simply remains gently within the footprint left on the path a person walks."
+> "If you don’t interact with the people around you, it’d be hard for anyone to approach you."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Haimura Kiri**](https://myanimelist.net/character.php?q=Haimura%20Kiri&cat=character), [**Dansai Bunri no Crime Edge**](https://myanimelist.net/search/all?q=Dansai%20Bunri%20no%20Crime%20Edge&cat=all)
