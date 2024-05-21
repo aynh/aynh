@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how colossal a power you obtain, no matter how gigantic an army you bring with you, I ain't scared. While you've abandoned a hundred, I've connected with a thousand. While you've destroyed a thousand, I've been helped by ten thousand. So what's an army of a few thousand? We have protected everything as just three people. We're the Yorozuya."
+> "A person can work for their ideals. But if you lose sight of those ideals, when things don't work out as you hoped, you'll never accomplish anything! You won't be able to protect yourself or those dear to you."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Hiroomi Nase**](https://myanimelist.net/character.php?q=Hiroomi%20Nase&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
