@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who think that they can make up their past follies with regret, cannot be forgiven."
+> "Kindness is not a crime. But sometimes it awakens the weakness and greed in others."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Su-won**](https://myanimelist.net/character.php?q=Su-won&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
