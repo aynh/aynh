@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*guilty voice* Because of my carelessness Araragi-kun realized that his brain is slower than others."
+> "This young girl, whose small body is only half the size of mine, has taught me that tears can flow from these silver eyes."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
