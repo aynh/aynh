@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After everything I've faced.... Having a future with you snatched away from me ...is definitely the most terrifying thing I've ever had to endure...."
+> "People who think that they can make up their past follies with regret, cannot be forgiven."
 
-&mdash; [**Gajeel Redfox**](https://myanimelist.net/character.php?q=Gajeel%20Redfox&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
