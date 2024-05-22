@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just because you look a little better, everyone comes running at you screaming and pretending to be friendly... Just because you look a little worse, everyone ignores you and uses you as a plaything or a slave... Isn't life so unfair?"
+> "Maybe I got something wrong, but it doesn't matter because the thought of wanting to help others definitely isn't wrong."
 
-&mdash; [**Dong Taebin**](https://myanimelist.net/character.php?q=Dong%20Taebin&cat=character), [**Dice: The Cube That Changes Everything**](https://myanimelist.net/search/all?q=Dice%3A%20The%20Cube%20That%20Changes%20Everything&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
