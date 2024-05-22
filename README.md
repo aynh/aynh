@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being alone is more painful than getting hurt."
+> "It doesn't hurt! It's not hot! I'm not scared! I will not be beaten!"
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
