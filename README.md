@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whatever you do, enjoy it to the fullest. That is the secret of life."
+> "If you forced someone to do something they didn’t want to do, they’d just end up hating life."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Chihiro Sengoku**](https://myanimelist.net/character.php?q=Chihiro%20Sengoku&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
