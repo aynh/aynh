@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's the kind of people they are. Whether it was me or not doesn't make a difference. A person falling to their doom, and without a second thought they would jump in to save them. It's impossible to just sit and let it happen. Without thinking of the consequences their bodies just move. That's what kind of idiocy is gathered here. That's the Yorozuya. Even if you forget everything else, as long as you remember that much, we're good. As long as you remember that, whomever your leader is, you guys will do fine."
+> "When you're sincere about doing something, you're stalked by the fear that there's no turning back."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
