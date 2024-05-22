@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you forced someone to do something they didn’t want to do, they’d just end up hating life."
+> "It's one of the basics... So I will teach you. A shinigami at the rank of Captain can control the size of his zanpakuto got it? Otherwise everyone'd carry around ginormous swords... just like you. Remember this well. You can't fathom the power of your rival simply from the size of his zanpakuto. You shouldn't give lectures about Shinigami until you understand that."
 
-&mdash; [**Chihiro Sengoku**](https://myanimelist.net/character.php?q=Chihiro%20Sengoku&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
