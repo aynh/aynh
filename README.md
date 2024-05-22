@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If someone went the wrong way, the other two would beat him up until he got back on track. That's how it always been. That's why we'll always stay on the right path!"
+> "As a cool guy, I'm used to seeing naked women."
 
-&mdash; [**Isao Kondō**](https://myanimelist.net/character.php?q=Isao%20Kond%C5%8D&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
