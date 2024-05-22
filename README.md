@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He who forgives and acknowledges himself... that is what it truly means to be strong!"
+> "Skilled only at making excuses that justify nothing, he is someone whose life has no value. The same goes for me. I have the right to stop you because I'm just like you."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
