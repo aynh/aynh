@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you think too hard when you don't have a brain, you're going to hurt your head."
+> "He who forgives and acknowledges himself... that is what it truly means to be strong!"
 
-&mdash; [**Tooru Oikawa**](https://myanimelist.net/character.php?q=Tooru%20Oikawa&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
