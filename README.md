@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't hurt! It's not hot! I'm not scared! I will not be beaten!"
+> "Oh, immortality. Heh, I gave that to the snake."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
