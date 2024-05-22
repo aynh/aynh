@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So she knows how to smile."
+> "Just because you look a little better, everyone comes running at you screaming and pretending to be friendly... Just because you look a little worse, everyone ignores you and uses you as a plaything or a slave... Isn't life so unfair?"
 
-&mdash; [**Kento Miura**](https://myanimelist.net/character.php?q=Kento%20Miura&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Dong Taebin**](https://myanimelist.net/character.php?q=Dong%20Taebin&cat=character), [**Dice: The Cube That Changes Everything**](https://myanimelist.net/search/all?q=Dice%3A%20The%20Cube%20That%20Changes%20Everything&cat=all)
