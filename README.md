@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As a cool guy, I'm used to seeing naked women."
+> "Even saying they were just a bunch of fools would suffice. So why can't you? Were it me... I would be angry at the ignorance of those who would enter Hueco Mundo... without even testing their own power."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
