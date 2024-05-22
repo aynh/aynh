@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, immortality. Heh, I gave that to the snake."
+> "If I really liked him I should hope for his happiness. But like you said in the car, I actually hoped they would break up."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
