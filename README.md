@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's dangerous here. If you stare at the stars long enough, you start thinking you could grab one, and you get this feeling like all your dreams will come true."
+> "STOP IMAGINING ME!"
 
-&mdash; [**Shinichi Okazaki**](https://myanimelist.net/character.php?q=Shinichi%20Okazaki&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
