@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I really liked him I should hope for his happiness. But like you said in the car, I actually hoped they would break up."
+> "If someone went the wrong way, the other two would beat him up until he got back on track. That's how it always been. That's why we'll always stay on the right path!"
 
-&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Isao Kondō**](https://myanimelist.net/character.php?q=Isao%20Kond%C5%8D&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
