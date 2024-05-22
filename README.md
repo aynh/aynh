@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even saying they were just a bunch of fools would suffice. So why can't you? Were it me... I would be angry at the ignorance of those who would enter Hueco Mundo... without even testing their own power."
+> "So she knows how to smile."
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kento Miura**](https://myanimelist.net/character.php?q=Kento%20Miura&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
