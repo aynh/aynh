@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe I got something wrong, but it doesn't matter because the thought of wanting to help others definitely isn't wrong."
+> "Whatever you do, enjoy it to the fullest. That is the secret of life."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
