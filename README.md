@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to break up while I can still say I love you."
+> "If you think too hard when you don't have a brain, you're going to hurt your head."
 
-&mdash; [**Chihiro Shindou**](https://myanimelist.net/character.php?q=Chihiro%20Shindou&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Tooru Oikawa**](https://myanimelist.net/character.php?q=Tooru%20Oikawa&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
