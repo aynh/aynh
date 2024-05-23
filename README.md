@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A scar indicates that something is missing. You lost something important, and there's a hole in your heart. Having that empty hole can lead to anger, hate, despair, or... it can make you reach for the sky."
+> "If praying does not work, and words are ineffective... what's left is to fight."
 
-&mdash; [**Fuuko Kurasaki**](https://myanimelist.net/character.php?q=Fuuko%20Kurasaki&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
+&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
