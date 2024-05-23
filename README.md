@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to possess her...to make her belong to me, and only me. (about Rin)"
+> "(using a rental Pikachu doll) Thundershock, Thunderbolt, Thunder. I've been defeated so many times by Pikachu's attacks, I know them all by heart! Ahahahahahaha!"
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
