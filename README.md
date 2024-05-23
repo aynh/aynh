@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you believe in your dreams, I will prove to you, that you can achieve your dreams just by working hard."
+> "Sorry, but...believe it or not, I'm a male too."
 
-&mdash; [**Rock Lee**](https://myanimelist.net/character.php?q=Rock%20Lee&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
