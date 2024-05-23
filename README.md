@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This world that we live in is gentle yet sad, fun yet sorrowful, strong yet ephemeral... ...but as long as you're alive, something good is bound to happen. I'm sure of it."
+> "I want you to be happy. I want you to laugh a lot. I don't know what exactly I'll be able to do for you, but I'll always be by your side."
 
-&mdash; [**Subarashii Sekai**](https://myanimelist.net/character.php?q=Subarashii%20Sekai&cat=character), [**Subarashii Sekai**](https://myanimelist.net/search/all?q=Subarashii%20Sekai&cat=all)
+&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
