@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If praying does not work, and words are ineffective... what's left is to fight."
+> "Just as planets seek the light of a star and circle around it, I was a planet that sought the light of a pure star. Even the moon can't shine by itself. It shines so brightly because it reflects light from the sun."
 
-&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Takada**](https://myanimelist.net/character.php?q=Takada&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
