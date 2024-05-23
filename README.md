@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just as planets seek the light of a star and circle around it, I was a planet that sought the light of a pure star. Even the moon can't shine by itself. It shines so brightly because it reflects light from the sun."
+> "It's better to be hurt than to hurt others. Nice people can be happy with just that."
 
-&mdash; [**Takada**](https://myanimelist.net/character.php?q=Takada&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
