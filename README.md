@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry, but...believe it or not, I'm a male too."
+> "I want to possess her...to make her belong to me, and only me. (about Rin)"
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
