@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We have no choice but to accept the one and only life we're given, no matter how cruel and heartless it might be."
+> "Three days of eating our food and her smell will go away. And if she doesn't work hard, roast her, boil her, do whatever you want. Now get back to work!"
 
-&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
