@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The biggest idiot is you! So why don't you go back to school or whatever it is that idiots like you do and don't ever bother me again! You piece of shit! (To Yuki)"
+> "If you're alone... if it's just your life, you can use it however you please Wear yourself out, get cut to ribbons, doesn't matter. But when there's two, the blade grows heavy. Fighting like death doesn't concern you becomes a thing of the past. It's no longer just you. I threw away my way of life, relied on the strength of others, and somehow pushed on."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
