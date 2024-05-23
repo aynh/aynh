@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A Coma doesn't exist, it is a preparatory research for the next life."
+> "The biggest idiot is you! So why don't you go back to school or whatever it is that idiots like you do and don't ever bother me again! You piece of shit! (To Yuki)"
 
-&mdash; [**Fuura Kafuka**](https://myanimelist.net/character.php?q=Fuura%20Kafuka&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
