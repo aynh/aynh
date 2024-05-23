@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anything can be a sword if you polish it enough."
+> "A scar indicates that something is missing. You lost something important, and there's a hole in your heart. Having that empty hole can lead to anger, hate, despair, or... it can make you reach for the sky."
 
-&mdash; [**Nagisa Shiota**](https://myanimelist.net/character.php?q=Nagisa%20Shiota&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Fuuko Kurasaki**](https://myanimelist.net/character.php?q=Fuuko%20Kurasaki&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
