@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you're sincere about doing something, you're stalked by the fear that there's no turning back."
+> "We have no choice but to accept the one and only life we're given, no matter how cruel and heartless it might be."
 
-&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
