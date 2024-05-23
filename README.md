@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want you to be happy. I want you to laugh a lot. I don't know what exactly I'll be able to do for you, but I'll always be by your side."
+> "Anything can be a sword if you polish it enough."
 
-&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Nagisa Shiota**](https://myanimelist.net/character.php?q=Nagisa%20Shiota&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
