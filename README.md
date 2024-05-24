@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you love someone, sometimes your head hurts. And it's so agonizing that you want to burst into tears. But even the smallest thing can bring you happiness. It's complicated, but simple. Perhaps all these emotions are irreplaceable and precious."
+> "Cutting down a man who's done nothing wrong. Is that what you spent all that time honing those skills for? In my opinion, you're worthless."
 
-&mdash; [**Ageha Shiroi**](https://myanimelist.net/character.php?q=Ageha%20Shiroi&cat=character), [**Velvet Blue Rose**](https://myanimelist.net/search/all?q=Velvet%20Blue%20Rose&cat=all)
+&mdash; [**Jin**](https://myanimelist.net/character.php?q=Jin&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
