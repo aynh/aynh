@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop trying to change things that can't be changed. The past is the past and you have to let it go and embrace the future."
+> "My mind is being eaten away... Kaji-san, it's unravelling my mind! What do I do? It's defiling my mind!"
 
-&mdash; [**Jack Atlas**](https://myanimelist.net/character.php?q=Jack%20Atlas&cat=character), [**Yu-Gi-Oh! 5D's**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%205D's&cat=all)
+&mdash; [**Souryuu Asuka Langley**](https://myanimelist.net/character.php?q=Souryuu%20Asuka%20Langley&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
