@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(Master Roshi is reaching for Launch's buttocks as Krillin barges in and makes him angry) Do you time this?"
+> "I didn’t choose you. Don’t you see this is all just an accident. You actually thought you were chosen because you’re so smart or something? Don’t be so vain. It just happened to fall around here and you just happen to pick it up, and that’s all there is to it."
 
-&mdash; [**Master Roshi**](https://myanimelist.net/character.php?q=Master%20Roshi&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
