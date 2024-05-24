@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Azula always lies, Azula always lies."
+> "The human psyche goes out of whack so easily with minor elements, such as wall colors and staircase placement. Those who use them every day would be affected more dramatically."
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**Kara no Kyoukai**](https://myanimelist.net/search/all?q=Kara%20no%20Kyoukai&cat=all)
