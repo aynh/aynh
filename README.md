@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Heaven is a six-tatami, one room, second floor apartment on Earth. Being a NEET is the best."
+> "When you love someone, sometimes your head hurts. And it's so agonizing that you want to burst into tears. But even the smallest thing can bring you happiness. It's complicated, but simple. Perhaps all these emotions are irreplaceable and precious."
 
-&mdash; [**Urushihara Hanzou**](https://myanimelist.net/character.php?q=Urushihara%20Hanzou&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
+&mdash; [**Ageha Shiroi**](https://myanimelist.net/character.php?q=Ageha%20Shiroi&cat=character), [**Velvet Blue Rose**](https://myanimelist.net/search/all?q=Velvet%20Blue%20Rose&cat=all)
