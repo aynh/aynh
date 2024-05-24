@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My mind is being eaten away... Kaji-san, it's unravelling my mind! What do I do? It's defiling my mind!"
+> "It's quite basic actually, perhaps the simplest of tricks there is. True it may not seem so simple from an ordinary persons point of view, some people may even consider it a baffling, utterly perplexing problem. Things will often appear complicated on the outside while in truth they are simplicity itself. Of course how one sees these things depends on the person, many people find there is a fine line separating the complex to the very simple."
 
-&mdash; [**Souryuu Asuka Langley**](https://myanimelist.net/character.php?q=Souryuu%20Asuka%20Langley&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
