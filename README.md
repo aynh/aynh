@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't try to excuse yourself by saying you're doing it for someone else's sake."
+> "'Are you prepared to die?'. Most astronauts answer with a simple 'yes', but you can say anything. It's just a weak yes. You shouldn't be prepared to die. Instead, you should have the resolve to live until the very end! If there's someone who replies 'no', you can trust them."
 
-&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Brian Jay**](https://myanimelist.net/character.php?q=Brian%20Jay&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
