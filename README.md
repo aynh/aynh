@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't worry. When people break their old selves they embark a journey to find their new selves."
+> "Anyone who points a gun at me dies. Got it? Point a gun at me, you die."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Nishi Joichiro**](https://myanimelist.net/character.php?q=Nishi%20Joichiro&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
