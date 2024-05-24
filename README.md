@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if your feelings or wishes do not come true, or if things don't go as you planned - on another road grows another flower. A new flower blooms there."
+> "You shouldn't judge a person based on circumstantial evidence."
 
-&mdash; [**Dera Mochimazzi**](https://myanimelist.net/character.php?q=Dera%20Mochimazzi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
+&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
