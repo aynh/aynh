@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Cutting down a man who's done nothing wrong. Is that what you spent all that time honing those skills for? In my opinion, you're worthless."
+> "That's exactly the way it should be. Doing only unexpected things, otherwise, I'll lose my reputation as a perverted outer-space human."
 
-&mdash; [**Jin**](https://myanimelist.net/character.php?q=Jin&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
