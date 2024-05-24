@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He has beaten me completely. First by his own actions and then through his son’s. And what has he left for me here? How? How could you die like that? How, Kakarot? I’ll never have the chance…to prove my strength against you. You died without fear. What does that make of me? I am no warrior. And I will never fight again."
+> "Once drowned in the depths of darkness, you lose sight of light. When that light has dispersed there is no return. My light has died out long ago and so there's nothing back for me to go back, or look forward to I shall continue to indulge myself in this darkness until it completely consumes me, then I will be nothing but an empty course left on this cold & cruel world to rot."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Alois Trancy**](https://myanimelist.net/character.php?q=Alois%20Trancy&cat=character), [**Black Butler II**](https://myanimelist.net/search/all?q=Black%20Butler%20II&cat=all)
