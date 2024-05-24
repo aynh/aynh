@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say some defeats are meaningful and losing makes you stronger. Do you understand what that means? For living creatures victory is life, and defeat means death. It's an extreme example, but humans retain that instinct. Those who know the terror of defeat, hunger for victory."
+> "Even if your feelings or wishes do not come true, or if things don't go as you planned - on another road grows another flower. A new flower blooms there."
 
-&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Dera Mochimazzi**](https://myanimelist.net/character.php?q=Dera%20Mochimazzi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
