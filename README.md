@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're all grown up, so you won't feel dirty looking at my body, right?"
+> "Heaven is a six-tatami, one room, second floor apartment on Earth. Being a NEET is the best."
 
-&mdash; [**Nadeko Sengoku**](https://myanimelist.net/character.php?q=Nadeko%20Sengoku&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Urushihara Hanzou**](https://myanimelist.net/character.php?q=Urushihara%20Hanzou&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
