@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once drowned in the depths of darkness, you lose sight of light. When that light has dispersed there is no return. My light has died out long ago and so there's nothing back for me to go back, or look forward to I shall continue to indulge myself in this darkness until it completely consumes me, then I will be nothing but an empty course left on this cold & cruel world to rot."
+> "This town is overflowing with people, and each has their own worries, big or small... How many of them can truly say that they're happy?"
 
-&mdash; [**Alois Trancy**](https://myanimelist.net/character.php?q=Alois%20Trancy&cat=character), [**Black Butler II**](https://myanimelist.net/search/all?q=Black%20Butler%20II&cat=all)
+&mdash; [**Ai Kotani**](https://myanimelist.net/character.php?q=Ai%20Kotani&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
