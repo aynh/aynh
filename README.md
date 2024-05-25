@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In our culture, the phenomena known as emotion is considered a mental disorder."
+> "To us, you are more valuable than any jewel. Would you be at ease if you left your most treasured valuable outside the bounds of your own home? A treasure is something you keep with you at all times. It is common sense."
 
-&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Claude**](https://myanimelist.net/character.php?q=Claude&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
