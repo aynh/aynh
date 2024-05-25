@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not sure why I've decided to do this. I'm not any stronger than I was, and nothing else has changed. But all the same, this time I'm not going to run away. It's okay to feel weak sometimes. It's okay to be afraid. The important thing is that we face our fears. That's... that's what makes us strong."
+> "Sorry, but it doesn't matter if you're a woman or even a child... I don't go easy on anybody who hurts my nakama."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
