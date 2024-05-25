@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[When she hops into the bath with Ichigo, but in cat form] What? Are you a little disappointed? Come on, be honest. You are, aren't you? You little pervert!"
+> "You'll never be able to go anywhere unless you learn how to let go."
 
-&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Mishakuji Yukari**](https://myanimelist.net/character.php?q=Mishakuji%20Yukari&cat=character), [**K: Missing Kings**](https://myanimelist.net/search/all?q=K%3A%20Missing%20Kings&cat=all)
