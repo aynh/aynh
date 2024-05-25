@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kira is childish and he hates losing... I'm also childish and hate to lose. That's how I know."
+> "Courage is being scared to death, but doing it anyways."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Muguruma Kensei**](https://myanimelist.net/character.php?q=Muguruma%20Kensei&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
