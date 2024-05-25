@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's called a miracle because it doesn't happen."
+> "[When she hops into the bath with Ichigo, but in cat form] What? Are you a little disappointed? Come on, be honest. You are, aren't you? You little pervert!"
 
-&mdash; [**Shiori Misaka**](https://myanimelist.net/character.php?q=Shiori%20Misaka&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
+&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
