@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A world where everyone is equal and receives the same treatment. No such place exists. If there was a world of equality, where talent and aptitude didn't matter, we would all be equally snubbed there."
+> "Lelou? I'm glad that I could talk to you in the end. You know? When I got my memories back, I was so scared... A fake teacher... Friends with no memories... Everyone was... lying to me... It was as if... the whole world was watching over me... Lelou, you've been fighting... all by yourself against this world... All by yourself... So that's why... I wanted to become the one thing truthful to you... I love you, Lelou. Even when I knew you killed my father... I couldn't... bring myself to hate you. Even when you tried to make me forget everything... I still fell... in love with you again... Even when my memories were altered... I still fell in love again... No matter how many times I'm reborn... I'm sure I'll... fall in love with you again, Lelou... This... is fate, right? So, it's okay, right, Lelou? That I fall in love with you when I'm reborn... No matter... how many times... I'll... fall in... love with you..."
 
-&mdash; [**Tatsuya Shiba**](https://myanimelist.net/character.php?q=Tatsuya%20Shiba&cat=character), [**Mahouka Koukou no Rettousei**](https://myanimelist.net/search/all?q=Mahouka%20Koukou%20no%20Rettousei&cat=all)
+&mdash; [**Shirley Fenette**](https://myanimelist.net/character.php?q=Shirley%20Fenette&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
