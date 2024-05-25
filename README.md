@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Eat Harkonnen, bitch!"
+> "The best way to escape reality without running is smiling even if it is obviously fake."
 
-&mdash; [**Seras Victoria**](https://myanimelist.net/character.php?q=Seras%20Victoria&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Sai**](https://myanimelist.net/character.php?q=Sai&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
