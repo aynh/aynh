@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The purpose of an alliance is not simply for the sake of preventing an enemy from attacking you. Rather, importance lies in what one can obtain after the alliance. As well as your actions after the alliance."
+> "I believe being an author is a lonely line of work that asks you to pass through a narrow gate alone."
 
-&mdash; [**Riboku**](https://myanimelist.net/character.php?q=Riboku&cat=character), [**Kingdom**](https://myanimelist.net/search/all?q=Kingdom&cat=all)
+&mdash; [**Kanako Sakurai**](https://myanimelist.net/character.php?q=Kanako%20Sakurai&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
