@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The best way to escape reality without running is smiling even if it is obviously fake."
+> "It's called a miracle because it doesn't happen."
 
-&mdash; [**Sai**](https://myanimelist.net/character.php?q=Sai&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Shiori Misaka**](https://myanimelist.net/character.php?q=Shiori%20Misaka&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
