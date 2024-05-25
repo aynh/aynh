@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I tell you to leave, leave. In this world, winning is everything. Winners are affirmed completely, and losers are denied completely. I've never lost at anything before, and I never will. Because I always win, and I'm always right. I show no mercy to those who oppose me, not even my own parents."
+> "A world where everyone is equal and receives the same treatment. No such place exists. If there was a world of equality, where talent and aptitude didn't matter, we would all be equally snubbed there."
 
-&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Tatsuya Shiba**](https://myanimelist.net/character.php?q=Tatsuya%20Shiba&cat=character), [**Mahouka Koukou no Rettousei**](https://myanimelist.net/search/all?q=Mahouka%20Koukou%20no%20Rettousei&cat=all)
