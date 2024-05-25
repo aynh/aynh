@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To us, you are more valuable than any jewel. Would you be at ease if you left your most treasured valuable outside the bounds of your own home? A treasure is something you keep with you at all times. It is common sense."
+> "The purpose of an alliance is not simply for the sake of preventing an enemy from attacking you. Rather, importance lies in what one can obtain after the alliance. As well as your actions after the alliance."
 
-&mdash; [**Claude**](https://myanimelist.net/character.php?q=Claude&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Riboku**](https://myanimelist.net/character.php?q=Riboku&cat=character), [**Kingdom**](https://myanimelist.net/search/all?q=Kingdom&cat=all)
