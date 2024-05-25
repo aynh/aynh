@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This town is overflowing with people, and each has their own worries, big or small... How many of them can truly say that they're happy?"
+> "Eat Harkonnen, bitch!"
 
-&mdash; [**Ai Kotani**](https://myanimelist.net/character.php?q=Ai%20Kotani&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Seras Victoria**](https://myanimelist.net/character.php?q=Seras%20Victoria&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
