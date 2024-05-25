@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe being an author is a lonely line of work that asks you to pass through a narrow gate alone."
+> "You came without fear. Don't have any regrets, no matter what happens. This is the duel you wanted."
 
-&mdash; [**Kanako Sakurai**](https://myanimelist.net/character.php?q=Kanako%20Sakurai&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
