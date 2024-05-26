@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just want to relieve my sexual frustrations. All I feel towards a cat eared high school girl in her underwear... is lust."
+> "The fake is of far greater value. In its deliberate attempt to be real, it's more real than the real thing."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
