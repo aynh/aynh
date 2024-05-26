@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll get what I want... even if I have to steal it."
+> "Tears are handy for washing away troubling and sad feelings. But when you grow up, you'll learn that there are things so sad, they can never be washed away by tears. That there are painful memories that should never be washed away. So people who are truly strong laugh when they want to cry. They endure all of the pain and sorrow while laughing with everybody else."
 
-&mdash; [**Rue Kuroha**](https://myanimelist.net/character.php?q=Rue%20Kuroha&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
+&mdash; [**Obi Hajime**](https://myanimelist.net/character.php?q=Obi%20Hajime&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
