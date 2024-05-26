@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tohru, you must always be yourself and do things at your own pace. Someday... you'll catch up."
+> "We shouldn't blame ourselves for bad things that happened to us. Sometimes, no matter what we do, we are victims of the circumstances. We should just have to pull ourselves out."
 
-&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
