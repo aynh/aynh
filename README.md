@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What a strange creature is man, who would cage himself so willingly."
+> "Whether you walk or run, the destination won't change. So then... You might as well run there!!!"
 
-&mdash; [**Athena Areios**](https://myanimelist.net/character.php?q=Athena%20Areios&cat=character), [**Appleseed**](https://myanimelist.net/search/all?q=Appleseed&cat=all)
+&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
