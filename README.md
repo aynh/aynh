@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A skilled dictator is much more beneficial to humanity than a democracy of ignorant people."
+> "I'll get what I want... even if I have to steal it."
 
-&mdash; [**Gene Smilas**](https://myanimelist.net/character.php?q=Gene%20Smilas&cat=character), [**Code Geass: Boukoku No Akito**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Boukoku%20No%20Akito&cat=all)
+&mdash; [**Rue Kuroha**](https://myanimelist.net/character.php?q=Rue%20Kuroha&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
