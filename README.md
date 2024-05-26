@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one fears death. They fear the life that leads up to death. If one could die without suffering, no one would fear death, right? Being alive is, itself, an exception. The natural state of things is death. And life is, itself, a kind of sickness. When the illness is cured, your life vanishes."
+> "Some memories... aren't meant to leave traces."
 
-&mdash; [**Magata Shiki**](https://myanimelist.net/character.php?q=Magata%20Shiki&cat=character), [**Subete ga F ni Naru**](https://myanimelist.net/search/all?q=Subete%20ga%20F%20ni%20Naru&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
