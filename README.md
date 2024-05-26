@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The fake is of far greater value. In its deliberate attempt to be real, it's more real than the real thing."
+> "When I was a child, whenever it snowed, I would play and make snowballs. When you start rolling a snowball, someone will always appear out of nowhere and help you make it bigger and in the end, everyone goes home satisfied. It was then that I suddenly thought “This is what I want to grow up to be like”."
 
-&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Alicia Florence**](https://myanimelist.net/character.php?q=Alicia%20Florence&cat=character), [**Aria The Natural**](https://myanimelist.net/search/all?q=Aria%20The%20Natural&cat=all)
