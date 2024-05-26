@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pawns? Isn't that such an ugly term to use? We should call them the foundation for our futures. But it's a fact that they'll be sacrificed."
+> "Those people had us dancing right in the palms of their hands, didn't they? I guess it doesn't matter what we do. We'll never be the ones in control."
 
-&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
