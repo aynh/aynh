@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whoever said one's first love is bittersweet, is a liar. It is only bitter."
+> "You know… When something bad happens, I don’t like thinking it was someone else’s fault. See, if it’s someone else’s fault, then there’s nothing I, personally, can do about it. I want to think it’s all up to me. If that’s the case, then I can do something about the things that go wrong. Then I can always run and always fly."
 
-&mdash; [**Renton Thurston**](https://myanimelist.net/character.php?q=Renton%20Thurston&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Arata Kohata**](https://myanimelist.net/character.php?q=Arata%20Kohata&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
