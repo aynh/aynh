@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tears are handy for washing away troubling and sad feelings. But when you grow up, you'll learn that there are things so sad, they can never be washed away by tears. That there are painful memories that should never be washed away. So people who are truly strong laugh when they want to cry. They endure all of the pain and sorrow while laughing with everybody else."
+> "As far as I know music isn't picky about when it gets played."
 
-&mdash; [**Obi Hajime**](https://myanimelist.net/character.php?q=Obi%20Hajime&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
