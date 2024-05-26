@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, I wonder why people fall in love. Why do we abandon ourselves... to these painful and burdensome feelings?"
+> "It's strange isn't it. The two groups, which looked like they hated each other, are now shining the same color as they vanish into the distant sky."
 
-&mdash; [**Nejima Yukari**](https://myanimelist.net/character.php?q=Nejima%20Yukari&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
