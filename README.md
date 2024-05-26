@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I was a child, whenever it snowed, I would play and make snowballs. When you start rolling a snowball, someone will always appear out of nowhere and help you make it bigger and in the end, everyone goes home satisfied. It was then that I suddenly thought “This is what I want to grow up to be like”."
+> "Do whatever you want now. But if you disturb me, I'll kill you."
 
-&mdash; [**Alicia Florence**](https://myanimelist.net/character.php?q=Alicia%20Florence&cat=character), [**Aria The Natural**](https://myanimelist.net/search/all?q=Aria%20The%20Natural&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
