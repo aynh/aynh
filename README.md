@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My power isn't the Rasengan or Sage Jutsu or the Nine Tails chakra. My power is right here. [points to the center of his chest]"
+> "I've been looking out at the world through windows I've opened across the net. It's an extremely close-minded and twisted world."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
