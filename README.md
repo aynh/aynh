@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm a man who makes precise choices about time, place, and people. Pleople call me Master of Choices. I'm gonna be the King of the Choices!"
+> "You vile beast. I despise you. You loathsome half man."
 
-&mdash; [**Ranta**](https://myanimelist.net/character.php?q=Ranta&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
