@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The greatest freedom is the freedom not to get involved."
+> "Everyone has an equal right to live. If you have more than others, you should share with those who have less. If you feel happier than others, help those in need. That is the duty of those who are given so much."
 
-&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Galilei Donna**](https://myanimelist.net/character.php?q=Galilei%20Donna&cat=character), [**Galilei Donna**](https://myanimelist.net/search/all?q=Galilei%20Donna&cat=all)
