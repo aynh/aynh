@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are bad ways to win and good ways to lose. What's interesting and troubling, is that it's not always clear which is which. A flipped coin doesn't always land heads or tails. Sometimes it may never land at all."
+> "I'm a man who makes precise choices about time, place, and people. Pleople call me Master of Choices. I'm gonna be the King of the Choices!"
 
-&mdash; [**Grimsley**](https://myanimelist.net/character.php?q=Grimsley&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Ranta**](https://myanimelist.net/character.php?q=Ranta&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
