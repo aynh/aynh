@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was going to let you go. After all, there aren't many of us out there, but you're just such a pain in the ass."
+> "I have to accept that who I want to become and who I can actually become are different."
 
-&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
