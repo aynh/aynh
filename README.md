@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I would be nothing without you."
+> "[Rangiku steps out of the bath naked to comfort a crying Orihime] There, there! Cry, cry, you poor thing. Drown all of your sorrows in my chest!"
 
-&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
