@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no advantage to hurrying through life."
+> "I was going to let you go. After all, there aren't many of us out there, but you're just such a pain in the ass."
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
