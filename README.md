@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've been looking out at the world through windows I've opened across the net. It's an extremely close-minded and twisted world."
+> "The weak don't get to decide anything, not even how they die."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Trafalgar Law**](https://myanimelist.net/character.php?q=Trafalgar%20Law&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
