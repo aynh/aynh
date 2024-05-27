@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sasuke, I always knew you were alone. In the beginning I was glad because I thought you were like me - I wanted to talk to you! But you... didn't speak. You always had everyone watching you. You could do everything and we were too different. So I decided that you would become my rival. I didn't want to lose because I was called a loser all the time. Even when we became Team 7, I still thought this way. I always tried to lie but... but the truth is... I always wanted to be like you. I aspired to be like you. Because of that... I was glad that you wanted to fight me."
+> "Now there's something I understand a little better. Hate, sadness, even joy. To be able to share it with another person... Naruto Uzumaki. From fighting him I learned that. He knew pain like I did and then he taught me that you can change your path. I wish that one day I can be needed by someone. Not as a frightening weapon... But as the sand's Kazekage."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
