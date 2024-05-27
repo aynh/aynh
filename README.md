@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The future has shown us with its glorious brilliance the time to seize our destiny and conquer all our fear is now! In ancient times, man rubbed sticks together and created fire, then they slaughtered the whales and battled one another for oil. After that, came the atomic age. In every chapter of our history, we've danced with danger. But now, for the first time in existence, we will be delivered from fear. Finally, we will escape the prison of our illusions and the beautiful night will embrace us all. It's already too late! I will live by this and I will die by this!"
+> "Sasuke, I always knew you were alone. In the beginning I was glad because I thought you were like me - I wanted to talk to you! But you... didn't speak. You always had everyone watching you. You could do everything and we were too different. So I decided that you would become my rival. I didn't want to lose because I was called a loser all the time. Even when we became Team 7, I still thought this way. I always tried to lie but... but the truth is... I always wanted to be like you. I aspired to be like you. Because of that... I was glad that you wanted to fight me."
 
-&mdash; [**Dr. Franken Von Vogler**](https://myanimelist.net/character.php?q=Dr.%20Franken%20Von%20Vogler&cat=character), [**Giant Robo**](https://myanimelist.net/search/all?q=Giant%20Robo&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
