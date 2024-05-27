@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want you to be happy. I want you to laugh a lot. I don't know what exactly I'll be able to do for you, but I'll always be by your side."
+> "There are bad ways to win and good ways to lose. What's interesting and troubling, is that it's not always clear which is which. A flipped coin doesn't always land heads or tails. Sometimes it may never land at all."
 
-&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Grimsley**](https://myanimelist.net/character.php?q=Grimsley&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
