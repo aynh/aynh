@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "AHA-HA-HA! Alchemists are scientists. We don't believe in unprovable concepts like 'God'. *Rose looks angry* We strive to uncover the principles of creation in the matter of the world, to pursue truth... *gazes at Leto statue* it's ironic that we scientists... who don't believe in God... are in a sense the closest things to him."
+> "I would be nothing without you."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
