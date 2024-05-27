@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has an equal right to live. If you have more than others, you should share with those who have less. If you feel happier than others, help those in need. That is the duty of those who are given so much."
+> "I want you to be happy. I want you to laugh a lot. I don't know what exactly I'll be able to do for you, but I'll always be by your side."
 
-&mdash; [**Galilei Donna**](https://myanimelist.net/character.php?q=Galilei%20Donna&cat=character), [**Galilei Donna**](https://myanimelist.net/search/all?q=Galilei%20Donna&cat=all)
+&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
