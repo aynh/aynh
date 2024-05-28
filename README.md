@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times we can't run away, no matter how bad the odds are. When the people we're supposed to protect are threatened, we have to enter the fray and shield them. And it doesn't matter who or what the enemy is. We need to master skills and get stronger, with artillery as well as hand-do-hand combat. I think that's our responsibility as strong soldiers."
+> "I can't stand the weak, They're always nervous about when they might next be attacked. They can't trust anybody and they never have an opinion of their own. I can't stand such people."
 
-&mdash; [**Reiner Braun**](https://myanimelist.net/character.php?q=Reiner%20Braun&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Heero Yuy**](https://myanimelist.net/character.php?q=Heero%20Yuy&cat=character), [**Mobile Suit Gundam Wing**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Wing&cat=all)
