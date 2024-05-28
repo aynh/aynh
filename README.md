@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Can a world this interesting actually be reality?"
+> "Even if you're not interested, just read my recommendation. Putting aside disliking the food before trying it, I won't forgive you if you dismiss manga without giving it a chance."
 
-&mdash; [**Lau**](https://myanimelist.net/character.php?q=Lau&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
