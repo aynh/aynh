@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A victory won through dishonesty means it's no victory at all."
+> "What is this place? Where am I? Wherever it is, it's completely dark. I can't even see my own body. It hurts... Which way is up? Which way is down? Where am I supposed to go? Someone help me."
 
-&mdash; [**Suzaku Kururugi**](https://myanimelist.net/character.php?q=Suzaku%20Kururugi&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
