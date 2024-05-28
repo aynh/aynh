@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We're all lost... That's why we're sad."
+> "As it turns out, living was a punishment. I've been punished in small doses, living as a Takakura. But, still, we were together. We took all the punishments, no matter how small and trivial. They're all precious memories. Because the only reason I felt alive was because you two were there."
 
-&mdash; [**Van Hohenheim**](https://myanimelist.net/character.php?q=Van%20Hohenheim&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Himari Takakura**](https://myanimelist.net/character.php?q=Himari%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
