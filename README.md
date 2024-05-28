@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death is like being born, but backwards. It only hurts for a little while, then a new life begins. A life with no sorrow, no pain, a glorious new beginning. A beginning that will last an eternity."
+> "Where is your tail? (Searching for tail in Bulma's butt)"
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
