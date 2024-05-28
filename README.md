@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't stand the weak, They're always nervous about when they might next be attacked. They can't trust anybody and they never have an opinion of their own. I can't stand such people."
+> "I was... relieved. I realized that, compared to the cat, I had it easy. (To kyo)"
 
-&mdash; [**Heero Yuy**](https://myanimelist.net/character.php?q=Heero%20Yuy&cat=character), [**Mobile Suit Gundam Wing**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Wing&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
