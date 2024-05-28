@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As it turns out, living was a punishment. I've been punished in small doses, living as a Takakura. But, still, we were together. We took all the punishments, no matter how small and trivial. They're all precious memories. Because the only reason I felt alive was because you two were there."
+> "Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one's heart."
 
-&mdash; [**Himari Takakura**](https://myanimelist.net/character.php?q=Himari%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
