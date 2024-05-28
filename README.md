@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was... relieved. I realized that, compared to the cat, I had it easy. (To kyo)"
+> "I have no fear of death. It just means dreaming in silence. A dream that lasts for eternity"
 
-&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
