@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Moping around with sadness and sorrow... what will come of it? Even dead people can do that. However, I'll live and stand on my own two legs. If we are going to die one day, wouldn't it be better to have no regrets?"
+> "Why am I always the one handing out apologies?"
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
