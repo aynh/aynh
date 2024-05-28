@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And what of it? If you're good on the inside, then looks don't matter!"
+> "You really don't know what happened, do you? It doesn't matter. By all means, stay in this cozy coffin of yours and continue to play prince. But I have to go now. She's not gone at all, she merely vanished form your world. Farewell."
 
-&mdash; [**Kei Enomoto**](https://myanimelist.net/character.php?q=Kei%20Enomoto&cat=character), [**Hatsukoi Limited**](https://myanimelist.net/search/all?q=Hatsukoi%20Limited&cat=all)
+&mdash; [**Anthy Himemiya**](https://myanimelist.net/character.php?q=Anthy%20Himemiya&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
