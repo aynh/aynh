@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you're not interested, just read my recommendation. Putting aside disliking the food before trying it, I won't forgive you if you dismiss manga without giving it a chance."
+> "If you don’t interact with the people around you, it’d be hard for anyone to approach you."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Haimura Kiri**](https://myanimelist.net/character.php?q=Haimura%20Kiri&cat=character), [**Dansai Bunri no Crime Edge**](https://myanimelist.net/search/all?q=Dansai%20Bunri%20no%20Crime%20Edge&cat=all)
