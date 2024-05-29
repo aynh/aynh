@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don’t interact with the people around you, it’d be hard for anyone to approach you."
+> "I know, someone like me can't just go out and change the world on a whim."
 
-&mdash; [**Haimura Kiri**](https://myanimelist.net/character.php?q=Haimura%20Kiri&cat=character), [**Dansai Bunri no Crime Edge**](https://myanimelist.net/search/all?q=Dansai%20Bunri%20no%20Crime%20Edge&cat=all)
+&mdash; [**Akatsuki Kojou**](https://myanimelist.net/character.php?q=Akatsuki%20Kojou&cat=character), [**Strike the Blood**](https://myanimelist.net/search/all?q=Strike%20the%20Blood&cat=all)
