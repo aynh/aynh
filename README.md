@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Giving into the pain and thinking you want to die just means you've been spoiled by life. If you don't want to die, then don't act spoiled. Suffer through life; crawl through life. Stick it out till the very end. If you still want to die after that, come find me. I'll end you."
+> "I've no interest in a 'Reality'."
 
-&mdash; [**Ogami Rei**](https://myanimelist.net/character.php?q=Ogami%20Rei&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
