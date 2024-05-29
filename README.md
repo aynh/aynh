@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[referring to Tohru] If anyone can find a way to choke on rice, it's her."
+> "La lang natamad na ako."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Gian Carlo**](https://myanimelist.net/character.php?q=Gian%20Carlo&cat=character), [**Lucky Dog**](https://myanimelist.net/search/all?q=Lucky%20Dog&cat=all)
