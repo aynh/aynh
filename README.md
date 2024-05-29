@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Idiots should do what idiots can to be quicker."
+> "The human world is a boring place with boring people doing boring things."
 
-&mdash; [**Akito Sohma**](https://myanimelist.net/character.php?q=Akito%20Sohma&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
