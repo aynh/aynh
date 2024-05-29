@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as I exist, I don't care if there's hell, or if only suffering exists there."
+> "Idiots should do what idiots can to be quicker."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Akito Sohma**](https://myanimelist.net/character.php?q=Akito%20Sohma&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
