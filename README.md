@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The human world is a boring place with boring people doing boring things."
+> "[referring to Tohru] If anyone can find a way to choke on rice, it's her."
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
