@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've set fire to my frozen heart, I shall engrave this anger and sadness that's running through my blood onto you."
+> "A man has the right to dream. There are endless possibilities stretched out before him."
 
-&mdash; [**Alexander Nikolaevich Hell**](https://myanimelist.net/character.php?q=Alexander%20Nikolaevich%20Hell&cat=character), [**Seikon no Qwaser**](https://myanimelist.net/search/all?q=Seikon%20no%20Qwaser&cat=all)
+&mdash; [**Outlaw Star**](https://myanimelist.net/character.php?q=Outlaw%20Star&cat=character), [**Outlaw Star**](https://myanimelist.net/search/all?q=Outlaw%20Star&cat=all)
