@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To have something you detest is about as important as having something you love. Yet you accept everything that comes in your way. Because if you like anything and everything, they all end up being the same thing in the end."
+> "No, it can't be 7, say 8 damn it! 8 is better! It's physically impossible to cut the number 7 in half and make it symmetrical! It has to be 8 instead! 8 cut vertically or horizontally stays perfectly symmetrical! Take it back I beg of you! Please say 8, PLEASE!"
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
