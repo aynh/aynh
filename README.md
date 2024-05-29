@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "La lang natamad na ako."
+> "Giving into the pain and thinking you want to die just means you've been spoiled by life. If you don't want to die, then don't act spoiled. Suffer through life; crawl through life. Stick it out till the very end. If you still want to die after that, come find me. I'll end you."
 
-&mdash; [**Gian Carlo**](https://myanimelist.net/character.php?q=Gian%20Carlo&cat=character), [**Lucky Dog**](https://myanimelist.net/search/all?q=Lucky%20Dog&cat=all)
+&mdash; [**Ogami Rei**](https://myanimelist.net/character.php?q=Ogami%20Rei&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
