@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look what happens when you're not fast enough! You get CUT! It's more fun when it hurts a little bit though, isn't it?"
+> "You've set fire to my frozen heart, I shall engrave this anger and sadness that's running through my blood onto you."
 
-&mdash; [**Grell Sutcliff**](https://myanimelist.net/character.php?q=Grell%20Sutcliff&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Alexander Nikolaevich Hell**](https://myanimelist.net/character.php?q=Alexander%20Nikolaevich%20Hell&cat=character), [**Seikon no Qwaser**](https://myanimelist.net/search/all?q=Seikon%20no%20Qwaser&cat=all)
