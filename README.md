@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know, someone like me can't just go out and change the world on a whim."
+> "To have something you detest is about as important as having something you love. Yet you accept everything that comes in your way. Because if you like anything and everything, they all end up being the same thing in the end."
 
-&mdash; [**Akatsuki Kojou**](https://myanimelist.net/character.php?q=Akatsuki%20Kojou&cat=character), [**Strike the Blood**](https://myanimelist.net/search/all?q=Strike%20the%20Blood&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
