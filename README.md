@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People share only one common fate... death."
+> "You combined animals, the most depraved kind of alchemy there is."
 
-&mdash; [**Neji Hyuuga**](https://myanimelist.net/character.php?q=Neji%20Hyuuga&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
