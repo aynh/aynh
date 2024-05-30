@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world you want can’t be built after destruction. We build it everyday -step by step!"
+> "People like you disgust me. You can't even face your own weakness."
 
-&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
+&mdash; [**Murasaki**](https://myanimelist.net/character.php?q=Murasaki&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
