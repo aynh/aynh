@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People cry, not because they're weak. Its because they've been strong for too long."
+> "Just look at it Liz, Patti, just look at how the clouds are! Flowing right towards the sun! It's so beautiful, even the sky is symmetrical!"
 
-&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
