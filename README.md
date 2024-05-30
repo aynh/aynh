@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I'm away from you, even though I can't be around crowds, I want to go see you."
+> "Unless I grip the sword, I cannot protect you. While gripping the sword, I cannot embrace you."
 
-&mdash; [**Gin**](https://myanimelist.net/character.php?q=Gin&cat=character), [**Hotarubi no Mori e**](https://myanimelist.net/search/all?q=Hotarubi%20no%20Mori%20e&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
