@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You do them one favor and they think you're their best friend. This is why I could care less if their entire species was swallowed up."
+> "When people are faced with a situation they don't understand, it's easy for fear to take hold."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
