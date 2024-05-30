@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether you walk or run, the destination won't change. So then... You might as well run there!!!"
+> "People cry, not because they're weak. Its because they've been strong for too long."
 
-&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
