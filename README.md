@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*referring to Yoh* [annoyed] Why does he always seem so carefree? He doesn't study... He listens to his favorite music... He even watches the rivers and stars!.. I wish I could live like that..."
+> "It’s unbearable to die hating someone."
 
-&mdash; [**Manta Oyamada**](https://myanimelist.net/character.php?q=Manta%20Oyamada&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
