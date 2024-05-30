@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Rule breakers should be punished. If you go easy on them, they'll think explaining their circumstances will get them forgiven, and the same thing will only happen again."
+> "Dummy. I'm not gonna dwell on what happened forever. All that junk... it's the furthest thing on my mind. You should especially quit worrying about it and get some more sleep. Hurry up and get rid of your Panda eyes, got it?"
 
-&mdash; [**Myouri Unzen**](https://myanimelist.net/character.php?q=Myouri%20Unzen&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
