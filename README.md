@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's just...a bad dream! Wake up, wake up..."
+> "Everything you've been taught is based on theories and logic. Soon you will likely come to realize how pointless they are in the world we live in."
 
-&mdash; [**Chihiro Ogino**](https://myanimelist.net/character.php?q=Chihiro%20Ogino&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
+&mdash; [**Tomomi Masaoka**](https://myanimelist.net/character.php?q=Tomomi%20Masaoka&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
