@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want to see any more things that've changed! It's exhausting!"
+> "You do them one favor and they think you're their best friend. This is why I could care less if their entire species was swallowed up."
 
-&mdash; [**Hikari Sakishima**](https://myanimelist.net/character.php?q=Hikari%20Sakishima&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
