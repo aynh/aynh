@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If... If you have such good deductive skills, you should have been able to see through my sister's disguise easily... But... but... WHY...!!!"
+> "A dream? That's right. Because there was the past, there is now the present. And because there is the present, we can believe in tomorrow and pursue our dreams."
 
-&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Rio Kazumiya**](https://myanimelist.net/character.php?q=Rio%20Kazumiya&cat=character), [**So Ra No Wo To**](https://myanimelist.net/search/all?q=So%20Ra%20No%20Wo%20To&cat=all)
