@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's better trusting someone than to die doubting people altogether."
+> "The world you want can’t be built after destruction. We build it everyday -step by step!"
 
-&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
