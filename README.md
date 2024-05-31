@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we love someone, we need to tell them about it. That way, we'll feel relieved and a lot stronger."
+> "Loneliness is peaceful, but there'll be no one to share happiness with."
 
-&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
