@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's Me with a capital M! I'm the only one big enough to capitalize Me!"
+> "Kill me. Make it quick. I no longer have the strength left in me to even walk. If you do not cut me down now, then this will go unsettled for eternity."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
