@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Komamura] Don't make me laugh. Aizen-sama has given me something far more powerful than a bankai."
+> "It's Me with a capital M! I'm the only one big enough to capitalize Me!"
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
