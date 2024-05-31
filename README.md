@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't try to excuse yourself by saying you're doing it for someone else's sake."
+> "The bird fights it's way out of the egg. The egg is the world. Who would be born, must first destroy a world."
 
-&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Tokyo Ghoul**](https://myanimelist.net/character.php?q=Tokyo%20Ghoul&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
