@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, this blows."
+> "When we first met, you set my heart ablaze. When I see you, all I can do is gaze. Gaze at the beauty and wonder that is you. The constellation Gemini will make me think of me and you. You are my Yami and I am your Hikari. I love you, my Yami. Now and forever."
 
-&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Yūgi Mutō**](https://myanimelist.net/character.php?q=Y%C5%ABgi%20Mut%C5%8D&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
