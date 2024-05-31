@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just apologize, even if you don't mean it. *to some kid, about Inuyasha*"
+> "I never once thought that the world was fair, but some things will never change. If you want things to change, don't wait for someone to do it for you, go change it yourself."
 
-&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
