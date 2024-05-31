@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In order to achieve something there are some things that you have to be unsatisfied with in the first place. Having a complex is the source to greatness."
+> "I envy you. You've been betrayed and hurt, yet you can still forgive each other. I envy you for having such a great friend."
 
-&mdash; [**Takane Saibara**](https://myanimelist.net/character.php?q=Takane%20Saibara&cat=character), [**Takane to Hana**](https://myanimelist.net/search/all?q=Takane%20to%20Hana&cat=all)
+&mdash; [**Kuroyukihime**](https://myanimelist.net/character.php?q=Kuroyukihime&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
