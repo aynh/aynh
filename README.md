@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sympathy only gets people hurt."
+> "Just apologize, even if you don't mean it. *to some kid, about Inuyasha*"
 
-&mdash; [**Tsugumi**](https://myanimelist.net/character.php?q=Tsugumi&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
