@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In a conflict between creatures that are fundamentally the same, defeat is equavalent to annihilation."
+> "Don't try to excuse yourself by saying you're doing it for someone else's sake."
 
-&mdash; [**Chamber**](https://myanimelist.net/character.php?q=Chamber&cat=character), [**Suisei no Gargantia**](https://myanimelist.net/search/all?q=Suisei%20no%20Gargantia&cat=all)
+&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
