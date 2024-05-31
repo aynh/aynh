@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But I want to play around before some noisy people come!"
+> "The fact that you consider yourself as an equal to me, is being arrogant in itself."
 
-&mdash; [**Kankuro**](https://myanimelist.net/character.php?q=Kankuro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
