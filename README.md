@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The bird fights it's way out of the egg. The egg is the world. Who would be born, must first destroy a world."
+> "But I want to play around before some noisy people come!"
 
-&mdash; [**Tokyo Ghoul**](https://myanimelist.net/character.php?q=Tokyo%20Ghoul&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Kankuro**](https://myanimelist.net/character.php?q=Kankuro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
