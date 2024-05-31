@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Getting used to it would be quicker than trying to work around it somehow."
+> "Fail to strike the enemy once you know their location, and it'll be too late to even regret having missed the chance."
 
-&mdash; [**Honoka Kousaka**](https://myanimelist.net/character.php?q=Honoka%20Kousaka&cat=character), [**Love Live! School idol project**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
