@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The fact that you consider yourself as an equal to me, is being arrogant in itself."
+> "The world is not beautiful; and that, in a way, lends it a sort of beauty."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
