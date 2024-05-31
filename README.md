@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never once thought that the world was fair, but some things will never change. If you want things to change, don't wait for someone to do it for you, go change it yourself."
+> "If we love someone, we need to tell them about it. That way, we'll feel relieved and a lot stronger."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
