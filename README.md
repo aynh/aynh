@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anyone can die. It's living that requires courage."
+> "Getting used to it would be quicker than trying to work around it somehow."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Honoka Kousaka**](https://myanimelist.net/character.php?q=Honoka%20Kousaka&cat=character), [**Love Live! School idol project**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project&cat=all)
