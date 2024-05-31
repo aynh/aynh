@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone exists for a reason. As small as it can be. I'm sure you have a meaning too."
+> "I shall light a fire upon the fang that falls short, so that I needn't see that star...So that it shall not tear this throat of mine."
 
-&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
