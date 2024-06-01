@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is a sad truth that greater the authority a person possesses, the more he tends to fear change."
+> "If it's the army's job to end a war, it's the king's job to find a place for it to end."
 
-&mdash; [**Jimbei**](https://myanimelist.net/character.php?q=Jimbei&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
