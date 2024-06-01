@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A rose will be born a rose. Different soil and water wouldn't change it into a different flower."
+> "When the time comes, I may need to borrow your chest to cry upon. That's one promise I'll need from you."
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**Kara no Kyoukai**](https://myanimelist.net/search/all?q=Kara%20no%20Kyoukai&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
