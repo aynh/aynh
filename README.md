@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are NOT asking him where the treasure is hidden!!! We're not even asking him whether there IS any treasure or not!! I'm not sure, but... ...everybody set out to sea, risking their lives to search for it!!! If you ask this old man anything about it here and now... Then I'll quit being a pirate! I don't want to go on a boring adventure like that!"
+> "There’s no such thing as fair or unfair in battle. There is only victory or in your case, defeat."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
