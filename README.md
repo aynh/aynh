@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've been thinking about this for a long time. We put all our trust in alchemy but in the end... what is it? 'Alchemy is the science of understanding the flow of matter and its laws. The process of comprehension, deconstruction, and reconstruction. The world flows too. It must also follow laws. Everything circulates. Even death is a part of that circulation. You must accept the flow.' Hmm, Teacher sure drummed that into our heads, didn't she? I thought I understood it. But I don't understand anything... Mom proves that. Now here I am again, trying desperately to figure out a way to do the impossible. I'm such a hopeless idiot. All this time and I haven't grown up one bit. I thought maybe the rain would wash away some of this gloom that's been following me... but right now, every drop that hits my face is even more depressing."
+> "Isn’t it okay to consider sad or hard times as the seasoning that lets you enjoy life? You can change them inside yourself so that you can enjoy anything. It truly is a wonderful thing, living each day."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Grandma Akino**](https://myanimelist.net/character.php?q=Grandma%20Akino&cat=character), [**Aria the Animation**](https://myanimelist.net/search/all?q=Aria%20the%20Animation&cat=all)
