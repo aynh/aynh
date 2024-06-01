@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I  can neither live with you. Nor without you."
+> "Do whatever you want now. But if you disturb me, I'll kill you."
 
-&mdash; [**Uta**](https://myanimelist.net/character.php?q=Uta&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
