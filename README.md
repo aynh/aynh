@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no such thing as fair or unfair in battle. There is only victory or in your case, defeat."
+> "I envy you people. What I sought, but could not obtain. What I obtained, but could not obtain. Many things slipped out between my fingers, no matter what commandment I used."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
