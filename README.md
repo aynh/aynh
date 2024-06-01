@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it's the army's job to end a war, it's the king's job to find a place for it to end."
+> "The human world is a boring place with boring people doing boring things."
 
-&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
