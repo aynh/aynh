@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Overall, I think people tend to reveal their true selves when they step into an avatar. As I said earlier, they probably feel some sense of freedom. But freedom easily gained quickly turns into a false sense of omnipotence."
+> "I'm going to teach you how to talk to your seniors, baldy."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
+&mdash; [**Hyuuga Junpei**](https://myanimelist.net/character.php?q=Hyuuga%20Junpei&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
