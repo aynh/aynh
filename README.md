@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you think you can change what's going to happen? Nobody can do anything about it. The whirlpool of hatred is engulfing the universe!"
+> "I  can neither live with you. Nor without you."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Uta**](https://myanimelist.net/character.php?q=Uta&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
