@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If an angelic being fell from the sky and tried to live in this world of ours, I think even they would commit many wrongs."
+> "As my fingers and toes re-grew like fingernails or hair over and over and over and over... and over again, every single time I got the feeling that I truly, truly truly was a monster."
 
-&mdash; [**Juuzou Suzuya**](https://myanimelist.net/character.php?q=Juuzou%20Suzuya&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
