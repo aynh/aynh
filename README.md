@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "D-mn! I just stepped in a pile of chiroptoran sh-t!"
+> "Do you think you can change what's going to happen? Nobody can do anything about it. The whirlpool of hatred is engulfing the universe!"
 
-&mdash; [**Saya Otonashi**](https://myanimelist.net/character.php?q=Saya%20Otonashi&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
