@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A suicide means you've killed the most important existence of all: yourself."
+> "Team Rocket may be dirty rotten criminals, but we're not in the business of destroying children's dreams! At least, not yet."
 
-&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
