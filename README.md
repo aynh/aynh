@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When the time comes, I may need to borrow your chest to cry upon. That's one promise I'll need from you."
+> "Using a simple method to accomplish something impressive, far outshines using a complex method to achieve the same thing."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
