@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm going to teach you how to talk to your seniors, baldy."
+> "If an angelic being fell from the sky and tried to live in this world of ours, I think even they would commit many wrongs."
 
-&mdash; [**Hyuuga Junpei**](https://myanimelist.net/character.php?q=Hyuuga%20Junpei&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Juuzou Suzuya**](https://myanimelist.net/character.php?q=Juuzou%20Suzuya&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
