@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fail to strike the enemy once you know their location, and it'll be too late to even regret having missed the chance."
+> "D-mn! I just stepped in a pile of chiroptoran sh-t!"
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Saya Otonashi**](https://myanimelist.net/character.php?q=Saya%20Otonashi&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
