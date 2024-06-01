@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Using a simple method to accomplish something impressive, far outshines using a complex method to achieve the same thing."
+> "I don't know if you noticed, but you just called him 'Captain.'"
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
