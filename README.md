@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't care if it's a girl, a baby or someone's grandma. I'm gonna fight her anyway."
+> "The interaction of men and women isn't very logical."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Ritsuko Akagi**](https://myanimelist.net/character.php?q=Ritsuko%20Akagi&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
