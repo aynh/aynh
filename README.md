@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This world would be in darkness without a sense of duty."
+> "Even when our eyes are closed, there's a whole world out there, that lives outside of ourselves and our dreams."
 
-&mdash; [**Kasumi Fuu**](https://myanimelist.net/character.php?q=Kasumi%20Fuu&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
