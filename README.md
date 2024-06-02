@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kakarot… please… destroy Frieza… He made me what I am. Don’t… let him… do it… to anyone else. Whatever it take… Stop him… Please."
+> "This world would be in darkness without a sense of duty."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Kasumi Fuu**](https://myanimelist.net/character.php?q=Kasumi%20Fuu&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
