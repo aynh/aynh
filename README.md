@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't have time to worry if it's right or wrong, you can't hope for a horror story with a happy ending!"
+> "I don't care if it's a girl, a baby or someone's grandma. I'm gonna fight her anyway."
 
-&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
