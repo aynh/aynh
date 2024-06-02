@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What irony. Such beauty, sprung from such an ugly soil."
+> "Looks like Long Feng is long gone! (laughs) Oh, I've been waiting to use that one!"
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
