@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You failed to protect your planet, because of your own leniency. The only way to avoid this outcome is to send Frieza back to his flower garden."
+> "Every time I reach a new level of strength, a greater power appears to challenge my authority. It’s as if fate is laughing at me with a big stupid grin, just like Kakarot."
 
-&mdash; [**Whis**](https://myanimelist.net/character.php?q=Whis&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
