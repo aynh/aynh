@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are so voracious, though. They eat everything from plants to animals... almost as if they think they are the top living creature to roam the earth. No being is more full of themselves as the humans."
+> "Life is built upon the taking of another life. If you have the resolve to kill, then you have the obligation to eat."
 
-&mdash; [**Hildegard**](https://myanimelist.net/character.php?q=Hildegard&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
+&mdash; [**Usagi Yuzuha**](https://myanimelist.net/character.php?q=Usagi%20Yuzuha&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
