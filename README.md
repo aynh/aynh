@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every time I reach a new level of strength, a greater power appears to challenge my authority. It’s as if fate is laughing at me with a big stupid grin, just like Kakarot."
+> "A wedding is a man's grave."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Kouta Tsuchiya**](https://myanimelist.net/character.php?q=Kouta%20Tsuchiya&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
