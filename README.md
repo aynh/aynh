@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things people can't accept, even if they do understand them."
+> "Kakarot… please… destroy Frieza… He made me what I am. Don’t… let him… do it… to anyone else. Whatever it take… Stop him… Please."
 
-&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
