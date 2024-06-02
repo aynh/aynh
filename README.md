@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Could you stop skipping the thinking process when you respond?"
+> "Being strong on your own is meaningless. To have power you need other people, and they need a world where they can be at their best."
 
-&mdash; [**Kagami Hiiragi**](https://myanimelist.net/character.php?q=Kagami%20Hiiragi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
+&mdash; [**Shiroe**](https://myanimelist.net/character.php?q=Shiroe&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
