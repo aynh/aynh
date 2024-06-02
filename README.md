@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is built upon the taking of another life. If you have the resolve to kill, then you have the obligation to eat."
+> "I've always been afraid...Always been pretending to follow you closely, always pretending to sharpen my fangs, when the truth is...I'm scared to death just treading on your shadow."
 
-&mdash; [**Usagi Yuzuha**](https://myanimelist.net/character.php?q=Usagi%20Yuzuha&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
