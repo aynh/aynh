@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I envy you people. What I sought, but could not obtain. What I obtained, but could not obtain. Many things slipped out between my fingers, no matter what commandment I used."
+> "There are things people can't accept, even if they do understand them."
 
-&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
