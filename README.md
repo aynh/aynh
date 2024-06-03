@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being strong on your own is meaningless. To have power you need other people, and they need a world where they can be at their best."
+> "It doesn't matter if you can make 100 friends. Instead, make real friends who are as important to you as 100 is to them. It doesn't matter if you have one, as long as it's a friend that you care about."
 
-&mdash; [**Shiroe**](https://myanimelist.net/character.php?q=Shiroe&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Yozora Mikazuki**](https://myanimelist.net/character.php?q=Yozora%20Mikazuki&cat=character), [**Boku wa Tomodachi ga Sukunai**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai&cat=all)
