@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And the TV show ended by saying how young people are becoming increasingly illiterate, but doesn't browsing the Internet and blogging actually improve your literacy?"
+> "If I were the rain, that binds together the heavens and the earth, whom in all eternity will never mingle, would I be able to bind two hearts together?"
 
-&mdash; [**Konata Izumi**](https://myanimelist.net/character.php?q=Konata%20Izumi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
+&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
