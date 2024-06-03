@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A great enough sorrow can stop time, but someday, time will start moving again. No matter how many years may pass."
+> "After the first note resonated through the hall, You became everything I yearn for."
 
-&mdash; [**Grandmother Sawatari**](https://myanimelist.net/character.php?q=Grandmother%20Sawatari&cat=character), [**Tamayura**](https://myanimelist.net/search/all?q=Tamayura&cat=all)
+&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
