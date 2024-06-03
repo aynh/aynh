@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it's fear that you speak of, then I'll stand and face it. I'll never give up. The only time I lose is when I die!"
+> "Was I not clear? Then lemme give you an example. Say that somewhere, there's this guy who's suffering the absolute worst fate in the world you could possibly think of. You get wind of this guy somehow and hearing what he's going through really upsets you. That would be meaningless sentimentality I'm talking about. This is a far-off, distant world we're talking about, one you shouldn't concern yourself with. So even if someone in this far-off world leads such a sad existence, it won't keep you from living every day with a smile on your face."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Avenger**](https://myanimelist.net/character.php?q=Avenger&cat=character), [**Fate/hollow ataraxia**](https://myanimelist.net/search/all?q=Fate%2Fhollow%20ataraxia&cat=all)
