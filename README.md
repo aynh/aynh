@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think the only time people really have value is when they act according to their own will."
+> "And the TV show ended by saying how young people are becoming increasingly illiterate, but doesn't browsing the Internet and blogging actually improve your literacy?"
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Konata Izumi**](https://myanimelist.net/character.php?q=Konata%20Izumi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
