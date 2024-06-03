@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To take responsibility is to take the pain onto yourself. It means to bear more pain than what others felt because of your mistake."
+> "The main reason I got stronger was so I’d be able to survive."
 
-&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
