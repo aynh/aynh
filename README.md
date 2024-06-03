@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kyon. The contest begins the second someone challenges you. Anything the loser says otherwise is merely an excuse."
+> "You can’t stop fighting to play. Once you've lost that drive, you’ll start to lose your edge."
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Yuusei Nishida**](https://myanimelist.net/character.php?q=Yuusei%20Nishida&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
