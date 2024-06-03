@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can’t stop fighting to play. Once you've lost that drive, you’ll start to lose your edge."
+> "It is love that can make us strong, but it is also love that can make us weak."
 
-&mdash; [**Yuusei Nishida**](https://myanimelist.net/character.php?q=Yuusei%20Nishida&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
