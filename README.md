@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death is terrible for anyone. Young or old, good or evil, it's all the same. Death is impartial. There is no especially terrible death. That's why death is so fearsome. Your deeds, your age, your personality, your wealth, your beauty... They are all meaningless in the face of death."
+> "No matter how well you get along together, sometimes the smallest of cracks turn into a lethal abyss in time."
 
-&mdash; [**Sunako Kirishiki**](https://myanimelist.net/character.php?q=Sunako%20Kirishiki&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Ai Kotani**](https://myanimelist.net/character.php?q=Ai%20Kotani&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
