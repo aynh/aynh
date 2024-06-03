@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You need to decide where you belong before anything else. If you can do that, you can decide what you want to do."
+> "Death is terrible for anyone. Young or old, good or evil, it's all the same. Death is impartial. There is no especially terrible death. That's why death is so fearsome. Your deeds, your age, your personality, your wealth, your beauty... They are all meaningless in the face of death."
 
-&mdash; [**Jin Mitaka**](https://myanimelist.net/character.php?q=Jin%20Mitaka&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Sunako Kirishiki**](https://myanimelist.net/character.php?q=Sunako%20Kirishiki&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
