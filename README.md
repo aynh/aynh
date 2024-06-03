@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even in the darkness, I’m sure it’s reassuring to have someone there to walk with you."
+> "Don't start a fight that you can't finish."
 
-&mdash; [**Noe Isurugi**](https://myanimelist.net/character.php?q=Noe%20Isurugi&cat=character), [**True Tears**](https://myanimelist.net/search/all?q=True%20Tears&cat=all)
+&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
