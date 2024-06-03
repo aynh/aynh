@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is love that can make us strong, but it is also love that can make us weak."
+> "Even in the darkness, I’m sure it’s reassuring to have someone there to walk with you."
 
-&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Noe Isurugi**](https://myanimelist.net/character.php?q=Noe%20Isurugi&cat=character), [**True Tears**](https://myanimelist.net/search/all?q=True%20Tears&cat=all)
