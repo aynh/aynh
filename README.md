@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't you think that true memories are a combination of fun ones and painful ones?"
+> "The Present is ending. Here, countless versions of our past selves are always crying, laughing, falling in love, getting hurt, joking around, feeling happy and suffering. These feelings are born all the time and in the next moment, they became the past and die. It's over now. This is the end, but the truth is everyone's time is like that. Right after it's born, every moment becomes the past and dies."
 
-&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
