@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A man that can't hold on to his beliefs can only be pathetic, dead or alive."
+> "You can lose the match and the game, but if you don't lose to yourself, it isn't a loss."
 
-&mdash; [**Hajime Saitou**](https://myanimelist.net/character.php?q=Hajime%20Saitou&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Karen Araragi**](https://myanimelist.net/character.php?q=Karen%20Araragi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
