@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For living creatures, Victory if Life, and Defeat means Death."
+> "I’d rather have my physical pain exceed my mental pain than the other way around. By hurting myself just enough, I could turn my attention to that."
 
-&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Kusonoki**](https://myanimelist.net/character.php?q=Kusonoki&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
