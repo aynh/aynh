@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’d rather have my physical pain exceed my mental pain than the other way around. By hurting myself just enough, I could turn my attention to that."
+> "A man that can't hold on to his beliefs can only be pathetic, dead or alive."
 
-&mdash; [**Kusonoki**](https://myanimelist.net/character.php?q=Kusonoki&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
+&mdash; [**Hajime Saitou**](https://myanimelist.net/character.php?q=Hajime%20Saitou&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
