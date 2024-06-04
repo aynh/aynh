@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's important is not what's right, but what we believe is right."
+> "There are... many types of monsters in this world: Monsters who will not show themselves and who cause trouble; monsters who abduct children; monsters who devour dreams; monsters who suck blood, and... monsters who always tell lies. Lying monsters are a real nuisance. They are much more cunning than other monsters. They pose as humans even though they have no understanding of the human heart. They eat even though they've never experienced hunger. They study even though they have no interest in academics. They seek friendship even though they do not know how to love. If I were to encounter such a monster, I would likely be eaten by it. Because in truth, I am that monster."
 
-&mdash; [**Escha Malier**](https://myanimelist.net/character.php?q=Escha%20Malier&cat=character), [**Atelier Escha & Logy: Alchemists of the Dusk Sky**](https://myanimelist.net/search/all?q=Atelier%20Escha%20%26%20Logy%3A%20Alchemists%20of%20the%20Dusk%20Sky&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
