@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Say good-bye to The Unstoppable Exodia!"
+> "To become an observer, you shouldn't have someone you like or dislike, because special feelings or bias info would make it difficult for one to judge a situation."
 
-&mdash; [**Underwood Weevil**](https://myanimelist.net/character.php?q=Underwood%20Weevil&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Kanoko Naedoko**](https://myanimelist.net/character.php?q=Kanoko%20Naedoko&cat=character), [**Warau Kanoko-sama**](https://myanimelist.net/search/all?q=Warau%20Kanoko-sama&cat=all)
