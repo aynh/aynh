@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't worry about being so considerate of adults. You can only be a kid for so long, so you might as well enjoy it."
+> "Sometimes violence is the only way to get the message across."
 
-&mdash; [**Charles Beams**](https://myanimelist.net/character.php?q=Charles%20Beams&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Eikichi Onizuka**](https://myanimelist.net/character.php?q=Eikichi%20Onizuka&cat=character), [**Great Teacher Onizuka**](https://myanimelist.net/search/all?q=Great%20Teacher%20Onizuka&cat=all)
