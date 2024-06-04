@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't need to make a hundred friends. Just make real friends that you care about a hundred times as much. Even if you only have one, so long as they’re a friend you really care about."
+> "For living creatures, Victory if Life, and Defeat means Death."
 
-&mdash; [**Yozora Mikazuki**](https://myanimelist.net/character.php?q=Yozora%20Mikazuki&cat=character), [**Boku wa Tomodachi ga Sukunai**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai&cat=all)
+&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
