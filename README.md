@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To become an observer, you shouldn't have someone you like or dislike, because special feelings or bias info would make it difficult for one to judge a situation."
+> "If you live life by other people's standards, then your life is no longer yours."
 
-&mdash; [**Kanoko Naedoko**](https://myanimelist.net/character.php?q=Kanoko%20Naedoko&cat=character), [**Warau Kanoko-sama**](https://myanimelist.net/search/all?q=Warau%20Kanoko-sama&cat=all)
+&mdash; [**Eddie Lee**](https://myanimelist.net/character.php?q=Eddie%20Lee&cat=character), [**Beck**](https://myanimelist.net/search/all?q=Beck&cat=all)
