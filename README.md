@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you live life by other people's standards, then your life is no longer yours."
+> "Hide the truth. Manipulate information. Use intimidation."
 
-&mdash; [**Eddie Lee**](https://myanimelist.net/character.php?q=Eddie%20Lee&cat=character), [**Beck**](https://myanimelist.net/search/all?q=Beck&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
