@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times when all we can do is stand aside and watch."
+> "Obviously you are underestimating Kurama. Do you know why I chose him to be my partner? To avoid fighting him myself. Watch, he's more cut-throat then I am when it comes to battle, and unbelievably precise."
 
-&mdash; [**Cordelia**](https://myanimelist.net/character.php?q=Cordelia&cat=character), [**Romeo x Juliet**](https://myanimelist.net/search/all?q=Romeo%20x%20Juliet&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
