@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Obviously you are underestimating Kurama. Do you know why I chose him to be my partner? To avoid fighting him myself. Watch, he's more cut-throat then I am when it comes to battle, and unbelievably precise."
+> "There's no more trusted observer than someone who suspects you."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
