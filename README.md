@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The main reason I got stronger was so I’d be able to survive."
+> "There are times when all we can do is stand aside and watch."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Cordelia**](https://myanimelist.net/character.php?q=Cordelia&cat=character), [**Romeo x Juliet**](https://myanimelist.net/search/all?q=Romeo%20x%20Juliet&cat=all)
