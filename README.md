@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Power is not the only connection you can have.  This world is filled with much warmer things."
+> "Don't look back. If you got something to do, then only look forward."
 
-&mdash; [**Minerva Orland**](https://myanimelist.net/character.php?q=Minerva%20Orland&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kurogane**](https://myanimelist.net/character.php?q=Kurogane&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
