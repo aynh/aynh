@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A fallen angel banished from heaven, arises into the light to be recieved by the benevolence of God..."
+> "Do you have any idea how stupid we are? Don't underestimate us!!!"
 
-&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Gintama**](https://myanimelist.net/character.php?q=Gintama&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
