@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, I don't think we can deny the distinct possibility that the world we are in now was freshly created, by Her, last night! In any case, it's an honor to meet you and Miss Suzumiya again. *laughing softly* Be seeing you after class!"
+> "Maybe, just maybe, it's a concept that's similar to a zero in mathematics. In other words, it's a symbol that denies the absence of meaning, the meaning that's necessitated by the delineation of one system from another. In analog, that's God. In digital, that's zero."
 
-&mdash; [**Itsuki Koizumi**](https://myanimelist.net/character.php?q=Itsuki%20Koizumi&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Tachikoma**](https://myanimelist.net/character.php?q=Tachikoma&cat=character), [**Ghost in the Shell: Stand Alone Complex**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell%3A%20Stand%20Alone%20Complex&cat=all)
