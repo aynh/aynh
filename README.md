@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you lose your uniqueness for fear of being disliked, then no one will ever love you."
+> "A fallen angel banished from heaven, arises into the light to be recieved by the benevolence of God..."
 
-&mdash; [**Yuuki Aito**](https://myanimelist.net/character.php?q=Yuuki%20Aito&cat=character), [**The Comic Artist and His Assistants**](https://myanimelist.net/search/all?q=The%20Comic%20Artist%20and%20His%20Assistants&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
