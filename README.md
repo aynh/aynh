@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you have any idea how stupid we are? Don't underestimate us!!!"
+> "Love is not necessary, power is the only true necessity."
 
-&mdash; [**Gintama**](https://myanimelist.net/character.php?q=Gintama&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
