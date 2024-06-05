@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop being such a bitch, Sweden!"
+> "If this world wasn't a complete hell for me, that's because you were alive."
 
-&mdash; [**Poland**](https://myanimelist.net/character.php?q=Poland&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Ein**](https://myanimelist.net/character.php?q=Ein&cat=character), [**Phantom: Requiem For The Phantom**](https://myanimelist.net/search/all?q=Phantom%3A%20Requiem%20For%20The%20Phantom&cat=all)
