@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’ll use my flames for a better purpose!"
+> "Don't judge me based on the same story and laugh."
 
-&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
