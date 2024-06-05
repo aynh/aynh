@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The way you perceive yourself doesn't match the way others perceive you. Those who work hard despite that discrepancy shine brighter than anyone else!"
+> "Music is freedom."
 
-&mdash; [**Kō Ōsaki**](https://myanimelist.net/character.php?q=K%C5%8D%20%C5%8Csaki&cat=character), [**Shōnen Hollywood - Holly Stage for 49**](https://myanimelist.net/search/all?q=Sh%C5%8Dnen%20Hollywood%20-%20Holly%20Stage%20for%2049&cat=all)
+&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
