@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is not necessary, power is the only true necessity."
+> "Old man, everyone!! And you.. Luffy. Even though I've been good for nothing my whole life, even though I have the blood of a demon within me... You guys still loved me! Thank you so much!!"
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
