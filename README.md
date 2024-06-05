@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Often times in memory, we have the tendency to overly romanticize the people we care about."
+> "If you lose your uniqueness for fear of being disliked, then no one will ever love you."
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Yuuki Aito**](https://myanimelist.net/character.php?q=Yuuki%20Aito&cat=character), [**The Comic Artist and His Assistants**](https://myanimelist.net/search/all?q=The%20Comic%20Artist%20and%20His%20Assistants&cat=all)
