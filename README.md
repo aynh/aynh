@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The weaker you are the louder you bark."
+> "*to Ichigo* I thought you were interesting before, but now you're just a creepy kid."
 
-&mdash; [**Tenten**](https://myanimelist.net/character.php?q=Tenten&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
