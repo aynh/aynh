@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Ichigo* I thought you were interesting before, but now you're just a creepy kid."
+> "Is it really worth saving this sad and ugly world, when there is nothing left after it is saved? With all this death, cruelty and sadness, do you still want to become a hero?"
 
-&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
