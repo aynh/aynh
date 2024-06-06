@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Poets say love can't be bought with money. Preachers say that there are things more important than money. So even though we work hard just to earn money, how can we obtain something more important than that?"
+> "Even if I was someone, people couldn't comprehend me. And even if they could, they wouldn't be able to communicate it to those around them. I do not belong to the world. That is the world's limit, the boundary between the world and the self."
 
-&mdash; [**Mark**](https://myanimelist.net/character.php?q=Mark&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Ergo Proxy**](https://myanimelist.net/character.php?q=Ergo%20Proxy&cat=character), [**Ergo Proxy**](https://myanimelist.net/search/all?q=Ergo%20Proxy&cat=all)
