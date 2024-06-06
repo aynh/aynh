@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say that we should love ourselves first, before other people learn to love us, but it's not as easy as it seems. Sometimes, we need someone to accept us and love us first, then we would learn to see ourselves through that person's eyes and learn to love our-self."
+> "[upon arriving at Szayel Aporro Grantz's location] Arrancar, Arrancar, Arrancar... Espada! Hueco Mundo is quite the treasure trove."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
