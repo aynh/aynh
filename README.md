@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is there really a god? If there is one, why does he keep me confined in here?"
+> "Isn't chasing our dream our job right now?"
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Minako Kanou**](https://myanimelist.net/character.php?q=Minako%20Kanou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
