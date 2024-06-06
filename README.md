@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Neither one nor the other, not a demon, but not a human either, no place no belong… I thought the only way was to carve out your own place, by force; that’s how I survived. And by the time I knew what was happening, I was all alone…"
+> "If you'll cower at the sight of the great foe before you, leave at once, coward. If you'll lose the strength you believed in, then fall to the ground, weakling."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/character.php?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
