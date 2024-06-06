@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Isn't chasing our dream our job right now?"
+> "Black Star, I can't come down, there's water. Carry me."
 
-&mdash; [**Minako Kanou**](https://myanimelist.net/character.php?q=Minako%20Kanou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
