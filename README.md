@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[upon arriving at Szayel Aporro Grantz's location] Arrancar, Arrancar, Arrancar... Espada! Hueco Mundo is quite the treasure trove."
+> "Everything you've been taught is based on theories and logic. Soon you will likely come to realize how pointless they are in the world we live in."
 
-&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tomomi Masaoka**](https://myanimelist.net/character.php?q=Tomomi%20Masaoka&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
