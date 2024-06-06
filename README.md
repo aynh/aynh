@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What would you ask a grave, which can never reply? What do you pray for? Saying anything after someone's death is far too late."
+> "If you can fool your friends, you can fool your enemies."
 
-&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Xelloss Metallium**](https://myanimelist.net/character.php?q=Xelloss%20Metallium&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
