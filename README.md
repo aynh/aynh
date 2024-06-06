@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everything you've been taught is based on theories and logic. Soon you will likely come to realize how pointless they are in the world we live in."
+> "When a dog soils the carpet, its master is responsible."
 
-&mdash; [**Tomomi Masaoka**](https://myanimelist.net/character.php?q=Tomomi%20Masaoka&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
+&mdash; [**Cruhteo**](https://myanimelist.net/character.php?q=Cruhteo&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
