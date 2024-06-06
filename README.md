@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If people scrutinize you, just ignore them and do whatever you want to do."
+> "Ah, I wish I could have a bankai like that."
 
-&mdash; [**Zen Wistalia**](https://myanimelist.net/character.php?q=Zen%20Wistalia&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
