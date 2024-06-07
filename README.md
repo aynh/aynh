@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There isn't just one truth out there, everyone carries their own form of it"
+> "[to Kyo after they trip] What can I learn from a stupid cat like you? You didn't even know that Jason isn't really a bear! He's a character from a horror film!"
 
-&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
