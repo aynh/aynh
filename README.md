@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It might be for the better if there are amusing people around me. Because any tragedy may seem a comedy, as long as I am with them."
+> "How is this possible? I must be the first person in history who was flushed down the toilet!"
 
-&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Yuri Shibuya**](https://myanimelist.net/character.php?q=Yuri%20Shibuya&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
