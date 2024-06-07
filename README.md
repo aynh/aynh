@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Kyo after they trip] What can I learn from a stupid cat like you? You didn't even know that Jason isn't really a bear! He's a character from a horror film!"
+> "Yeah, so I don’t appear to be the brightest crayon in the box but I still look down on the rest of the world."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kei Kurono**](https://myanimelist.net/character.php?q=Kei%20Kurono&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
