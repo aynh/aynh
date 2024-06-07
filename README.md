@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unnecessary thoughts will only interfere with your plays."
+> "If wishes could be granted, if desires could be fulfilled,  then I wouldn't wish or desire for anything after all. The things you're handed on a silver platter are never genuine, and never everlasting. And that is why I'll always keep searching."
 
-&mdash; [**Gouenji Shuuya**](https://myanimelist.net/character.php?q=Gouenji%20Shuuya&cat=character), [**Inazuma Eleven**](https://myanimelist.net/search/all?q=Inazuma%20Eleven&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
