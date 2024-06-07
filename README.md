@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Young ones! Do you want to hear the legend of me? Do you want to hear a heroic tale?"
+> "The truth is everyone is going to hurt you, you just got to find the ones worth suffering for."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Hei**](https://myanimelist.net/character.php?q=Hei&cat=character), [**Darker than Black - Kuro no Keiyakusha: Gaiden**](https://myanimelist.net/search/all?q=Darker%20than%20Black%20-%20Kuro%20no%20Keiyakusha%3A%20Gaiden&cat=all)
