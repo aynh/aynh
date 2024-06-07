@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I fight to get what I need, and I kill whoever gets in my way. I always have."
+> "Young ones! Do you want to hear the legend of me? Do you want to hear a heroic tale?"
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
