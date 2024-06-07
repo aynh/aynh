@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Referring to Tosen] He's such a boy scout, wouldn't you agree?"
+> "People are such strange beings. The sad memories seem to just fade away, until all a person is left with are the happier ones. People are certainly designed so conveniently."
 
-&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Eva Heinemann**](https://myanimelist.net/character.php?q=Eva%20Heinemann&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
