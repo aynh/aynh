@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've wanted to make him taste his own pathetic failure with all my heart."
+> "Someone the exact opposite of Inuyasha.  That's the perfect guy for me."
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
