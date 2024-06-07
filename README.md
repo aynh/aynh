@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only victors are allowed to live... this world is merciless like that."
+> "Pride is not something you can surrender."
 
-&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
