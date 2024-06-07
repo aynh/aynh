@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If wishes could be granted, if desires could be fulfilled,  then I wouldn't wish or desire for anything after all. The things you're handed on a silver platter are never genuine, and never everlasting. And that is why I'll always keep searching."
+> "It might be for the better if there are amusing people around me. Because any tragedy may seem a comedy, as long as I am with them."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
