@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can fool your friends, you can fool your enemies."
+> "If it's this world behind the eyelids, anybody can become the person I imagine them to be."
 
-&mdash; [**Xelloss Metallium**](https://myanimelist.net/character.php?q=Xelloss%20Metallium&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
+&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
