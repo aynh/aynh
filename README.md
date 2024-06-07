@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah, so I don’t appear to be the brightest crayon in the box but I still look down on the rest of the world."
+> "Though possessing two eyes, most creatures can see but a single thing at a time."
 
-&mdash; [**Kei Kurono**](https://myanimelist.net/character.php?q=Kei%20Kurono&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
