@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When captured birds grow wiser, they try to open the cage with their beaks. They don't give up, because they want to fly again."
+> "Life really is a mysterious thing. Each and every life spins its own, totally separate tale, yet they become intricately entwined in each other. And no one knows how they will end up."
 
-&mdash; [**Genma Shiranui**](https://myanimelist.net/character.php?q=Genma%20Shiranui&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Decim**](https://myanimelist.net/character.php?q=Decim&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
