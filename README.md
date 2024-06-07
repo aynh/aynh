@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The truth is everyone is going to hurt you, you just got to find the ones worth suffering for."
+> "When captured birds grow wiser, they try to open the cage with their beaks. They don't give up, because they want to fly again."
 
-&mdash; [**Hei**](https://myanimelist.net/character.php?q=Hei&cat=character), [**Darker than Black - Kuro no Keiyakusha: Gaiden**](https://myanimelist.net/search/all?q=Darker%20than%20Black%20-%20Kuro%20no%20Keiyakusha%3A%20Gaiden&cat=all)
+&mdash; [**Genma Shiranui**](https://myanimelist.net/character.php?q=Genma%20Shiranui&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
