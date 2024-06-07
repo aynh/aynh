@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You taught me what it means to love, and for that I will be eternally grateful."
+> "I don't have much power and I'm trying to get stronger. But I'm not afraid of sharing my heart..."
 
-&mdash; [**Gajeel Redfox**](https://myanimelist.net/character.php?q=Gajeel%20Redfox&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
