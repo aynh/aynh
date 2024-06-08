@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[talking to Kiba, who is being held in a cage] Man, you really screwed up. I mean, I've seen one of us get hurt before, but never this badly. And you're caught, too."
+> "The village does have its dark side and its inconsistencies, but I'm still Konoha's Itachi Uchiha."
 
-&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
