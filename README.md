@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why did I fall in love with music in the first place?"
+> "Nothing is forever. Everyone changes. They have to! Even I and so do you."
 
-&mdash; [**Jirō Yamada**](https://myanimelist.net/character.php?q=Jir%C5%8D%20Yamada&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Nanoha Takamachi**](https://myanimelist.net/character.php?q=Nanoha%20Takamachi&cat=character), [**Mahou Shoujo Lyrical Nanoha**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Lyrical%20Nanoha&cat=all)
