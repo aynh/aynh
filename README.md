@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your so called 'hope' is to throw the past into despair?"
+> "It is fine to assume that the Master's role is to support the battle from the back. But there are always exceptions. There are Masters who can only fight head on."
 
-&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Souichirou Kuzuki**](https://myanimelist.net/character.php?q=Souichirou%20Kuzuki&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
