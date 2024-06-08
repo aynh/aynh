@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can take a picture of something and it never does it justice... I think about that sometimes when I see a picture of you."
+> "Team isn't just something to be protected. A team also protects you. We don't support each because we are a team. We are a team because we support each other."
 
-&mdash; [**Mikako Nagamine**](https://myanimelist.net/character.php?q=Mikako%20Nagamine&cat=character), [**Voices of a Distant Star**](https://myanimelist.net/search/all?q=Voices%20of%20a%20Distant%20Star&cat=all)
+&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
