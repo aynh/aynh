@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing is forever. Everyone changes. They have to! Even I and so do you."
+> "The human psyche goes out of whack so easily with minor elements, such as wall colors and staircase placement. Those who use them every day would be affected more dramatically."
 
-&mdash; [**Nanoha Takamachi**](https://myanimelist.net/character.php?q=Nanoha%20Takamachi&cat=character), [**Mahou Shoujo Lyrical Nanoha**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Lyrical%20Nanoha&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**Kara no Kyoukai**](https://myanimelist.net/search/all?q=Kara%20no%20Kyoukai&cat=all)
