@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People in supervising positions in investigation are supposed to give too much of their opinion, and if they are wrong, all it would take is an apology."
+> "There's nothing more satisfying than conquering all types of girls."
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Mikoto Mikoshiba**](https://myanimelist.net/character.php?q=Mikoto%20Mikoshiba&cat=character), [**Gekkan Shoujo Nozaki-kun**](https://myanimelist.net/search/all?q=Gekkan%20Shoujo%20Nozaki-kun&cat=all)
