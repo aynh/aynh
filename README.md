@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someone the exact opposite of Inuyasha.  That's the perfect guy for me."
+> "Even if people refuse to accept you, it doesn't change the fact that I accept you and don't want you to leave."
 
-&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Shido Itsuka**](https://myanimelist.net/character.php?q=Shido%20Itsuka&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
