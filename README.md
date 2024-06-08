@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But just between you and I, what I'm more interested in is traveling and seeing new places. (screams as she goes down a hill after being scared by a Duskull) I guess I... shoulda worn a... (crashes into a tree) helmet."
+> "Even if they were mistakes, all you have to do is keep walking down that mistaken path. Simply assume that nothing lies before you except mistaken paths. Just so you know, the 'right' path can be surprisingly dull. There are times when it's right to take the mistaken path. The moment you decide a path is right, all of the paths behind it become right, regardless of what it originally was."
 
-&mdash; [**Haruka**](https://myanimelist.net/character.php?q=Haruka&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Tsuyoto Hiiragi**](https://myanimelist.net/character.php?q=Tsuyoto%20Hiiragi&cat=character), [**Shōnen Hollywood - Holly Stage for 49**](https://myanimelist.net/search/all?q=Sh%C5%8Dnen%20Hollywood%20-%20Holly%20Stage%20for%2049&cat=all)
