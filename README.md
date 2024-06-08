@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A warrior would rather die, than survive defeat."
+> "Often times, people simply deny the existence of what they do not understand, and anyone who tells them otherwise is a liar."
 
-&mdash; [**Assassin**](https://myanimelist.net/character.php?q=Assassin&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
