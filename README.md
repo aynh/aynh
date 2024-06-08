@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to become weak and if that's not possible, then I at least want to make friends that are as strong as me."
+> "You shouldn't judge people by how they look."
 
-&mdash; [**Coyote Starrk**](https://myanimelist.net/character.php?q=Coyote%20Starrk&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
