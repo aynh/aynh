@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Cherry blossoms in Spring. Stars cover the sky on Summer. Full moon shines on Autumn and in Winter, the snow covers the ground. All these things make sake taste good. If it tastes bad, it's because there is something wrong in you."
+> "Your so called 'hope' is to throw the past into despair?"
 
-&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
