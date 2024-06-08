@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Often times, people simply deny the existence of what they do not understand, and anyone who tells them otherwise is a liar."
+> "People in supervising positions in investigation are supposed to give too much of their opinion, and if they are wrong, all it would take is an apology."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
