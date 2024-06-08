@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Team isn't just something to be protected. A team also protects you. We don't support each because we are a team. We are a team because we support each other."
+> "Cherry blossoms in Spring. Stars cover the sky on Summer. Full moon shines on Autumn and in Winter, the snow covers the ground. All these things make sake taste good. If it tastes bad, it's because there is something wrong in you."
 
-&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
