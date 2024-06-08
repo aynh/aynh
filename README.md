@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Beautiful flowers, too, eventually wither and fall. That's the fate of all living beings."
+> "But just between you and I, what I'm more interested in is traveling and seeing new places. (screams as she goes down a hill after being scared by a Duskull) I guess I... shoulda worn a... (crashes into a tree) helmet."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Haruka**](https://myanimelist.net/character.php?q=Haruka&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
