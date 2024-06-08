@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Illegal contractees kill people to be able to change the past."
+> "I want to become weak and if that's not possible, then I at least want to make friends that are as strong as me."
 
-&mdash; [**Gilbert Nightray**](https://myanimelist.net/character.php?q=Gilbert%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Coyote Starrk**](https://myanimelist.net/character.php?q=Coyote%20Starrk&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
