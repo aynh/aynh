@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You shouldn't judge a person based on circumstantial evidence."
+> "There are always lazy people to deal with when you act as a group. Splitting into pairs and handling out jobs is more efficient."
 
-&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Kazuki Kazami**](https://myanimelist.net/character.php?q=Kazuki%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
