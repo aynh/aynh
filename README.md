@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fear. That is what we live with. And we live it everyday. Only in death are we free of it."
+> "You shouldn't judge a person based on circumstantial evidence."
 
-&mdash; [**Neji Hyuuga**](https://myanimelist.net/character.php?q=Neji%20Hyuuga&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
