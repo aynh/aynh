@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "With out strong opponents, living isn't fun. It's perfect if I can't win."
+> "Sorry. Our world isn't as nice a place as yours. When it comes to war and killing, we have far more expertise than you do."
 
-&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
