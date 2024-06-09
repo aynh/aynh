@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was born to end up alone."
+> "Once you meet someone, you never really forget them. It just takes a while for your memory to come back to you."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Zeniba**](https://myanimelist.net/character.php?q=Zeniba&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
