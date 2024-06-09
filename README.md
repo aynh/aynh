@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That was the sound of the last train back to my house. And once again, I missed it. Our English class always gets out late on Tuesdays, so I have to walk home. But that's OK, because I like English. And the walk home's not so bad. Usually."
+> "Well, I don't think we can deny the distinct possibility that the world we are in now was freshly created, by Her, last night! In any case, it's an honor to meet you and Miss Suzumiya again. *laughing softly* Be seeing you after class!"
 
-&mdash; [**Manta Oyamada**](https://myanimelist.net/character.php?q=Manta%20Oyamada&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Itsuki Koizumi**](https://myanimelist.net/character.php?q=Itsuki%20Koizumi&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
