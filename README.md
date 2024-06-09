@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death is not friendly. It's dark, black where you look at it. You're all alone. But it's no different when you're alive, right? No matter how many relationships we seem to have, we're all alone."
+> "For me to call a man my friend, he must be equal to me in all respects."
 
-&mdash; [**Mei Misaki**](https://myanimelist.net/character.php?q=Mei%20Misaki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
+&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
