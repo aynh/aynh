@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no use. There’s no such thing as a victory that can be won through effort. It doesn’t exist."
+> "Bad skin?! Normal teenagers worry about bad skin, I don't have that luxury. My father decided to teach me a permanent lesson... ON MY FACE!"
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
