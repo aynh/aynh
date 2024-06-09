@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you meet someone, you never really forget them. It just takes a while for your memory to come back to you."
+> "Luxury means something with no meaning at all"
 
-&mdash; [**Zeniba**](https://myanimelist.net/character.php?q=Zeniba&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
+&mdash; [**Souhei Saikawa**](https://myanimelist.net/character.php?q=Souhei%20Saikawa&cat=character), [**Subete ga F ni Naru**](https://myanimelist.net/search/all?q=Subete%20ga%20F%20ni%20Naru&cat=all)
