@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What do you think of the word 'fate'? Does the concept of fate exists in reality? To put it simply, are people's futures set in stone when they are born, never to be challenged? Do you believe in such a rule?"
+> "To know your sin is to have no sin."
 
-&mdash; [**Sanetoshi Watase**](https://myanimelist.net/character.php?q=Sanetoshi%20Watase&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Renmei Communicator**](https://myanimelist.net/character.php?q=Renmei%20Communicator&cat=character), [**Haibane Renmei**](https://myanimelist.net/search/all?q=Haibane%20Renmei&cat=all)
