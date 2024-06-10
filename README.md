@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To know your sin is to have no sin."
+> "'Falsity' is changing the truth. 'Ignorance' is not realizing the truth. 'Incompetence' is being unable to fully grasp the truth."
 
-&mdash; [**Renmei Communicator**](https://myanimelist.net/character.php?q=Renmei%20Communicator&cat=character), [**Haibane Renmei**](https://myanimelist.net/search/all?q=Haibane%20Renmei&cat=all)
+&mdash; [**Laetitia**](https://myanimelist.net/character.php?q=Laetitia&cat=character), [**Madlax**](https://myanimelist.net/search/all?q=Madlax&cat=all)
