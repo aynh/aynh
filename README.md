@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, Okabe, whether time is slow or fast, depends on perception. Theory of relativity is so romantic."
+> "Lately, I've been looking at these two guys only. As expected, I see flowers when there are women in the workplace... the atmosphere!"
 
-&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
