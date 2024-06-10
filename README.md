@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When a human, gives birth to a child, they give it a form. When they give it a name, they recognize it. And when they raise it in the world, they deepen it's existence."
+> "What do you think of the word 'fate'? Does the concept of fate exists in reality? To put it simply, are people's futures set in stone when they are born, never to be challenged? Do you believe in such a rule?"
 
-&mdash; [**Beatrice**](https://myanimelist.net/character.php?q=Beatrice&cat=character), [**Umineko no Naku Koro ni Chiru Episode 7: Requiem of the...**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni%20Chiru%20Episode%207%3A%20Requiem%20of%20the...&cat=all)
+&mdash; [**Sanetoshi Watase**](https://myanimelist.net/character.php?q=Sanetoshi%20Watase&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
