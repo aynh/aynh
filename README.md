@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Falsity' is changing the truth. 'Ignorance' is not realizing the truth. 'Incompetence' is being unable to fully grasp the truth."
+> "When one thing ends, another begins."
 
-&mdash; [**Laetitia**](https://myanimelist.net/character.php?q=Laetitia&cat=character), [**Madlax**](https://myanimelist.net/search/all?q=Madlax&cat=all)
+&mdash; [**Riko Aida**](https://myanimelist.net/character.php?q=Riko%20Aida&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
