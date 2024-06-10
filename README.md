@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is pointless to question who someone really is. All you can do is believe and accept. Because the way you perceive someone is their true identity."
+> "There are always lazy people to deal with when you act as a group. Splitting into pairs and handling out jobs is more efficient."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Kazuki Kazami**](https://myanimelist.net/character.php?q=Kazuki%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
