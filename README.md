@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment between life and death is where a true man shows his color."
+> "Not one wish ever gets granted in this world."
 
-&mdash; [**Shio Sakaki**](https://myanimelist.net/character.php?q=Shio%20Sakaki&cat=character), [**KenIchi the Mightiest Disciple**](https://myanimelist.net/search/all?q=KenIchi%20the%20Mightiest%20Disciple&cat=all)
+&mdash; [**Tobi**](https://myanimelist.net/character.php?q=Tobi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
