@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "High school girls, high school girls, all for me, high school girls!"
+> "It is pointless to question who someone really is. All you can do is believe and accept. Because the way you perceive someone is their true identity."
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
