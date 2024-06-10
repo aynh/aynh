@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When one thing ends, another begins."
+> "High school girls, high school girls, all for me, high school girls!"
 
-&mdash; [**Riko Aida**](https://myanimelist.net/character.php?q=Riko%20Aida&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
