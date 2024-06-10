@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't risk your life, you can't create a future. Right?"
+> "You know, Okabe, whether time is slow or fast, depends on perception. Theory of relativity is so romantic."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
