@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll show you a real assassination. No... Maybe you won't even be able to see it."
+> "Live a pleasant life in the unpleasant world."
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Rokka Shimao**](https://myanimelist.net/character.php?q=Rokka%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
