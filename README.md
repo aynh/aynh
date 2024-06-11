@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Change is never easy in this world. I can't even change one friend, let alone a whole country."
+> "I realized once again that my life is stuck on hard mode."
 
-&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kazunari Usa**](https://myanimelist.net/character.php?q=Kazunari%20Usa&cat=character), [**Bokura wa Minna Kawaisou**](https://myanimelist.net/search/all?q=Bokura%20wa%20Minna%20Kawaisou&cat=all)
