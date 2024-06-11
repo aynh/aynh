@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People derive their happiness in a variety of ways, even though it might seem cruel."
+> "There can be no going back once you come to love someone."
 
-&mdash; [**Adashino**](https://myanimelist.net/character.php?q=Adashino&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Miyagi**](https://myanimelist.net/character.php?q=Miyagi&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
