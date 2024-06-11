@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are people in this world that enjoy being alone, but there isn't a single person who can bear solitude."
+> "Love is a bitter sweet taste of life, which many humans many weaknesses and sometimes their strongest weapon."
 
-&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Mato Kuroi**](https://myanimelist.net/character.php?q=Mato%20Kuroi&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
