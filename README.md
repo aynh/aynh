@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I realized once again that my life is stuck on hard mode."
+> "You can't spell 'slaughter' without 'laughter.'"
 
-&mdash; [**Kazunari Usa**](https://myanimelist.net/character.php?q=Kazunari%20Usa&cat=character), [**Bokura wa Minna Kawaisou**](https://myanimelist.net/search/all?q=Bokura%20wa%20Minna%20Kawaisou&cat=all)
+&mdash; [**Hollow Ichigo**](https://myanimelist.net/character.php?q=Hollow%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
