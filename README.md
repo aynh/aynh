@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who knew that floating on a piece of drift wood for three weeks with no food or water... and sea volchers waiting to pluck out your liver could make one so tense."
+> "Of course they are my family, isn't it obvious? And a wonderful family they were. It happened long ago when I was still in the flower of my youth. The cities began to grow wild, people lost hope for the future, they became lazy idol time wasters. And to my everlasting shame I was no exception. Thus I began to watch the 7 O'Clock news religiously every night!"
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
