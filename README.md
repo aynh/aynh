@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even children are forced to grow up in the face of pain."
+> "Aren’t we family? Aren’t I like your family too? So it’s okay to cry if you’re having a hard time. Then I’ll do anything to help."
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Haruto Kirishima**](https://myanimelist.net/character.php?q=Haruto%20Kirishima&cat=character), [**Kimi no Iru Machi**](https://myanimelist.net/search/all?q=Kimi%20no%20Iru%20Machi&cat=all)
