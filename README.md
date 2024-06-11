@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is a bitter sweet taste of life, which many humans many weaknesses and sometimes their strongest weapon."
+> "I did say that you could ask, but I didn't say that I would answer."
 
-&mdash; [**Mato Kuroi**](https://myanimelist.net/character.php?q=Mato%20Kuroi&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
+&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
