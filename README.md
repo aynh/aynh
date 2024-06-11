@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I did say that you could ask, but I didn't say that I would answer."
+> "Change is never easy in this world. I can't even change one friend, let alone a whole country."
 
-&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
