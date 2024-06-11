@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Aren’t we family? Aren’t I like your family too? So it’s okay to cry if you’re having a hard time. Then I’ll do anything to help."
+> "I wasn’t scared that I’d be rejected, I was scared that if I said how I felt, all of our relationships would change."
 
-&mdash; [**Haruto Kirishima**](https://myanimelist.net/character.php?q=Haruto%20Kirishima&cat=character), [**Kimi no Iru Machi**](https://myanimelist.net/search/all?q=Kimi%20no%20Iru%20Machi&cat=all)
+&mdash; [**Chisaki Hiradaira**](https://myanimelist.net/character.php?q=Chisaki%20Hiradaira&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
