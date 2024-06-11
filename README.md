@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wasn’t scared that I’d be rejected, I was scared that if I said how I felt, all of our relationships would change."
+> "Success comes only to those who have dared to stand up without fear!"
 
-&mdash; [**Chisaki Hiradaira**](https://myanimelist.net/character.php?q=Chisaki%20Hiradaira&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
+&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
