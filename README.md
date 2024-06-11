@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it's going to be a relationship of hardship and mental agony, you should put an end to it."
+> "People derive their happiness in a variety of ways, even though it might seem cruel."
 
-&mdash; [**Masafumi Takeuchi**](https://myanimelist.net/character.php?q=Masafumi%20Takeuchi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Adashino**](https://myanimelist.net/character.php?q=Adashino&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
