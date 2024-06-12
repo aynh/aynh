@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is foolish to listen to one who will not listen to you. Do as you wish."
+> "I believe that there's not a single person whose heart is evil."
 
-&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Kanzaki Nao**](https://myanimelist.net/character.php?q=Kanzaki%20Nao&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
