@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The feeling of not wanting to lose, everyone has it. If you find it unfair, you’ll have to work harder yourself."
+> "In my mind this jacked-up sideways ridiculousness is the normal state?"
 
-&mdash; [**Shuuko Murao**](https://myanimelist.net/character.php?q=Shuuko%20Murao&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
