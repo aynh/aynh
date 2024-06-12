@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The sun is my enemy, but the moon has been good to me."
+> "No matter how strong the pain is, it's our duty to move forward. You're wrong for running away from reality."
 
-&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Ryosuke Takahashi**](https://myanimelist.net/character.php?q=Ryosuke%20Takahashi&cat=character), [**Initial D: Fifth Stage**](https://myanimelist.net/search/all?q=Initial%20D%3A%20Fifth%20Stage&cat=all)
