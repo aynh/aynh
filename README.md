@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When a person is hard to reach, someone has to extend their hand to that person to get to them, because of that dream, because they dream that freedom really exists, the roses will look up at the sky when they bloom."
+> "What is true happiness? Everyone seeks the land of happiness as if they're on a pilgrimage. They try to walk there. Still, no matter who they are, at times they become tired. Stories exist for those times. If you open the covers, you'll encounter someone else's imagination. If you feel lonely on your own, try reading a book. Try to imagine what the author was thinking, what he wanted to say. Then you might be able to obtain something wonderful."
 
-&mdash; [**Ringo Noyamano**](https://myanimelist.net/character.php?q=Ringo%20Noyamano&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Amano Touko**](https://myanimelist.net/character.php?q=Amano%20Touko&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
