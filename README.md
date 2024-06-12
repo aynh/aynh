@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Indeed. I wanted to see Oceanus with my own eyes. Unfortunately, my dream never came true. Oceanus is still my final destination. A dream that never ends. Go ahead and laugh. Two thousand years later, and I still have the same dream. Every bit the fool as well. And so boy... a pact with a fellow idiot seems ideal."
+> "I can't promise you that good things will come to your life, but I do know that no one but you have the power to give meaning to your life in this world."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Rin Asogi**](https://myanimelist.net/character.php?q=Rin%20Asogi&cat=character), [**Rin ~Daughters of Mnemosyne~**](https://myanimelist.net/search/all?q=Rin%20~Daughters%20of%20Mnemosyne~&cat=all)
