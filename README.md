@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will hunt down Kikyou's killer and avenge her death"
+> "When you get a piece of Ryu you get the whole pie!"
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**RYU**](https://myanimelist.net/character.php?q=RYU&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
