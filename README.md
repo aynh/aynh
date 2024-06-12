@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The disturbance in the stitch, is a disturbance in the heart."
+> "The sun is my enemy, but the moon has been good to me."
 
-&mdash; [**Anissina von Karbelnikoff**](https://myanimelist.net/character.php?q=Anissina%20von%20Karbelnikoff&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
+&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
