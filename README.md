@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how strong the pain is, it's our duty to move forward. You're wrong for running away from reality."
+> "Indeed. I wanted to see Oceanus with my own eyes. Unfortunately, my dream never came true. Oceanus is still my final destination. A dream that never ends. Go ahead and laugh. Two thousand years later, and I still have the same dream. Every bit the fool as well. And so boy... a pact with a fellow idiot seems ideal."
 
-&mdash; [**Ryosuke Takahashi**](https://myanimelist.net/character.php?q=Ryosuke%20Takahashi&cat=character), [**Initial D: Fifth Stage**](https://myanimelist.net/search/all?q=Initial%20D%3A%20Fifth%20Stage&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
