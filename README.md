@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it's fear that you speak of, then I'll stand and face it. I'll never give up. The only time I lose is when I die!"
+> "When a person is hard to reach, someone has to extend their hand to that person to get to them, because of that dream, because they dream that freedom really exists, the roses will look up at the sky when they bloom."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ringo Noyamano**](https://myanimelist.net/character.php?q=Ringo%20Noyamano&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
