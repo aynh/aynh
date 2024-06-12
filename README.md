@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'I would die for you' is what the weak say. If you're in love with someone - live for them."
+> "I want to find a path that no one else had taken into consideration."
 
-&mdash; [**Ross**](https://myanimelist.net/character.php?q=Ross&cat=character), [**Senyuu. 2**](https://myanimelist.net/search/all?q=Senyuu.%202&cat=all)
+&mdash; [**Miyuki Sagara**](https://myanimelist.net/character.php?q=Miyuki%20Sagara&cat=character), [**RDG: Red Data Girl**](https://myanimelist.net/search/all?q=RDG%3A%20Red%20Data%20Girl&cat=all)
