@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to find a path that no one else had taken into consideration."
+> "You sure can talk the talk, but you're not quite ready to walk the walk. Time's up, it's my turn."
 
-&mdash; [**Miyuki Sagara**](https://myanimelist.net/character.php?q=Miyuki%20Sagara&cat=character), [**RDG: Red Data Girl**](https://myanimelist.net/search/all?q=RDG%3A%20Red%20Data%20Girl&cat=all)
+&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
