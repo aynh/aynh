@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is true happiness? Everyone seeks the land of happiness as if they're on a pilgrimage. They try to walk there. Still, no matter who they are, at times they become tired. Stories exist for those times. If you open the covers, you'll encounter someone else's imagination. If you feel lonely on your own, try reading a book. Try to imagine what the author was thinking, what he wanted to say. Then you might be able to obtain something wonderful."
+> "The disturbance in the stitch, is a disturbance in the heart."
 
-&mdash; [**Amano Touko**](https://myanimelist.net/character.php?q=Amano%20Touko&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
+&mdash; [**Anissina von Karbelnikoff**](https://myanimelist.net/character.php?q=Anissina%20von%20Karbelnikoff&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
