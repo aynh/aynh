@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you get a piece of Ryu you get the whole pie!"
+> "'I would die for you' is what the weak say. If you're in love with someone - live for them."
 
-&mdash; [**RYU**](https://myanimelist.net/character.php?q=RYU&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Ross**](https://myanimelist.net/character.php?q=Ross&cat=character), [**Senyuu. 2**](https://myanimelist.net/search/all?q=Senyuu.%202&cat=all)
