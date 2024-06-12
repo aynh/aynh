@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe that there's not a single person whose heart is evil."
+> "Good evening, Espada. There has been an enemy attack. But first...Let us brew some tea."
 
-&mdash; [**Kanzaki Nao**](https://myanimelist.net/character.php?q=Kanzaki%20Nao&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
