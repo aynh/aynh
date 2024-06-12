@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not that I don't trust you all. It's the opposite. I'm going because I believe in you all. You all know this well, right? No matter who betrays me, I won't betray anyone."
+> "[To Kira] You are the dream of humanity, the Ultimate Coordinator. It was in pursuit of that dream that Dr. Hibiki created the artificial womb. And you are the only viable child it ever produced. For that result, a very large number of your siblings were sacrificed."
 
-&mdash; [**Tsubaki**](https://myanimelist.net/character.php?q=Tsubaki&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
