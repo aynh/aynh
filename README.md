@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A cowardly thief would sneak away in the night; the King of Conquerors leaves with his loot amidst songs of victory!"
+> "Yes, it really﻿ was a fairy tale. A pretty girl reached out her hand to me and ... told me to die!"
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Ohana Matsumae**](https://myanimelist.net/character.php?q=Ohana%20Matsumae&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
