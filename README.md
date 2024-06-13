@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time's a-wastin' people, let's go!"
+> "A cowardly thief would sneak away in the night; the King of Conquerors leaves with his loot amidst songs of victory!"
 
-&mdash; [**Anko Mitarashi**](https://myanimelist.net/character.php?q=Anko%20Mitarashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
