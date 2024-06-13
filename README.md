@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sure there are things you can't do, things that seem impossible, but that's what makes everyone unique!"
+> "[To Starrk, about Lilynette] That child with you... Can you send her somewhere else? I can't really go all out with her there."
 
-&mdash; [**Rima Mashiro**](https://myanimelist.net/character.php?q=Rima%20Mashiro&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
+&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
