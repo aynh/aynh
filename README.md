@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will become a bigger badass than my father. And a stronger shinobi than my mother!"
+> "If I wasn't prepared to be flexible as the situations demands, I wouldn't have become a teacher."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
