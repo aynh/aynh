@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am of no more use as his tool. Please, kill me."
+> "Time's a-wastin' people, let's go!"
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Anko Mitarashi**](https://myanimelist.net/character.php?q=Anko%20Mitarashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
