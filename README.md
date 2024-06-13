@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no knowing how others are feeling unless you ask them. And your feelings can’t get through to others unless you tell them directly."
+> "Sure there are things you can't do, things that seem impossible, but that's what makes everyone unique!"
 
-&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Rima Mashiro**](https://myanimelist.net/character.php?q=Rima%20Mashiro&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
