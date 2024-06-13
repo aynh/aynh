@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Any prize worth having requires a risk."
+> "Everyone lives their own way. Whether you live for yourself or live for others... that is your own decision. A life of earnestly protecting and tending to someone isn't bad either. Though it's not that glorious of a life."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Naoto Inaba**](https://myanimelist.net/character.php?q=Naoto%20Inaba&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
