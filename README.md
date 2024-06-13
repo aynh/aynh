@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love really is like playing with fire. Anyone can play easily and lightheartedly. But when you mess up and get burned, that scar stays with you your whole life."
+> "There is no such thing as perfect in this world. That may sound cliche, but it’s the truth. The average person admires perfection and seeks to obtain it. But what’s the point of achieving perfection? There is none. Nothing. Not a single thing. I spit on perfection! If something is perfect, then there is nothing left. There is no room for imagination. No place left for that person to gain additional knowledge or abilities. Do you know what that means? For scientists such as us, perfection only brings despair. It is our job to create things more wonderful than anything before them, but never to obtain perfection. A scientist must be a person who finds ecstasy while suffering from that antinomy."
 
-&mdash; [**Ushiromiya Kyrie**](https://myanimelist.net/character.php?q=Ushiromiya%20Kyrie&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
