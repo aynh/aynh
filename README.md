@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Starrk, about Lilynette] That child with you... Can you send her somewhere else? I can't really go all out with her there."
+> "I will become a bigger badass than my father. And a stronger shinobi than my mother!"
 
-&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
