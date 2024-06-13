@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "More than anyone else, humanity is a species which looks forward to tomorrow. Because of their dreams, they can bear with the unjustness of the present."
+> "There’s no knowing how others are feeling unless you ask them. And your feelings can’t get through to others unless you tell them directly."
 
-&mdash; [**Rory Mercury**](https://myanimelist.net/character.php?q=Rory%20Mercury&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
