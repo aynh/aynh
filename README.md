@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yes, it really﻿ was a fairy tale. A pretty girl reached out her hand to me and ... told me to die!"
+> "A left... and then a right. Or is it a right and then a left? Hmm... maybe the postcard's upside-down."
 
-&mdash; [**Ohana Matsumae**](https://myanimelist.net/character.php?q=Ohana%20Matsumae&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
+&mdash; [**Hikari**](https://myanimelist.net/character.php?q=Hikari&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
