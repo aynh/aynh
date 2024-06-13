@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone lives their own way. Whether you live for yourself or live for others... that is your own decision. A life of earnestly protecting and tending to someone isn't bad either. Though it's not that glorious of a life."
+> "I am of no more use as his tool. Please, kill me."
 
-&mdash; [**Naoto Inaba**](https://myanimelist.net/character.php?q=Naoto%20Inaba&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
