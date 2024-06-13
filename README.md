@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A left... and then a right. Or is it a right and then a left? Hmm... maybe the postcard's upside-down."
+> "No amount of passion can overcome a lack of technical expertise."
 
-&mdash; [**Hikari**](https://myanimelist.net/character.php?q=Hikari&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Fuyumi Irisu**](https://myanimelist.net/character.php?q=Fuyumi%20Irisu&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
