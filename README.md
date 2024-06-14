@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to be the only one... who can help the one I care about."
+> "'Time' is proof that people have lived. Every person lives the time that has been given to them... that is life."
 
-&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
