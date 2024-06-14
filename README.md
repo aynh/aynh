@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "With death staring you in the face, you truly understand what it means to be alive."
+> "Hmmm...how do I put this? My first impression of this group...you're a bunch of idiots!"
 
-&mdash; [**Saori Shibuki**](https://myanimelist.net/character.php?q=Saori%20Shibuki&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
