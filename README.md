@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't improvise what you cannot handle."
+> "Come on now. Is that anyway to talk to your new boss, landlord, and all-around overseer?"
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
