@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being good guys for once would be super-dupulous!"
+> "People fall into darkness because they have lost sight of the true nature of the light within them. Unable to find that light they flounder desperately while suffering in agony, only to give birth to tragedy. And there is no greater cause of tragedy, no greater source of darkness, than warfare."
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Ei Sei**](https://myanimelist.net/character.php?q=Ei%20Sei&cat=character), [**Kingdom**](https://myanimelist.net/search/all?q=Kingdom&cat=all)
