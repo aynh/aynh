@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Time' is proof that people have lived. Every person lives the time that has been given to them... that is life."
+> "Immortality is wasted on the young."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
