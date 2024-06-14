@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Skin him. Now. Barbeque the bastard!! (referring to Ayame)"
+> "Even if this is a twisted way to go about it, even if a guaranteed way to save our hearts cannot be found, even so, it doesn't mean that people like us don't try and struggle."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
