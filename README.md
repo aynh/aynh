@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*singing* It's a long long way to BaSingSei, but the girls in the city they look so pretty~!"
+> "Judging things based on looks alone... That's just cruel."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kodaka Hasegawa**](https://myanimelist.net/character.php?q=Kodaka%20Hasegawa&cat=character), [**Boku wa Tomodachi ga Sukunai**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai&cat=all)
