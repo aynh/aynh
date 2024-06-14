@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hmmm...how do I put this? My first impression of this group...you're a bunch of idiots!"
+> "Being good guys for once would be super-dupulous!"
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
