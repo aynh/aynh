@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The final curtain falls at the very moment a person gives up."
+> "New eras don't come about because of swords, they're created by the people who wield them."
 
-&mdash; [**Miwa Ichigen**](https://myanimelist.net/character.php?q=Miwa%20Ichigen&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
