@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even innocent foolish children will grow up in the face of pain, until their thoughts and beliefs are the same as their doubts."
+> "To reign over the kingdom of the world, to make its peace and write its laws; to be generous to the obedient and merciless to all who would stand against you. Nothing ever changes; two thousand years and you still act like the world is yours."
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
