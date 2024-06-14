@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People fall into darkness because they have lost sight of the true nature of the light within them. Unable to find that light they flounder desperately while suffering in agony, only to give birth to tragedy. And there is no greater cause of tragedy, no greater source of darkness, than warfare."
+> "Sooo... Korra. There they go, here we are, all alone in the gym... just you and me... TWO, alone people. Together. Alone."
 
-&mdash; [**Ei Sei**](https://myanimelist.net/character.php?q=Ei%20Sei&cat=character), [**Kingdom**](https://myanimelist.net/search/all?q=Kingdom&cat=all)
+&mdash; [**Bolin**](https://myanimelist.net/character.php?q=Bolin&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
