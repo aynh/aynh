@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "New eras don't come about because of swords, they're created by the people who wield them."
+> "*singing* It's a long long way to BaSingSei, but the girls in the city they look so pretty~!"
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
