@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Come on now. Is that anyway to talk to your new boss, landlord, and all-around overseer?"
+> "The final curtain falls at the very moment a person gives up."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Miwa Ichigen**](https://myanimelist.net/character.php?q=Miwa%20Ichigen&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
