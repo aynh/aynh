@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Was he the kind of master who would leave you behind? If you decided in your hearts to serve him, then believe in your master."
+> "If we're unable to climb down the mountain, then we won't know whether there's another mountain to climb up."
 
-&mdash; [**Hiiragi**](https://myanimelist.net/character.php?q=Hiiragi&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
