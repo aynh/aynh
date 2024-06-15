@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't need any calming tea! I need to capture the Avatar!"
+> "To the me back then, you don’t need to worry. You’ll soon find something you can do, something you can set your heart on."
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Yui Hirasawa**](https://myanimelist.net/character.php?q=Yui%20Hirasawa&cat=character), [**K-ON!**](https://myanimelist.net/search/all?q=K-ON!&cat=all)
