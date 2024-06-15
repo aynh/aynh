@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if it is a game... There are some things I just can't lose."
+> "You can train a dog with food. You can buy a person with money. But there isn't a man alive able to influence the wolves of Mibu! Some things will never change. A wolf will always be a wolf."
 
-&mdash; [**Basara Tōjō**](https://myanimelist.net/character.php?q=Basara%20T%C5%8Dj%C5%8D&cat=character), [**Shinmai Maou no Testament**](https://myanimelist.net/search/all?q=Shinmai%20Maou%20no%20Testament&cat=all)
+&mdash; [**Hajime Saitou**](https://myanimelist.net/character.php?q=Hajime%20Saitou&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
