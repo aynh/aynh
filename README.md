@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what changes, I'll still be me. And I can be whoever I want to be!"
+> "I believe that people have the individual right to decide how they want to live. So whether you just listen to what others say, or get stuck a lot of times...and cause trouble to others, it ultimately comes back to yourself."
 
-&mdash; [**Amu Hinamori**](https://myanimelist.net/character.php?q=Amu%20Hinamori&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
+&mdash; [**Shirasagi Yuki**](https://myanimelist.net/character.php?q=Shirasagi%20Yuki&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
