@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As far as relationships with other people go, they don't just end because one person decides that it's over."
+> "*after Zuko defeats Zhao* So this is how the great Commander Zhao acts in defeat? Disgraceful. Even in exile, my nephew is more honorable than you. Thanks again for the tea. It was delicious. [Iroh and Zuko leaves]"
 
-&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
