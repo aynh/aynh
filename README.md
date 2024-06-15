@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Yammy Rialgo, as the Espada grips the edge of a hole in the floor] Mala Suerte. I pity you. [shoots the floor just before Yammy's hand, causing him to fall] Oh, and I broke the pillars on every floor on the way up. So, you'll probably fall all the way to the bottom."
+> "I start wars, resolve them myself, then I buy up the war ravaged lands for a low prince and make a killing off redevelopment and reconstruction concessions!It is a brilliant scheme."
 
-&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Frost**](https://myanimelist.net/character.php?q=Frost&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
