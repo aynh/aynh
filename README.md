@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To the me back then, you don’t need to worry. You’ll soon find something you can do, something you can set your heart on."
+> "As far as relationships with other people go, they don't just end because one person decides that it's over."
 
-&mdash; [**Yui Hirasawa**](https://myanimelist.net/character.php?q=Yui%20Hirasawa&cat=character), [**K-ON!**](https://myanimelist.net/search/all?q=K-ON!&cat=all)
+&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
