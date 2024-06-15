@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say that fools learn from their experiences, while the wise learn from history. I hope you're not a fool."
+> "...She's scary. People who can put on a serious face while joking are the scariest."
 
-&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
