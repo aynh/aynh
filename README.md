@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You disgust me. I am a Grim Reaper, I refuse to grant anyone the freedom to kill!"
+> "Spoiling stories... is an unforgivable sin in this world."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Leo Baskerville**](https://myanimelist.net/character.php?q=Leo%20Baskerville&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
