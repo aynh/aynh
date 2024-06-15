@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...She's scary. People who can put on a serious face while joking are the scariest."
+> "Opportunities wait for no one! If you let an opportunity slip through your fingers with an excuse like, “I wasn't prepared.” You'll never get another opportunity like that again! But it is your life. Live it the way you want."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Sorata Kanda**](https://myanimelist.net/character.php?q=Sorata%20Kanda&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
