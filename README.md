@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you turn your back on something you wanted, you don't deserve to call yourself greed!"
+> "Sometimes feelings get tangled together with deductions, forming a veil that hides the truth."
 
-&mdash; [**Ling Yao**](https://myanimelist.net/character.php?q=Ling%20Yao&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
