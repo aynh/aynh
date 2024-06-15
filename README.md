@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I start wars, resolve them myself, then I buy up the war ravaged lands for a low prince and make a killing off redevelopment and reconstruction concessions!It is a brilliant scheme."
+> "In a business like this, there are times when you need to change as the situation demands. I switch my personality depending on how I view things."
 
-&mdash; [**Frost**](https://myanimelist.net/character.php?q=Frost&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
