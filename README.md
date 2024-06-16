@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I won't live my life by another person's script."
+> "Regardless if you see them or not, if you don't believe, then it's like they never existed."
 
-&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Kurosaki Karin**](https://myanimelist.net/character.php?q=Kurosaki%20Karin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
