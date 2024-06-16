@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You’re like big umbrella. You’re the shade from the strong sun’s rays when the weather is good. And you’re the shelter from the cold rain when the weather is bad. You’re always protecting others."
+> "There's no point in having physical strength alone. The real deal needs to have mental strength and will."
 
-&mdash; [**Angelina Nanatsu Sewell**](https://myanimelist.net/character.php?q=Angelina%20Nanatsu%20Sewell&cat=character), [**Mashiroiro Symphony - The color of lovers**](https://myanimelist.net/search/all?q=Mashiroiro%20Symphony%20-%20The%20color%20of%20lovers&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
