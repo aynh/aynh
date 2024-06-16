@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't call someone a friend when they just remember you. You're friends because you like each other."
+> "The more material you possess, the harder you'll feel the loss."
 
-&mdash; [**Kazumi Schlierenzauer**](https://myanimelist.net/character.php?q=Kazumi%20Schlierenzauer&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Arima Teppei**](https://myanimelist.net/character.php?q=Arima%20Teppei&cat=character), [**Princess Lover!**](https://myanimelist.net/search/all?q=Princess%20Lover!&cat=all)
