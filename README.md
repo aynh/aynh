@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The best way to live a full life is to be a child, no matter your age."
+> "You don't call someone a friend when they just remember you. You're friends because you like each other."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kazumi Schlierenzauer**](https://myanimelist.net/character.php?q=Kazumi%20Schlierenzauer&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
