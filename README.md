@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know why you are making the mistake of sacrificing yourself? It’s because you’re weak. It’s because you can’t face reality."
+> "The best way to live a full life is to be a child, no matter your age."
 
-&mdash; [**Otonashi Maria**](https://myanimelist.net/character.php?q=Otonashi%20Maria&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
