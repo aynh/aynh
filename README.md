@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just like those who try their best, even when they're afraid."
+> "What the hell can you hope to protect when your feelings are the only weapons you've got?"
 
-&mdash; [**Kirishima Shouko**](https://myanimelist.net/character.php?q=Kirishima%20Shouko&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Kira Yamato**](https://myanimelist.net/character.php?q=Kira%20Yamato&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
