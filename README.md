@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A way for the weak to stay weak, but still defeat the strong. A way to stay who you are but surpass your limits. To soar through the sky, even if you can't fly. He's always found a way, inside despair, suffering and darkness."
+> "Do you know why you are making the mistake of sacrificing yourself? It’s because you’re weak. It’s because you can’t face reality."
 
-&mdash; [**Kurami Zell**](https://myanimelist.net/character.php?q=Kurami%20Zell&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Otonashi Maria**](https://myanimelist.net/character.php?q=Otonashi%20Maria&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
