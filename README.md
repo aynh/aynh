@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your blade will never be able to touch me. Ever."
+> "Everyone gets help from someone else at some point in their lives. So someday, you should help someone too."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Suzuha Amane**](https://myanimelist.net/character.php?q=Suzuha%20Amane&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
