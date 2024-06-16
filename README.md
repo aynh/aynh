@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone gets help from someone else at some point in their lives. So someday, you should help someone too."
+> "Meals are always better with lots of people at the table."
 
-&mdash; [**Suzuha Amane**](https://myanimelist.net/character.php?q=Suzuha%20Amane&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Kido Tsubomi**](https://myanimelist.net/character.php?q=Kido%20Tsubomi&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
