@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We will take revenge on your behalf."
+> "There are many unusual things in this world. Everyday events occur that cannot be explained. Bizarre phenomena that often go unnoticed because people close their eyes to what they don't understand. But the truth of the matter is, there are many unusual things in this world. And people... People are the most mysterious of them all."
 
-&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
