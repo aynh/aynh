@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world runs on power. Everything is determined by the superior power. You are weak. That is why you lose."
+> "Athrun! Show us that same spirit that made you defy orders!"
 
-&mdash; [**Ayato Kirishima**](https://myanimelist.net/character.php?q=Ayato%20Kirishima&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Miguel Aiman**](https://myanimelist.net/character.php?q=Miguel%20Aiman&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
