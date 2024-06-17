@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Simple yet mysterious. Distant ancestors unlike any plant or animal we've ever seen. These groups of odd creatures have induced whispers of fear among man since ancient times."
+> "Don't give up, the beginning is always the hardest, so let's keep on going till the very end."
 
-&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
