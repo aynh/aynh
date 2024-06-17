@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's awfully quiet back there. Are you two making out?"
+> "The time when you're happy is also the time when you're afraid that the happiness will end."
 
-&mdash; [**Cho Hakkai**](https://myanimelist.net/character.php?q=Cho%20Hakkai&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Subarashii Sekai**](https://myanimelist.net/character.php?q=Subarashii%20Sekai&cat=character), [**Subarashii Sekai**](https://myanimelist.net/search/all?q=Subarashii%20Sekai&cat=all)
