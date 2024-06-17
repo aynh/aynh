@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Phones, the internet - having the means alone doesn't lead to communication."
+> "Please stop adding to my misery. (to Ayame)"
 
-&mdash; [**Saitō-sensei**](https://myanimelist.net/character.php?q=Sait%C5%8D-sensei&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
