@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Urahara writes Ichigo a message in blood] Please meet at Urahara shop immediately. [After Ichigo freaked out] P.S: If you look at this message and think that it is the message of a person before his death... then you have no sense of humor."
+> "Phones, the internet - having the means alone doesn't lead to communication."
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Saitō-sensei**](https://myanimelist.net/character.php?q=Sait%C5%8D-sensei&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
