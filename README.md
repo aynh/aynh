@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My, my! Do I really need to spell it out for you? There is nothing that you can acquire without making a move on your own. It's the same with romance - your only hope is to be more aggressive."
+> "A sound soul dwells within sound skin and sound cuticles."
 
-&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
