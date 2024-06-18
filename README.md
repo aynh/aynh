@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Helping other people is the best way to make up for your mistakes."
+> "*after Katsura asks him about what he is doing* Well, I suppose I'm doing something odd, like jogging or taking a walk or something like that."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
