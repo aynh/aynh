@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Self-sacrifice... A nameless shinobi who protects peace within its shadow. That is a true shinobi."
+> "It's over between Kana and me. We're not going to get back together. Even if we were together, I would only miss her... (To Shigure and Ayame)"
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
