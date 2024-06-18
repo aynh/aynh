@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All things change in a dynamic environment. Your effort to remain what you are is what limits you."
+> "Self-sacrifice... A nameless shinobi who protects peace within its shadow. That is a true shinobi."
 
-&mdash; [**Puppet Master**](https://myanimelist.net/character.php?q=Puppet%20Master&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
