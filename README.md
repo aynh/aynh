@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Does the world hate me or something? I've always rejected it in an exceedingly friendly manner."
+> "Today, everything's shining brightly! The air, the people, and even this classroom; because today, I actually did my homework!"
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Yuuko Aioi**](https://myanimelist.net/character.php?q=Yuuko%20Aioi&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
