@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Damn piece of Earth trash!"
+> "She's been like that ever since I bought a box of donuts and had one more than her."
 
-&mdash; [**Miguel Aiman**](https://myanimelist.net/character.php?q=Miguel%20Aiman&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
