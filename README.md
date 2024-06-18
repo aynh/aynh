@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no match that you know that 'you can't win'. Even if a match like that exists, the thing that decides the defeat is your heart. That makes you think you've 'lost'."
+> "Even if they are locked in cage, as long as they have wings, birds can dream of the wide-open sky. But.. If their wings are plucked, they will cease to be birds..."
 
-&mdash; [**Yoichi Karasuma**](https://myanimelist.net/character.php?q=Yoichi%20Karasuma&cat=character), [**Asu No Yoichi**](https://myanimelist.net/search/all?q=Asu%20No%20Yoichi&cat=all)
+&mdash; [**Sion**](https://myanimelist.net/character.php?q=Sion&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
