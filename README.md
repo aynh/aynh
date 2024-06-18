@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if they are locked in cage, as long as they have wings, birds can dream of the wide-open sky. But.. If their wings are plucked, they will cease to be birds..."
+> "There is no right answer for getting along. Different people require different answers."
 
-&mdash; [**Sion**](https://myanimelist.net/character.php?q=Sion&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
+&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
