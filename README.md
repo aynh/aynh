@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm still very very young. I want to go shopping, and I want to eats lots more of all kinds of yummy foods, you know? And of course... Of course... have a wonderful romance too. If I could have something like that, it would be the best. Yeah... That really would be the best."
+> "I thought that when I grew up, I could reach more and more. The delicious looking fruit beckoning from the highest branch.The beautiful shell hidden in the sand. If I could only stretch out my hand a little more…. But…. As everyone passes through the junctures of their life, they no longer stretch their hand to the sky, or crouch to the earth. Embarrassed, they ignore what they’d desired for so long. Will you reach out and grab me, grown up as I am?"
 
-&mdash; [**Anemone**](https://myanimelist.net/character.php?q=Anemone&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Kou Ichinomiya**](https://myanimelist.net/character.php?q=Kou%20Ichinomiya&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
