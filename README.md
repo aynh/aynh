@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no right answer for getting along. Different people require different answers."
+> "As long as you keep anything about me within you... Always, my heart will be with you."
 
-&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
