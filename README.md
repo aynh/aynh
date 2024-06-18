@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I thought that when I grew up, I could reach more and more. The delicious looking fruit beckoning from the highest branch.The beautiful shell hidden in the sand. If I could only stretch out my hand a little more…. But…. As everyone passes through the junctures of their life, they no longer stretch their hand to the sky, or crouch to the earth. Embarrassed, they ignore what they’d desired for so long. Will you reach out and grab me, grown up as I am?"
+> "The legendary super-skill of the Scythe-Meister! Witch Hunter!"
 
-&mdash; [**Kou Ichinomiya**](https://myanimelist.net/character.php?q=Kou%20Ichinomiya&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
