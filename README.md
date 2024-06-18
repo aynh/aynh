@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Today, everything's shining brightly! The air, the people, and even this classroom; because today, I actually did my homework!"
+> "There is no match that you know that 'you can't win'. Even if a match like that exists, the thing that decides the defeat is your heart. That makes you think you've 'lost'."
 
-&mdash; [**Yuuko Aioi**](https://myanimelist.net/character.php?q=Yuuko%20Aioi&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
+&mdash; [**Yoichi Karasuma**](https://myanimelist.net/character.php?q=Yoichi%20Karasuma&cat=character), [**Asu No Yoichi**](https://myanimelist.net/search/all?q=Asu%20No%20Yoichi&cat=all)
