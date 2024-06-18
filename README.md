@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "She's been like that ever since I bought a box of donuts and had one more than her."
+> "If this world wasn't a complete hell for me, that's because you were alive."
 
-&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Ein**](https://myanimelist.net/character.php?q=Ein&cat=character), [**Phantom: Requiem For The Phantom**](https://myanimelist.net/search/all?q=Phantom%3A%20Requiem%20For%20The%20Phantom&cat=all)
