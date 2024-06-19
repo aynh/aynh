@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One cannot live by jokes alone. But if there were no jokes, I’d rather not live."
+> "You can train a dog with food. You can buy a person with money. But there isn't a man alive able to influence the wolves of Mibu! Some things will never change. A wolf will always be a wolf."
 
-&mdash; [**Olivier Poplan**](https://myanimelist.net/character.php?q=Olivier%20Poplan&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Hajime Saitou**](https://myanimelist.net/character.php?q=Hajime%20Saitou&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
