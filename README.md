@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am ME. No matter, what I say or do, I'm still ME. The things I feel, the things I do, being a vampire, being a man, being betrayed by my mother. When all those things come together, they make up ME. But I'm none of these things taken separately."
+> "One cannot live by jokes alone. But if there were no jokes, I’d rather not live."
 
-&mdash; [**Touma Kyohei**](https://myanimelist.net/character.php?q=Touma%20Kyohei&cat=character), [**Midnight Secretary**](https://myanimelist.net/search/all?q=Midnight%20Secretary&cat=all)
+&mdash; [**Olivier Poplan**](https://myanimelist.net/character.php?q=Olivier%20Poplan&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
