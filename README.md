@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your unconditional trust is more than I'm willing to bear."
+> "You can't just wait. You need to make things happen yourself."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Tokie**](https://myanimelist.net/character.php?q=Tokie&cat=character), [**Sakamichi no Apollon**](https://myanimelist.net/search/all?q=Sakamichi%20no%20Apollon&cat=all)
