@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But still... Not trying to undo misunderstandings is the same as telling a lie."
+> "There aren't many things you can believe. That's how human beings work. They only care about themselves, and no one else really matters. They get caught up in their own lackadaisical dialogue, lying their way through life."
 
-&mdash; [**Yotsugi Ononoki**](https://myanimelist.net/character.php?q=Yotsugi%20Ononoki&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Death Parade**](https://myanimelist.net/character.php?q=Death%20Parade&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
