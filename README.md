@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A life with no changes can’t be called life. You can only call it experience."
+> "So, how about you tell me right now whom you'd like me to kill, and how. I'll treat'cha to it."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
