@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The Sun does not ever give, almost all choose to take from it selfishly."
+> "A life with no changes can’t be called life. You can only call it experience."
 
-&mdash; [**Dune**](https://myanimelist.net/character.php?q=Dune&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
