@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is constantly changing. And you can't expect it to stay the same, even for a second. If that's true, there's no need for you to go on a journey, Kino. Even if you stay in one place, you'll be able to keep experiencing the world."
+> "The Sun does not ever give, almost all choose to take from it selfishly."
 
-&mdash; [**Hermes**](https://myanimelist.net/character.php?q=Hermes&cat=character), [**Kino**](https://myanimelist.net/search/all?q=Kino&cat=all)
+&mdash; [**Dune**](https://myanimelist.net/character.php?q=Dune&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
