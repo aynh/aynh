@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What a laughable attempt. You should just stay where you are, groveling at my feet."
+> "I am ME. No matter, what I say or do, I'm still ME. The things I feel, the things I do, being a vampire, being a man, being betrayed by my mother. When all those things come together, they make up ME. But I'm none of these things taken separately."
 
-&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Touma Kyohei**](https://myanimelist.net/character.php?q=Touma%20Kyohei&cat=character), [**Midnight Secretary**](https://myanimelist.net/search/all?q=Midnight%20Secretary&cat=all)
