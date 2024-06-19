@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't give a rat's ass about going to hell. I guess it's because I feel like I'm already there."
+> "Being alone and being lonely are two different things."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Yasushi Takagi**](https://myanimelist.net/character.php?q=Yasushi%20Takagi&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
