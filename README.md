@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Getting kicked out of school won't kill me, but losing my way of life most certainly will."
+> "Your unconditional trust is more than I'm willing to bear."
 
-&mdash; [**Shikishima Kiriko**](https://myanimelist.net/character.php?q=Shikishima%20Kiriko&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
