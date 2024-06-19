@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry. I don't believe in fate. I explore my future with my own strength. Good or bad, it's my own choice."
+> "I don't give a rat's ass about going to hell. I guess it's because I feel like I'm already there."
 
-&mdash; [**Manjoume Jun**](https://myanimelist.net/character.php?q=Manjoume%20Jun&cat=character), [**Yu-Gi-Oh! Duel Monsters GX**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Duel%20Monsters%20GX&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
