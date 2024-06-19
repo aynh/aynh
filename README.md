@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*after Katsura asks him about what he is doing* Well, I suppose I'm doing something odd, like jogging or taking a walk or something like that."
+> "The world is constantly changing. And you can't expect it to stay the same, even for a second. If that's true, there's no need for you to go on a journey, Kino. Even if you stay in one place, you'll be able to keep experiencing the world."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Hermes**](https://myanimelist.net/character.php?q=Hermes&cat=character), [**Kino**](https://myanimelist.net/search/all?q=Kino&cat=all)
