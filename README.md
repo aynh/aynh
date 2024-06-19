@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There aren't many things you can believe. That's how human beings work. They only care about themselves, and no one else really matters. They get caught up in their own lackadaisical dialogue, lying their way through life."
+> "Why am I so bad at being good?"
 
-&mdash; [**Death Parade**](https://myanimelist.net/character.php?q=Death%20Parade&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
