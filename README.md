@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not stupid. I'm just too lazy to show how smart I am."
+> "Getting kicked out of school won't kill me, but losing my way of life most certainly will."
 
-&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Shikishima Kiriko**](https://myanimelist.net/character.php?q=Shikishima%20Kiriko&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
