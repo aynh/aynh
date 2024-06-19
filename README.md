@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Taking away someone's freedom is the ugliest thing one can do in this world. People like that ought to decay into dirt and come back as thorny roses."
+> "But still... Not trying to undo misunderstandings is the same as telling a lie."
 
-&mdash; [**Jae-ha**](https://myanimelist.net/character.php?q=Jae-ha&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Yotsugi Ononoki**](https://myanimelist.net/character.php?q=Yotsugi%20Ononoki&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
