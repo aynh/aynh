@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being alone and being lonely are two different things."
+> "Can a world this interesting actually be reality?"
 
-&mdash; [**Yasushi Takagi**](https://myanimelist.net/character.php?q=Yasushi%20Takagi&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Lau**](https://myanimelist.net/character.php?q=Lau&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
