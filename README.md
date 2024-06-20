@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Laugh at love and love will make you cry."
+> "(Zuko is standing before a huge portrait of Fire Lord Sozin)It's never too early for a sitting with the court painter, Zuko. (Sarcastically) Make sure he gets your good side."
 
-&mdash; [**Yasushi Takagi**](https://myanimelist.net/character.php?q=Yasushi%20Takagi&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Azula**](https://myanimelist.net/character.php?q=Azula&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
