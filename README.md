@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can make a rain of 1,000 needles. I will make it rain blood."
+> "Ooops....My finger slipped."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
