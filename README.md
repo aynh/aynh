@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you realize you made a mistake with the way you've been living your life, you just have to take the next moment and start over."
+> "You can make a rain of 1,000 needles. I will make it rain blood."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
