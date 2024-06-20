@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A thief is a creative artist who takes his prey in style... But a detective is nothing more than a critic, who follows our footsteps."
+> "There're too many people who worry about the things I don't worry about."
 
-&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Takeshi Nanase**](https://myanimelist.net/character.php?q=Takeshi%20Nanase&cat=character), [**Magical Warfare**](https://myanimelist.net/search/all?q=Magical%20Warfare&cat=all)
