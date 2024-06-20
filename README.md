@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how you look, as long as your judgement is clouded you won't find the truth."
+> "If you realize you made a mistake with the way you've been living your life, you just have to take the next moment and start over."
 
-&mdash; [**Igor Neuhaus**](https://myanimelist.net/character.php?q=Igor%20Neuhaus&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
