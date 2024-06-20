@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Strength always comes with responsibilities."
+> "We teachers have to be role models for you students. If we can’t face you all head on, what can we teach you!"
 
-&mdash; [**Izumo Kusanagi**](https://myanimelist.net/character.php?q=Izumo%20Kusanagi&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
+&mdash; [**Nishimura Souichi**](https://myanimelist.net/character.php?q=Nishimura%20Souichi&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
