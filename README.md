@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how severe the situation is, if you continue to stay there, you'll accept everything as a everyday life."
+> "Walking along the path that she chose, without being affected by others... in this sense, white is her color...in another sense, it also makes me want to put more colors on her."
 
-&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
