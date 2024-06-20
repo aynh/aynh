@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We teachers have to be role models for you students. If we can’t face you all head on, what can we teach you!"
+> "No matter how you look, as long as your judgement is clouded you won't find the truth."
 
-&mdash; [**Nishimura Souichi**](https://myanimelist.net/character.php?q=Nishimura%20Souichi&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Igor Neuhaus**](https://myanimelist.net/character.php?q=Igor%20Neuhaus&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
