@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Assassins Rule Number Three - Speed: Take out the target before the target notices your presence."
+> "Rarely does one have the chance to exchange blows with heroes from another age. And with the chance to fight as many as six, I can't allow one of them to fall right now. Look at Saber and Lancer. Both are valiant warriors I would love to duel with. It'd be a pity to let either die."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
