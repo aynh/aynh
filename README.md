@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The sun may be wonderful but can you live on that alone? We all live because of the wind, the clouds, and the rain. They're not things you can throw out just because they're temporarily inconvenient, right?"
+> "Strength always comes with responsibilities."
 
-&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Izumo Kusanagi**](https://myanimelist.net/character.php?q=Izumo%20Kusanagi&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
