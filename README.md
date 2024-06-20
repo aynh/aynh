@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Silence means approaching quietly!"
+> "If you stick to a 'lie', it'll eventually become the 'truth'."
 
-&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
