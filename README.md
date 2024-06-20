@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't like lectures from someone who plays fixed matches."
+> "No matter how severe the situation is, if you continue to stay there, you'll accept everything as a everyday life."
 
-&mdash; [**Ryoma Echizen**](https://myanimelist.net/character.php?q=Ryoma%20Echizen&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
