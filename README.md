@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's enough, Soifon. You remind me of myself. I even think of you sometimes as my little sister."
+> "Sketching a scene as you see it gives you a sense of being there, that's totally different from painting a copy of a photograph."
 
-&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Eriri Spencer Sawamura**](https://myanimelist.net/character.php?q=Eriri%20Spencer%20Sawamura&cat=character), [**Saenai Heroine no Sodatekata**](https://myanimelist.net/search/all?q=Saenai%20Heroine%20no%20Sodatekata&cat=all)
