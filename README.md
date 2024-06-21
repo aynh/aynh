@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are our enemies the kobolds? No, our real enemies are our overly weak selves."
+> "Death no longer terrifies man, the smell of blood is as common as the smell of white plums. So, he creates slavery and savagery... which surpasses the horror of dying."
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
