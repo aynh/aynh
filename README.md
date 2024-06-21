@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A choice isn't something someone gives you, it's something you make for yourself."
+> "Are our enemies the kobolds? No, our real enemies are our overly weak selves."
 
-&mdash; [**Papillon**](https://myanimelist.net/character.php?q=Papillon&cat=character), [**Busou Renkin**](https://myanimelist.net/search/all?q=Busou%20Renkin&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
