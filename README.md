@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death no longer terrifies man, the smell of blood is as common as the smell of white plums. So, he creates slavery and savagery... which surpasses the horror of dying."
+> "Fear beyond rational limits, forces people to cling to normality."
 
-&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
