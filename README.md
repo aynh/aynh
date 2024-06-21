@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes feelings get tangled together with deductions, forming a veil that hides the truth."
+> "When an otaku goes all-out with his mind set on something you better not underestimate him."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Tomoya Aki**](https://myanimelist.net/character.php?q=Tomoya%20Aki&cat=character), [**Saenai Heroine no Sodatekata**](https://myanimelist.net/search/all?q=Saenai%20Heroine%20no%20Sodatekata&cat=all)
