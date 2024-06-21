@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ah... what a beautiful sound. It doesn't get any better than that. I can feel it deep in my bones, like a part of me I never noticed before. That sound is an extension of my being. And this land - this land that's governed by death - I will paint it red with this shard of destruction."
+> "A guy who likes someone else shouldn't be taking care of the girl he just dumped."
 
-&mdash; [**Solf J. Kimblee**](https://myanimelist.net/character.php?q=Solf%20J.%20Kimblee&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Takumi Nomiya**](https://myanimelist.net/character.php?q=Takumi%20Nomiya&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
