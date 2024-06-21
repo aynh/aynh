@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter where you are, you have to have the energy to keep on doing the things that you like until the final moment."
+> "Humanity will never stop fighting itself.. until it shrinks to a size of one or fewer."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Erwin Smith**](https://myanimelist.net/character.php?q=Erwin%20Smith&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
