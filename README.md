@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no such thing as fair or unfair in battle. There is only victory or in your case, defeat."
+> "No matter the journey, when you come to a fork in the road, you must decide in an instant which path to take."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
