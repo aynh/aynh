@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sketching a scene as you see it gives you a sense of being there, that's totally different from painting a copy of a photograph."
+> "There’s no such thing as fair or unfair in battle. There is only victory or in your case, defeat."
 
-&mdash; [**Eriri Spencer Sawamura**](https://myanimelist.net/character.php?q=Eriri%20Spencer%20Sawamura&cat=character), [**Saenai Heroine no Sodatekata**](https://myanimelist.net/search/all?q=Saenai%20Heroine%20no%20Sodatekata&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
