@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humanity will never stop fighting itself.. until it shrinks to a size of one or fewer."
+> "I can’t shake the feeling that I’ve met you before, but I can’t remember where."
 
-&mdash; [**Erwin Smith**](https://myanimelist.net/character.php?q=Erwin%20Smith&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
