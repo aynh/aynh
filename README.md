@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We're nothing like God. Not only do we have limited powers, but sometimes we're driven to become the devil himself."
+> "No matter where you are, you have to have the energy to keep on doing the things that you like until the final moment."
 
-&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
