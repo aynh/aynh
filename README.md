@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone wants to have someone else's attention, and to be noticed. But the same thing goes for the other person too."
+> "Fortunately, I do not have any pride. But what about it? Will the name of the hero be disgraced? Hah, don't make me laugh, Lancer. You can wash away disgrace with results. You can feed your meaningless pride to the dogs."
 
-&mdash; [**Nanana Ryuugajou**](https://myanimelist.net/character.php?q=Nanana%20Ryuugajou&cat=character), [**Ryuugajou Nanana No Maizoukin**](https://myanimelist.net/search/all?q=Ryuugajou%20Nanana%20No%20Maizoukin&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
