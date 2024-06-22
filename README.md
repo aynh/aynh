@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Using a rescued civilian as a hostage? So do you still feel justified in fighting by their side with these cowards? Kira?"
+> "Well excuse me for making you sleep in the wild all the time."
 
-&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
