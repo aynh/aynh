@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "On this hand, imagine that these four fingers represent the animals, and the thumb represents plants. Then let's say people are here... On the tip of the middle finger, farthest from the heart."
+> "Do whatever you think is right. That's the way of the Fairy Tail mages."
 
-&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
