@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It was like you brought color to my life. You changed my life, all by yourself."
+> "I can't forgive myself. I wanted something to happen without doing anything myself! I have to do it. I have to do it all... Or I can't even stand by her side!"
 
-&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Bell Cranel**](https://myanimelist.net/character.php?q=Bell%20Cranel&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
