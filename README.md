@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't like it, the dark circles under my eyes will come back and I don't know how to deal with the dark circles!"
+> "I am lightning. No matter how hard they try, mankind can never overcome lightning. Since ancient times, mankind has labeled the unknowns of nature as God. And anything they could not understand, they feared. Everything which befalls mankind is said to be the work of God. Mankind accepts that it cannot defeat natural disasters. And I am one of them."
 
-&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Enel**](https://myanimelist.net/character.php?q=Enel&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
