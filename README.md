@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I killed many people to act on my ideal. I killed so many that I stopped caring about innocent people and I saved a thousand times as many as I killed."
+> "What the hell is with everyone telling me to change? I don't want other people telling me who I am."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
