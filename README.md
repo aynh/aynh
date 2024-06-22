@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I understand now. Even if I must take the devil's fruit, I must gain power. I am an avenger."
+> "If I suddenly showed up, would I bother him? Surprise him? There’s no way we could meet. But what if we did? What should I do? Would I annoy him? Would it be awkward? Or maybe… He’d be a bit glad to see me?"
 
-&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Mitsuha Miyamizu**](https://myanimelist.net/character.php?q=Mitsuha%20Miyamizu&cat=character), [**Kimi no Na wa**](https://myanimelist.net/search/all?q=Kimi%20no%20Na%20wa&cat=all)
