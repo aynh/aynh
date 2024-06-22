@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It may be hard right now... But you must silence those thoughts! Stop counting only those things that you have lost! What is gone, is gone! So ask yourself this: What is there... that still remains to you?!"
+> "Willpower alone isn't enough in battle."
 
-&mdash; [**Jinbei**](https://myanimelist.net/character.php?q=Jinbei&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
