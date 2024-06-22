@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fortunately, I do not have any pride. But what about it? Will the name of the hero be disgraced? Hah, don't make me laugh, Lancer. You can wash away disgrace with results. You can feed your meaningless pride to the dogs."
+> "Using a rescued civilian as a hostage? So do you still feel justified in fighting by their side with these cowards? Kira?"
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
