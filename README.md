@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A dream? A future? Stop going on about other people's futures when you haven't even decided your own!"
+> "There is no right answer for getting along. Different people require different answers."
 
-&mdash; [**Haruka Nanase**](https://myanimelist.net/character.php?q=Haruka%20Nanase&cat=character), [**Free! Eternal Summer**](https://myanimelist.net/search/all?q=Free!%20Eternal%20Summer&cat=all)
+&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
