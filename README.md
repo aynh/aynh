@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am lightning. No matter how hard they try, mankind can never overcome lightning. Since ancient times, mankind has labeled the unknowns of nature as God. And anything they could not understand, they feared. Everything which befalls mankind is said to be the work of God. Mankind accepts that it cannot defeat natural disasters. And I am one of them."
+> "A dream? A future? Stop going on about other people's futures when you haven't even decided your own!"
 
-&mdash; [**Enel**](https://myanimelist.net/character.php?q=Enel&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Haruka Nanase**](https://myanimelist.net/character.php?q=Haruka%20Nanase&cat=character), [**Free! Eternal Summer**](https://myanimelist.net/search/all?q=Free!%20Eternal%20Summer&cat=all)
