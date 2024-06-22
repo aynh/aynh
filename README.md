@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you have memories no one else remembers, what's the point in remembering them?"
+> "I killed many people to act on my ideal. I killed so many that I stopped caring about innocent people and I saved a thousand times as many as I killed."
 
-&mdash; [**Liu Cheng-Long**](https://myanimelist.net/character.php?q=Liu%20Cheng-Long&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
