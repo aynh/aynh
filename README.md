@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do whatever you think is right. That's the way of the Fairy Tail mages."
+> "Hinata, untie the ropes before you faint."
 
-&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kiba Inuzuka**](https://myanimelist.net/character.php?q=Kiba%20Inuzuka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
