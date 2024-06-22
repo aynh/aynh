@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't forgive myself. I wanted something to happen without doing anything myself! I have to do it. I have to do it all... Or I can't even stand by her side!"
+> "Anyone who points a gun at me dies. Got it? Point a gun at me, you die."
 
-&mdash; [**Bell Cranel**](https://myanimelist.net/character.php?q=Bell%20Cranel&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
+&mdash; [**Nishi Joichiro**](https://myanimelist.net/character.php?q=Nishi%20Joichiro&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
