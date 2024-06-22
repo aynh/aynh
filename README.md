@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no right answer for getting along. Different people require different answers."
+> "In the end, people are all alone, and no matter how close they cling together, they can never be one. It's impossible to make someone belong to you."
 
-&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Yasushi Takagi**](https://myanimelist.net/character.php?q=Yasushi%20Takagi&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
