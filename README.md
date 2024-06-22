@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Smile. Even if you're facing an enemy, people can't attack others with a smile."
+> "Tears and rain, fall down on my face, my body is unable to stay yet my heart is unwilling to leave."
 
-&mdash; [**Rurumu**](https://myanimelist.net/character.php?q=Rurumu&cat=character), [**Adventures of Sinbad**](https://myanimelist.net/search/all?q=Adventures%20of%20Sinbad&cat=all)
+&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
