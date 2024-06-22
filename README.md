@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anyone who points a gun at me dies. Got it? Point a gun at me, you die."
+> "I don't like it, the dark circles under my eyes will come back and I don't know how to deal with the dark circles!"
 
-&mdash; [**Nishi Joichiro**](https://myanimelist.net/character.php?q=Nishi%20Joichiro&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
