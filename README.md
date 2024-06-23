@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For me and Mello, L has been the only person we adore, and the only person who deserves our respect."
+> "It's so much easier to believe that only your own thoughts and beliefs are absolutely correct."
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Guy Cecil**](https://myanimelist.net/character.php?q=Guy%20Cecil&cat=character), [**Tales of the Abyss**](https://myanimelist.net/search/all?q=Tales%20of%20the%20Abyss&cat=all)
