@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If a sorry could resolve everything, why would there be a need for hell in this world?"
+> "Choose the best thing you can do now, in order to get a step closer to your dream."
 
-&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
+&mdash; [**Tsukitachi**](https://myanimelist.net/character.php?q=Tsukitachi&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
