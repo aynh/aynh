@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to a dying Elliot* I really liked you. It was only thanks to you that Gil managed to live in that house without forgetting how to smile."
+> "That's enough, Soifon. You remind me of myself. I even think of you sometimes as my little sister."
 
-&mdash; [**Vincent Nightray**](https://myanimelist.net/character.php?q=Vincent%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
