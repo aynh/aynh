@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's enough, Soifon. You remind me of myself. I even think of you sometimes as my little sister."
+> "This is my case! I'm going to solve it!! Don't get involved!"
 
-&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
