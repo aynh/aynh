@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They don't call me Greed for nothing! I want money, I want women, status and power! I want everything this world's selling and eternity's topping the list!"
+> "For me and Mello, L has been the only person we adore, and the only person who deserves our respect."
 
-&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
