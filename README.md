@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no telling when this war will end. No matter how many troops the country deploys, the desert just absorbs them like water. We suffer, conquer, and what's left? Nothing but sand."
+> "There are people in this world who don't understand that what they consider a harmless prank can deeply hurt someone else."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Mio Nishizono**](https://myanimelist.net/character.php?q=Mio%20Nishizono&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
