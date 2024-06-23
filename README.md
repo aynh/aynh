@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The inferiority you feel is actually the quality of a king. You may grumble a lot, but you know how small you are. And yet you still struggle to reach heights greater than you can imagine."
+> "*to Near* Which of us will get Kira first... it's a race!"
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
