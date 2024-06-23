@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you are feeling sad... smile, even if you have to force yourself... If you cry when it gets painful... it will only get more painful."
+> "*to a dying Elliot* I really liked you. It was only thanks to you that Gil managed to live in that house without forgetting how to smile."
 
-&mdash; [**Chie**](https://myanimelist.net/character.php?q=Chie&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Vincent Nightray**](https://myanimelist.net/character.php?q=Vincent%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
