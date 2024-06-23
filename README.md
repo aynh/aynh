@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't beg for things, get them yourself or else you won't get anything."
+> "If we give our best in something we love, we'll enjoy the victories from the bottom of our hearts."
 
-&mdash; [**Renton Thurston**](https://myanimelist.net/character.php?q=Renton%20Thurston&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
