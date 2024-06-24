@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I may not be able to beat you, even if we play a hundred more games. But if I have a chance of beating you the 101st time, I'll challenge you again and again."
+> "Ruling over death means ruling over life. Death is the climax of life. To have the best death, you must honor life."
 
-&mdash; [**Tachibana Hotaru**](https://myanimelist.net/character.php?q=Tachibana%20Hotaru&cat=character), [**Aoharu x Kikanjuu**](https://myanimelist.net/search/all?q=Aoharu%20x%20Kikanjuu&cat=all)
+&mdash; [**Rory Mercury**](https://myanimelist.net/character.php?q=Rory%20Mercury&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
