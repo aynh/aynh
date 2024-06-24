@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Was he the kind of master who would leave you behind? If you decided in your hearts to serve him, then believe in your master."
+> "As long as you keep thinking out of the box, you’ll probably discover that imaginary situations you find in manga and games are already happening in real life."
 
-&mdash; [**Hiiragi**](https://myanimelist.net/character.php?q=Hiiragi&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Da Capo III**](https://myanimelist.net/character.php?q=Da%20Capo%20III&cat=character), [**Da Capo III**](https://myanimelist.net/search/all?q=Da%20Capo%20III&cat=all)
