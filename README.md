@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[with a bow and arrow ready to fire] Not as pretty as his, huh? What would you know about it? You live in a time where they don't even have SHAMPOO."
+> "I may not be able to beat you, even if we play a hundred more games. But if I have a chance of beating you the 101st time, I'll challenge you again and again."
 
-&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Tachibana Hotaru**](https://myanimelist.net/character.php?q=Tachibana%20Hotaru&cat=character), [**Aoharu x Kikanjuu**](https://myanimelist.net/search/all?q=Aoharu%20x%20Kikanjuu&cat=all)
