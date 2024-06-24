@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say if you change yourself, you'll change the world, but that's a complete lie. When people judge somebody, it becomes a fixed idea and an impression that lasts. A loner is forced to stay a loner. If you do your best at something and stand out, that'll only get used as fodder for criticism. Those are the rules of the Kingdom of Children."
+> "London bridge is falling down dude!"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
