@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as you keep thinking out of the box, you’ll probably discover that imaginary situations you find in manga and games are already happening in real life."
+> "Sometimes I think delinquents are people… Who still have hope that things still can get better if they just put up a SOS sign. But I don’t even have the will to lift that sign anymore."
 
-&mdash; [**Da Capo III**](https://myanimelist.net/character.php?q=Da%20Capo%20III&cat=character), [**Da Capo III**](https://myanimelist.net/search/all?q=Da%20Capo%20III&cat=all)
+&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
