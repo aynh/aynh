@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Right now, we're all really only taking it day by day. Even if we can't get used to things, even if we can't win at something, even if we don't have any excess...In order to live day by day, we work, we fail, and we succeed. Sometimes we laugh. For the blessing before our very eyes, for our friends, we're thankful. Who knew that people could feel happiness just from living?"
+> "Hey, yo, check this out! It's a moonwalk, it's a moonwalk! Head spin!"
 
-&mdash; [**Sei**](https://myanimelist.net/character.php?q=Sei&cat=character), [**Suicide Island**](https://myanimelist.net/search/all?q=Suicide%20Island&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
