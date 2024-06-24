@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I called his name again and again. And I learned that each time, nothing called back. I learned that no matter how much you want something, how many times you scream to it, sometimes it's out of reach. I decided to stop calling out for someone who would never call back."
+> "If there's no eye to see, there's no difference between the darkness and the light."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Subaru**](https://myanimelist.net/character.php?q=Subaru&cat=character), [**Houkago no Pleiades**](https://myanimelist.net/search/all?q=Houkago%20no%20Pleiades&cat=all)
