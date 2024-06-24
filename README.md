@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is an adult? Does coolly drinking black coffee and spouting logic make you an adult?! If that's the case, I'll stay a kid that likes drinking orange juice."
+> "Was he the kind of master who would leave you behind? If you decided in your hearts to serve him, then believe in your master."
 
-&mdash; [**Shirota Mahiru**](https://myanimelist.net/character.php?q=Shirota%20Mahiru&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
+&mdash; [**Hiiragi**](https://myanimelist.net/character.php?q=Hiiragi&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
