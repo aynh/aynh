@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey, yo, check this out! It's a moonwalk, it's a moonwalk! Head spin!"
+> "If we're going to regret it either way, then let's regret doing something fun that we wanted to do."
 
-&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
