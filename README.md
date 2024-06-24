@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The notion of set fate is ridiculous. Cause and effect can be bent through strength."
+> "Right now, we're all really only taking it day by day. Even if we can't get used to things, even if we can't win at something, even if we don't have any excess...In order to live day by day, we work, we fail, and we succeed. Sometimes we laugh. For the blessing before our very eyes, for our friends, we're thankful. Who knew that people could feel happiness just from living?"
 
-&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Sei**](https://myanimelist.net/character.php?q=Sei&cat=character), [**Suicide Island**](https://myanimelist.net/search/all?q=Suicide%20Island&cat=all)
