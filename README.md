@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The big secret to breaking the rules is to make it look as though you're following them."
+> "The notion of set fate is ridiculous. Cause and effect can be bent through strength."
 
-&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
