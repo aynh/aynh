@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no master who deliberately lets his birds escape from his birdcage"
+> "You're lucky Al. Since your body's huge."
 
-&mdash; [**Blue Owl**](https://myanimelist.net/character.php?q=Blue%20Owl&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
