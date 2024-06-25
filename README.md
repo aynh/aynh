@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What defines humans... Defines us? Nobody will notice a change on the inside if you look the same on the outside."
+> "Why are you looking for something when you can't even remember what it is?"
 
-&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
