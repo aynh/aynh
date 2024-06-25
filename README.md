@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never wanted anybody to hate me. I don't belong to any groups, and I have to fight and struggle to build myself up. In the end, all I want is just to not be hated by everyone."
+> "I don't want to regret anything. I want to make all the tragedies that happened into meaningful things by believing that my path is right."
 
-&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
