@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Canaan is still alive. Her existence is shining so brightly. Too bright for the naked eyes to look at directly... I'm a bit scared, but I want to touch it. I want to touch her radiance."
+> "{TO NARUTO} Oh, by the way... I'm a boy"
 
-&mdash; [**Maria Oosawa**](https://myanimelist.net/character.php?q=Maria%20Oosawa&cat=character), [**CANAAN**](https://myanimelist.net/search/all?q=CANAAN&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
