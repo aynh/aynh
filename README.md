@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You guys are a team, you have to work together if you want to do anything! One person can't make a decision without the other, you decide together and you fight together!"
+> "I hate humans. I find the thought that I'm from the same species to be depressing."
 
-&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
