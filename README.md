@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who perish in other’s battles are worms… If one can’t live their life the way they want, they might as well die."
+> "Trusting someone not to hurt you... how idiotic is that?"
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
