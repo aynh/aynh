@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Feelings are connection. They surpass time, and find their way back to the people you love."
+> "Human beings don't feel pain with their bodies. The brain is the thing that transmits the pain to the body."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Madoka Shishito**](https://myanimelist.net/character.php?q=Madoka%20Shishito&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
