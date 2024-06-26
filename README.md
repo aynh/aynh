@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You.... Could it be that you're just an idiot? *to Senjougahara*"
+> "No matter how many years it's been since they met, brothers are brothers, aren't they? Even without having seen, I can tell."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Matahachi Hon'iden**](https://myanimelist.net/character.php?q=Matahachi%20Hon'iden&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
