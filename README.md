@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Isn't the foolishness of the few a more precious commodity than the wisdom of the masses? There are those who were born human but harbor wishes that man was not meant for and have renounced their humanity in its pursuit."
+> "A small mistake can make a huge difference."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
