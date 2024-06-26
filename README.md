@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'd rather trust and regret, than doubt and regret."
+> "Deceive your other self. Deceive the world. That is what you must do to reach the Steins Gate. Good Luck. El Psy Congroo."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
