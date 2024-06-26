@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Happiness is hot chocolate on a cold day."
+> "Isn't the foolishness of the few a more precious commodity than the wisdom of the masses? There are those who were born human but harbor wishes that man was not meant for and have renounced their humanity in its pursuit."
 
-&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
