@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to himself as he chops at the ice] I'm just a guy with a boomerang. I didn't ask for all this flying and magic."
+> "It's probably a lie. The reason why I only stay for three days in any country. I'm afraid I'll settle down, if I stay too long. Because if I settled down, I would cease to be a traveler."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
