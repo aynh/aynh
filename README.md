@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death on the battlefield comes regardless of class, royal or common. The loser must die!"
+> "They say that if you change yourself, you'll change the world. but that's a complete lie. They're just forcing you to compromise, by feeding you a convenient little fib."
 
-&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
