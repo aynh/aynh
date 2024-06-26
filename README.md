@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how many years it's been since they met, brothers are brothers, aren't they? Even without having seen, I can tell."
+> "The bully always says it's a joke. But to the one being bullied, it's dead serious!"
 
-&mdash; [**Matahachi Hon'iden**](https://myanimelist.net/character.php?q=Matahachi%20Hon'iden&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
+&mdash; [**Fujisaki Yusuke**](https://myanimelist.net/character.php?q=Fujisaki%20Yusuke&cat=character), [**Sket Dance**](https://myanimelist.net/search/all?q=Sket%20Dance&cat=all)
