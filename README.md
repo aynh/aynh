@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Father] You've certainly mellowed out... you used to be fun, full of life and emotion. Lust, Greed, Sloth, Gluttony, Envy, Wrath, and Pride. Of course, excessive want will destroy anyone, but those same desires are necessary to understand what it means to be human. Why did you rid yourself of them?"
+> "Apples taste so much better indoors."
 
-&mdash; [**Van Hohenheim**](https://myanimelist.net/character.php?q=Van%20Hohenheim&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
