@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The bully always says it's a joke. But to the one being bullied, it's dead serious!"
+> "Death on the battlefield comes regardless of class, royal or common. The loser must die!"
 
-&mdash; [**Fujisaki Yusuke**](https://myanimelist.net/character.php?q=Fujisaki%20Yusuke&cat=character), [**Sket Dance**](https://myanimelist.net/search/all?q=Sket%20Dance&cat=all)
+&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
