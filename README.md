@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll be waiting for you to get your asses back here!"
+> "I was born alone in this world and alone I will die. If this is my fate, why are tears coming out of my eyes?"
 
-&mdash; [**Sawako Yamanaka**](https://myanimelist.net/character.php?q=Sawako%20Yamanaka&cat=character), [**K-ON!**](https://myanimelist.net/search/all?q=K-ON!&cat=all)
+&mdash; [**Alan Humphries**](https://myanimelist.net/character.php?q=Alan%20Humphries&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
