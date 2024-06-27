@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Family? Let me tell you what kind of link I have with them. They are just lumps of meat linked by hatred and murderous intent!"
+> "I'm inadequate in everything."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
