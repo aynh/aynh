@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Of my five older siblings, two died on the first mission, then two more on the second. Then on the sixth mission, the last one... Died as well. I felt sad, somewhat, but more than that, I felt ashamed of their incompetence."
+> "There are no regrets. If one can be proud of one's life, one should not wish for another chance."
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
