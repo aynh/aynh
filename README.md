@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A band isn't so simple... that you can just mess around and keep it going."
+> "Sebastian, you know what to do."
 
-&mdash; [**Jirō Yamada**](https://myanimelist.net/character.php?q=Jir%C5%8D%20Yamada&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
