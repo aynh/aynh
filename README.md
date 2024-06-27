@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The many lives lost during long years of conflict... because of those selfless sacrifices, we are able to bathe in peace and prosperity now. To ingrain this history within the new generation will be a vital cog in helping to maintain the peace."
+> "The strong one doesn't win. The one who wins is strong."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Boruto: Naruto Next Generations**](https://myanimelist.net/search/all?q=Boruto%3A%20Naruto%20Next%20Generations&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
