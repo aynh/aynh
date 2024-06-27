@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm pathetic. I was observing the world from a safe distance. I was just scared of being hurt. I was lonely."
+> "Being kind to everyone, simply means there's no one special."
 
-&mdash; [**Amano Yukiteru**](https://myanimelist.net/character.php?q=Amano%20Yukiteru&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
