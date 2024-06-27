@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was born alone in this world and alone I will die. If this is my fate, why are tears coming out of my eyes?"
+> "Today's my birthday. During times like these I always think whether or not it was a good thing that I was born."
 
-&mdash; [**Alan Humphries**](https://myanimelist.net/character.php?q=Alan%20Humphries&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Eucliwood Hellscythe**](https://myanimelist.net/character.php?q=Eucliwood%20Hellscythe&cat=character), [**Kore Wa Zombie Desu Ka?**](https://myanimelist.net/search/all?q=Kore%20Wa%20Zombie%20Desu%20Ka%3F&cat=all)
