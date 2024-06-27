@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Today's my birthday. During times like these I always think whether or not it was a good thing that I was born."
+> "Of my five older siblings, two died on the first mission, then two more on the second. Then on the sixth mission, the last one... Died as well. I felt sad, somewhat, but more than that, I felt ashamed of their incompetence."
 
-&mdash; [**Eucliwood Hellscythe**](https://myanimelist.net/character.php?q=Eucliwood%20Hellscythe&cat=character), [**Kore Wa Zombie Desu Ka?**](https://myanimelist.net/search/all?q=Kore%20Wa%20Zombie%20Desu%20Ka%3F&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
