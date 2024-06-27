@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The strong one doesn't win. The one who wins is strong."
+> "If you become perplexed or make errors, in the end have the kind of life that you can have pride in living. The kind where you can say, 'I persevered.' Repeating delightful things and sad things. And in that way keep getting older. I persevered."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
