@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm pretty confident about my reflexes. And pretty strong too. I'm a guy after all. When the time comes, I can protect you even at the cost of my life."
+> "The slight difference between those who always aim for the top and those who don't... It'll come to matter in a big way once you all emerge into society."
 
-&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
