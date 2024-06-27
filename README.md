@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being kind to everyone, simply means there's no one special."
+> "Family? Let me tell you what kind of link I have with them. They are just lumps of meat linked by hatred and murderous intent!"
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
