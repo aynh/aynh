@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm inadequate in everything."
+> "Keeping all the wealth for yourself may make your rich, but it won’t make you prosperous. You give people money, and they spend it. True prosperity comes from a free flow of wealth and goods."
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
