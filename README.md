@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Old, young, man, woman,  a life is a life. Sinner or Saint it makes no difference at all."
+> "I'm pretty confident about my reflexes. And pretty strong too. I'm a guy after all. When the time comes, I can protect you even at the cost of my life."
 
-&mdash; [**Gensei**](https://myanimelist.net/character.php?q=Gensei&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
