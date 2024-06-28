@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The dead don't desire revenge, but the happiness of the living."
+> "They want to believe that's true and when someone wants to believe something is true, they usually will."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Henrietta**](https://myanimelist.net/character.php?q=Henrietta&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
