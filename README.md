@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Suna, maybe people all have a hot, molten core inside their hearts, but they just live their lives, never showing it to the world, as if nothing is really going on."
+> "Isn't chasing our dream our job right now?"
 
-&mdash; [**Takeo Gouda**](https://myanimelist.net/character.php?q=Takeo%20Gouda&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
+&mdash; [**Minako Kanou**](https://myanimelist.net/character.php?q=Minako%20Kanou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
