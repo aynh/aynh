@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Thinking of you wherever you are. We pray for our sorrows to end, and hope that our hearts will blend. Now I will step forward to realize this wish. And who knows... starting a new journey may not be so hard, or maybe it has already begun. There are many worlds, but they share the same sky... one sky, one destiny."
+> "I felt like I was watching a dream I'd never wake up from. Before I knew it, the dream was all over."
 
-&mdash; [**Kairi**](https://myanimelist.net/character.php?q=Kairi&cat=character), [**Kingdom Hearts 2**](https://myanimelist.net/search/all?q=Kingdom%20Hearts%202&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
