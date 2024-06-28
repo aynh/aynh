@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Isn't chasing our dream our job right now?"
+> "Thinking of you wherever you are. We pray for our sorrows to end, and hope that our hearts will blend. Now I will step forward to realize this wish. And who knows... starting a new journey may not be so hard, or maybe it has already begun. There are many worlds, but they share the same sky... one sky, one destiny."
 
-&mdash; [**Minako Kanou**](https://myanimelist.net/character.php?q=Minako%20Kanou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Kairi**](https://myanimelist.net/character.php?q=Kairi&cat=character), [**Kingdom Hearts 2**](https://myanimelist.net/search/all?q=Kingdom%20Hearts%202&cat=all)
