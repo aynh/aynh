@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In all things, I think having a dream requires having the resolve to struggle with reality."
+> "In our society, letting others find out that you're a nice person is a very risky move. It's extremely likely that someone would take advantage of that."
 
-&mdash; [**Juui**](https://myanimelist.net/character.php?q=Juui&cat=character), [**Silver Spoon**](https://myanimelist.net/search/all?q=Silver%20Spoon&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
