@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans lose focus of the big picture when they’re drunken in the midst of their feelings."
+> "Hey! I'm totally an adult! I bitch and whine, lie through my teeth, and do things that are unfair."
 
-&mdash; [**Tojuro Hattori**](https://myanimelist.net/character.php?q=Tojuro%20Hattori&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
