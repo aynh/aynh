@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In our society, letting others find out that you're a nice person is a very risky move. It's extremely likely that someone would take advantage of that."
+> "What is 'Courage'? Courage is owning your fear!"
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**William A. Zeppeli**](https://myanimelist.net/character.php?q=William%20A.%20Zeppeli&cat=character), [**JoJo's Bizarre Adventure**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure&cat=all)
