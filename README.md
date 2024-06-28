@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is called the 'Rippling Sword'. 'Rippling Ophelia'... Great name, don't you think? But it's not too well known yet. Because most of the people who've seen it are dead."
+> "In all things, I think having a dream requires having the resolve to struggle with reality."
 
-&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Juui**](https://myanimelist.net/character.php?q=Juui&cat=character), [**Silver Spoon**](https://myanimelist.net/search/all?q=Silver%20Spoon&cat=all)
