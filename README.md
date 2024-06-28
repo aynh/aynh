@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time is something no one can escape. It delivers us all to the same end."
+> "Humans lose focus of the big picture when they’re drunken in the midst of their feelings."
 
-&mdash; [**Pharos**](https://myanimelist.net/character.php?q=Pharos&cat=character), [**Persona 3**](https://myanimelist.net/search/all?q=Persona%203&cat=all)
+&mdash; [**Tojuro Hattori**](https://myanimelist.net/character.php?q=Tojuro%20Hattori&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
