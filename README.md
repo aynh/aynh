@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A hero must be tough, strong and beautiful... As well as able to promptly and splendidly eradicate evil."
+> "That's right. Our weakness is that we're utterly stupid."
 
-&mdash; [**Sweet Mask**](https://myanimelist.net/character.php?q=Sweet%20Mask&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
