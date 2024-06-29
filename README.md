@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[lying about coming to save Rukia] Just passing by. No big deal.... Well, if you must know, I felt a sudden urge to go to Sunflower Seams, that 24-hour dressmaking shop. There's a branch near here. That's where I was headed at this late hour. I certainly didn't bring this bag with me just so I would have an excuse for suddenly leaving the house because I sensed the spirit energy of a shinigami, all right?"
+> "A person is very strong when he seeks to protect something."
 
-&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Akihiko Kayaba**](https://myanimelist.net/character.php?q=Akihiko%20Kayaba&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
