@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just because you want other people to think of you as someone who'd literally die for another... dragging someone else to his death just for that... only a bad girl would do that, right?"
+> "Even if you hate it or whatever, I'll never let go of you. If you run away, I'll probably come after you and lock you up."
 
-&mdash; [**Ymir**](https://myanimelist.net/character.php?q=Ymir&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
