@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm rather proud of my ability to tell lies. I can trick not only others, but even my own heart."
+> "[lying about coming to save Rukia] Just passing by. No big deal.... Well, if you must know, I felt a sudden urge to go to Sunflower Seams, that 24-hour dressmaking shop. There's a branch near here. That's where I was headed at this late hour. I certainly didn't bring this bag with me just so I would have an excuse for suddenly leaving the house because I sensed the spirit energy of a shinigami, all right?"
 
-&mdash; [**Ludenberg Celestia**](https://myanimelist.net/character.php?q=Ludenberg%20Celestia&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
