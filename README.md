@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A man who raises his hands on a woman is trash. If I have to become trash in order to survive... It'll be just like dying."
+> "On the internet, we only know each other's usernames. If we were talking face to face, I probably would never talk to them this way. They look at the 'Real Me'. They support me a lot... I wish there were more people like them."
 
-&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sumino Hikage**](https://myanimelist.net/character.php?q=Sumino%20Hikage&cat=character), [**Koko Ni Iru Yo!**](https://myanimelist.net/search/all?q=Koko%20Ni%20Iru%20Yo!&cat=all)
