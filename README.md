@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*after Zuko defeats Zhao* So this is how the great Commander Zhao acts in defeat? Disgraceful. Even in exile, my nephew is more honorable than you. Thanks again for the tea. It was delicious. [Iroh and Zuko leaves]"
+> "I'm rather proud of my ability to tell lies. I can trick not only others, but even my own heart."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Ludenberg Celestia**](https://myanimelist.net/character.php?q=Ludenberg%20Celestia&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
