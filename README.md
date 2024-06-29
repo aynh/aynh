@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kyon-kun. If I become ruined for marriage will you take me?"
+> "Even if mistaken, even if cruel, even if stupid, if many people acknowledge it, I found out that it can become the right thing. I found out that righteousness was able to be infinitely mass-produced. I found out that righteousness was established by the number of people. I found out that maneuvering for a majority was everything."
 
-&mdash; [**Mikuru Asahina**](https://myanimelist.net/character.php?q=Mikuru%20Asahina&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Owarimonogatari**](https://myanimelist.net/search/all?q=Owarimonogatari&cat=all)
