@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing can stay unchanged. Fun things… Happy things… They can’t possibly remain the same."
+> "*to Aang* You need to find someone who WAITS and LISTENS before striking."
 
-&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**King Bumi**](https://myanimelist.net/character.php?q=King%20Bumi&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
