@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's nothing more boring than a perfect heroine!"
+> "A man who raises his hands on a woman is trash. If I have to become trash in order to survive... It'll be just like dying."
 
-&mdash; [**Drosselmeyer**](https://myanimelist.net/character.php?q=Drosselmeyer&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
