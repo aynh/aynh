@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Thus at long last the fighting between the rival gangs had ended! To sum up, this leads us to number 778 of the 1,000 provisions you must observe. Never mail a letter without the return address or the proper postage. And don't call collect."
+> "Thinking about whether it's because of jealousy or just saying it out loud by accident, aren't they all part of love? Love isn't always sweet."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Yuyuka Nekota**](https://myanimelist.net/character.php?q=Yuyuka%20Nekota&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
