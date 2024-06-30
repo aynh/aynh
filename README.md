@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how much everyone loves me, and no matter how much I love everyone - if I don't like it, I just can't do it."
+> "I'm watching a dream I'll never wake up from."
 
-&mdash; [**Shana**](https://myanimelist.net/character.php?q=Shana&cat=character), [**Shakugan no Shana**](https://myanimelist.net/search/all?q=Shakugan%20no%20Shana&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
