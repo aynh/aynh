@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not whether it's feasible or not – it's what I'm doing."
+> "If you're gonna kill me, then kill me. If you're gonna execute me, stop waiting. Until then, I live by my own rules!"
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
