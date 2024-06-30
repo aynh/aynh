@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I swear to God that when we die, we'll die together."
+> "If you guys weren't here, I don't know what would have happened to me. You can't live in this world alone, no matter how you look at it."
 
-&mdash; [**Mikage**](https://myanimelist.net/character.php?q=Mikage&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Manato**](https://myanimelist.net/character.php?q=Manato&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
