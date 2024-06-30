@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Thinking about whether it's because of jealousy or just saying it out loud by accident, aren't they all part of love? Love isn't always sweet."
+> "The important things in life, like feelings, hearts, and souls, are all things you can never see. The more you try to reassure yourself that they exist, the more you feel they don't exist at all. But right now, I know for sure that they do exist. They're so close, you can almost touch them."
 
-&mdash; [**Yuyuka Nekota**](https://myanimelist.net/character.php?q=Yuyuka%20Nekota&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Takeo Gouda**](https://myanimelist.net/character.php?q=Takeo%20Gouda&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
