@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "An unreasonable situation deserves an unreasonable solution."
+> "Your happiness is in a much more vast world. Look for it. Find it. (to Hatsuharu)"
 
-&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
