@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your happiness is in a much more vast world. Look for it. Find it. (to Hatsuharu)"
+> "Not fighting frantically for your life is all right, too. The important thing is… to decide on your own what you should do."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Hakuren Oak**](https://myanimelist.net/character.php?q=Hakuren%20Oak&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
