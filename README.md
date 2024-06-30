@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You should try persuasion when people are mentally defenseless. The fascist who proposed that was a demonic genius."
+> "It's not whether it's feasible or not – it's what I'm doing."
 
-&mdash; [**Tanya Degurechaff**](https://myanimelist.net/character.php?q=Tanya%20Degurechaff&cat=character), [**Youjo Senki**](https://myanimelist.net/search/all?q=Youjo%20Senki&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
