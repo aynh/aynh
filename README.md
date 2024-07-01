@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do your best, no matter how many times you fail!"
+> "Ah, my most ugly heart. I hate, hate, hate it, so I can’t help but sneer all the time."
 
-&mdash; [**Takeshi Tatsumi**](https://myanimelist.net/character.php?q=Takeshi%20Tatsumi&cat=character), [**Giant Killing**](https://myanimelist.net/search/all?q=Giant%20Killing&cat=all)
+&mdash; [**Kano Shuuya**](https://myanimelist.net/character.php?q=Kano%20Shuuya&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
