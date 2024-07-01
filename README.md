@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The brighter they shine, the darker the shadow grows."
+> "Man this guy is stupid, ugly and a bad shooter."
 
-&mdash; [**Makino Fumito**](https://myanimelist.net/character.php?q=Makino%20Fumito&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
