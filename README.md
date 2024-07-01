@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don't need them and their selfish ideas."
+> "Hey Kaiba, maybe we should duel sometimes."
 
-&mdash; [**Alibaba Saluja**](https://myanimelist.net/character.php?q=Alibaba%20Saluja&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
+&mdash; [**Joey Wheeler**](https://myanimelist.net/character.php?q=Joey%20Wheeler&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
