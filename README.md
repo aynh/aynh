@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Conflict is humanity's primal instinct. Eliminating it would mean eliminating humanity itself."
+> "*about Grevil* He's the owner of the oddest hair in all of Sauville."
 
-&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Victorique de Blois**](https://myanimelist.net/character.php?q=Victorique%20de%20Blois&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
