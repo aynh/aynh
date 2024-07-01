@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay, cool guys see naked women all the time, I'm totally used to it."
+> "If it's not enough to believe in justice, then I will become justice. I will seek out all evil in this world and wipe them out like the clouds in the sky. I swear I will...For justice."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
