@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter where you are, people find a way to entertain themselves."
+> "When people reach the halfway mark of a long ordeal, how do they feel? Does being only halfway there make them despair? Or do they feel relief at making it halfway there? Most people have to feel one way or the other, and both emotions create an opening in their hearts. That's why I pushed myself this far."
 
-&mdash; [**Shuusei Kagari**](https://myanimelist.net/character.php?q=Shuusei%20Kagari&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
