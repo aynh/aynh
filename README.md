@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When there's nothing to be gained, rising to the challenge at those times... is surely the mark... of a true hero!!"
+> "Is there a limit to how much you can love somebody? No matter how much I hurt him or get hurt by him, I find myself far from hating him, actually hoping that those wounds will scar, like burns...because then you can never forget me."
 
-&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
+&mdash; [**Hiroki Kamijou**](https://myanimelist.net/character.php?q=Hiroki%20Kamijou&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
