@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hope brings me pain... if I didn't have any hope at all, I might never have known such agony."
+> "It's okay, no need to thank me or say anything else. I will always be there for you, I will make you fall for me over and over again."
 
-&mdash; [**Minato**](https://myanimelist.net/character.php?q=Minato&cat=character), [**Houkago no Pleiades**](https://myanimelist.net/search/all?q=Houkago%20no%20Pleiades&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
