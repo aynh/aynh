@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's always someone better. That's why I can't stop fighting."
+> "[to Kenpachi Zaraki] I did not say that I hate you. What I mean to say is that you are unforgivable!!"
 
-&mdash; [**Hidetora Toujo**](https://myanimelist.net/character.php?q=Hidetora%20Toujo&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
