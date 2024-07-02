@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I guess I just want the person I love to be happy. I just want to do something for him."
+> "Whenever I see tulips, I'm always reminded of when we learned that these precious little flowers, have the strength to endure harsh winters."
 
-&mdash; [**Sana Inui**](https://myanimelist.net/character.php?q=Sana%20Inui&cat=character), [**Mashiroiro Symphony - The color of lovers**](https://myanimelist.net/search/all?q=Mashiroiro%20Symphony%20-%20The%20color%20of%20lovers&cat=all)
+&mdash; [**Asaba Yuta**](https://myanimelist.net/character.php?q=Asaba%20Yuta&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
