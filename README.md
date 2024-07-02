@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Kenpachi Zaraki] I did not say that I hate you. What I mean to say is that you are unforgivable!!"
+> "Blah, blah, blah, blah… quit your blabbering. Look at this. [holds up an empty glass] Thanks to you assholes, my chocolate parfait [hits one of the amanto with his bokuto] fell to the ground!"
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
