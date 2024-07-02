@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay, no need to thank me or say anything else. I will always be there for you, I will make you fall for me over and over again."
+> "I guess I just want the person I love to be happy. I just want to do something for him."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Sana Inui**](https://myanimelist.net/character.php?q=Sana%20Inui&cat=character), [**Mashiroiro Symphony - The color of lovers**](https://myanimelist.net/search/all?q=Mashiroiro%20Symphony%20-%20The%20color%20of%20lovers&cat=all)
