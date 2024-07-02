@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even now, twenty centuries after the death of Christ, the world is a long way from peace."
+> "Just wild heaven."
 
-&mdash; [**Mary Macbeth**](https://myanimelist.net/character.php?q=Mary%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
