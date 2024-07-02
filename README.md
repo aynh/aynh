@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every dream has an end...No matter how nice the dream might be, or how scary it is. Under your warm blanket, the dream comes to an abrupt end, when mother shakes you awake. Forever and ever, the morning scene remains the same. But now I... I wonder... when the dreams began to never end."
+> "I study too, you know. How could I teach anyone if I didn't grow and learn day by day. Now let's get rid of this dangerous cloth. Experiencing my Absolute Defense Form over summer vacation taught me yet another skill: compressing not my whole body, but a portion of my tentacles to release a burst of energy. Remember this Itona, I say assassination is education. The assassination classrooms teacher will get stronger every time he teaches!"
 
-&mdash; [**Aizawa Yuuichi**](https://myanimelist.net/character.php?q=Aizawa%20Yuuichi&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
