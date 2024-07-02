@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after witnessing a small argument between Inuyasha and Kagome] Inuyasha, your patience with this creature is astonishing to me. You protect her, indulge her, even seem to love her."
+> "What is Living? Living is continuing to make choices. Living is enjoying oneself. Living is continuing to make choices. Living is expressing one’s will. Living is enjoying oneself. Living is continuing to search. Living is eating. Living is continuing to fight. Living is being lost. Living is preparing oneself."
 
-&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Devil Survivor 2**](https://myanimelist.net/character.php?q=Devil%20Survivor%202&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
