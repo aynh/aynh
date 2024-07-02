@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You got away with just physical damage, but I'm going to take CRITICAL MENTAL DAMAGE!"
+> "I wonder why people make promises they won't be able to keep."
 
-&mdash; [**Ooyama**](https://myanimelist.net/character.php?q=Ooyama&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
