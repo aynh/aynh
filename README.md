@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was going to let you go. After all, there aren't many of us out there, but you're just such a pain in the ass."
+> "I'm not stupid. I'm just too lazy to show how smart I am."
 
-&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
