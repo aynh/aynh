@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's important, is to know fear and yet take a step forward."
+> "Anything can happen. No one ever thinks it will until it does. What will happen, happens. That's how the world is. The most important thing is to not let the tragedy defeat you. To believe that you can get through it."
 
-&mdash; [**Rosette Christopher**](https://myanimelist.net/character.php?q=Rosette%20Christopher&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
+&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
