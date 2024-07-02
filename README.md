@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've never been so grateful to have walls to shut the world out."
+> "What's the use of looking towards the past? If past data dictates reality... then our 33,1 winning percentage last year means we shouldn't even be playing the Mariners and their 66,7 winning percentage."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
