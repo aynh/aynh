@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A true hero is a sage with a clean heart, a fake hero is a fool with an ignoble heart. The sage will be saved and the fool will be punished."
+> "Anyone accepting defeat will be punished by running ten laps around the school, naked! And you'll have to yell 'Green Martians are chasing me!' for the whole ten laps!"
 
-&mdash; [**Blue Owl**](https://myanimelist.net/character.php?q=Blue%20Owl&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
+&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
