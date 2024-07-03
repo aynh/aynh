@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sokka, you're supposed to put the tarp on top of the tent. You know, so we don't get rained on?"
+> "If love is just a word, then why does it hurt so much if you realize it isn't there?"
 
-&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
