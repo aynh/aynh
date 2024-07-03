@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Plainly speaking war is nothing other than 'wanting to impose your beliefs on your opponent.' It only happens for that reason. You don't have any exception to that rule."
+> "If I may suggest, I recommend my waking you up every morning wearing nothing but an apron. Then I can cook you breakfast. Isn't it a man's fantasy to watch that from behind?"
 
-&mdash; [**Koumei Ren**](https://myanimelist.net/character.php?q=Koumei%20Ren&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
