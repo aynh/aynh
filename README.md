@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are some things you'll never see if you're always running."
+> "It's quite easy for humans to become adults, but to always have a child-like heart that makes everything joyful isn't such an easy task."
 
-&mdash; [**Takahiro Mizuno**](https://myanimelist.net/character.php?q=Takahiro%20Mizuno&cat=character), [**Walkure Romanze**](https://myanimelist.net/search/all?q=Walkure%20Romanze&cat=all)
+&mdash; [**Hattori Zenzou**](https://myanimelist.net/character.php?q=Hattori%20Zenzou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
