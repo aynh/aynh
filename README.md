@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if this is a twisted way to go about it, even if a guaranteed way to save our hearts cannot be found, even so, it doesn't mean that people like us don't try and struggle."
+> "It’s like a doll house. You hang out together and pretend to be friends, but when it doesn’t suit them they abandon just you."
 
-&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
+&mdash; [**Mei Tachibana**](https://myanimelist.net/character.php?q=Mei%20Tachibana&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
