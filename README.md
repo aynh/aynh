@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think I'd like to dissect you now!"
+> "Even if this is a twisted way to go about it, even if a guaranteed way to save our hearts cannot be found, even so, it doesn't mean that people like us don't try and struggle."
 
-&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
