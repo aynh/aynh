@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't understand anything, do you?! The most important thing isn't power, it isn't courage, it isn't even having friends! The only thing that matters is that you can rely on ME."
+> "There are times in life when you have to distance yourself from those you love, because you love them."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
