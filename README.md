@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate the word 'fate.' Birth, encounters, partings, success and failures, fortune and misfortunes in life. If our lives are already set in stone by fate, then why are we even born? There are those born to wealthy families, those born to beautiful mothers, and those born into the middle of war or poverty. If that's all caused by fate, then God is incredibly unfair and cruel. Because, ever since that day, none of us had a future and the only certain thing was that we wouldn't amount to anything..."
+> "Miracles aren't free. When you wish for hope, it creates an equivalent despair. That's how the balance of this world is preserved."
 
-&mdash; [**Takakura Shouma**](https://myanimelist.net/character.php?q=Takakura%20Shouma&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
