@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It won't work. You country-bumpkins will stand out a mile. [Eats food with her hands]"
+> "Pum, Pum, Pum, Pum. I always get what I want, so just give it to me. Pum, Pum, Pum, Pum. I'm a beauty, beautiful pretty lady. But you know, you know I've got a secret yes I do. Pumpkins, Pum, Pum, Pumpkins. Pum, Pum, Pumpkins because that's my magic spell. Pum, Pum, Pumpkins, Pum, Pum, Pumpkins yeah!"
 
-&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Blair**](https://myanimelist.net/character.php?q=Blair&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
