@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The cold tears of a vampire, whose body is without warmth..."
+> "I feel like I'm watching a sitcom."
 
-&mdash; [**Yuuki Natsuno**](https://myanimelist.net/character.php?q=Yuuki%20Natsuno&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
