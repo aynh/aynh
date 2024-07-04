@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The opposite of boredom is not pleasure... but excitement. People will gladly seek out any kind of excitement, even pain."
+> "Adults say you shouldn't do things half-heartedly. But in reality, you can get by with doing just that. Of course, it would be great to stand out. But how many people can live like that? It's really hard to be exceptional."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Han Jee-Han**](https://myanimelist.net/character.php?q=Han%20Jee-Han&cat=character), [**The Gamer**](https://myanimelist.net/search/all?q=The%20Gamer&cat=all)
