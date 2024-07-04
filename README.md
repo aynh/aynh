@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The times when you want to cry are when you have to try your hardest. That's why I decided I'll cry in general. Then, when I have to shed tears for a time when I really want to cry, my tears would have run dry."
+> "The cold tears of a vampire, whose body is without warmth..."
 
-&mdash; [**Jacuzzi Splot**](https://myanimelist.net/character.php?q=Jacuzzi%20Splot&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Yuuki Natsuno**](https://myanimelist.net/character.php?q=Yuuki%20Natsuno&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
