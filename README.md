@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Adults say you shouldn't do things half-heartedly. But in reality, you can get by with doing just that. Of course, it would be great to stand out. But how many people can live like that? It's really hard to be exceptional."
+> "Goodbyes aren't a one-sided affair!"
 
-&mdash; [**Han Jee-Han**](https://myanimelist.net/character.php?q=Han%20Jee-Han&cat=character), [**The Gamer**](https://myanimelist.net/search/all?q=The%20Gamer&cat=all)
+&mdash; [**Tetsudō Hisakawa**](https://myanimelist.net/character.php?q=Tetsud%C5%8D%20Hisakawa&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
