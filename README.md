@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regrets are just a way for the foolish and the guilty to pass time."
+> "What if that fruit you've worked so hard to nurture gets pulled off the branch the next morning? You'll regret that you didn't choose to harvest it the previous day instead of complaining. That regret really hurts. It'll make you crawl through hell."
 
-&mdash; [**Cho Hakkai**](https://myanimelist.net/character.php?q=Cho%20Hakkai&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Ushiromiya Kyrie**](https://myanimelist.net/character.php?q=Ushiromiya%20Kyrie&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
