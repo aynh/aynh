@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Goodbyes aren't a one-sided affair!"
+> "Sometimes, I just think... this world has surpassed its capacity. It's overflowing. Our day-to-day lives are replete with both happiness and misfortune. Yet, because we cannot see the excess from the inside, we still feel unfulfilled. Given that we are capable of acknowledging neither excess nor deprivation, we might as well not exist. In other words... you can't withdraw coins from an ATM. That's common sense."
 
-&mdash; [**Tetsudō Hisakawa**](https://myanimelist.net/character.php?q=Tetsud%C5%8D%20Hisakawa&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
+&mdash; [**Murasaki**](https://myanimelist.net/character.php?q=Murasaki&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
