@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I feel like I'm watching a sitcom."
+> "How can you work so hard? There might be something really bad waiting for you ahead. How can you still make yourself move on despite that? The older we get...the number of annoying and troublesome things we have to face only increases- and wonderful things stop happening. In the days ahead of us... we have to bear each painful thing one at a time, conquering them...overcoming them...the power to do that just doesn't spring out of me. The power to move ahead."
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kai**](https://myanimelist.net/character.php?q=Kai&cat=character), [**Suicide Island**](https://myanimelist.net/search/all?q=Suicide%20Island&cat=all)
