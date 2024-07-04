@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what kind of 'strength' you possess. There are places you can never reach no matter how hard you try. The farther it is... The higher it is..."
+> "The more fun I have, the more it'll hurt when we part ways. I know that all too well."
 
-&mdash; [**Rika Noyamano**](https://myanimelist.net/character.php?q=Rika%20Noyamano&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
