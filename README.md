@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you're made a fool of by someone, even if the future becomes so dark that you can't see what's in front of you, even if the place we get to is the very end of the world, you and I are still together."
+> "Doctor Tenma, for you all lives are created equal, that's why I came back to life. But you've finally come to realize it now, haven't you? Only one thing is equal for all, and that is death."
 
-&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
