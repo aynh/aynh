@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is all that remains of the world. Though we knew it was coming, it’s pretty shocking, huh? The disappearance not of matter but of awareness, of ideals. Not death. Something even more pure. The fact that we life-forms ever existed…… Our past, present and future, it will all disappear."
+> "The times when you want to cry are when you have to try your hardest. That's why I decided I'll cry in general. Then, when I have to shed tears for a time when I really want to cry, my tears would have run dry."
 
-&mdash; [**Fumi Kanno**](https://myanimelist.net/character.php?q=Fumi%20Kanno&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Jacuzzi Splot**](https://myanimelist.net/character.php?q=Jacuzzi%20Splot&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
