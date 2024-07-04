@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the drive behind one's actions is the thought for another, then it is never meaningless."
+> "Regrets are just a way for the foolish and the guilty to pass time."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Cho Hakkai**](https://myanimelist.net/character.php?q=Cho%20Hakkai&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
