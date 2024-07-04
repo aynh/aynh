@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, I just think... this world has surpassed its capacity. It's overflowing. Our day-to-day lives are replete with both happiness and misfortune. Yet, because we cannot see the excess from the inside, we still feel unfulfilled. Given that we are capable of acknowledging neither excess nor deprivation, we might as well not exist. In other words... you can't withdraw coins from an ATM. That's common sense."
+> "You kids don't understand anything! By declaring that you're neutral and have nothing to do with this, you can still distance yourselves from what's happening? You don't really believe that, do you?"
 
-&mdash; [**Murasaki**](https://myanimelist.net/character.php?q=Murasaki&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
+&mdash; [**Murrue Ramius**](https://myanimelist.net/character.php?q=Murrue%20Ramius&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
