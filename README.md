@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We each have an arrow in our hearts that we cannot remove."
+> "I envy you people. What I sought, but could not obtain. What I obtained, but could not obtain. Many things slipped out between my fingers, no matter what commandment I used."
 
-&mdash; [**Sehara**](https://myanimelist.net/character.php?q=Sehara&cat=character), [**One thousand and one nights**](https://myanimelist.net/search/all?q=One%20thousand%20and%20one%20nights&cat=all)
+&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
