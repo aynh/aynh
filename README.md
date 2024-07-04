@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you look up to someone, you can't overtake them."
+> "You know, I really can't stand it when guys pick on people weaker than them...but I guess I'll do it to you anyway!"
 
-&mdash; [**Kise Ryouta**](https://myanimelist.net/character.php?q=Kise%20Ryouta&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
