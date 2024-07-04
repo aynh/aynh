@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether you walk or run, the destination won't change. So then... You might as well run there!!!"
+> "We each have an arrow in our hearts that we cannot remove."
 
-&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Sehara**](https://myanimelist.net/character.php?q=Sehara&cat=character), [**One thousand and one nights**](https://myanimelist.net/search/all?q=One%20thousand%20and%20one%20nights&cat=all)
