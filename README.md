@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more fun I have, the more it'll hurt when we part ways. I know that all too well."
+> "The opposite of boredom is not pleasure... but excitement. People will gladly seek out any kind of excitement, even pain."
 
-&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
