@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Back then, if we could have have heard each other's voices, everything would have been so much better."
+> "I can't stand that witch, stupid snake woman."
 
-&mdash; [**Shouya Ishida**](https://myanimelist.net/character.php?q=Shouya%20Ishida&cat=character), [**Koe no Katachi**](https://myanimelist.net/search/all?q=Koe%20no%20Katachi&cat=all)
+&mdash; [**Eruka Frog**](https://myanimelist.net/character.php?q=Eruka%20Frog&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
