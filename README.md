@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone smiles, when they are with you. Please... from now on, go and help people in my place. Share your happiness with them."
+> "How can a snake fly? It's not even a man!"
 
-&mdash; [**Yui**](https://myanimelist.net/character.php?q=Yui&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Elfman Strauss**](https://myanimelist.net/character.php?q=Elfman%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
