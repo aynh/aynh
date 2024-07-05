@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you accept everything you’re told without question, you’ll lose your ability to think. Even if you reached the same conclusion, it would still be worth analyzing the reasons behind it."
+> "A road is something that you make yourself."
 
-&mdash; [**Lacie Baskerville**](https://myanimelist.net/character.php?q=Lacie%20Baskerville&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Jotaro Kujo**](https://myanimelist.net/character.php?q=Jotaro%20Kujo&cat=character), [**JoJo's Bizarre Adventure: Stardust Crusaders**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Stardust%20Crusaders&cat=all)
