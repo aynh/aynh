@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't try to excuse yourself by saying you're doing it for someone else's sake."
+> "Those painful memories are what help us make it to tomorrow and become stronger."
 
-&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
