@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The second humans lose their comfort zone, the more simplistic their actions become."
+> "I... Despise the way you fight. Without ever lifting your own hand... To steal bonds of camraderie and torture opponents is the height of cowardice. It is a lack of shame deserving of death. I am here. Strike me down. I shall kill you and cast you aside... Before you finish swinging your blade."
 
-&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
