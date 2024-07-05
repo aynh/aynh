@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has their own reasons to fight! Sometimes, you have to settle it yourself or there's no way forward!"
+> "Games are not boring. Games purify our souls and leave room for new development that challenges the mind! They are the products of human wisdom!"
 
-&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Seto Kaiba**](https://myanimelist.net/character.php?q=Seto%20Kaiba&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
