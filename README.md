@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kisuke and I used to play here when we were kids. We modeled the one under his shop after this one. It was our own secret playground."
+> "The second humans lose their comfort zone, the more simplistic their actions become."
 
-&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
