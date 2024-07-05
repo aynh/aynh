@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I might seem to be on the losing side to you, but I'm still fighting... Not all battles happen in the brightest, flashiest spots."
+> "I have no idea what you really want, what you're really thinking, or what the right thing to do really is. But I'm your friend. Let me stay."
 
-&mdash; [**Saeki Ryutaro**](https://myanimelist.net/character.php?q=Saeki%20Ryutaro&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Takeo Gouda**](https://myanimelist.net/character.php?q=Takeo%20Gouda&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
