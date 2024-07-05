@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't stand that witch, stupid snake woman."
+> "Everyone smiles, when they are with you. Please... from now on, go and help people in my place. Share your happiness with them."
 
-&mdash; [**Eruka Frog**](https://myanimelist.net/character.php?q=Eruka%20Frog&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Yui**](https://myanimelist.net/character.php?q=Yui&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
