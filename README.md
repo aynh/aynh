@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To reign over the kingdom of the world, to make its peace and write its laws; to be generous to the obedient and merciless to all who would stand against you. Nothing ever changes; two thousand years and you still act like the world is yours."
+> "Calling me a coward, eh? At least say it so I can hear it..."
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
