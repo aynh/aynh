@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans believe their lives and ants lives are weighted differently. This is profound arrogance."
+> "I know love. The convenience store was selling it. For 298 yen."
 
-&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
+&mdash; [**Mayoi Hachikuji**](https://myanimelist.net/character.php?q=Mayoi%20Hachikuji&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
