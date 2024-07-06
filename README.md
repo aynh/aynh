@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not one wish ever gets granted in this world."
+> "Live well, Ichigo. Live well, age well, go bald well, and die after me. And... if you can, die smiling."
 
-&mdash; [**Tobi**](https://myanimelist.net/character.php?q=Tobi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
