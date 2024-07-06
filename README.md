@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Live well, Ichigo. Live well, age well, go bald well, and die after me. And... if you can, die smiling."
+> "Humans believe their lives and ants lives are weighted differently. This is profound arrogance."
 
-&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
