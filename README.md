@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think... memories never disappear. Just like the paint I use. Even if I mix it with a new color. The old one still remains. Forever."
+> "To reign over the kingdom of the world, to make its peace and write its laws; to be generous to the obedient and merciless to all who would stand against you. Nothing ever changes; two thousand years and you still act like the world is yours."
 
-&mdash; [**Ana Gram**](https://myanimelist.net/character.php?q=Ana%20Gram&cat=character), [**Phi Brain: Kami No Puzzle**](https://myanimelist.net/search/all?q=Phi%20Brain%3A%20Kami%20No%20Puzzle&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
