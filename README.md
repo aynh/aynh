@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Calling me a coward, eh? At least say it so I can hear it..."
+> "Friends are connected by heart! You can't just rinse off something that's stained on your soul!"
 
-&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ling Yao**](https://myanimelist.net/character.php?q=Ling%20Yao&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
