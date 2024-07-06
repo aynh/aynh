@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A road is something that you make yourself."
+> "I think... memories never disappear. Just like the paint I use. Even if I mix it with a new color. The old one still remains. Forever."
 
-&mdash; [**Jotaro Kujo**](https://myanimelist.net/character.php?q=Jotaro%20Kujo&cat=character), [**JoJo's Bizarre Adventure: Stardust Crusaders**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Stardust%20Crusaders&cat=all)
+&mdash; [**Ana Gram**](https://myanimelist.net/character.php?q=Ana%20Gram&cat=character), [**Phi Brain: Kami No Puzzle**](https://myanimelist.net/search/all?q=Phi%20Brain%3A%20Kami%20No%20Puzzle&cat=all)
