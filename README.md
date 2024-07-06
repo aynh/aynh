@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death no longer terrifies man, the smell of blood is as common as the smell of white plums. So, he creates slavery and savagery... which surpasses the horror of dying."
+> "“Miracles don't exist in this world. All that exists are accidents, inevitabilities and the actions that one takes.” That’s Himura’s favorite phrase, isn’t it? But sometimes the outcome of your actions, which becomes inevitable, will overlap with accidents, and fulfill your dream unexpectedly. I don’t know if that can be called a miracle, but there’s one thing I’m certain about. Nothing will happen if you don’t wish for it."
 
-&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**ef: a tale of memories**](https://myanimelist.net/character.php?q=ef%3A%20a%20tale%20of%20memories&cat=character), [**ef: a tale of memories**](https://myanimelist.net/search/all?q=ef%3A%20a%20tale%20of%20memories&cat=all)
