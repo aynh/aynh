@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Of what worth is a king who fails to protect the powerless?"
+> "*referring to Armstrong taking off his shirt* Did he have to strip?.."
 
-&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
