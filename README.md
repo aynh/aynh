@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know love. The convenience store was selling it. For 298 yen."
+> "Resignation is what kills people. Once they've rejected resignation, humans gain the privilege of making humanity their footpath."
 
-&mdash; [**Mayoi Hachikuji**](https://myanimelist.net/character.php?q=Mayoi%20Hachikuji&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
