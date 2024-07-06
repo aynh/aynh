@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But that's enough. If there is overwhelming power and speed, there is no room for technique. Techniques are something humans invented to compensate for their weaknesses."
+> "I can’t shake the feeling that I’ve met you before, but I can’t remember where."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
