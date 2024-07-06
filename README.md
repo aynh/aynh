@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pain isn't something you have to feel, it's something you have to express."
+> "Sorry I'm late guys, a black cat crossed my path so I had to go the long way."
 
-&mdash; [**Mikiya Kokutō**](https://myanimelist.net/character.php?q=Mikiya%20Kokut%C5%8D&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
