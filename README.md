@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Resignation is what kills people. Once they've rejected resignation, humans gain the privilege of making humanity their footpath."
+> "Only those who have suffered long, can see the light within the shadows"
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
