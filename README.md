@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A frog in a well does not hope to swim in the ocean, or go to dive in deep sea. What they're looking at since they are born, isn't the ocean, but the sky."
+> "Pain isn't something you have to feel, it's something you have to express."
 
-&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Mikiya Kokutō**](https://myanimelist.net/character.php?q=Mikiya%20Kokut%C5%8D&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
