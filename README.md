@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry I'm late guys, a black cat crossed my path so I had to go the long way."
+> "Of what worth is a king who fails to protect the powerless?"
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
