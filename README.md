@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes all people need is a good listener."
+> "If you take someone at puberty, a teen... introduce him or her to a member of the opposite sex around the same age and say, 'This is the person who was meant for you'... and then go on to spend a lot of time together... why wouldn't you fall for them?"
 
-&mdash; [**Shiki Misaki**](https://myanimelist.net/character.php?q=Shiki%20Misaki&cat=character), [**Subarashiki Kono Sekai**](https://myanimelist.net/search/all?q=Subarashiki%20Kono%20Sekai&cat=all)
+&mdash; [**Nisaka Yuusuke**](https://myanimelist.net/character.php?q=Nisaka%20Yuusuke&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
