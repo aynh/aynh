@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human beings are cruel. Even though it's heartbreaking, I feel hungry. Even though it's painful, I feel sleepy. And, even though it's painful for me, I still eat and sleep peacefully. I can't forgive myself, and hence it becomes even more painful."
+> "Even if they were mistakes, all you have to do is keep walking down that mistaken path. Simply assume that nothing lies before you except mistaken paths. Just so you know, the 'right' path can be surprisingly dull. There are times when it's right to take the mistaken path. The moment you decide a path is right, all of the paths behind it become right, regardless of what it originally was."
 
-&mdash; [**Asou Renji**](https://myanimelist.net/character.php?q=Asou%20Renji&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Tsuyoto Hiiragi**](https://myanimelist.net/character.php?q=Tsuyoto%20Hiiragi&cat=character), [**Shōnen Hollywood - Holly Stage for 49**](https://myanimelist.net/search/all?q=Sh%C5%8Dnen%20Hollywood%20-%20Holly%20Stage%20for%2049&cat=all)
