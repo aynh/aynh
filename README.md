@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That was the sound of the last train back to my house. And once again, I missed it. Our English class always gets out late on Tuesdays, so I have to walk home. But that's OK, because I like English. And the walk home's not so bad. Usually."
+> "It's awfully quiet back there. Are you two making out?"
 
-&mdash; [**Manta Oyamada**](https://myanimelist.net/character.php?q=Manta%20Oyamada&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Cho Hakkai**](https://myanimelist.net/character.php?q=Cho%20Hakkai&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
