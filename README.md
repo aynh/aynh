@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let me teach you a thing. Normally the weak person's weakness is the strong person, but the strong person's weakness is also the weak person."
+> "In life, nothing good comes out of hurrying."
 
-&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
