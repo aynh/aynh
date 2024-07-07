@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You may have grown too strong. Drunk on your own power, you forgot to put yourself in the shoes of someone weaker than you. That makes you no different than the student in the main campus."
+> "Sometimes opportunity comes in sacrifice."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Akane Ryūzōji**](https://myanimelist.net/character.php?q=Akane%20Ry%C5%ABz%C5%8Dji&cat=character), [**Walkure Romanze**](https://myanimelist.net/search/all?q=Walkure%20Romanze&cat=all)
