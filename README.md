@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why don't you understand? Nunnally was blinded! My own sister was crippled! She knew... she knew that there were things in this world that she will never be able to do by herself! So her smile... Nunnally's smile... was her way of expressing gratitude!"
+> "Sometimes all people need is a good listener."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Shiki Misaki**](https://myanimelist.net/character.php?q=Shiki%20Misaki&cat=character), [**Subarashiki Kono Sekai**](https://myanimelist.net/search/all?q=Subarashiki%20Kono%20Sekai&cat=all)
