@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes opportunity comes in sacrifice."
+> "I knew it. You can't even ask your own zanpakutō its name."
 
-&mdash; [**Akane Ryūzōji**](https://myanimelist.net/character.php?q=Akane%20Ry%C5%ABz%C5%8Dji&cat=character), [**Walkure Romanze**](https://myanimelist.net/search/all?q=Walkure%20Romanze&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
