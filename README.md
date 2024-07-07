@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if they were mistakes, all you have to do is keep walking down that mistaken path. Simply assume that nothing lies before you except mistaken paths. Just so you know, the 'right' path can be surprisingly dull. There are times when it's right to take the mistaken path. The moment you decide a path is right, all of the paths behind it become right, regardless of what it originally was."
+> "That was the sound of the last train back to my house. And once again, I missed it. Our English class always gets out late on Tuesdays, so I have to walk home. But that's OK, because I like English. And the walk home's not so bad. Usually."
 
-&mdash; [**Tsuyoto Hiiragi**](https://myanimelist.net/character.php?q=Tsuyoto%20Hiiragi&cat=character), [**Shōnen Hollywood - Holly Stage for 49**](https://myanimelist.net/search/all?q=Sh%C5%8Dnen%20Hollywood%20-%20Holly%20Stage%20for%2049&cat=all)
+&mdash; [**Manta Oyamada**](https://myanimelist.net/character.php?q=Manta%20Oyamada&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
