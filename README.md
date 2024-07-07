@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This brings us to number 278 of the 1,000 provisions you must observe. I hate carrots. Never even think about putting them in my food, you get it?"
+> "I was afraid of the me that didn't know what he wanted to do. And the days just keep on moving. But even then If I keep on going like this, will I be able to see it? Maybe someday."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
