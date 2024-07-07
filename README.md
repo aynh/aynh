@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The dead can't talk."
+> "The true power of us human beings is that we can change ourselves on our own."
 
-&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One-Punch Man**](https://myanimelist.net/search/all?q=One-Punch%20Man&cat=all)
