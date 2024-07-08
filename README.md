@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you give me wings, I will soar for you even if this whole land sinks down to the water. If you give me a sword, I will fight for you even if this whole sky shoots through with your light."
+> "In a conflict between creatures that are fundamentally the same, defeat is equavalent to annihilation."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Chamber**](https://myanimelist.net/character.php?q=Chamber&cat=character), [**Suisei no Gargantia**](https://myanimelist.net/search/all?q=Suisei%20no%20Gargantia&cat=all)
