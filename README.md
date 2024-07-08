@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ichigo... I hate the rain. Rain falls in this world, too. When your heart is in chaos, this sky becomes clouded. When you are sad, rain falls so terribly easy. Can you understand...the horrible feeling of being pelted by rain when you're all alone in this solitary world? If only to stop that rain, I shall lend you any strength. If you trust in me, I won't let a single drop of rain fall from that sky. Ichigo, trust me...you are not fighting alone."
+> "For those who have come to power, wealth and glory not by their own strength and effort, but simply through inheritance, what right do they have to complain? The very existence of such blood-lineage dynasties is disgusting. Power is the property of one generation. It shouldn't be transferred, it should be seized."
 
-&mdash; [**Zangetsu**](https://myanimelist.net/character.php?q=Zangetsu&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Reinhard von Lohengramm**](https://myanimelist.net/character.php?q=Reinhard%20von%20Lohengramm&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
