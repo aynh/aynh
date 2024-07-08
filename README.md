@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There were sad days, and painful ones and there may be more. Even so they're treasured days that I'll never forget."
+> "Are you helping because you're a doctor? Or is it because you're a Witch?"
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
