@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm scared. Or should I borrow your words and say this is exciting?"
+> "And I'll be happy to vouch for his insanity!"
 
-&mdash; [**Waver Velvet**](https://myanimelist.net/character.php?q=Waver%20Velvet&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Haruka**](https://myanimelist.net/character.php?q=Haruka&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
