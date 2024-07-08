@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For those who have come to power, wealth and glory not by their own strength and effort, but simply through inheritance, what right do they have to complain? The very existence of such blood-lineage dynasties is disgusting. Power is the property of one generation. It shouldn't be transferred, it should be seized."
+> "Why not just try hard again? Quit mopping around. Stop lying to yourself and try once more."
 
-&mdash; [**Reinhard von Lohengramm**](https://myanimelist.net/character.php?q=Reinhard%20von%20Lohengramm&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Kagaku no Railgun**](https://myanimelist.net/search/all?q=Toaru%20Kagaku%20no%20Railgun&cat=all)
