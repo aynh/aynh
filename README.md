@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not stupid. I'm just too lazy to show how smart I am."
+> "There were sad days, and painful ones and there may be more. Even so they're treasured days that I'll never forget."
 
-&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
