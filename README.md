@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everything has a beginning and an end. Life is just a cycle of starts and stops. There are ends we don't desire, but they're inevitable. We have to face them. It's what being human is all about."
+> "I'm scared. Or should I borrow your words and say this is exciting?"
 
-&mdash; [**Jet Black**](https://myanimelist.net/character.php?q=Jet%20Black&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Waver Velvet**](https://myanimelist.net/character.php?q=Waver%20Velvet&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
