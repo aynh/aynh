@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In a conflict between creatures that are fundamentally the same, defeat is equavalent to annihilation."
+> "The world is just another word for the things you value around you, right? That's something I've had since I was born. If you tell me to rule such a world, I already rule it."
 
-&mdash; [**Chamber**](https://myanimelist.net/character.php?q=Chamber&cat=character), [**Suisei no Gargantia**](https://myanimelist.net/search/all?q=Suisei%20no%20Gargantia&cat=all)
+&mdash; [**Tohsaka Rin**](https://myanimelist.net/character.php?q=Tohsaka%20Rin&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
