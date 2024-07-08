@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you helping because you're a doctor? Or is it because you're a Witch?"
+> "I've never talked to a girl before. I don't know how to handle it."
 
-&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
