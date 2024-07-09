@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There was no reason for me to stay in the real world any longer. In the real world, it didn't matter if I was there or not. When I realized that, I was no longer afraid of losing my body."
+> "Well, I won't be disappointed, no matter what you do."
 
-&mdash; [**Chisa Yomoda**](https://myanimelist.net/character.php?q=Chisa%20Yomoda&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
