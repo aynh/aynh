@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past is just the past. There's no inherent value in getting over it or catching up to it."
+> "I can't save you. I can't do anything to help you, except stay like this. If only I could stop time."
 
-&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
