@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Right now, I kinda wish that my mom named me Bob instead of Ash."
+> "Recklessness is the way of the young and tolerance is the beauty of adulthood."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Nyanta**](https://myanimelist.net/character.php?q=Nyanta&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
