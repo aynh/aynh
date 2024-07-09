@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you understand how to handle cards now? I win as long as I can make you think 'there's no way he will play that card'."
+> "I don't have any regrets. I'm glad I met you, Sousuke Sagara."
 
-&mdash; [**Hiruma Youichi**](https://myanimelist.net/character.php?q=Hiruma%20Youichi&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
+&mdash; [**Kaname Chidori**](https://myanimelist.net/character.php?q=Kaname%20Chidori&cat=character), [**Full Metal Panic!**](https://myanimelist.net/search/all?q=Full%20Metal%20Panic!&cat=all)
