@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can use whatever technique you like, but now that I said I will kill you... your death tonight has been assured."
+> "The past is just the past. There's no inherent value in getting over it or catching up to it."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
