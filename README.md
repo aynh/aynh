@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Recklessness is the way of the young and tolerance is the beauty of adulthood."
+> "Do you think you can change what's going to happen? Nobody can do anything about it. The whirlpool of hatred is engulfing the universe!"
 
-&mdash; [**Nyanta**](https://myanimelist.net/character.php?q=Nyanta&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
