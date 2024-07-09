@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things you can't have no matter how much you want them. So it's easier to just forget them."
+> "I've never seen a man with a screw sticking out of his head before. I don't know how I'm supposed to deal with a guy like that!"
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
