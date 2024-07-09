@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't have any regrets. I'm glad I met you, Sousuke Sagara."
+> "People remember their high school days as the high point of their lives. People say these things because everyone holds fond memories of their time in high school; however, I doubt that every high school student would want to remember their school life that way. For example, if neither studying, nor sports, nor socializing are of interest to someone, what then? What if there are students who prefer to keep a low profile? Though I guess that would be a pretty lonely way to live."
 
-&mdash; [**Kaname Chidori**](https://myanimelist.net/character.php?q=Kaname%20Chidori&cat=character), [**Full Metal Panic!**](https://myanimelist.net/search/all?q=Full%20Metal%20Panic!&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
