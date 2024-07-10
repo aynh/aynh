@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't believe that an absolute power really exists in any world. Power is unstable. It changes constantly. Small differences will always appear, as one has between you and I. So the one who widens that gap will be the winner!"
+> "Dammit, is that how you greet your son who went out of his way to help a ghost on the way home?!"
 
-&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
