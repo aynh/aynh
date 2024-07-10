@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Coming together and working hard with everyone is a really fun thing!"
+> "I don't believe that an absolute power really exists in any world. Power is unstable. It changes constantly. Small differences will always appear, as one has between you and I. So the one who widens that gap will be the winner!"
 
-&mdash; [**Masaru Ōfuna**](https://myanimelist.net/character.php?q=Masaru%20%C5%8Cfuna&cat=character), [**Hanayamata**](https://myanimelist.net/search/all?q=Hanayamata&cat=all)
+&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
