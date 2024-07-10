@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love really is like playing with fire. Anyone can play easily and lightheartedly. But when you mess up and get burned, that scar stays with you your whole life."
+> "Coming together and working hard with everyone is a really fun thing!"
 
-&mdash; [**Ushiromiya Kyrie**](https://myanimelist.net/character.php?q=Ushiromiya%20Kyrie&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Masaru Ōfuna**](https://myanimelist.net/character.php?q=Masaru%20%C5%8Cfuna&cat=character), [**Hanayamata**](https://myanimelist.net/search/all?q=Hanayamata&cat=all)
