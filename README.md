@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you lose your uniqueness for fear of being disliked, then no one will ever love you."
+> "[as Zhao threatens the moon spirit] Whatever you do to that spirit, I'll unleash on you tenfold! Let it go now!"
 
-&mdash; [**Yuuki Aito**](https://myanimelist.net/character.php?q=Yuuki%20Aito&cat=character), [**The Comic Artist and His Assistants**](https://myanimelist.net/search/all?q=The%20Comic%20Artist%20and%20His%20Assistants&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
