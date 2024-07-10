@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There're a lot of people who want to be in despair just so they can pity themselves... But I think it's a waste of time, that's all. After all, you're the one who wishes to be left alone and refuses to share your pain with anyone else."
+> "I stole a death note."
 
-&mdash; [**Sachi Nanjou**](https://myanimelist.net/character.php?q=Sachi%20Nanjou&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
