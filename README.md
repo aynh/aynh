@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you can forget, you can't erase the past."
+> "There're a lot of people who want to be in despair just so they can pity themselves... But I think it's a waste of time, that's all. After all, you're the one who wishes to be left alone and refuses to share your pain with anyone else."
 
-&mdash; [**Kenzo Tenma**](https://myanimelist.net/character.php?q=Kenzo%20Tenma&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Sachi Nanjou**](https://myanimelist.net/character.php?q=Sachi%20Nanjou&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
