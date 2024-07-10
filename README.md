@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The freedom to do better than you do now, to be better than you are now. The spirit did not create us perfectly good. She gave us the freedom to keep trying to be better everyday."
+> "Become strong not just for your own sake, but for your friends."
 
-&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
