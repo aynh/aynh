@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This era is not so simple that you can put everything on your shoulders and be the only sacrifice. And, at the same time, one person's happiness isn't that simple, either. If you should fall as a sacrifice, one girl who came to Kyoto with the one wish to see you will definitely face misfortune. Remember that. No matter how strong you get, you are just a human being. There is no need for you to either become Buddha, or a murderer."
+> "Well, if I had to give a reason for my actions, I guess it's because I love people. I guess I wanted to see the faces that mankind has to offer."
 
-&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
