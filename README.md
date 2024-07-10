@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What are you good at, what do you like… You need to show something that makes people understand who you are."
+> "I will slay all my enemies."
 
-&mdash; [**Tatsuya Himuro**](https://myanimelist.net/character.php?q=Tatsuya%20Himuro&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Van Fanel**](https://myanimelist.net/character.php?q=Van%20Fanel&cat=character), [**The Vision of Escaflowne**](https://myanimelist.net/search/all?q=The%20Vision%20of%20Escaflowne&cat=all)
