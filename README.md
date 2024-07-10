@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will slay all my enemies."
+> "Even if you can forget, you can't erase the past."
 
-&mdash; [**Van Fanel**](https://myanimelist.net/character.php?q=Van%20Fanel&cat=character), [**The Vision of Escaflowne**](https://myanimelist.net/search/all?q=The%20Vision%20of%20Escaflowne&cat=all)
+&mdash; [**Kenzo Tenma**](https://myanimelist.net/character.php?q=Kenzo%20Tenma&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
