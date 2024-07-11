@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Destiny is a mysterious thing. It lets people reach their intended destinations."
+> "Life is like a pencil that will surely run out, but will leave the beautiful writing of life."
 
-&mdash; [**Iraha Lemercier**](https://myanimelist.net/character.php?q=Iraha%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Nami**](https://myanimelist.net/character.php?q=Nami&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
