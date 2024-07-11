@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am not a person who only wants to receive things from him, I want to be the person who can give things to him."
+> "You can train a dog with food. You can buy a person with money. But there isn't a man alive able to influence the wolves of Mibu! Some things will never change. A wolf will always be a wolf."
 
-&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Hajime Saitou**](https://myanimelist.net/character.php?q=Hajime%20Saitou&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
