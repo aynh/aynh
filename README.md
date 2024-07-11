@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[as Zhao threatens the moon spirit] Whatever you do to that spirit, I'll unleash on you tenfold! Let it go now!"
+> "...There are two ways to change a country. Destroy it from the outside, or correct it from the inside."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Run**](https://myanimelist.net/character.php?q=Run&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
