@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If someone says it's wrong to hope, I will tell them that they're wrong every time. I could tell them that countless times!"
+> "Learning and copying are the same.  Everyone starts out copying someone else. Every last person."
 
-&mdash; [**Madoka Kaname**](https://myanimelist.net/character.php?q=Madoka%20Kaname&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Yumi Iguchi**](https://myanimelist.net/character.php?q=Yumi%20Iguchi&cat=character), [**Shirobako**](https://myanimelist.net/search/all?q=Shirobako&cat=all)
