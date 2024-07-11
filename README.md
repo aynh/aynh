@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We didn't even know each other then. And now, I can't imagine my life without you in it. You're the most loyal, brave and selfless person I've ever known."
+> "[after stabbing some fishes] That's it! This is love! Little fishies, does it hurt? I'll teach you. This is love, you know! I have to eat lots and grow big! And this time, I'll teach everyone what love is. Everyone! Everyone!"
 
-&mdash; [**Mako**](https://myanimelist.net/character.php?q=Mako&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
+&mdash; [**Chaos**](https://myanimelist.net/character.php?q=Chaos&cat=character), [**Sora no Otoshimono: Forte**](https://myanimelist.net/search/all?q=Sora%20no%20Otoshimono%3A%20Forte&cat=all)
