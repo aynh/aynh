@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For you I will go deeper than mountains, and higher than sea."
+> "A king is no king without his people. But people without a king are lost as well!"
 
-&mdash; [**Apachai**](https://myanimelist.net/character.php?q=Apachai&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
+&mdash; [**Lan Fan**](https://myanimelist.net/character.php?q=Lan%20Fan&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
