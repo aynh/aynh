@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...There are two ways to change a country. Destroy it from the outside, or correct it from the inside."
+> "Birds with the wind in their wings are flying across the great blue sky right now. And all of you should be able to make it! To the highest limit, to the farthest limit!"
 
-&mdash; [**Run**](https://myanimelist.net/character.php?q=Run&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Ittetsu Takeda**](https://myanimelist.net/character.php?q=Ittetsu%20Takeda&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
