@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to a dating simulation that has just dumped him] Wait! If you cut off negotiations, it can only lead to war. Accept a truce, and I will listen to whatever you have to say. Let's work toward a compromise!"
+> "I am not a person who only wants to receive things from him, I want to be the person who can give things to him."
 
-&mdash; [**Sousuke Sagara**](https://myanimelist.net/character.php?q=Sousuke%20Sagara&cat=character), [**Full Metal Panic!**](https://myanimelist.net/search/all?q=Full%20Metal%20Panic!&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
