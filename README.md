@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hurting people won't help you regain your pride!"
+> "If someone says it's wrong to hope, I will tell them that they're wrong every time. I could tell them that countless times!"
 
-&mdash; [**Tsunayoshi Sawada**](https://myanimelist.net/character.php?q=Tsunayoshi%20Sawada&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Madoka Kaname**](https://myanimelist.net/character.php?q=Madoka%20Kaname&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
