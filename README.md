@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regret is the domain of those who have earned the right to look back at the past. All I have is shame."
+> "We didn't even know each other then. And now, I can't imagine my life without you in it. You're the most loyal, brave and selfless person I've ever known."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Mako**](https://myanimelist.net/character.php?q=Mako&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
