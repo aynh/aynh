@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can train a dog with food. You can buy a person with money. But there isn't a man alive able to influence the wolves of Mibu! Some things will never change. A wolf will always be a wolf."
+> "For people like us, we do not have a choice over the environment we're in, but we get to decide what we will make of it and what path we will take from there."
 
-&mdash; [**Hajime Saitou**](https://myanimelist.net/character.php?q=Hajime%20Saitou&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Yu Fujikura**](https://myanimelist.net/character.php?q=Yu%20Fujikura&cat=character), [**Princess Lover!**](https://myanimelist.net/search/all?q=Princess%20Lover!&cat=all)
