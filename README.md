@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after stabbing some fishes] That's it! This is love! Little fishies, does it hurt? I'll teach you. This is love, you know! I have to eat lots and grow big! And this time, I'll teach everyone what love is. Everyone! Everyone!"
+> "Our relationship has already been formed. No matter how trivial a meeting and the incidents that follow may seem, a relationship is made. Even if it is just for a short amount of time, a knot that has been tied does not unravel. It means that during your lifetime, every incident that passes has meaning. The meeting between you and I also has meaning, so remember it."
 
-&mdash; [**Chaos**](https://myanimelist.net/character.php?q=Chaos&cat=character), [**Sora no Otoshimono: Forte**](https://myanimelist.net/search/all?q=Sora%20no%20Otoshimono%3A%20Forte&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
