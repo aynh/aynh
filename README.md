@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For people like us, we do not have a choice over the environment we're in, but we get to decide what we will make of it and what path we will take from there."
+> "Destiny is a mysterious thing. It lets people reach their intended destinations."
 
-&mdash; [**Yu Fujikura**](https://myanimelist.net/character.php?q=Yu%20Fujikura&cat=character), [**Princess Lover!**](https://myanimelist.net/search/all?q=Princess%20Lover!&cat=all)
+&mdash; [**Iraha Lemercier**](https://myanimelist.net/character.php?q=Iraha%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
