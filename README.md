@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is like a pencil that will surely run out, but will leave the beautiful writing of life."
+> "We might be scared but that's what makes us stronger!"
 
-&mdash; [**Nami**](https://myanimelist.net/character.php?q=Nami&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
