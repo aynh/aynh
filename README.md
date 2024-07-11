@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We might be scared but that's what makes us stronger!"
+> "Regret is the domain of those who have earned the right to look back at the past. All I have is shame."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
