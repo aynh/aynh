@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fear is necessary for evolution. The fear that could be destroyed at any moment."
+> "If you were to write a story with me in the lead role, it would certainly be... a tragedy."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
