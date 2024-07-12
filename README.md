@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you someday find a way of life that you can truly be proud of, you'll be forced into your own battle whether you like it or not."
+> "Those who know despair, once knew hope. Those who know loss, once knew love."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
