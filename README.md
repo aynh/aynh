@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Glory lies beyond the horizon. Challenge it because it is unreachable. Speak of conquest and demonstrate it."
+> "Life itself is a frightening image for every human being... being strong in life isn't easy."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
