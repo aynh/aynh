@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Temari* It really doesn't matter to me if I ever become a chūnin or not, but I guess I shouldn't let myself be beaten by a female, so let's do it."
+> "Um well Miss Maka? Can you do me a favor and help me out with your father? I can't get him off my leg."
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
