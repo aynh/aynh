@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am He, that arrogant fool who thought he could fool death itself with his money. Al Da Flaga, your father, but I am merely that man's defective clone."
+> "When you someday find a way of life that you can truly be proud of, you'll be forced into your own battle whether you like it or not."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
