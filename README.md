@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*guilty voice* Because of my carelessness Araragi-kun realized that his brain is slower than others."
+> "I don't want to regret anything. I want to make all the tragedies that happened into meaningful things by believing that my path is right."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
