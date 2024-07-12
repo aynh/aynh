@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've wanted to make him taste his own pathetic failure with all my heart."
+> "This is the first and last time I bring a dude to my bed."
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Sha Gojyo**](https://myanimelist.net/character.php?q=Sha%20Gojyo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
