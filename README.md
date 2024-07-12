@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Feelings of romantic love are, in the end, just some chemical reaction. Under the right conditions, they occur no matter who the other person is."
+> "Battles aren't supposed to be heroic affairs. They are not supposed to be fun or exciting, to us every battle is filled with despair, they are dark, horrifying, grizzly. We should fear warfare, avoid it always and whenever possible choose the path of peace."
 
-&mdash; [**Kaoru Yamazaki**](https://myanimelist.net/character.php?q=Kaoru%20Yamazaki&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
+&mdash; [**Kira Izuru**](https://myanimelist.net/character.php?q=Kira%20Izuru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
