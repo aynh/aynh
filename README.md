@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don’t interact with the people around you, it’d be hard for anyone to approach you."
+> "Fear is necessary for evolution. The fear that could be destroyed at any moment."
 
-&mdash; [**Haimura Kiri**](https://myanimelist.net/character.php?q=Haimura%20Kiri&cat=character), [**Dansai Bunri no Crime Edge**](https://myanimelist.net/search/all?q=Dansai%20Bunri%20no%20Crime%20Edge&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
