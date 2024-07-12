@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is the first and last time I bring a dude to my bed."
+> "Enjoy your life today. Yesterday is gone, and the tomorrow might never come."
 
-&mdash; [**Sha Gojyo**](https://myanimelist.net/character.php?q=Sha%20Gojyo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Takeshi Yamamoto**](https://myanimelist.net/character.php?q=Takeshi%20Yamamoto&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
