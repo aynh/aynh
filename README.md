@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you were to write a story with me in the lead role, it would certainly be... a tragedy."
+> "You taught me what it means to love, and for that I will be eternally grateful."
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Gajeel Redfox**](https://myanimelist.net/character.php?q=Gajeel%20Redfox&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
