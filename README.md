@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You taught me what it means to love, and for that I will be eternally grateful."
+> "*guilty voice* Because of my carelessness Araragi-kun realized that his brain is slower than others."
 
-&mdash; [**Gajeel Redfox**](https://myanimelist.net/character.php?q=Gajeel%20Redfox&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
