@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Enjoy your life today. Yesterday is gone, and the tomorrow might never come."
+> "You need to accept the fact that you're not the best and have all the will to strive to be better than anyone you face."
 
-&mdash; [**Takeshi Yamamoto**](https://myanimelist.net/character.php?q=Takeshi%20Yamamoto&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
