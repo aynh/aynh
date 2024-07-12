@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has an equal right to live. If you have more than others, you should share with those who have less. If you feel happier than others, help those in need. That is the duty of those who are given so much."
+> "If you don’t interact with the people around you, it’d be hard for anyone to approach you."
 
-&mdash; [**Galilei Donna**](https://myanimelist.net/character.php?q=Galilei%20Donna&cat=character), [**Galilei Donna**](https://myanimelist.net/search/all?q=Galilei%20Donna&cat=all)
+&mdash; [**Haimura Kiri**](https://myanimelist.net/character.php?q=Haimura%20Kiri&cat=character), [**Dansai Bunri no Crime Edge**](https://myanimelist.net/search/all?q=Dansai%20Bunri%20no%20Crime%20Edge&cat=all)
