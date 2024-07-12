@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life itself is a frightening image for every human being... being strong in life isn't easy."
+> "Everyone has an equal right to live. If you have more than others, you should share with those who have less. If you feel happier than others, help those in need. That is the duty of those who are given so much."
 
-&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Galilei Donna**](https://myanimelist.net/character.php?q=Galilei%20Donna&cat=character), [**Galilei Donna**](https://myanimelist.net/search/all?q=Galilei%20Donna&cat=all)
