@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They don't call me Greed for nothing! I want money, I want women, status and power! I want everything this world's selling and eternity's topping the list!"
+> "I am not going to take sides, I am neutral. I am talking about standpoints here, that is all. Miss Class Representative (Hanekawa Tsubasa) has her point of view and her parents have their own. There is no way for an outsider to know which of them is right. Actually, there is not a right one in the first place. It is just about who is easier to agree with."
 
-&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
