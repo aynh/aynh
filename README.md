@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has to decide for themselves which choice to make. If you fight, people may die... but if you don't fight, people may still die. There's no 'right' or 'wrong' choice to make."
+> "Making someone I hate suffer feels really great!!"
 
-&mdash; [**Christina Mackenzie**](https://myanimelist.net/character.php?q=Christina%20Mackenzie&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Megumi Shimizu**](https://myanimelist.net/character.php?q=Megumi%20Shimizu&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
