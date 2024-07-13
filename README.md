@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let us commence, Zaraki! Your favorite game of carnage!!"
+> "As long as you live things will keep happening! As long as you're alive wishes will keep being made!"
 
-&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
