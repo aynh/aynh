@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say the temperature of tea and a women's heart are difficult in any age."
+> "I too used to believe that the world would be a better place if I hadn’t been born. I was hated merely for the fact that I existed, and I died for the happiness of many people. But there was one thing I wished for with all my heart... If I’m ever given a second chance in life, I want to live for only myself. That is my sincere wish."
 
-&mdash; [**Ronove**](https://myanimelist.net/character.php?q=Ronove&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Ymir**](https://myanimelist.net/character.php?q=Ymir&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
