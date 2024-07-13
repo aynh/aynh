@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Until now, I had never felt any need to be understood. I had never felt lonely. Not until I met you."
+> "It’s like a doll house. You hang out together and pretend to be friends, but when it doesn’t suit them they abandon just you."
 
-&mdash; [**Galilei**](https://myanimelist.net/character.php?q=Galilei&cat=character), [**Galilei Donna**](https://myanimelist.net/search/all?q=Galilei%20Donna&cat=all)
+&mdash; [**Mei Tachibana**](https://myanimelist.net/character.php?q=Mei%20Tachibana&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
