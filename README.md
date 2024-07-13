@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as you live things will keep happening! As long as you're alive wishes will keep being made!"
+> "The fear of interacting with people...even I understand that one."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
