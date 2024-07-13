@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I too used to believe that the world would be a better place if I hadn’t been born. I was hated merely for the fact that I existed, and I died for the happiness of many people. But there was one thing I wished for with all my heart... If I’m ever given a second chance in life, I want to live for only myself. That is my sincere wish."
+> "Country of birth, time period, parents, location... various factors make people's lives unequal from the very beginning."
 
-&mdash; [**Ymir**](https://myanimelist.net/character.php?q=Ymir&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Death Parade**](https://myanimelist.net/character.php?q=Death%20Parade&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
