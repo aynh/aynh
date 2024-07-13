@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Be as swift as the wind. Be as quiet as the forest. Attack as fiercely as the fire. Be immovable like a mountain. Move like the lightning. Be as impenetrable as a shadow."
+> "Until now, I had never felt any need to be understood. I had never felt lonely. Not until I met you."
 
-&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Galilei**](https://myanimelist.net/character.php?q=Galilei&cat=character), [**Galilei Donna**](https://myanimelist.net/search/all?q=Galilei%20Donna&cat=all)
