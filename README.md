@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It was an egg-cident! Get it? 'Egg?"
+> "Everyone has to decide for themselves which choice to make. If you fight, people may die... but if you don't fight, people may still die. There's no 'right' or 'wrong' choice to make."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Christina Mackenzie**](https://myanimelist.net/character.php?q=Christina%20Mackenzie&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
