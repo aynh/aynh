@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "While I’m here wasting time, how hard is Kakarot training?"
+> "You said that she's no different from us, right? So if we don't try to get to know her, she won't try to get to know us either. If we don't treat her as a friend, she won't treat us as her friends either, right?"
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
