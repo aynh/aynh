@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You said that she's no different from us, right? So if we don't try to get to know her, she won't try to get to know us either. If we don't treat her as a friend, she won't treat us as her friends either, right?"
+> "You have a swimsuit tan. You could jump in the pool naked and no one would know you weren't wearing anything."
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Ayumu Kasuga**](https://myanimelist.net/character.php?q=Ayumu%20Kasuga&cat=character), [**Azumanga Daioh**](https://myanimelist.net/search/all?q=Azumanga%20Daioh&cat=all)
