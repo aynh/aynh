@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A past will chase you if you try to escape from it, but once you confront it, it's just an old memory inside you."
+> "While I’m here wasting time, how hard is Kakarot training?"
 
-&mdash; [**Saiyuki**](https://myanimelist.net/character.php?q=Saiyuki&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
