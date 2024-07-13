@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's over when you give up."
+> "A past will chase you if you try to escape from it, but once you confront it, it's just an old memory inside you."
 
-&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Saiyuki**](https://myanimelist.net/character.php?q=Saiyuki&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
