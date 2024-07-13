@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have a swimsuit tan. You could jump in the pool naked and no one would know you weren't wearing anything."
+> "Let us commence, Zaraki! Your favorite game of carnage!!"
 
-&mdash; [**Ayumu Kasuga**](https://myanimelist.net/character.php?q=Ayumu%20Kasuga&cat=character), [**Azumanga Daioh**](https://myanimelist.net/search/all?q=Azumanga%20Daioh&cat=all)
+&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
