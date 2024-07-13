@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Haruhi Fujioka about him helping her search for her wallet in water* A little water never hurt anyone. Besides, people are always telling me that I'm dripping with good looks."
+> "They don't call me Greed for nothing! I want money, I want women, status and power! I want everything this world's selling and eternity's topping the list!"
 
-&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
