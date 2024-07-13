@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You keep your nerves on edge and you're always ready to lash out. You distance yourself from everyone. It's because you are afraid of people. YOU are the weakest person in this village."
+> "To win, but not destroy; to conquer, but not humiliate: That is what true conquest is!"
 
-&mdash; [**Takuan Sōhō**](https://myanimelist.net/character.php?q=Takuan%20S%C5%8Dh%C5%8D&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
