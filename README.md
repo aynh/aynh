@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The fear of interacting with people...even I understand that one."
+> "It's okay not to feel 'whole'. Even if you feel only partly complete, if you repeat that enough, it'll eventually be 'whole'. A part... is better than zero."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Elhaym Van Houten**](https://myanimelist.net/character.php?q=Elhaym%20Van%20Houten&cat=character), [**Xenogears**](https://myanimelist.net/search/all?q=Xenogears&cat=all)
