@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But just between you and I, what I'm more interested in is traveling and seeing new places. (screams as she goes down a hill after being scared by a Duskull) I guess I... shoulda worn a... (crashes into a tree) helmet."
+> "Your so-called 'self-sacrifice' only satisfies yourself. Do you think you can save people with it? You're only protecting yourself! You don't know the suffering endured by those left alive. With your childish actions, you're only pushing the pain onto other people!"
 
-&mdash; [**Haruka**](https://myanimelist.net/character.php?q=Haruka&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Elliot Nightray**](https://myanimelist.net/character.php?q=Elliot%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
