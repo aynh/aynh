@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Peace cannot be kept by force. It can only be achieved by understanding."
+> "Don't worry about being so considerate of adults. You can only be a kid for so long, so you might as well enjoy it."
 
-&mdash; [**Setsuna F. Seiei**](https://myanimelist.net/character.php?q=Setsuna%20F.%20Seiei&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Charles Beams**](https://myanimelist.net/character.php?q=Charles%20Beams&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
