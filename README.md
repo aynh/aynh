@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Leave this guy's key to me, I'll do what you cant do; you do what I can't do. Think carefully! Read the situation. If you're here, there's got to be a way Robin-chan can be saved! Usopp!"
+> "Love in real life isn’t as smooth as in manga..."
 
-&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Shōta Kisa**](https://myanimelist.net/character.php?q=Sh%C5%8Dta%20Kisa&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
