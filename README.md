@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your so-called 'self-sacrifice' only satisfies yourself. Do you think you can save people with it? You're only protecting yourself! You don't know the suffering endured by those left alive. With your childish actions, you're only pushing the pain onto other people!"
+> "You've set fire to my frozen heart, I shall engrave this anger and sadness that's running through my blood onto you."
 
-&mdash; [**Elliot Nightray**](https://myanimelist.net/character.php?q=Elliot%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Alexander Nikolaevich Hell**](https://myanimelist.net/character.php?q=Alexander%20Nikolaevich%20Hell&cat=character), [**Seikon no Qwaser**](https://myanimelist.net/search/all?q=Seikon%20no%20Qwaser&cat=all)
