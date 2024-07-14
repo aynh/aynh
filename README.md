@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Inuyasha, you and I were fated to never meet again."
+> "Devils don't ask favors from God."
 
-&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Hiruma Youichi**](https://myanimelist.net/character.php?q=Hiruma%20Youichi&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
