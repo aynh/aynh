@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am not going to take sides, I am neutral. I am talking about standpoints here, that is all. Miss Class Representative (Hanekawa Tsubasa) has her point of view and her parents have their own. There is no way for an outsider to know which of them is right. Actually, there is not a right one in the first place. It is just about who is easier to agree with."
+> "The past makes you wanna die out of regret and future makes you depressed out of anxiety. So by elimination, the present is likely the happiest time."
 
-&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
