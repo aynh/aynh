@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A detective who corners a culprit with their reasoning and drives them to suicide in front of himself - is no different than a murderer."
+> "The first requirement of being a hero isn't being right. It's being strong. That's why the hero always wins."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
