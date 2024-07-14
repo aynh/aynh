@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't worry about being so considerate of adults. You can only be a kid for so long, so you might as well enjoy it."
+> "A detective who corners a culprit with their reasoning and drives them to suicide in front of himself - is no different than a murderer."
 
-&mdash; [**Charles Beams**](https://myanimelist.net/character.php?q=Charles%20Beams&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
