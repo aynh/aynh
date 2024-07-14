@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Search out the facts, then string them all together... and that's when the truth will be revealed."
+> "I've been wondering... There must be a purpose for people being born into this world. Why are we here? What does it mean? I've been thinking about it a lot lately. I realized that finding our purpose IS the meaning. That's why we're here. And the ones who find it... They're the only ones who are truly free."
 
-&mdash; [**Saji Crossroad**](https://myanimelist.net/character.php?q=Saji%20Crossroad&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
