@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is when it isn't fun to be with that person. It's when nothing goes the way you want. When you're not having fun... and yet you still want to be with that person."
+> "If you're lonely, you should say something! If you're worried, say something! Most people aren't as sharp as you are! If you want those people to understand you, you should say something! Even if you're worried that you'll embarrass yourself, you should still say something!"
 
-&mdash; [**Taichi Mashima**](https://myanimelist.net/character.php?q=Taichi%20Mashima&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
