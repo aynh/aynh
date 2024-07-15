@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I really don't get it. Why don't you tell her how you feel if you care for her so much? Why would you lie like that and keep yourself from pursuing her?"
+> "Of course I'm insecure. Of course I'm lonely. Of course I wanna see him. And of course being so far apart sucks, but the thing is, nobody else could ever take his place. So it doesn't matter if I don't want a long-distance relationship. I don't have a choice, but I have to do it. I love him."
 
-&mdash; [**Soutarou Kanou**](https://myanimelist.net/character.php?q=Soutarou%20Kanou&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Haruna Nagashima**](https://myanimelist.net/character.php?q=Haruna%20Nagashima&cat=character), [**Highschool Debut**](https://myanimelist.net/search/all?q=Highschool%20Debut&cat=all)
