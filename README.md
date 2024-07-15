@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My companions make my heart strong. If I'm fighting for those I love, I care not what happens to this body."
+> "Let´s see how many people you can kill with the power of love."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Sanetoshi Watase**](https://myanimelist.net/character.php?q=Sanetoshi%20Watase&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
