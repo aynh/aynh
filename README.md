@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look at the sky, it's so far away. But right here, right now, it seems so close."
+> "Your so called 'hope' is to throw the past into despair?"
 
-&mdash; [**Lee Yunlee**](https://myanimelist.net/character.php?q=Lee%20Yunlee&cat=character), [**Nineteen Twenty-one**](https://myanimelist.net/search/all?q=Nineteen%20Twenty-one&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
