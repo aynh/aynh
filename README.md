@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We will take revenge on your behalf."
+> "Don't you think it's beautiful? That rosy red that spreads only where the body is wounded. Shall I paint you in that lovely red... little boy?"
 
-&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
+&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
