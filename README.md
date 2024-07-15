@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let´s see how many people you can kill with the power of love."
+> "Hate is a place, where a man who can't stand sadness, goes."
 
-&mdash; [**Sanetoshi Watase**](https://myanimelist.net/character.php?q=Sanetoshi%20Watase&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Godo**](https://myanimelist.net/character.php?q=Godo&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
