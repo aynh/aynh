@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone Makes Mistakes. But people's feelings can manifest through the most subtle of expressions."
+> "We will take revenge on your behalf."
 
-&mdash; [**Nona**](https://myanimelist.net/character.php?q=Nona&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
