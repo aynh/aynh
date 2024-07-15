@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even the most noble of the sacrifices is based on 'self satisfaction'. Jesus Christ himself was crucified for the sake of his people for 'self satisfaction'. That's why you shouldn't expect anything in return when you help someone. Because the moment you expect something, your act would become worthless."
+> "Maten Scripture binding force of power where light is darkness and darkness is light I call upon your power to cast my enemy back Into OBLIVION!"
 
-&mdash; [**Seiko Miyazawa**](https://myanimelist.net/character.php?q=Seiko%20Miyazawa&cat=character), [**Tough**](https://myanimelist.net/search/all?q=Tough&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
