@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hate is a place, where a man who can't stand sadness, goes."
+> "Love is when it isn't fun to be with that person. It's when nothing goes the way you want. When you're not having fun... and yet you still want to be with that person."
 
-&mdash; [**Godo**](https://myanimelist.net/character.php?q=Godo&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Taichi Mashima**](https://myanimelist.net/character.php?q=Taichi%20Mashima&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
