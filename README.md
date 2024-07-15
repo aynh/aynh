@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is nothing shameful about running away. Some things are just out of people's hands. If you think you're gonna die, just run."
+> "Look at the sky, it's so far away. But right here, right now, it seems so close."
 
-&mdash; [**Broken Blade**](https://myanimelist.net/character.php?q=Broken%20Blade&cat=character), [**Broken Blade**](https://myanimelist.net/search/all?q=Broken%20Blade&cat=all)
+&mdash; [**Lee Yunlee**](https://myanimelist.net/character.php?q=Lee%20Yunlee&cat=character), [**Nineteen Twenty-one**](https://myanimelist.net/search/all?q=Nineteen%20Twenty-one&cat=all)
