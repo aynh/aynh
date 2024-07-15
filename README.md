@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Of course I'm insecure. Of course I'm lonely. Of course I wanna see him. And of course being so far apart sucks, but the thing is, nobody else could ever take his place. So it doesn't matter if I don't want a long-distance relationship. I don't have a choice, but I have to do it. I love him."
+> "Even the most noble of the sacrifices is based on 'self satisfaction'. Jesus Christ himself was crucified for the sake of his people for 'self satisfaction'. That's why you shouldn't expect anything in return when you help someone. Because the moment you expect something, your act would become worthless."
 
-&mdash; [**Haruna Nagashima**](https://myanimelist.net/character.php?q=Haruna%20Nagashima&cat=character), [**Highschool Debut**](https://myanimelist.net/search/all?q=Highschool%20Debut&cat=all)
+&mdash; [**Seiko Miyazawa**](https://myanimelist.net/character.php?q=Seiko%20Miyazawa&cat=character), [**Tough**](https://myanimelist.net/search/all?q=Tough&cat=all)
