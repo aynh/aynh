@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maten Scripture binding force of power where light is darkness and darkness is light I call upon your power to cast my enemy back Into OBLIVION!"
+> "Everyone Makes Mistakes. But people's feelings can manifest through the most subtle of expressions."
 
-&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Nona**](https://myanimelist.net/character.php?q=Nona&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
