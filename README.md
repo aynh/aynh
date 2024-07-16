@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no match you can't win, and there's no match that you'll win for sure."
+> "No matter how hard or impossible it is, never lose sight of your goal."
 
-&mdash; [**Ikkei Ukai**](https://myanimelist.net/character.php?q=Ikkei%20Ukai&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
