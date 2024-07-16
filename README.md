@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If one side was just, it would be called a defense or a suppression. But this is war. And wars happen because both sides are just."
+> "Goodbyes are only one side of the coin. You can't say goodbye until you've said hello."
 
-&mdash; [**Kajoumaru Hidetomo**](https://myanimelist.net/character.php?q=Kajoumaru%20Hidetomo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
