@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Water, 35 litres. Carbon, 20 kg. Ammonia, 4 litres. Lime, 1.5 kg. Phosphorus, 800 g. Salt, 250 g. Niter, 100 g. Sulphur, 80 g. Fluoride, 7.5 g. Iron, 5 g. Silicon, 3g. And fifteen other elements. Those are the elements to make an average adult human body. You can buy these elemental ingredients at the market with the pocket money of a child. Humans are made so cheaply."
+> "*thinking* Normally, one would call an ambulance or ask for help from one of the nearby residents, but this particular boy decided to carry the unconscious, innocent girl... and where the hell are you taking her, bastard?"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
