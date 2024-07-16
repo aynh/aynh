@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Goodbyes are only one side of the coin. You can't say goodbye until you've said hello."
+> "Pain, suffering, sadness... We all accept it, and that's why we can move forward!"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Tooru Kazasumi**](https://myanimelist.net/character.php?q=Tooru%20Kazasumi&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
