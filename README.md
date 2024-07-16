@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ooops....My finger slipped."
+> "If one side was just, it would be called a defense or a suppression. But this is war. And wars happen because both sides are just."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kajoumaru Hidetomo**](https://myanimelist.net/character.php?q=Kajoumaru%20Hidetomo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
