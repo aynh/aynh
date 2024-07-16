@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not rude... I just wasn't taught to politely pretend to be nice to people I can't stand."
+> "You've just gained the privilege to kill."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
