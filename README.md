@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've just gained the privilege to kill."
+> "There's no match you can't win, and there's no match that you'll win for sure."
 
-&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Ikkei Ukai**](https://myanimelist.net/character.php?q=Ikkei%20Ukai&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
