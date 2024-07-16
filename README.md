@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pain, suffering, sadness... We all accept it, and that's why we can move forward!"
+> "I'm not rude... I just wasn't taught to politely pretend to be nice to people I can't stand."
 
-&mdash; [**Tooru Kazasumi**](https://myanimelist.net/character.php?q=Tooru%20Kazasumi&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
