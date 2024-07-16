@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you destroy the world, the world you wish for won't come."
+> "Whether doing good or evil, I will be the boss."
 
-&mdash; [**Cho Hakkai**](https://myanimelist.net/character.php?q=Cho%20Hakkai&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
