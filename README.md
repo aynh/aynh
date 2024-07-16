@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*thinking* Normally, one would call an ambulance or ask for help from one of the nearby residents, but this particular boy decided to carry the unconscious, innocent girl... and where the hell are you taking her, bastard?"
+> "Seeing nature and thinking it's beautiful is what's unnatural. That means the life you lead is an unclean one. If you can cut yourself off from mother nature and still survive, doesn't it mean you have enough inner beauty to allow you to do that?"
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Souhei Saikawa**](https://myanimelist.net/character.php?q=Souhei%20Saikawa&cat=character), [**Subete ga F ni Naru**](https://myanimelist.net/search/all?q=Subete%20ga%20F%20ni%20Naru&cat=all)
