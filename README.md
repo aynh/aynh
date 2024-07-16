@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In my family; Father, Mother, and Grandmother all hated each other. I was the trash can into which they dumped their hatred. That's why I only thought about beautiful and warm things, fun things. But after I met you, I understood. No matter how many beautiful stories I made, they were all lies. Because the person telling the stories, me, was an ugly and dirty creature."
+> "Whether we die or not, isn't really that big a deal."
 
-&mdash; [**Miu Asakura**](https://myanimelist.net/character.php?q=Miu%20Asakura&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
+&mdash; [**Juuzou Suzuya**](https://myanimelist.net/character.php?q=Juuzou%20Suzuya&cat=character), [**Tokyo Ghoul √A**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%20%E2%88%9AA&cat=all)
