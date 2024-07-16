@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You keep imposing your ideals on them. Don't worry about other people. You only need to do what you think is right."
+> "In my family; Father, Mother, and Grandmother all hated each other. I was the trash can into which they dumped their hatred. That's why I only thought about beautiful and warm things, fun things. But after I met you, I understood. No matter how many beautiful stories I made, they were all lies. Because the person telling the stories, me, was an ugly and dirty creature."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Miu Asakura**](https://myanimelist.net/character.php?q=Miu%20Asakura&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
