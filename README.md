@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you lose credibility by just admitting fault, then you didn't have any in the first place."
+> "I'm Faust VIII, your opponent. Please be gentle."
 
-&mdash; [**Fujitora**](https://myanimelist.net/character.php?q=Fujitora&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
