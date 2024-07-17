@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm Faust VIII, your opponent. Please be gentle."
+> "If I don't have to do it, I won't. If I have to do it, I'll make it quick."
 
-&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
