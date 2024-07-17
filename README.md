@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ah, I'm sorry, I guess this is farewell. Let Tohru find happiness. Please by many people let her be loved. If you become perplexed or make errors, in the end have the kind of life that you can have pride in living. The kind where you can say, 'I persevered'. Repeating delightful things and sad things. And in that way keep getting older. I persevered. (Part of Kyoko's last words that were never said)"
+> "There are things you can't turn back, even if you want to."
 
-&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Jūdai Yūki**](https://myanimelist.net/character.php?q=J%C5%ABdai%20Y%C5%ABki&cat=character), [**Yu-Gi-Oh! GX**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20GX&cat=all)
