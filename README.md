@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things you can't turn back, even if you want to."
+> "I don't care if it is fortunate or unfortunate that Light picked up the Death Note. However... It is generally bad luck for a person to be followed by a God of Death."
 
-&mdash; [**Jūdai Yūki**](https://myanimelist.net/character.php?q=J%C5%ABdai%20Y%C5%ABki&cat=character), [**Yu-Gi-Oh! GX**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20GX&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
