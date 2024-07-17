@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are all like fireworks. We climb, shine, and always go our separate ways and become further apart. But even if that time comes, let's not disappear like a firework. Let's continue to shine... Forever."
+> "Surely there must be limits to which one may sink."
 
-&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
