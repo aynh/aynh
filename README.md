@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is like a mountain - you can say you've reached the top, but only after climbing back down."
+> "Unless someone makes the first move, nothing will happen."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Misa Amane**](https://myanimelist.net/character.php?q=Misa%20Amane&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
