@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I did win, it was boring. How can it be interesting unless you win in an interesting way?"
+> "Now all that is left is the destruction of earth, but I think it would be a waste to destroy it. The food of this planet is very delicious."
 
-&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
