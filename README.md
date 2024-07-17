@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now all that is left is the destruction of earth, but I think it would be a waste to destroy it. The food of this planet is very delicious."
+> "Time passes, people move. Like a river's flow, it never ends. A childish mind will turn to noble ambition. Young love will become deep affection. The clear water's surface reflects growth. Now listen to the Serenade of water to reflect upon yourself."
 
-&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Sheik**](https://myanimelist.net/character.php?q=Sheik&cat=character), [**The Legend Of Zelda**](https://myanimelist.net/search/all?q=The%20Legend%20Of%20Zelda&cat=all)
