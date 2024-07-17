@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I don't have to do it, I won't. If I have to do it, I'll make it quick."
+> "Life isn't about counting all the things you've lost, It's about increasing the number of important things in it."
 
-&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Tsukamoto Tsukushi**](https://myanimelist.net/character.php?q=Tsukamoto%20Tsukushi&cat=character), [**Days TV**](https://myanimelist.net/search/all?q=Days%20TV&cat=all)
