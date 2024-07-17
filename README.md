@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Words are imperfect. Putting it in words will just create misunderstandings. Words are the root of misunderstandings."
+> "I know, someone like me can't just go out and change the world on a whim."
 
-&mdash; [**Nagi Sanzenin**](https://myanimelist.net/character.php?q=Nagi%20Sanzenin&cat=character), [**Hayate no Gotoku!**](https://myanimelist.net/search/all?q=Hayate%20no%20Gotoku!&cat=all)
+&mdash; [**Akatsuki Kojou**](https://myanimelist.net/character.php?q=Akatsuki%20Kojou&cat=character), [**Strike the Blood**](https://myanimelist.net/search/all?q=Strike%20the%20Blood&cat=all)
