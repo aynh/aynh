@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time passes, people move. Like a river's flow, it never ends. A childish mind will turn to noble ambition. Young love will become deep affection. The clear water's surface reflects growth. Now listen to the Serenade of water to reflect upon yourself."
+> "Life is like a mountain - you can say you've reached the top, but only after climbing back down."
 
-&mdash; [**Sheik**](https://myanimelist.net/character.php?q=Sheik&cat=character), [**The Legend Of Zelda**](https://myanimelist.net/search/all?q=The%20Legend%20Of%20Zelda&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
