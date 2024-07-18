@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I won't live my life by another person's script."
+> "On this planet you call females who have yet to become adults, girls. It makes sense then that since you'll eventually become withes, you should be called Magical Girls."
 
-&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Puella Magi Madoka Magica**](https://myanimelist.net/search/all?q=Puella%20Magi%20Madoka%20Magica&cat=all)
