@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can move on, then you should."
+> "Team Rocket may be dirty rotten criminals, but we're not in the business of destroying children's dreams! At least, not yet."
 
-&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
