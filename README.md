@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only I can help myself, and in the future, I can make up for all my misfortunes and change the world into a place where there's no irrational discrimination and that's why there's no way in hell that I can die here!"
+> "I won't live my life by another person's script."
 
-&mdash; [**Mine**](https://myanimelist.net/character.php?q=Mine&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
