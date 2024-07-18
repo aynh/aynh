@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A real man never goes back on his words!"
+> "Strength that knows no boundaries is merely violence."
 
-&mdash; [**Taiyou Natsuki**](https://myanimelist.net/character.php?q=Taiyou%20Natsuki&cat=character), [**Seishun Forget!**](https://myanimelist.net/search/all?q=Seishun%20Forget!&cat=all)
+&mdash; [**Bismarck Waldstein**](https://myanimelist.net/character.php?q=Bismarck%20Waldstein&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
