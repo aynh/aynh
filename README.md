@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you telling me to flee from my foe!? The blood of a coward doesn't flow through these veins!"
+> "My childhood was filled with blood and strife. I have never needed love. Not then, not now."
 
-&mdash; [**Elliot Nightray**](https://myanimelist.net/character.php?q=Elliot%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
