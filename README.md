@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Often times in memory, we have the tendency to overly romanticize the people we care about."
+> "Are you telling me to flee from my foe!? The blood of a coward doesn't flow through these veins!"
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Elliot Nightray**](https://myanimelist.net/character.php?q=Elliot%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
