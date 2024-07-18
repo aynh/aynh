@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hidden in truths lie lies, hidden in lies hides the truth."
+> "A real man never goes back on his words!"
 
-&mdash; [**Rokudou Mukuro**](https://myanimelist.net/character.php?q=Rokudou%20Mukuro&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Taiyou Natsuki**](https://myanimelist.net/character.php?q=Taiyou%20Natsuki&cat=character), [**Seishun Forget!**](https://myanimelist.net/search/all?q=Seishun%20Forget!&cat=all)
