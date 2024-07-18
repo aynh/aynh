@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is foolish to listen to one who will not listen to you. Do as you wish."
+> "Talking about peace whilst spilling blood, it's something that only humans can do."
 
-&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
