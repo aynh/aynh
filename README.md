@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Team Rocket may be dirty rotten criminals, but we're not in the business of destroying children's dreams! At least, not yet."
+> "We are all farsighted, we give importance to those things that are far from us, while neglecting the things that are close to us... only to realize their value later, when they are out-of-reach again."
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Kawamura Sachiko**](https://myanimelist.net/character.php?q=Kawamura%20Sachiko&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
