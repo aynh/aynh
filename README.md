@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe the difference between those up there and me is the question of whether you have given up or not."
+> "I'm going to make you say you love me again. Just you wait."
 
-&mdash; [**Ja Wangnan**](https://myanimelist.net/character.php?q=Ja%20Wangnan&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
+&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
