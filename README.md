@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why is it that the beautiful things are entwined more deeply with death than with life?"
+> "I believe the difference between those up there and me is the question of whether you have given up or not."
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Ja Wangnan**](https://myanimelist.net/character.php?q=Ja%20Wangnan&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
