@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because the sight of your beautiful smile causes the fountain inside of me to start overflowing."
+> "The storyteller may fall silent, the music may cease, but the story will not end. Be it tragedy or comedy, as long as there is applause, the story will not end. It is just like the multitude of human lives. Warm blessings to we who were not rewarded, and we who are still on our way. Our travels continue on."
 
-&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Fate/stay night**](https://myanimelist.net/character.php?q=Fate%2Fstay%20night&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
