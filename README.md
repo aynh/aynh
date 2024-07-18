@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People are born into this world. And people are taken from this world."
+> "I was born alone in this world and alone I will die. If this is my fate, why are tears coming out of my eyes?"
 
-&mdash; [**Takeo Gouda**](https://myanimelist.net/character.php?q=Takeo%20Gouda&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
+&mdash; [**Alan Humphries**](https://myanimelist.net/character.php?q=Alan%20Humphries&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
