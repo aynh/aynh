@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was born alone in this world and alone I will die. If this is my fate, why are tears coming out of my eyes?"
+> "It is foolish to listen to one who will not listen to you. Do as you wish."
 
-&mdash; [**Alan Humphries**](https://myanimelist.net/character.php?q=Alan%20Humphries&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
