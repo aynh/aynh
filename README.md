@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I like fish, biiiig FISH. I also have a crap haircut, kinda like Naruto."
+> "People are born into this world. And people are taken from this world."
 
-&mdash; [**Umibouzu**](https://myanimelist.net/character.php?q=Umibouzu&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Takeo Gouda**](https://myanimelist.net/character.php?q=Takeo%20Gouda&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
