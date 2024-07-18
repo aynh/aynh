@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My childhood was filled with blood and strife. I have never needed love. Not then, not now."
+> "Sometimes I think delinquents are people… Who still have hope that things still can get better if they just put up a SOS sign. But I don’t even have the will to lift that sign anymore."
 
-&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
