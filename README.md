@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are all farsighted, we give importance to those things that are far from us, while neglecting the things that are close to us... only to realize their value later, when they are out-of-reach again."
+> "Because the sight of your beautiful smile causes the fountain inside of me to start overflowing."
 
-&mdash; [**Kawamura Sachiko**](https://myanimelist.net/character.php?q=Kawamura%20Sachiko&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
