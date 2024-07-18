@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The storyteller may fall silent, the music may cease, but the story will not end. Be it tragedy or comedy, as long as there is applause, the story will not end. It is just like the multitude of human lives. Warm blessings to we who were not rewarded, and we who are still on our way. Our travels continue on."
+> "Often times in memory, we have the tendency to overly romanticize the people we care about."
 
-&mdash; [**Fate/stay night**](https://myanimelist.net/character.php?q=Fate%2Fstay%20night&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
