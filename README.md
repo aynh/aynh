@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Atone for my sins? [...] I have no sins to atone for, nor have I forced such a meaningless concept on anyone."
+> "When I was a child, whenever it snowed, I would play and make snowballs. When you start rolling a snowball, someone will always appear out of nowhere and help you make it bigger and in the end, everyone goes home satisfied. It was then that I suddenly thought “This is what I want to grow up to be like”."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Alicia Florence**](https://myanimelist.net/character.php?q=Alicia%20Florence&cat=character), [**Aria The Natural**](https://myanimelist.net/search/all?q=Aria%20The%20Natural&cat=all)
