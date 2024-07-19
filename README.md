@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't have to worry about being special or normal compared to everyone else! It doesn't matter who it is. So as long as they think you're special, then you're special."
+> "A Coma doesn't exist, it is a preparatory research for the next life."
 
-&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Fuura Kafuka**](https://myanimelist.net/character.php?q=Fuura%20Kafuka&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
