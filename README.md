@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can go anywhere you want in this world with a single blade. This may be a virtual world, but I feel more alive here than in the real world."
+> "I am looking at things from a much higher perspective than you. I observe this world, this universe, the truth of all things. And I have realized that humans must be destroyed. Out of all which the gods have made, mortals are their sole failure. In order to make this world, this universe, into a beautiful utopia, I must remove humanity, in place of the gods who refuse to admit their mistake."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Black Goku**](https://myanimelist.net/character.php?q=Black%20Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
