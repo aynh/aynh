@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A Coma doesn't exist, it is a preparatory research for the next life."
+> "You couldn't save your mom because you... weren't strong enough. I didn't face the Titan... because I wasn't brave enough."
 
-&mdash; [**Fuura Kafuka**](https://myanimelist.net/character.php?q=Fuura%20Kafuka&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
+&mdash; [**Hannes**](https://myanimelist.net/character.php?q=Hannes&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
