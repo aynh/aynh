@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All men are jealous and stupid, and all women are stupid to be happy about it, idiots are everywhere you look!"
+> "Atone for my sins? [...] I have no sins to atone for, nor have I forced such a meaningless concept on anyone."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
