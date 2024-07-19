@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Money can buy companionship, but not its quality."
+> "It's truly infuriating... I despise people like you who put their own lives in jeopardy for some glorious, hopeless cause."
 
-&mdash; [**Fleur Boland**](https://myanimelist.net/character.php?q=Fleur%20Boland&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
