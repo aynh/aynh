@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You couldn't save your mom because you... weren't strong enough. I didn't face the Titan... because I wasn't brave enough."
+> "If you pity my existence, please eat me."
 
-&mdash; [**Hannes**](https://myanimelist.net/character.php?q=Hannes&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Loaf**](https://myanimelist.net/character.php?q=Loaf&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
