@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Having my fate decided for me from the time I was born goes against my view of beauty."
+> "I’d rather have my physical pain exceed my mental pain than the other way around. By hurting myself just enough, I could turn my attention to that."
 
-&mdash; [**Jae-ha**](https://myanimelist.net/character.php?q=Jae-ha&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Kusonoki**](https://myanimelist.net/character.php?q=Kusonoki&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
