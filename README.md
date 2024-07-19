@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Geniuses don't understand the feelings of people who aren't able to do something."
+> "All men are jealous and stupid, and all women are stupid to be happy about it, idiots are everywhere you look!"
 
-&mdash; [**Akatsuki no Yona**](https://myanimelist.net/character.php?q=Akatsuki%20no%20Yona&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
