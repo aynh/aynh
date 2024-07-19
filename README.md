@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Of course, every soldier is prepared to die. But these people aren't just pawns on a chessboard. They all have names, families and feelings in their hearts too. They are all humans who live and bleed. You have the responsibility to ensure their death will not be in vain. No matter what may come, remember this in your naive heart, and be ready to die to fulfill that duty."
+> "It’s hard to forget someone who gave you so much to remember."
 
-&mdash; [**Rico Brzenska**](https://myanimelist.net/character.php?q=Rico%20Brzenska&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
