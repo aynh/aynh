@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're lonely, you should say something! If you're worried, say something! Most people aren't as sharp as you are! If you want those people to understand you, you should say something! Even if you're worried that you'll embarrass yourself, you should still say something!"
+> "Of course, every soldier is prepared to die. But these people aren't just pawns on a chessboard. They all have names, families and feelings in their hearts too. They are all humans who live and bleed. You have the responsibility to ensure their death will not be in vain. No matter what may come, remember this in your naive heart, and be ready to die to fulfill that duty."
 
-&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Rico Brzenska**](https://myanimelist.net/character.php?q=Rico%20Brzenska&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
