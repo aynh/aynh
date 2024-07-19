@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It’s hard to forget someone who gave you so much to remember."
+> "Treasure the experience. Dreams fade away after you wake up."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Hitoha Miyamizu**](https://myanimelist.net/character.php?q=Hitoha%20Miyamizu&cat=character), [**Kimi no Na wa**](https://myanimelist.net/search/all?q=Kimi%20no%20Na%20wa&cat=all)
