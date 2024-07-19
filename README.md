@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It looks like you're wishing you had died instead of someone else, but... isn't it wrong to think that way? No one can take the place of another. Each person has his own destiny."
+> "You can go anywhere you want in this world with a single blade. This may be a virtual world, but I feel more alive here than in the real world."
 
-&mdash; [**Momo**](https://myanimelist.net/character.php?q=Momo&cat=character), [**Shinigami no Ballad**](https://myanimelist.net/search/all?q=Shinigami%20no%20Ballad&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
