@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's truly infuriating... I despise people like you who put their own lives in jeopardy for some glorious, hopeless cause."
+> "Denying possibility is denying thought."
 
-&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Alcor**](https://myanimelist.net/character.php?q=Alcor&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
