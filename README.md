@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Treasure the experience. Dreams fade away after you wake up."
+> "Money can buy companionship, but not its quality."
 
-&mdash; [**Hitoha Miyamizu**](https://myanimelist.net/character.php?q=Hitoha%20Miyamizu&cat=character), [**Kimi no Na wa**](https://myanimelist.net/search/all?q=Kimi%20no%20Na%20wa&cat=all)
+&mdash; [**Fleur Boland**](https://myanimelist.net/character.php?q=Fleur%20Boland&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
