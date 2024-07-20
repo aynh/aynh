@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're a team player, a save-the-day superhero... I hate people like you."
+> "Gin-chan told me to pay people back double for revenge!"
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
