@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Free, we gotta inject the Black Blood into the Kishin, if we don't then Medusa is gonna slaughter us!"
+> "People who want to leave are going to leave. But not everyone is like that."
 
-&mdash; [**Eruka Frog**](https://myanimelist.net/character.php?q=Eruka%20Frog&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Yoshihisa Manabe**](https://myanimelist.net/character.php?q=Yoshihisa%20Manabe&cat=character), [**Kotoura-san**](https://myanimelist.net/search/all?q=Kotoura-san&cat=all)
