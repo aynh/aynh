@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I love it when you stroke my hair. I feel as if we can understand each other through the contact between your hand and my hair. I love your voice. Just hearing you say one word makes my heart feel warmer. I love your eyes. Normally, they look stern,  but when you're being kind to someone,  I love the way they soften. I love your fingers. For a boy, you have such lovely fingers. But when they clutch me, I know they are the strong, slender fingers of a man. I love the way you walk. When we walk together, I love the way you occasionally turn, to make sure I keep up. I love the way you look when you sleep. You look unguarded, like an infant, and your eyelashes are on the long side. When I touch your cheek, you calm down... And when I playfully touch your lips, you don't even notice... And it makes my heart ache terribly. I love you."
+> "I've continually fought, and with each battle I've been killing my own heart. And my heart has been completely void of feeling for quite a long time now. Maybe my life doesn't have value anymore, but I have to keep on living."
 
-&mdash; [**Rem (re:zero)**](https://myanimelist.net/character.php?q=Rem%20(re%3Azero)&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
+&mdash; [**Trowa Barton**](https://myanimelist.net/character.php?q=Trowa%20Barton&cat=character), [**Mobile Suit Gundam Wing**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Wing&cat=all)
