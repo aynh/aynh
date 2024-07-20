@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you find out whom you made the promise to, will you really be able to fall in love with her?"
+> "You've set fire to my frozen heart, I shall engrave this anger and sadness that's running through my blood onto you."
 
-&mdash; [**Kanakura Yui**](https://myanimelist.net/character.php?q=Kanakura%20Yui&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Alexander Nikolaevich Hell**](https://myanimelist.net/character.php?q=Alexander%20Nikolaevich%20Hell&cat=character), [**Seikon no Qwaser**](https://myanimelist.net/search/all?q=Seikon%20no%20Qwaser&cat=all)
