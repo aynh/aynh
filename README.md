@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't need someone as unreliable as you for a partner! (To Tohru)"
+> "(thinking) Haru understood me. He cared for me. He loved me."
 
 &mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
