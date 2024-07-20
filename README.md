@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone in this place is unhappy. And since they're unhappy, they're probably looking for someone worse off than they are."
+> "You're a team player, a save-the-day superhero... I hate people like you."
 
-&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
