@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am looking at things from a much higher perspective than you. I observe this world, this universe, the truth of all things. And I have realized that humans must be destroyed. Out of all which the gods have made, mortals are their sole failure. In order to make this world, this universe, into a beautiful utopia, I must remove humanity, in place of the gods who refuse to admit their mistake."
+> "If I were to compare a human’s heart with the ocean, the water would be stagnant. If I were to name the ripples on the water surface….Would it be happiness? Or anger? No. For this ocean, such a description is too shallow. If I want to know what lies upon the deep ocean floors… I would have to open my eyes in the stagnant water. Then swim downwards while enduring the icy deep kicking through the cold and heavy ocean waters. If I truly want to know the human known as myself….even if.. there is nothing there."
 
-&mdash; [**Black Goku**](https://myanimelist.net/character.php?q=Black%20Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Kou Ichinomiya**](https://myanimelist.net/character.php?q=Kou%20Ichinomiya&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
