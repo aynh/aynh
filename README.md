@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I still can't control my wish to see her. I never thought of how important she was to me. (about Rin)"
+> "Lies are told prevent yourself from getting hurt."
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kamiyama**](https://myanimelist.net/character.php?q=Kamiyama&cat=character), [**Mayoiga**](https://myanimelist.net/search/all?q=Mayoiga&cat=all)
