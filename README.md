@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can take control of my mind and my body, but there is one thing a Saiyan always keep... his PRIDE!"
+> "A heaven that only watches has no meaning."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Su-won**](https://myanimelist.net/character.php?q=Su-won&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
