@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't worry. When people break their old selves they embark a journey to find their new selves."
+> "You should cry while you still can. When you get bigger, sometimes, you can't cry even if you have something you wanna cry about."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
