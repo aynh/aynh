@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A heaven that only watches has no meaning."
+> "Free, we gotta inject the Black Blood into the Kishin, if we don't then Medusa is gonna slaughter us!"
 
-&mdash; [**Su-won**](https://myanimelist.net/character.php?q=Su-won&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Eruka Frog**](https://myanimelist.net/character.php?q=Eruka%20Frog&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
