@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(thinking) Haru understood me. He cared for me. He loved me."
+> "I still can't control my wish to see her. I never thought of how important she was to me. (about Rin)"
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
