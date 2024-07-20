@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Gin-chan told me to pay people back double for revenge!"
+> "I don't need someone as unreliable as you for a partner! (To Tohru)"
 
-&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
