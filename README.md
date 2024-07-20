@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People can only truly understand things that they've actually experienced."
+> "Once you find out whom you made the promise to, will you really be able to fall in love with her?"
 
-&mdash; [**Lichtendahl Tsery**](https://myanimelist.net/character.php?q=Lichtendahl%20Tsery&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Kanakura Yui**](https://myanimelist.net/character.php?q=Kanakura%20Yui&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
