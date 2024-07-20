@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what lies you tell, you can't fool your own heart."
+> "Don't worry. When people break their old selves they embark a journey to find their new selves."
 
-&mdash; [**Meliodas**](https://myanimelist.net/character.php?q=Meliodas&cat=character), [**Nanatsu no Taizai**](https://myanimelist.net/search/all?q=Nanatsu%20no%20Taizai&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
