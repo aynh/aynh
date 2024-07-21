@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you question your own belief, it's over."
+> "I read in some book that sad and painful things are the spices of an enjoyable life... But I seem to get nothing but spices!"
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Tomoko Kuroki**](https://myanimelist.net/character.php?q=Tomoko%20Kuroki&cat=character), [**WATAMOTE**](https://myanimelist.net/search/all?q=WATAMOTE&cat=all)
