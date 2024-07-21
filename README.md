@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Does he really believe we would turn around after all that we've been through?"
+> "To get what you want, you put up with something, make an effort, learn a skill, and inspire yourself. Is that how it is with Hinazuki too? Right now... I can tell she's enduring something. Just the opposite of me, she is pretending to be indifferent. She pretends to feel nothing, but a 10 year old girl isn't that strong."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Satoru Fujinuma**](https://myanimelist.net/character.php?q=Satoru%20Fujinuma&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
