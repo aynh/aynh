@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I read in some book that sad and painful things are the spices of an enjoyable life... But I seem to get nothing but spices!"
+> "How did you learn of the reality that you speak of? The entire world is governed by the reasoning of dirty-minded adults. We're able to obscure reality according to our obsessions. We're never actually shown what reality is. In this case, the reality that you speak of is a half-baked nonsense that has been altered. Trying to conform this bullshit reality into the one you want is like trying to join two pieces of a puzzle that do not fit."
 
-&mdash; [**Tomoko Kuroki**](https://myanimelist.net/character.php?q=Tomoko%20Kuroki&cat=character), [**WATAMOTE**](https://myanimelist.net/search/all?q=WATAMOTE&cat=all)
+&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
