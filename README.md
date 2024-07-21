@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Inside my mind, there's a beautiful cup. A very beautiful, clear cup. And tiny drops kept falling into it: 'drip, drip, drip', slowly but steadily, everyday. And today, I felt the cup had finally become completely full."
+> "Getting dumped always makes a man stronger. But then again, men aren't meant to pursue happiness."
 
-&mdash; [**Kuu**](https://myanimelist.net/character.php?q=Kuu&cat=character), [**Haibane Renmei**](https://myanimelist.net/search/all?q=Haibane%20Renmei&cat=all)
+&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
