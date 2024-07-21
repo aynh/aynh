@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, singing, or music... I think by nature it was always meant to convey something. So if there's something you want to say, don't you think you should try singing it?"
+> "There were two kinds of strength. One was the strength that came with having something to protect. The other was the strength of having nothing to lose."
 
-&mdash; [**Sakagami Takumi**](https://myanimelist.net/character.php?q=Sakagami%20Takumi&cat=character), [**Kokoro ga Sakebitagatterunda.**](https://myanimelist.net/search/all?q=Kokoro%20ga%20Sakebitagatterunda.&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
