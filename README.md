@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you miss the opportunity to say something, the words become increasingly toxic. The best thing to do is to just say everything."
+> "There are two kinds of girls in this world. Lovely girls who can get along with me. And all the bitches who can't"
 
-&mdash; [**Hayashida Nana**](https://myanimelist.net/character.php?q=Hayashida%20Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Sena Kashiwazaki**](https://myanimelist.net/character.php?q=Sena%20Kashiwazaki&cat=character), [**Boku wa Tomodachi ga Sukunai NEXT**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai%20NEXT&cat=all)
