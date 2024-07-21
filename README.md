@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've set fire to my frozen heart, I shall engrave this anger and sadness that's running through my blood onto you."
+> "Once you question your own belief, it's over."
 
-&mdash; [**Alexander Nikolaevich Hell**](https://myanimelist.net/character.php?q=Alexander%20Nikolaevich%20Hell&cat=character), [**Seikon no Qwaser**](https://myanimelist.net/search/all?q=Seikon%20no%20Qwaser&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
