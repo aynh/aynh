@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How did you learn of the reality that you speak of? The entire world is governed by the reasoning of dirty-minded adults. We're able to obscure reality according to our obsessions. We're never actually shown what reality is. In this case, the reality that you speak of is a half-baked nonsense that has been altered. Trying to conform this bullshit reality into the one you want is like trying to join two pieces of a puzzle that do not fit."
+> "Stars. Don't. Clean."
 
-&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
