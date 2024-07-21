@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I were to compare a human’s heart with the ocean, the water would be stagnant. If I were to name the ripples on the water surface….Would it be happiness? Or anger? No. For this ocean, such a description is too shallow. If I want to know what lies upon the deep ocean floors… I would have to open my eyes in the stagnant water. Then swim downwards while enduring the icy deep kicking through the cold and heavy ocean waters. If I truly want to know the human known as myself….even if.. there is nothing there."
+> "Having feelings for someone just brings sorrow to someone else. Someone always gets sacrificed and suffers. If this is what it means to fall in love, then falling in love is terrible."
 
-&mdash; [**Kou Ichinomiya**](https://myanimelist.net/character.php?q=Kou%20Ichinomiya&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
+&mdash; [**Hikari Sakishima**](https://myanimelist.net/character.php?q=Hikari%20Sakishima&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
