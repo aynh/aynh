@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There were two kinds of strength. One was the strength that came with having something to protect. The other was the strength of having nothing to lose."
+> "Luck of the draw isn’t about luck. Luck doesn’t decide a match!"
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Hidehiro Harada**](https://myanimelist.net/character.php?q=Hidehiro%20Harada&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
