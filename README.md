@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All I ever gained from abandoning something and running away were regrets I couldn't do anything about, and a version of myself that could only resent others. If I come to hate myself, even living becomes a sin. Remorse alone will become my punishment. That's why I've decided to take action of my own free will, so I'll never have the same regrets again."
+> "My goal is so far away that I'm not even on the starting line yet."
 
-&mdash; [**Amane Suou**](https://myanimelist.net/character.php?q=Amane%20Suou&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
