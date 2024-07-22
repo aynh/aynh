@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All truth is meaningless. In the end, 'meaning' comes from the mind of each individual human. Even when there is a single truth, it can mean different things to different individuals. The truth has no meaning in itself!"
+> "There are things you can't see unless you change your standing."
 
-&mdash; [**Furudo Erika**](https://myanimelist.net/character.php?q=Furudo%20Erika&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Trafalgar Law**](https://myanimelist.net/character.php?q=Trafalgar%20Law&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
