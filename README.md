@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Getting dumped always makes a man stronger. But then again, men aren't meant to pursue happiness."
+> "How worthless. Why are you saying things are impossible? You just decided that to make yourself feel better! Sure, there are things you can't do, things that seem impossible, but that's what makes everyone unique!"
 
-&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Rima Mashiro**](https://myanimelist.net/character.php?q=Rima%20Mashiro&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
