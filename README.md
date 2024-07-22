@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think, if you want to improve yourself, you should challenge your own limits."
+> "To me, the world is not only the shape on the map. On the battle field, all I see are the faces of the order and my friends... I am an awful person aren't I? Instead of the real world, all I care about is my friends. That's because they are my whole world... Even if just one of my friends dies, to me, it's the same thing as part of the world being destroyed."
 
-&mdash; [**Yukino Yukinoshita**](https://myanimelist.net/character.php?q=Yukino%20Yukinoshita&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Lenalee Lee**](https://myanimelist.net/character.php?q=Lenalee%20Lee&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
