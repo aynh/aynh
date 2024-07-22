@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not an issue of what you should do, it's an issue of what you want to do."
+> "Brush my teeth and go to sleep at night. Wake up and eat breakfast in the morning. People do those everywhere. When I realized that everyone did all these things on a daily basis, everything started to feel so boring."
 
-&mdash; [**Yamamoto Tsuyoshi**](https://myanimelist.net/character.php?q=Yamamoto%20Tsuyoshi&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
