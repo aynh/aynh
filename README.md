@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even when our eyes are closed, there's a whole world out there, that lives outside of ourselves and our dreams."
+> "(thinking) I want Haru. I want all of him."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
