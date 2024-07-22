@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Use whatever is at hand, be it friend or foe."
+> "All I ever gained from abandoning something and running away were regrets I couldn't do anything about, and a version of myself that could only resent others. If I come to hate myself, even living becomes a sin. Remorse alone will become my punishment. That's why I've decided to take action of my own free will, so I'll never have the same regrets again."
 
-&mdash; [**Kyoya Ootori**](https://myanimelist.net/character.php?q=Kyoya%20Ootori&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Amane Suou**](https://myanimelist.net/character.php?q=Amane%20Suou&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
