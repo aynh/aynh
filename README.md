@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...If Tohru-chan were to die, I...I wonder if I'd be able to smile again one year later? Or if I'd wish that I could forget ever having met her. ...Tohru-chan... has tried really hard..."
+> "It seems like we spent a long time together, but it wasn't. It was actually pretty short. Too short. So I kind of know, but I kind of don't know what I want to say. He was friendly, easy to talk to, and smart. He could do anything and was reliable. I thought he was perfect. But maybe I just didn't realize what his faults were. He might have been hiding his flaws."
 
-&mdash; [**Saki Hanajima**](https://myanimelist.net/character.php?q=Saki%20Hanajima&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
