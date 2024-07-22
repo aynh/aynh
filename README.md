@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you not your own master? You should walk the path you desire. No one else should be able to stop you."
+> "Keep on living your life in such a way that love doesn't fade away. I shall work... so that love may shine brightly, even today."
 
-&mdash; [**Jet**](https://myanimelist.net/character.php?q=Jet&cat=character), [**Neo Angelique Abyss -Second Age-**](https://myanimelist.net/search/all?q=Neo%20Angelique%20Abyss%20-Second%20Age-&cat=all)
+&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
