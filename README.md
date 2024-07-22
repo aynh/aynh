@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're disgustingly hideous! What the hell kind of thing are you? I've never seen anything more messed up in my life! Do you know nothing about symmetry? Whoever made you should be dug up from his grave, shot and reburied! You make me violently ill."
+> "...If Tohru-chan were to die, I...I wonder if I'd be able to smile again one year later? Or if I'd wish that I could forget ever having met her. ...Tohru-chan... has tried really hard..."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Saki Hanajima**](https://myanimelist.net/character.php?q=Saki%20Hanajima&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
