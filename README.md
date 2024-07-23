@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I understand now... What I really need to protect isn't myself, much less my money. It's my pride."
+> "The Sun does not ever give, almost all choose to take from it selfishly."
 
-&mdash; [**Kubota Yoshinobu**](https://myanimelist.net/character.php?q=Kubota%20Yoshinobu&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
+&mdash; [**Dune**](https://myanimelist.net/character.php?q=Dune&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
