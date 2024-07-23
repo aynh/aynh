@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as you laugh at people's suffering, your goal will always be out of reach. If you never want to be defeated, you must first learn your own weakness, and always be kind."
+> "Hunger is the enemy."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
