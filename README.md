@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm alright. All I did was lose a love. Even without George, this city is still overflowing with people. My days are busy. Nothing will change. But... why do the lights look like they're in black-and-white? Just because one person isn't here."
+> "(after Pikachu accidentally zaps her bike to a crisp) My bike's been barbecued!!"
 
-&mdash; [**Yukari Hayasaka**](https://myanimelist.net/character.php?q=Yukari%20Hayasaka&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
+&mdash; [**Haruka**](https://myanimelist.net/character.php?q=Haruka&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
