@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn´t matter what day it is as long as you are happy."
+> "Seeing the same thing at that time and place, either moving forward or running away... I suppose that's what separates those who are fit for battle from those who are not."
 
-&mdash; [**Juvia Loxar**](https://myanimelist.net/character.php?q=Juvia%20Loxar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Irene**](https://myanimelist.net/character.php?q=Irene&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
