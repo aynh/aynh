@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Seeing the same thing at that time and place, either moving forward or running away... I suppose that's what separates those who are fit for battle from those who are not."
+> "No matter how hard or impossible it is, never lose sight of your goal."
 
-&mdash; [**Irene**](https://myanimelist.net/character.php?q=Irene&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
