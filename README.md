@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This world is rotten and those who are making it rot deserve to die. Someone has to do it, so why not me? Even if it means sacrificing my own mind and soul, it's worth it. Because the world... can't go on like this. I wonder... what if someone else had picked up this notebook? Is there anyone out there other than me who'd be willing to eliminate the vermin from the world? If I don't do it, then who will? That's just it: there's no one, but I can do it. In fact, I'm the only one who can. I'll do it. Using the death note, I'll change the world."
+> "You can't spell 'slaughter' without 'laughter.'"
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Hollow Ichigo**](https://myanimelist.net/character.php?q=Hollow%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
