@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things you can't see unless you change your standing."
+> "As long as you laugh at people's suffering, your goal will always be out of reach. If you never want to be defeated, you must first learn your own weakness, and always be kind."
 
-&mdash; [**Trafalgar Law**](https://myanimelist.net/character.php?q=Trafalgar%20Law&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
