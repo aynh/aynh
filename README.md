@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Awaken, Benihime."
+> "I'm alright. All I did was lose a love. Even without George, this city is still overflowing with people. My days are busy. Nothing will change. But... why do the lights look like they're in black-and-white? Just because one person isn't here."
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yukari Hayasaka**](https://myanimelist.net/character.php?q=Yukari%20Hayasaka&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
