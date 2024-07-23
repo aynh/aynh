@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The Sun does not ever give, almost all choose to take from it selfishly."
+> "After all cool men don't cheat on their partners, do they?"
 
-&mdash; [**Dune**](https://myanimelist.net/character.php?q=Dune&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
