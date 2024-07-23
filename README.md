@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why are you staring at me? Are you annoyed that I am the only one who has cake?"
+> "It doesn´t matter what day it is as long as you are happy."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Juvia Loxar**](https://myanimelist.net/character.php?q=Juvia%20Loxar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
