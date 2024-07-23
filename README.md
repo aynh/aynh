@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don’t you know the saying ‘Man proposes; God disposes’ ? First, you do your best and then fate will decide how it will turn out."
+> "The weight of my sword is the weight of my pride. The wound from my battle with you is an honor, not a fetter."
 
-&mdash; [**Midorima Shintarou**](https://myanimelist.net/character.php?q=Midorima%20Shintarou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
