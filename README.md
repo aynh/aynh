@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(after Pikachu accidentally zaps her bike to a crisp) My bike's been barbecued!!"
+> "Humans have the ability to actively put things to an end rather than simply accept what's in store."
 
-&mdash; [**Haruka**](https://myanimelist.net/character.php?q=Haruka&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Souda Manatsu**](https://myanimelist.net/character.php?q=Souda%20Manatsu&cat=character), [**RDG: Red Data Girl**](https://myanimelist.net/search/all?q=RDG%3A%20Red%20Data%20Girl&cat=all)
