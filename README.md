@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can’t stop fighting to play. Once you've lost that drive, you’ll start to lose your edge."
+> "Don't give up, the beginning is always the hardest, so let's keep on going till the very end."
 
-&mdash; [**Yuusei Nishida**](https://myanimelist.net/character.php?q=Yuusei%20Nishida&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
