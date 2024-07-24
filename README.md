@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes people put up walls, not to keep others out, but to see who cares enough to break them down."
+> "I understand your feelings of wanting to bring the bad guy to justice, but do bear with it. It also requires courage to hide oneself."
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
