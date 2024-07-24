@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The  pain on these wounds will last only a second. The pain of your death would last a lifetime."
+> "Only sadness can counter sadness."
 
-&mdash; [**Kenshiro**](https://myanimelist.net/character.php?q=Kenshiro&cat=character), [**Fist of the North Star**](https://myanimelist.net/search/all?q=Fist%20of%20the%20North%20Star&cat=all)
+&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
