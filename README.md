@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We humans can indeed lose again something we've lost already."
+> "Humans lose focus of the big picture when they’re drunken in the midst of their feelings."
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Tojuro Hattori**](https://myanimelist.net/character.php?q=Tojuro%20Hattori&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
