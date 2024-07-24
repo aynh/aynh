@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's over when you give up."
+> "You can’t stop fighting to play. Once you've lost that drive, you’ll start to lose your edge."
 
-&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Yuusei Nishida**](https://myanimelist.net/character.php?q=Yuusei%20Nishida&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
