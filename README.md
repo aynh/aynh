@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, there are things you’re better off not knowing."
+> "[to Mayuri Kurotsuchi] It's a good thing Orihime isn't here. I wouldn't want her to see what I'm about to do to you."
 
-&mdash; [**Aizawa Yuuichi**](https://myanimelist.net/character.php?q=Aizawa%20Yuuichi&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
+&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
