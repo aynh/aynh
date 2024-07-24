@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans lose focus of the big picture when they’re drunken in the midst of their feelings."
+> "They thirsted for knowledge! They sought to fulfill their desires! And ultimately, they forgot why they were doing it. Even as they proclaimed their reverence for human life, they began toying with it, and then they began destroying it!"
 
-&mdash; [**Tojuro Hattori**](https://myanimelist.net/character.php?q=Tojuro%20Hattori&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
