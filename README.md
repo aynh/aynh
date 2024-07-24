@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't give up, the beginning is always the hardest, so let's keep on going till the very end."
+> "My abusive language is alchemized through 40 kg copper, 25 kg of zinc, 15 kg of nickel, 5 kg of ice that keeps my cool, and 97 kg of spite."
 
-&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
