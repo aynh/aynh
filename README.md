@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I understand your feelings of wanting to bring the bad guy to justice, but do bear with it. It also requires courage to hide oneself."
+> "All these things you guys seek....hard work, guts, faith....I'll crush them all."
 
-&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Atsushi Murasakibara**](https://myanimelist.net/character.php?q=Atsushi%20Murasakibara&cat=character), [**Kuroko's Basketball**](https://myanimelist.net/search/all?q=Kuroko's%20Basketball&cat=all)
