@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't take you seriously when you're dressed like that! I'm sorry, Mikuru, but I'm being controlled by the alien right now. Here goes nothing!"
+> "People in reality spout off all in unison about love and friendship but in fact it's a dirty little world full of lies and desires, isn't it?"
 
-&mdash; [**Tsuruya**](https://myanimelist.net/character.php?q=Tsuruya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Satou Tatsuhiro**](https://myanimelist.net/character.php?q=Satou%20Tatsuhiro&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
