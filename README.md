@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They thirsted for knowledge! They sought to fulfill their desires! And ultimately, they forgot why they were doing it. Even as they proclaimed their reverence for human life, they began toying with it, and then they began destroying it!"
+> "In this world, there are things you’re better off not knowing."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Aizawa Yuuichi**](https://myanimelist.net/character.php?q=Aizawa%20Yuuichi&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
