@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People in reality spout off all in unison about love and friendship but in fact it's a dirty little world full of lies and desires, isn't it?"
+> "If you leave, I'll probably be sad. However, if there's somewhere else you'd rather be, you should admit it. Don't lose sight of what you really want."
 
-&mdash; [**Satou Tatsuhiro**](https://myanimelist.net/character.php?q=Satou%20Tatsuhiro&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
+&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
