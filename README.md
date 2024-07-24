@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well it's not like the world is full of sunshine and daisies. If society was only shaped by the view that one must be happy-go-lucky all the time, Hollywood wouldn't make tear-jerking movies, would they?"
+> "If a girl chases after you, it's likely a trap."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru.**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
