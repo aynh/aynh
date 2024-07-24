@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All these things you guys seek....hard work, guts, faith....I'll crush them all."
+> "Only fools wage war."
 
-&mdash; [**Atsushi Murasakibara**](https://myanimelist.net/character.php?q=Atsushi%20Murasakibara&cat=character), [**Kuroko's Basketball**](https://myanimelist.net/search/all?q=Kuroko's%20Basketball&cat=all)
+&mdash; [**Charles Zi Britannia**](https://myanimelist.net/character.php?q=Charles%20Zi%20Britannia&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
