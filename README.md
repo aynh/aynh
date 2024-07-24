@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My abusive language is alchemized through 40 kg copper, 25 kg of zinc, 15 kg of nickel, 5 kg of ice that keeps my cool, and 97 kg of spite."
+> "Is there really a god? If there is one, why does he keep me confined in here?"
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
