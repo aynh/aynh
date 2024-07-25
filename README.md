@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So he killed my father and murdered my people. That means nothing to me. Strength is the only thing that matters in this world. Everything else is just a delusion for the weak."
+> "What must triumph here is the knight's path of chivalry that we champion. Is that not so, Heroic Spirit Arturia?"
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Lancer**](https://myanimelist.net/character.php?q=Lancer&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
