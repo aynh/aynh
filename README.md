@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Freedom is something you have to fight for, rather than something you're given. Being free means being prepared to carry that burden."
+> "This is our show. We're the ones who are writing the script."
 
-&mdash; [**Charles Beams**](https://myanimelist.net/character.php?q=Charles%20Beams&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
