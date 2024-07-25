@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People are weak. Because of their weakness, they sometimes behave in ways devoid of self-respect. But then, so what if they do, my old friend? Even if I am struck with a thousand setbacks... it does not serve as a reason to alter the way I live... my life!"
+> "Seeing them as the same is wrong. It's a touchy subject, but the weight of something you bear with your own power and with someone else's are different."
 
-&mdash; [**Klaus von Reinherz**](https://myanimelist.net/character.php?q=Klaus%20von%20Reinherz&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
