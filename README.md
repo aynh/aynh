@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it is because of what you call a heart, then it is the heart that causes you humans pain. It is because of your heart that you will die."
+> "Damn it, I really don't want to follow her to hell... Looks like I'll just have to pull her out of it!"
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
