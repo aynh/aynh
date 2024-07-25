@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If your face gets any closer, someone who isn't supposed to be in this scene is going to come over there and kick your ass!"
+> "Katsura, just stop this. No matter how elegant you think dying is, your death won't appease your conscience and won't change anything."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
