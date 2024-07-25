@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Katsura, just stop this. No matter how elegant you think dying is, your death won't appease your conscience and won't change anything."
+> "Freedom is something you have to fight for, rather than something you're given. Being free means being prepared to carry that burden."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Charles Beams**](https://myanimelist.net/character.php?q=Charles%20Beams&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
