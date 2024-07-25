@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is our show. We're the ones who are writing the script."
+> "Laziness is the mother of all bad habits. But ultimately she is a mother and we should respect her."
 
-&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
