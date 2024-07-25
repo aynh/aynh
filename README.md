@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is pointless to question who someone really is. All you can do is believe and accept. Because the way you perceive someone is their true identity."
+> "So he killed my father and murdered my people. That means nothing to me. Strength is the only thing that matters in this world. Everything else is just a delusion for the weak."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
