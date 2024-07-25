@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What must triumph here is the knight's path of chivalry that we champion. Is that not so, Heroic Spirit Arturia?"
+> "How is this possible? I must be the first person in history who was flushed down the toilet!"
 
-&mdash; [**Lancer**](https://myanimelist.net/character.php?q=Lancer&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Yuri Shibuya**](https://myanimelist.net/character.php?q=Yuri%20Shibuya&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
