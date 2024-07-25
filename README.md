@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someone has to be cursed to balance out a wish for someone else's happiness. That's how we, magical girls, work."
+> "You think I'm making demons simply as weapons, but demons are created by the human soul."
 
-&mdash; [**Sayaka Miki**](https://myanimelist.net/character.php?q=Sayaka%20Miki&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Millenium Earl**](https://myanimelist.net/character.php?q=Millenium%20Earl&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
