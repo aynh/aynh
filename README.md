@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What am I to you anyway? You get all teary eyed whenever it suits you but you never stop to think about my feelings and how you might be messing with my heart. You want some nice guy to be a part of your life but only if its on your terms. All this talk of just being friends with a guy... don't make me laugh!"
+> "If your face gets any closer, someone who isn't supposed to be in this scene is going to come over there and kick your ass!"
 
-&mdash; [**Shoji Endo**](https://myanimelist.net/character.php?q=Shoji%20Endo&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
