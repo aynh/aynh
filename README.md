@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how painful, no matter how much solitary struggle awaits us, because we have joyous moments like this, we can face the challenges over and over again."
+> "Number 58 of the 1,000 provisions I would like you to observe, never talk to me while I'm humming to myself. This is an important provision do you understand?"
 
-&mdash; [**Chiaki Shinichi**](https://myanimelist.net/character.php?q=Chiaki%20Shinichi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
