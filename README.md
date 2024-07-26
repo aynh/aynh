@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder how long... How long will I remain anchored at this harbor known as battle?"
+> "If you hurt somebody or if someone hurts you, - the same red blood will be shed."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
