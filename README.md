@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Daunting and mistrusting others forever won’t accomplish anything."
+> "Death comes at the very end, doesn't it? Until that time comes, do your best at living!"
 
-&mdash; [**Teito Klein**](https://myanimelist.net/character.php?q=Teito%20Klein&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Louise Françoise Le Blanc de La Vallière**](https://myanimelist.net/character.php?q=Louise%20Fran%C3%A7oise%20Le%20Blanc%20de%20La%20Valli%C3%A8re&cat=character), [**Zero no Tsukaima: Futatsuki no Kishi**](https://myanimelist.net/search/all?q=Zero%20no%20Tsukaima%3A%20Futatsuki%20no%20Kishi&cat=all)
