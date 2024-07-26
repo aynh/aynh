@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you hurt somebody or if someone hurts you, - the same red blood will be shed."
+> "[naked and smiling at Shinji] Hey Shinji, you idiot! Want to become of one mind and one body?"
 
-&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Souryuu Asuka Langley**](https://myanimelist.net/character.php?q=Souryuu%20Asuka%20Langley&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
