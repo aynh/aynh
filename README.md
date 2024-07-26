@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Saying things like 'It would be troubling for her' are just really convenient excuses for yourself. If you can forgive yourself like this, then you can just enjoy staying in your comfort zone, right?"
+> "I wonder how long... How long will I remain anchored at this harbor known as battle?"
 
-&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
