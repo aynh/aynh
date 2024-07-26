@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You think I'm making demons simply as weapons, but demons are created by the human soul."
+> "Jojo, being human means having limits. I've learned something. The more carefully you scheme, the more unexpected events come along"
 
-&mdash; [**Millenium Earl**](https://myanimelist.net/character.php?q=Millenium%20Earl&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Dio Brando**](https://myanimelist.net/character.php?q=Dio%20Brando&cat=character), [**JoJo's Bizarre Adventure: Phantom Blood**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Phantom%20Blood&cat=all)
