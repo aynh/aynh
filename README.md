@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look what I found! These are packue berries, known to cure the poison of the white jade plant... THAT, or makaoli berries that cause blindness."
+> "[to Athrun] What is it you believe in? What is it you're fighting for now? Is it for that medal you received? Or your father's orders?"
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
