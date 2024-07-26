@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The reader will be me. I have no love, maybe I'll end up interpreting some things in a weird way. However, the reader is free to decide how to read things and with which intonation."
+> "All waves, rise now and become my shield, lightning, strike now and become my blade! Sōgyo no Kotowari!"
 
-&mdash; [**Frederica Bernkastel**](https://myanimelist.net/character.php?q=Frederica%20Bernkastel&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
