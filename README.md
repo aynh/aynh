@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All waves, rise now and become my shield, lightning, strike now and become my blade! Sōgyo no Kotowari!"
+> "You know, Okabe, whether time is slow or fast, depends on perception. Theory of relativity is so romantic."
 
-&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
