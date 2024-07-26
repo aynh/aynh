@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death comes at the very end, doesn't it? Until that time comes, do your best at living!"
+> "Everyone is a slave to their past. No matter how much you wish to move forward, the events of last year will bear down on you like the light of the stars as soon as you glance up. Unable to laugh or to banish your past, you carry it ceaselessly in a corner of your heart, waiting for it to resurrect at an inopportune moment."
 
-&mdash; [**Louise Françoise Le Blanc de La Vallière**](https://myanimelist.net/character.php?q=Louise%20Fran%C3%A7oise%20Le%20Blanc%20de%20La%20Valli%C3%A8re&cat=character), [**Zero no Tsukaima: Futatsuki no Kishi**](https://myanimelist.net/search/all?q=Zero%20no%20Tsukaima%3A%20Futatsuki%20no%20Kishi&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru.**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.&cat=all)
