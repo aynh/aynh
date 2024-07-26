@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That’s something you can’t know until you've tried it, and you still won’t understand after you play. I've been playing for 45 years and I still don’t understand. I've never been able to figure it out. That’s why I keep playing."
+> "I wonder what sort of criteria you use to divide people into good and evil."
 
-&mdash; [**Hidehiro Harada**](https://myanimelist.net/character.php?q=Hidehiro%20Harada&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
