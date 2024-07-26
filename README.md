@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[naked and smiling at Shinji] Hey Shinji, you idiot! Want to become of one mind and one body?"
+> "My mind is being eaten away... Kaji-san, it's unravelling my mind! What do I do? It's defiling my mind!"
 
 &mdash; [**Souryuu Asuka Langley**](https://myanimelist.net/character.php?q=Souryuu%20Asuka%20Langley&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
