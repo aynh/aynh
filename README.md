@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People have to save themselves. One person saving another is impossible."
+> "To become a monster like me, is to admit you were too weak to remain a human."
 
-&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
