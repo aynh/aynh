@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'I long to see someone who died', 'I want to be rich', 'I want women', 'I want to protect the world'... They're all desires. In other words, wishes. If you ask me, there's neither 'right' or 'wrong' when it comes to greed. You humans go around ranking certain types of greed in order from good to bad, which makes you so hard to understand."
+> "I think having a dream, working hard, and never giving up couldn't possibly bring misfortune."
 
-&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Miho Azuki**](https://myanimelist.net/character.php?q=Miho%20Azuki&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
