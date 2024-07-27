@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The desire to fly with ''real wings'' is what motivates you."
+> "I was wrong, kill him."
 
-&mdash; [**Ringo Noyamano**](https://myanimelist.net/character.php?q=Ringo%20Noyamano&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
