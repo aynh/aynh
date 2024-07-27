@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Living should mean no do-overs. This is for the best."
+> "I have no use for a religion that's been forsaken by its own god."
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
