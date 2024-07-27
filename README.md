@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to an unconscious Aang] I finally have you. But I can't get you home because of this blizzard. There's always something. Not that you would understand. You're like my sister. Everything always came easy to her. She's a firebending prodigy and everyone adores her. My father says she was born lucky. He says I was lucky to be born. I don't need luck, though. I don't want it. I've always had to struggle and fight, and that's made me strong. It's made me who I am."
+> "A politician in the past once said: 'My secretaries did it all.'"
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**UNESCO Director**](https://myanimelist.net/character.php?q=UNESCO%20Director&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
