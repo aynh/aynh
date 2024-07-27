@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The heart moves where the heart wills."
+> "Regardless of who I was in the past or what I did, I feel like 'me' of the present should take responsibility."
 
-&mdash; [**Twenty-Fifth Baam**](https://myanimelist.net/character.php?q=Twenty-Fifth%20Baam&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
+&mdash; [**Yashiro Isana**](https://myanimelist.net/character.php?q=Yashiro%20Isana&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
