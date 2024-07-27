@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human beings are strong because we have the ability to change ourselves."
+> "That's right! I admired his desire to save people because it was beautiful! But none of that feeling is my own! What else can you call it but hypocrisy?! I was driven by my obsessive need to help someone. I kept running, neither noticing the pain nor how wrong I was! But it's all a fake. Such hypocrisy can not save anything. No, first of all, I didn't even know what I wanted to save!"
 
-&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
