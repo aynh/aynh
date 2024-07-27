@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think having a dream, working hard, and never giving up couldn't possibly bring misfortune."
+> "I work to support my hobby. So if you asked me which I'd choose, my job or my hobby, my hobby takes priority."
 
-&mdash; [**Miho Azuki**](https://myanimelist.net/character.php?q=Miho%20Azuki&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Itami Youji**](https://myanimelist.net/character.php?q=Itami%20Youji&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
