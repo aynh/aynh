@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once the thread of fate is tangled, it cannot be undone."
+> "What about when you reciprocate someone else’s emotions? Is that still coming from you… or is the air connecting you to one another?"
 
-&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Jinno Yuu**](https://myanimelist.net/character.php?q=Jinno%20Yuu&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
