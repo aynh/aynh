@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You talk big yet you're nothing but Akito's toy! (To Yuki)"
+> "We'd love to get up, Ash...unfortunately, you're STANDING on us."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
