@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who get fooled are partially at fault."
+> "Life is suffering, pain, and misery."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Nana**](https://myanimelist.net/character.php?q=Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
