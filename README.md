@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We'd love to get up, Ash...unfortunately, you're STANDING on us."
+> "It's over between Kana and me. We're not going to get back together. Even if we were together, I would only miss her... (To Shigure and Ayame)"
 
-&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
