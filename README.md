@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't do anything about what doesn't exist. In the end, humans have to settle for what's in front of them."
+> "It's impossible for humans to forget their emotions."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Wolfgang Grimmer**](https://myanimelist.net/character.php?q=Wolfgang%20Grimmer&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
