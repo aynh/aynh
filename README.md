@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't get to choose who you fall for. The heart doesn't always work the way you want it to. You should just follow your feelings honestly. You'll be happier that way."
+> "Detective, don't waste your time trying to change their minds. Fight by their meaningless rules and you'll be pulled down with them. There's only one real law of the dark tournament: the strongest man prevails. I've retrieved enough energy to rip my way out, let's show this entire stadium a new definition for victory!"
 
-&mdash; [**Ayumi Sanda**](https://myanimelist.net/character.php?q=Ayumi%20Sanda&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
