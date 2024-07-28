@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regardless of who I was in the past or what I did, I feel like 'me' of the present should take responsibility."
+> "Ha ha! Eat my dust, rat-boy! (to Yuki)"
 
-&mdash; [**Yashiro Isana**](https://myanimelist.net/character.php?q=Yashiro%20Isana&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
