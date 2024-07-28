@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is suffering, pain, and misery."
+> "MAKA CHOP!"
 
-&mdash; [**Nana**](https://myanimelist.net/character.php?q=Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
