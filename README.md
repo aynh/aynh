@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ha ha! Eat my dust, rat-boy! (to Yuki)"
+> "You can't do anything about what doesn't exist. In the end, humans have to settle for what's in front of them."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
