@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I really don't know what I should believe in anymore... Even if I believe I'm doing the right thing... Nothing goes well at all."
+> "Living your life to the fullest 'til the moment of your death, this is the rule to live by in any world."
 
-&mdash; [**Hakua Du Lot Herminium**](https://myanimelist.net/character.php?q=Hakua%20Du%20Lot%20Herminium&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Crusty**](https://myanimelist.net/character.php?q=Crusty&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
