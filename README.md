@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They don't know that once you lose something, you can never get it back again."
+> "I really don't know what I should believe in anymore... Even if I believe I'm doing the right thing... Nothing goes well at all."
 
-&mdash; [**Carly Stratmann**](https://myanimelist.net/character.php?q=Carly%20Stratmann&cat=character), [**Shingeki no Kyojin: Lost Girls**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Lost%20Girls&cat=all)
+&mdash; [**Hakua Du Lot Herminium**](https://myanimelist.net/character.php?q=Hakua%20Du%20Lot%20Herminium&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
