@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Reaper Combat Art: Mortal Sin Stance."
+> "You don't get to choose who you fall for. The heart doesn't always work the way you want it to. You should just follow your feelings honestly. You'll be happier that way."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ayumi Sanda**](https://myanimelist.net/character.php?q=Ayumi%20Sanda&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
