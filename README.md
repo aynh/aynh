@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Slacking off' sounds bad. However, enjoying more of your day with the time you saved by doing your job in a clever way is definitely not a bad thing. Times like that are what makes a human's life rich. If you exaggerate, it could be called laziness, surely. However, people only become mature when they are able to balance work with enjoyment. In short, if all you care about is your job, you're not fully mature."
+> "Are you scared? I understand. The first time I saw my reflection in the mirror, even I was frightened by how BIG my reflection was."
 
-&mdash; [**Gaap**](https://myanimelist.net/character.php?q=Gaap&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
