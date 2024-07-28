@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "MAKA CHOP!"
+> "Reaper Combat Art: Mortal Sin Stance."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
