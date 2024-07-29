@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Living your life to the fullest 'til the moment of your death, this is the rule to live by in any world."
+> "Hundreds of gallons of blood from all the people I've killed in the past, have seeped into this body."
 
-&mdash; [**Crusty**](https://myanimelist.net/character.php?q=Crusty&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Holland Novak**](https://myanimelist.net/character.php?q=Holland%20Novak&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
