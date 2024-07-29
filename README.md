@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ever since I joined the survey corps, I've had people dying on me everyday. But... you understand, don't you? One day or another, everyone you care about eventually dies. It's something we simply can't accept. It's a realization that could drive you insane... It's painful... so painful... I get it. And still... we must keep moving forward."
+> "Reality is such a pain. And for those of us who get fed up with that kind of reality, we simply choose to make a new one. We create little walls, and separate the trash from the stuff we like, and when that's all done we keep the things we care about and kick the rest to the curb. You'd be amazed how well it works! A whole world made out of just moe, tsundere, and BL, it's the best discovery ever! If you ask me, that really is the best way to separate reality, from fiction."
 
-&mdash; [**Hange Zoe**](https://myanimelist.net/character.php?q=Hange%20Zoe&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Erika Karisawa**](https://myanimelist.net/character.php?q=Erika%20Karisawa&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
