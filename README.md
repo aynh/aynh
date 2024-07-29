@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I got no intentions of becoming a captain. Becoming a captain would mean that I can't fight under Captain Zaraki. If your wish is to surpass Kuchiki Byakuya... then I just have one wish: to fight and die under that man's command. That's all."
+> "The lifespan of a human is certainly way too short. That's why you've got to make the most of it and live your life to the fullest."
 
-&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Leone**](https://myanimelist.net/character.php?q=Leone&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
