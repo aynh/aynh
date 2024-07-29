@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Most people don’t mind killing cows and chickens but they’d probably have a hard time doing the same to chimpanzees. Partially, it’s because chimpanzees bear a slight resemblance to humans, but the primary reason is that they can draw pictures. Suppose fish were able to draw pictures. Even if we are unable to understand what they’re thinking, it becomes harder to kill animals that can draw. Instinctively, in our minds we would say to ourselves… “May be they have feelings” That shows how high a value we assign to expression."
+> "You're so gullible! Don't you have any standards? So if I told you to spin around, you'd do it? If they told you to jump off a cliff, would you do that, too? I can't stand people who have no individuality!! (To Tohru)"
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
+&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
