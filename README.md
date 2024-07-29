@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, the blood rushes to my head and I feel like, if I run, I'll lose something important."
+> "The scars that you can't see are the hardest to heal."
 
-&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Nao Tomori**](https://myanimelist.net/character.php?q=Nao%20Tomori&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
