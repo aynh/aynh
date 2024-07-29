@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Power comes in response to a need, not a desire. You have to create that need."
+> "Most people don’t mind killing cows and chickens but they’d probably have a hard time doing the same to chimpanzees. Partially, it’s because chimpanzees bear a slight resemblance to humans, but the primary reason is that they can draw pictures. Suppose fish were able to draw pictures. Even if we are unable to understand what they’re thinking, it becomes harder to kill animals that can draw. Instinctively, in our minds we would say to ourselves… “May be they have feelings” That shows how high a value we assign to expression."
 
-&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
