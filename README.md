@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're just too busy comparing yourself to others to see. Those comparisons aren't the only measure. Don't say it's all pointless. You've work hard and made yourself better. That's what you got in return. So don't put yourself down like this."
+> "Souls are so yummy."
 
-&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
