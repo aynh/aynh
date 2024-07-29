@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’m just trying to live my life, but it seems as if sadness always piles itself up around me. It’s in my bed, the toothbrush in my bathroom, and the memory of my cellphone. Over the past few years, I’ve wanted to move on, I’ve wanted to take hold of something I couldn’t reach. What that is, I have no idea. Not knowing where such obsessive thoughts were coming from, I simply drowned myself in my work. Then one day I realized that my heart was withering, and in it there was nothing but pain. And that my beliefs, that I once held so passionately, had completely disappeared."
+> "To desire some results, one must take actions."
 
-&mdash; [**Takaki Tohno**](https://myanimelist.net/character.php?q=Takaki%20Tohno&cat=character), [**5 Centimeters per Second**](https://myanimelist.net/search/all?q=5%20Centimeters%20per%20Second&cat=all)
+&mdash; [**Suzaku Kururugi**](https://myanimelist.net/character.php?q=Suzaku%20Kururugi&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
