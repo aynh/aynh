@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Admirals without soldiers are equivalent to fixed stars without planets. Their lights will only illuminate the darkness without any effect."
+> "I'm not going to let myself get beaten by a jar!"
 
-&mdash; [**Dietrich Saucken**](https://myanimelist.net/character.php?q=Dietrich%20Saucken&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
