@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The scars that you can't see are the hardest to heal."
+> "Power comes in response to a need, not a desire. You have to create that need."
 
-&mdash; [**Nao Tomori**](https://myanimelist.net/character.php?q=Nao%20Tomori&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
+&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
