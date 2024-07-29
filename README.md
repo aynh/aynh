@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Kuchiki Rukia* Are you any different!? You sacrificed yourself to save me that time!! At that time were you thinking about complicated stuff like 'this is my Shinigami duty'!? That's not what sacrificing yourself is! At the very least... I'm different! I haven't accepted any commitment. If things get bad I might run away... since I'm not a good enough person to be able to sacrifice my life for total strangers. But unfortunately I'm also not trash that can live happily without paying back his debts!"
+> "You're just too busy comparing yourself to others to see. Those comparisons aren't the only measure. Don't say it's all pointless. You've work hard and made yourself better. That's what you got in return. So don't put yourself down like this."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
