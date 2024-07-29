@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To desire some results, one must take actions."
+> "*To Kuchiki Rukia* Are you any different!? You sacrificed yourself to save me that time!! At that time were you thinking about complicated stuff like 'this is my Shinigami duty'!? That's not what sacrificing yourself is! At the very least... I'm different! I haven't accepted any commitment. If things get bad I might run away... since I'm not a good enough person to be able to sacrifice my life for total strangers. But unfortunately I'm also not trash that can live happily without paying back his debts!"
 
-&mdash; [**Suzaku Kururugi**](https://myanimelist.net/character.php?q=Suzaku%20Kururugi&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
