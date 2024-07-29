@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hundreds of gallons of blood from all the people I've killed in the past, have seeped into this body."
+> "Admirals without soldiers are equivalent to fixed stars without planets. Their lights will only illuminate the darkness without any effect."
 
-&mdash; [**Holland Novak**](https://myanimelist.net/character.php?q=Holland%20Novak&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Dietrich Saucken**](https://myanimelist.net/character.php?q=Dietrich%20Saucken&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
