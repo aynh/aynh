@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The lifespan of a human is certainly way too short. That's why you've got to make the most of it and live your life to the fullest."
+> "I'm a pig, a louse, a useless cow! I destroyed Anubis! Such utter garbage cannot be allowed to live! I deserve to die!"
 
-&mdash; [**Leone**](https://myanimelist.net/character.php?q=Leone&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
