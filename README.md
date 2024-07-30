@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who stand above others, must have noble ideals along with the most noble intentions. Anyone that cannot manage the will of the masses is not fit to serve as the leader. You say you're punishing someone for standing up to you? That kind of justice is a lie."
+> "Or, as they say in the Fire Nation, 'stay flamin'!'"
 
-&mdash; [**Silver Knight**](https://myanimelist.net/character.php?q=Silver%20Knight&cat=character), [**.hack//GIFT**](https://myanimelist.net/search/all?q=.hack%2F%2FGIFT&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
