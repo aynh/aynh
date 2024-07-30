@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human nature denies the past in order to justify the present. But do you believe there is anything in the present worth justifying?"
+> "Laws exist only for those who cannot live without clinging to them."
 
-&mdash; [**Boogiepop**](https://myanimelist.net/character.php?q=Boogiepop&cat=character), [**Boogiepop Phantom**](https://myanimelist.net/search/all?q=Boogiepop%20Phantom&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
