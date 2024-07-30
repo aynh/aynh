@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is nothing left to believe in."
+> "Gin-chan told me to pay people back double for revenge!"
 
-&mdash; [**Vicious**](https://myanimelist.net/character.php?q=Vicious&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
