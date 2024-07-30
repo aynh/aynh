@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ah, I'm sorry, I guess this is farewell. Let Tohru find happiness. Please by many people let her be loved. If you become perplexed or make errors, in the end have the kind of life that you can have pride in living. The kind where you can say, 'I persevered'. Repeating delightful things and sad things. And in that way keep getting older. I persevered. (Part of Kyoko's last words that were never said)"
+> "Humans don’t see what they don’t want to see. No one wants to be put down. That’s why people do nothing even when they do know something is happening."
 
-&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kouta Hirano**](https://myanimelist.net/character.php?q=Kouta%20Hirano&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
