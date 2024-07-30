@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans don’t see what they don’t want to see. No one wants to be put down. That’s why people do nothing even when they do know something is happening."
+> "There is nothing left to believe in."
 
-&mdash; [**Kouta Hirano**](https://myanimelist.net/character.php?q=Kouta%20Hirano&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Vicious**](https://myanimelist.net/character.php?q=Vicious&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
