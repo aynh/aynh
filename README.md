@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who are bound, are bound wherever they go. And those who are free, are always free. Whoever you serve and wherever you live, if they are your own choices, you are free."
+> "I don't know how to give up!!"
 
-&mdash; [**Sanada Yukimura**](https://myanimelist.net/character.php?q=Sanada%20Yukimura&cat=character), [**Brave 10**](https://myanimelist.net/search/all?q=Brave%2010&cat=all)
+&mdash; [**Tsunayoshi Sawada**](https://myanimelist.net/character.php?q=Tsunayoshi%20Sawada&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
