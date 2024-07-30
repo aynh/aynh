@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Underestimating an opponent is the first step towards defeat."
+> "It just so happens that I was caught in a web. A web known as malice. Whether you put up with it, or put up a fight, it makes no difference. In the end, you get killed. If you don't like that... risk your life... and retaliate."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Fujisawa Ayana**](https://myanimelist.net/character.php?q=Fujisawa%20Ayana&cat=character), [**Fukushuu Kyoushitsu**](https://myanimelist.net/search/all?q=Fukushuu%20Kyoushitsu&cat=all)
