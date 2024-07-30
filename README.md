@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It just so happens that I was caught in a web. A web known as malice. Whether you put up with it, or put up a fight, it makes no difference. In the end, you get killed. If you don't like that... risk your life... and retaliate."
+> "In this country, we don't call someone who can stop a scooter with her bare hands a girl. We call her a mountain gorilla."
 
-&mdash; [**Fujisawa Ayana**](https://myanimelist.net/character.php?q=Fujisawa%20Ayana&cat=character), [**Fukushuu Kyoushitsu**](https://myanimelist.net/search/all?q=Fukushuu%20Kyoushitsu&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
