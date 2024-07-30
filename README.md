@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't dress stylishly or put on makeup to impress guys. You do it to keep other girls in their place."
+> "Humans can’t reverse the flow of time. If you try to twist it against its will… You’ll be punished."
 
-&mdash; [**Rika Yoshitake**](https://myanimelist.net/character.php?q=Rika%20Yoshitake&cat=character), [**Genshiken: Second Generation**](https://myanimelist.net/search/all?q=Genshiken%3A%20Second%20Generation&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
