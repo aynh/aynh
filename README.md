@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Gin-chan told me to pay people back double for revenge!"
+> "Those who stand above others, must have noble ideals along with the most noble intentions. Anyone that cannot manage the will of the masses is not fit to serve as the leader. You say you're punishing someone for standing up to you? That kind of justice is a lie."
 
-&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Silver Knight**](https://myanimelist.net/character.php?q=Silver%20Knight&cat=character), [**.hack//GIFT**](https://myanimelist.net/search/all?q=.hack%2F%2FGIFT&cat=all)
