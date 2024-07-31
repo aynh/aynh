@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When we were together, my heart felt tight, too tight to even drink water. If that's called love, then it was really just me who was in love. Just me."
+> "Don't get me wrong. It's not like I'm worried about you. But if you don't come back I'll never forgive you."
 
-&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
