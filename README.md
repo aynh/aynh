@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If someone says it's wrong to hope, I will tell them that they're wrong every time. I could tell them that countless times!"
+> "At this point, no matter how I change, the things I've lost won't come back."
 
-&mdash; [**Madoka Kaname**](https://myanimelist.net/character.php?q=Madoka%20Kaname&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
