@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A sinner once passed away will never return, but sins will never vanish and the love will never die."
+> "It is a thousand years too early... for you to become worthy enough to die by my Bankai."
 
-&mdash; [**Les Soldats**](https://myanimelist.net/character.php?q=Les%20Soldats&cat=character), [**Noir**](https://myanimelist.net/search/all?q=Noir&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
