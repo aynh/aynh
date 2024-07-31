@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay to set your goals high; that's what we call a dream!"
+> "Romance is all about how far you'll go to prove your love. Finding a person who's worth the effort is pure luck. You just gotta wait for the right hurricane to sweep you off your feet."
 
-&mdash; [**Tatsuhiko Ookuma**](https://myanimelist.net/character.php?q=Tatsuhiko%20Ookuma&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Tomoko Kuroki**](https://myanimelist.net/character.php?q=Tomoko%20Kuroki&cat=character), [**WATAMOTE**](https://myanimelist.net/search/all?q=WATAMOTE&cat=all)
