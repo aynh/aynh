@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've already decided. Getting good grades and listening to teachers can take me somewhere high and far away, but what if that's not where I want to go? Right here, by your side, Tomoya, is the only place I want to be."
+> "War is merely one method of diplomacy. However, it is the least efficient one."
 
-&mdash; [**Sakagami Tomoyo**](https://myanimelist.net/character.php?q=Sakagami%20Tomoyo&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Bismarck Waldstein**](https://myanimelist.net/character.php?q=Bismarck%20Waldstein&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
