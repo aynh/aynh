@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’m not going to apologize. This is an absurd, unfair world."
+> "*to Haruhi* I'm begging you. Establish the context before you start talking."
 
-&mdash; [**Yahiro Samukawa**](https://myanimelist.net/character.php?q=Yahiro%20Samukawa&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
