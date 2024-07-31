@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even a piece of garbage has its pride."
+> "When we were together, my heart felt tight, too tight to even drink water. If that's called love, then it was really just me who was in love. Just me."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
