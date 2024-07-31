@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Thinking you'll understand without being told anything is an illusion."
+> "A sinner once passed away will never return, but sins will never vanish and the love will never die."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Les Soldats**](https://myanimelist.net/character.php?q=Les%20Soldats&cat=character), [**Noir**](https://myanimelist.net/search/all?q=Noir&cat=all)
