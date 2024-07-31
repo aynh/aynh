@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Things learned as a child stay with you forever."
+> "It's okay to set your goals high; that's what we call a dream!"
 
-&mdash; [**Cosette Sara**](https://myanimelist.net/character.php?q=Cosette%20Sara&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
+&mdash; [**Tatsuhiko Ookuma**](https://myanimelist.net/character.php?q=Tatsuhiko%20Ookuma&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
