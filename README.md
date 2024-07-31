@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are days when nothing goes right. There are days when you stumble and fall. There are days when you just want to cry. To cry a lot. To sleep a lot. Or even eat a lot. It's alright, as long as you pick yourself up again."
+> "If someone says it's wrong to hope, I will tell them that they're wrong every time. I could tell them that countless times!"
 
-&mdash; [**Yuki Takeya**](https://myanimelist.net/character.php?q=Yuki%20Takeya&cat=character), [**Gakkou Gurashi!**](https://myanimelist.net/search/all?q=Gakkou%20Gurashi!&cat=all)
+&mdash; [**Madoka Kaname**](https://myanimelist.net/character.php?q=Madoka%20Kaname&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
