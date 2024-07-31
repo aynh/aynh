@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing interesting ever happens. It's the same everyday."
+> "It'll still feel better to try and regret, than regret not trying at all."
 
-&mdash; [**Kei Takishima**](https://myanimelist.net/character.php?q=Kei%20Takishima&cat=character), [**Special A**](https://myanimelist.net/search/all?q=Special%20A&cat=all)
+&mdash; [**Ai Kotani**](https://myanimelist.net/character.php?q=Ai%20Kotani&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
