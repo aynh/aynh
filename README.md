@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Romance is all about how far you'll go to prove your love. Finding a person who's worth the effort is pure luck. You just gotta wait for the right hurricane to sweep you off your feet."
+> "I’m not going to apologize. This is an absurd, unfair world."
 
-&mdash; [**Tomoko Kuroki**](https://myanimelist.net/character.php?q=Tomoko%20Kuroki&cat=character), [**WATAMOTE**](https://myanimelist.net/search/all?q=WATAMOTE&cat=all)
+&mdash; [**Yahiro Samukawa**](https://myanimelist.net/character.php?q=Yahiro%20Samukawa&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
