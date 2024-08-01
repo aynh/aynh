@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe that love is much deeper than that. It’s much more irreversible. It exceeds just caring for each other and continues until both parties become entangled and inseparable. They combine to form a single concept. They become one. Neither of them must come apart. THAT’S LOVE."
+> "As long as humans are not virtuous beings, desire will always win over the fear of punishment. What’s necessary is not punishment, but to deal with that desire."
 
-&mdash; [**Hoshino Kazuki**](https://myanimelist.net/character.php?q=Hoshino%20Kazuki&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**William Twining**](https://myanimelist.net/character.php?q=William%20Twining&cat=character), [**Makai Ouji : Devils And Realist**](https://myanimelist.net/search/all?q=Makai%20Ouji%20%3A%20Devils%20And%20Realist&cat=all)
