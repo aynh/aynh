@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nobody can make someone who isn't trying to be happy into someone that's happy"
+> "Humans, in general, feel uneasy when there’s dissonance between them and their external environment. And so, to cancel that uneasiness they try to synchronize (or make peace) with that environment."
 
-&mdash; [**Tsubasa Hanekawa**](https://myanimelist.net/character.php?q=Tsubasa%20Hanekawa&cat=character), [**Owarimonogatari**](https://myanimelist.net/search/all?q=Owarimonogatari&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
