@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Items to invent: Bed, massage chair, humidifier, rubber band, Rube Goldberg Machine, religion... Religions are invented? I've learned something new."
+> "People can't live for the future without accepting reality."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Kurokawa Mari**](https://myanimelist.net/character.php?q=Kurokawa%20Mari&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
