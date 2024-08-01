@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I felt like I was watching a dream I'd never wake up from. Before I knew it, the dream was all over."
+> "Honestly, someone who asks someone else to convey their feelings for them is the worst."
 
-&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Daiki Mamura**](https://myanimelist.net/character.php?q=Daiki%20Mamura&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
