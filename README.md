@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't get me wrong. It's not like I'm worried about you. But if you don't come back I'll never forgive you."
+> "Strength isn't just about winning. Even if my attempts are pathetic and comical, and even if I'm covered in the mud of my defeat, if I can keep fighting and look up at the sky as I lie on the ground, that alone is proof of true strength!"
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Haruyuki Arita**](https://myanimelist.net/character.php?q=Haruyuki%20Arita&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
