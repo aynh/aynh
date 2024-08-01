@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans, in general, feel uneasy when there’s dissonance between them and their external environment. And so, to cancel that uneasiness they try to synchronize (or make peace) with that environment."
+> "'Checkmate' doesn't mean you've simply cornered the enemy king. It's a declaration that the enemy king is yours. That's why I said it the first time I met you. 'Checkmate.'"
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
