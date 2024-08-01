@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say that ill weeds grow apace, but... You know, the nice ones don't live long."
+> "Nobody can make someone who isn't trying to be happy into someone that's happy"
 
-&mdash; [**Yatori**](https://myanimelist.net/character.php?q=Yatori&cat=character), [**Kamisama Hajimemashita**](https://myanimelist.net/search/all?q=Kamisama%20Hajimemashita&cat=all)
+&mdash; [**Tsubasa Hanekawa**](https://myanimelist.net/character.php?q=Tsubasa%20Hanekawa&cat=character), [**Owarimonogatari**](https://myanimelist.net/search/all?q=Owarimonogatari&cat=all)
