@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People can't live for the future without accepting reality."
+> "Why am I always the one handing out apologies?"
 
-&mdash; [**Kurokawa Mari**](https://myanimelist.net/character.php?q=Kurokawa%20Mari&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
