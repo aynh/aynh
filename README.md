@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as humans are not virtuous beings, desire will always win over the fear of punishment. What’s necessary is not punishment, but to deal with that desire."
+> "Items to invent: Bed, massage chair, humidifier, rubber band, Rube Goldberg Machine, religion... Religions are invented? I've learned something new."
 
-&mdash; [**William Twining**](https://myanimelist.net/character.php?q=William%20Twining&cat=character), [**Makai Ouji : Devils And Realist**](https://myanimelist.net/search/all?q=Makai%20Ouji%20%3A%20Devils%20And%20Realist&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
