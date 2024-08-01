@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm pathetic. I was observing the world from a safe distance. I was just scared of being hurt. I was lonely."
+> "I felt like I was watching a dream I'd never wake up from. Before I knew it, the dream was all over."
 
-&mdash; [**Amano Yukiteru**](https://myanimelist.net/character.php?q=Amano%20Yukiteru&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
