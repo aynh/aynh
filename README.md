@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why do we have to be okay being friends with someone who won't treat us as friends?"
+> "I'm not asking you to love me. No, actually, please don't love me. But please let me be in love with you."
 
-&mdash; [**Ranta**](https://myanimelist.net/character.php?q=Ranta&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Fuyou Kaede**](https://myanimelist.net/character.php?q=Fuyou%20Kaede&cat=character), [**Shuffle!**](https://myanimelist.net/search/all?q=Shuffle!&cat=all)
