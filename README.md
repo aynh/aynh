@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has a right to pursue a happy life. The difficult part is to be given that right."
+> "A pistol’s job is what its handler chooses. If I don’t wanna shoot, then I won’t."
 
-&mdash; [**Frederica Bernkastel**](https://myanimelist.net/character.php?q=Frederica%20Bernkastel&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Saya Minatsuki**](https://myanimelist.net/character.php?q=Saya%20Minatsuki&cat=character), [**Black Cat**](https://myanimelist.net/search/all?q=Black%20Cat&cat=all)
