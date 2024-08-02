@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ashes to ashes. Dust to dust. We are nothing, but dust and to dust we shall return. Amen."
+> "Live well, Ichigo. Live well, age well, go bald well, and die after me. And... if you can, die smiling."
 
-&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
+&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
