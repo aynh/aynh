@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even a child that receives one bit of praise has the ability to excel in a single talent, and those who receive regular encouragement can feel confidence, achieve success, and become leading members of society. Because they don’t believe they are worthless, they don’t need to raise a fist and have vengeance against fate or the world at large…"
+> "I'm no expert, but I think people mope when their expectations are too high. It's tiring when you always have to overachieve. Don't overdo it. Just work on achieving what you can."
 
-&mdash; [**Inspector Lunge**](https://myanimelist.net/character.php?q=Inspector%20Lunge&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
