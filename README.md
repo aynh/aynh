@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's always a lot more easier to let something fall apart than it is to try to hold it together."
+> "When I told him my feelings, he understood. When I said I wasn't lying, he believed me."
 
-&mdash; [**Ayasegawa Yumichika**](https://myanimelist.net/character.php?q=Ayasegawa%20Yumichika&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
