@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've continually fought, and with each battle I've been killing my own heart. And my heart has been completely void of feeling for quite a long time now. Maybe my life doesn't have value anymore, but I have to keep on living."
+> "If you leave, I'll probably be sad. However, if there's somewhere else you'd rather be, you should admit it. Don't lose sight of what you really want."
 
-&mdash; [**Trowa Barton**](https://myanimelist.net/character.php?q=Trowa%20Barton&cat=character), [**Mobile Suit Gundam Wing**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Wing&cat=all)
+&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
