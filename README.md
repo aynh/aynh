@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He's terribly reasonable, this new L."
+> "If the dark sky is me, then the sparkling stars are Tsubaki."
 
-&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
