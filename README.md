@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Live well, Ichigo. Live well, age well, go bald well, and die after me. And... if you can, die smiling."
+> "Everyone has a right to pursue a happy life. The difficult part is to be given that right."
 
-&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Frederica Bernkastel**](https://myanimelist.net/character.php?q=Frederica%20Bernkastel&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
