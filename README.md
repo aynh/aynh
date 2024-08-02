@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is what's inside your heart right now. A sky that has become this lovely, will not always remain sunny. There will be times when rain will fall and storms will carry on. The scenery will change, but if it is left alone, it will stay changed forever. For that, you must continue to fight, because that is to live. To live is to fight."
+> "Why do we have to be okay being friends with someone who won't treat us as friends?"
 
-&mdash; [**Shinku**](https://myanimelist.net/character.php?q=Shinku&cat=character), [**Rozen Maiden**](https://myanimelist.net/search/all?q=Rozen%20Maiden&cat=all)
+&mdash; [**Ranta**](https://myanimelist.net/character.php?q=Ranta&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
