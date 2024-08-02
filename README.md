@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm sorry for not saying this to you, Akihisa-kun. I know I shouldn't hide this from you, but I was wondering whether I should tell you this. Because if I told you that, you'll definitely tell me 'you should go', or something like that. I understand you'll say that for my sake, but I don't wish to hear you say anything like a farewell to me, Akihisa-kun. Because-- I like you, Akihisa-kun!"
+> "He's terribly reasonable, this new L."
 
-&mdash; [**Himeji Mizuki**](https://myanimelist.net/character.php?q=Himeji%20Mizuki&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
