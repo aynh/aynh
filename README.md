@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A pistol’s job is what its handler chooses. If I don’t wanna shoot, then I won’t."
+> "It's always a lot more easier to let something fall apart than it is to try to hold it together."
 
-&mdash; [**Saya Minatsuki**](https://myanimelist.net/character.php?q=Saya%20Minatsuki&cat=character), [**Black Cat**](https://myanimelist.net/search/all?q=Black%20Cat&cat=all)
+&mdash; [**Ayasegawa Yumichika**](https://myanimelist.net/character.php?q=Ayasegawa%20Yumichika&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
