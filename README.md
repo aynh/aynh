@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When the afternoon air currents mix, we can even touch the stars without fear!"
+> "Even a child that receives one bit of praise has the ability to excel in a single talent, and those who receive regular encouragement can feel confidence, achieve success, and become leading members of society. Because they don’t believe they are worthless, they don’t need to raise a fist and have vengeance against fate or the world at large…"
 
-&mdash; [**Shizuku Tsukishima**](https://myanimelist.net/character.php?q=Shizuku%20Tsukishima&cat=character), [**Mimi wo Sumaseba**](https://myanimelist.net/search/all?q=Mimi%20wo%20Sumaseba&cat=all)
+&mdash; [**Inspector Lunge**](https://myanimelist.net/character.php?q=Inspector%20Lunge&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
