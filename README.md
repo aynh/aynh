@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is an adult? Does coolly drinking black coffee and spouting logic make you an adult?! If that's the case, I'll stay a kid that likes drinking orange juice."
+> "I'm a terrible person, aren't I? 'If only Kurosaki-kun would cheer up, I'd be happy.' At least, I thought that was how I felt. Then Kuchiki-san came back and cheered Kurosaki-kun up. I should have been really happy, but... but... [starts to cry] but instead I'm jealous of Kuchiki-san!"
 
-&mdash; [**Shirota Mahiru**](https://myanimelist.net/character.php?q=Shirota%20Mahiru&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
+&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
