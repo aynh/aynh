@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not asking you to love me. No, actually, please don't love me. But please let me be in love with you."
+> "The only thing waiting for you outside is a world of death."
 
-&mdash; [**Fuyou Kaede**](https://myanimelist.net/character.php?q=Fuyou%20Kaede&cat=character), [**Shuffle!**](https://myanimelist.net/search/all?q=Shuffle!&cat=all)
+&mdash; [**Re-L Mayer**](https://myanimelist.net/character.php?q=Re-L%20Mayer&cat=character), [**Ergo Proxy**](https://myanimelist.net/search/all?q=Ergo%20Proxy&cat=all)
