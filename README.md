@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it is because of what you call a heart, then it is the heart that causes you humans pain. It is because of your heart that you will die."
+> "If you have the will to follow through with your beliefs, the results will follow naturally."
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kuroko Shirai**](https://myanimelist.net/character.php?q=Kuroko%20Shirai&cat=character), [**A Certain Scientific Railgun**](https://myanimelist.net/search/all?q=A%20Certain%20Scientific%20Railgun&cat=all)
