@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There will come a time in a man's life, when he must accomplish something at the risk of his life."
+> "Killing's easier than you think; you just have to forget how sweet the sugar is."
 
-&mdash; [**Suguru Daimon**](https://myanimelist.net/character.php?q=Suguru%20Daimon&cat=character), [**Digimon Savers**](https://myanimelist.net/search/all?q=Digimon%20Savers&cat=all)
+&mdash; [**Rosso**](https://myanimelist.net/character.php?q=Rosso&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
