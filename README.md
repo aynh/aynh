@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Underestimating an opponent is the first step towards defeat."
+> "There will come a time in a man's life, when he must accomplish something at the risk of his life."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Suguru Daimon**](https://myanimelist.net/character.php?q=Suguru%20Daimon&cat=character), [**Digimon Savers**](https://myanimelist.net/search/all?q=Digimon%20Savers&cat=all)
