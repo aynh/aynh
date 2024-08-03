@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Where's the fun in it if everything is going just as planned?"
+> "[Fuu passed out after one drink and is asleep] Sleeping so carelessly. I could do something to you so easily."
 
-&mdash; [**Takeshi Tatsumi**](https://myanimelist.net/character.php?q=Takeshi%20Tatsumi&cat=character), [**Giant Killing**](https://myanimelist.net/search/all?q=Giant%20Killing&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
