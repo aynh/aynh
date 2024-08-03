@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's more cruel to give someone false hope, you know."
+> "Educating a heterosexual person about anime, is a joy for an otaku."
 
-&mdash; [**Michiru Kinushima**](https://myanimelist.net/character.php?q=Michiru%20Kinushima&cat=character), [**Plastic Memories**](https://myanimelist.net/search/all?q=Plastic%20Memories&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
