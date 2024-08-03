@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Murder is the only art a swordsman may practice. No ornamental words can change that. You want to protect people with murder? You'll slaughter legions so that a few may live. Many years, long before you were born, my sword was tearing asunder the lives of men. Yes, all of those men were evil, but they were human beings first and foremost, Kenshin. The world you ardently desire to enter will not know what to do with you. It will deceive you into believing that you are saving lives even as you destroy them. You will accept these lies all the while, your hands will be stained with the worst of offenses."
+> "You never thought to kill, or fight for revenge. Only to test your limits, and to push yourself beyond them, to become the strongest you could possibly be. How can a Saiyan fight like that, and at the same time be so gentle that he wouldn't hurt a fly? It makes me angry just thinking about it. But perhaps it is my anger that has made me blind to the truth for so long. I see it now. This day has made it all too clear. You're better than me, Kakarot. You are the best..."
 
-&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
