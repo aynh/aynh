@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you still love her, I can't help that, but don't meddle with her half-heartedly. If you can surpress your feelings, then leave it."
+> "If you can't understand the darkness in your opponent's heart, you will never comprehend the pain and suffering of others."
 
-&mdash; [**Shuuko Murao**](https://myanimelist.net/character.php?q=Shuuko%20Murao&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
