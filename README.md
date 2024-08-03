@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're your own worst enemy. If your worries and doubts torment you, then just stop thinking about them."
+> "The strong don't win. The winners are the strong ones."
 
-&mdash; [**Binboda Momiji**](https://myanimelist.net/character.php?q=Binboda%20Momiji&cat=character), [**Binbougami Ga!**](https://myanimelist.net/search/all?q=Binbougami%20Ga!&cat=all)
+&mdash; [**Tsutomu Iwamura**](https://myanimelist.net/character.php?q=Tsutomu%20Iwamura&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
