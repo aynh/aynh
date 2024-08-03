@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you have the will to follow through with your beliefs, the results will follow naturally."
+> "Underestimating an opponent is the first step towards defeat."
 
-&mdash; [**Kuroko Shirai**](https://myanimelist.net/character.php?q=Kuroko%20Shirai&cat=character), [**A Certain Scientific Railgun**](https://myanimelist.net/search/all?q=A%20Certain%20Scientific%20Railgun&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
