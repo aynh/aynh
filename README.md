@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But I wasn't slacking at all. I practiced till I passed out. I gave my all. And if I still turned in a sloppy performance after all that, then... That's who I am now. It's the current me, playing with everything I've got."
+> "Well, everyone's unsure of their fighting abilities. When that happens, just train more! When you're afraid, just train! When something doesn't feel right, just train! When you don't believe in yourself anymore, just train! The only thing that won't betray you is your training."
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Shio Sakaki**](https://myanimelist.net/character.php?q=Shio%20Sakaki&cat=character), [**KenIchi the Mightiest Disciple**](https://myanimelist.net/search/all?q=KenIchi%20the%20Mightiest%20Disciple&cat=all)
