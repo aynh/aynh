@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is true happiness? Everyone seeks the land of happiness as if they're on a pilgrimage. They try to walk there. Still, no matter who they are, at times they become tired. Stories exist for those times. If you open the covers, you'll encounter someone else's imagination. If you feel lonely on your own, try reading a book. Try to imagine what the author was thinking, what he wanted to say. Then you might be able to obtain something wonderful."
+> "The one who holds power has no self-awareness of his responsibilities and the one aware of the responsibilities has no power at all."
 
-&mdash; [**Amano Touko**](https://myanimelist.net/character.php?q=Amano%20Touko&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
+&mdash; [**Arslan**](https://myanimelist.net/character.php?q=Arslan&cat=character), [**The Heroic Legend of Arslan**](https://myanimelist.net/search/all?q=The%20Heroic%20Legend%20of%20Arslan&cat=all)
