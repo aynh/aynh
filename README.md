@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You should know. Your wish will not come true unless there is a clear evil. Even if it's not something you approve of, a hero of justice requires a villain to defeat."
+> "You'll always stand by the light. That is your basketball."
 
-&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
