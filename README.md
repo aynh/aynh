@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Father] You've certainly mellowed out... you used to be fun, full of life and emotion. Lust, Greed, Sloth, Gluttony, Envy, Wrath, and Pride. Of course, excessive want will destroy anyone, but those same desires are necessary to understand what it means to be human. Why did you rid yourself of them?"
+> "It was rough. It was so painful. I was so scared. I was so sad. It hurt so much, I thought I'd die. I tried so hard... I tired so hard! I was so desperate, so desperate to make everything right! It's the truth. I've honestly never tried so hard at anything in my life! Because I loved this place... Because it was so important to me! I was so desperate to get back. I was scared... I was so scared! I didn't want those eyes looking at me like that again... And I hated myself so much for feeling that way!"
 
-&mdash; [**Van Hohenheim**](https://myanimelist.net/character.php?q=Van%20Hohenheim&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Subaru Natsuki**](https://myanimelist.net/character.php?q=Subaru%20Natsuki&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
