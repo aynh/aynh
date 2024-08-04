@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love and Peace!"
+> "Loathe me, o fierce deity. Accept and awaken to your maelstrom of hate...god of calamity, Yato!"
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Rabō**](https://myanimelist.net/character.php?q=Rab%C5%8D&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
