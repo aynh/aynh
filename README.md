@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Loathe me, o fierce deity. Accept and awaken to your maelstrom of hate...god of calamity, Yato!"
+> "You don't have to be reasonable when you're in love."
 
-&mdash; [**Rabō**](https://myanimelist.net/character.php?q=Rab%C5%8D&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Emi Yusa**](https://myanimelist.net/character.php?q=Emi%20Yusa&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
