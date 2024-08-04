@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Necessity knows no law!"
+> "Work together with everyone, motivating one another...even though they may not be your close friends, you can still understand each another. I'm looking forward to bonding with more people."
 
-&mdash; [**Manabu Takasaki**](https://myanimelist.net/character.php?q=Manabu%20Takasaki&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
+&mdash; [**Mikan Sakura**](https://myanimelist.net/character.php?q=Mikan%20Sakura&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
