@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are only two paths you can choose. You can sit quietly and be selected out of this world, or you can adapt and change."
+> "Well, it's not a big deal or anything... but I was almost killed."
 
-&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Yashiro Isana**](https://myanimelist.net/character.php?q=Yashiro%20Isana&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
