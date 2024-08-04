@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You'll always stand by the light. That is your basketball."
+> "*after Zuko defeats Zhao* So this is how the great Commander Zhao acts in defeat? Disgraceful. Even in exile, my nephew is more honorable than you. Thanks again for the tea. It was delicious. [Iroh and Zuko leaves]"
 
-&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
