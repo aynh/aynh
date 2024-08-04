@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can't understand the darkness in your opponent's heart, you will never comprehend the pain and suffering of others."
+> "You should know. Your wish will not come true unless there is a clear evil. Even if it's not something you approve of, a hero of justice requires a villain to defeat."
 
-&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
