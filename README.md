@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether your words...are lies created to deceive me... or the truth that I have sought all my life... It makes no difference. You will rot."
+> "What is true happiness? Everyone seeks the land of happiness as if they're on a pilgrimage. They try to walk there. Still, no matter who they are, at times they become tired. Stories exist for those times. If you open the covers, you'll encounter someone else's imagination. If you feel lonely on your own, try reading a book. Try to imagine what the author was thinking, what he wanted to say. Then you might be able to obtain something wonderful."
 
-&mdash; [**Sephiroth**](https://myanimelist.net/character.php?q=Sephiroth&cat=character), [**Final Fantasy VII: Advent Children**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Advent%20Children&cat=all)
+&mdash; [**Amano Touko**](https://myanimelist.net/character.php?q=Amano%20Touko&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
