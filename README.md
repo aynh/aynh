@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's a battle of life and death, and I'm still alive! So I'm not going to give up, and I'll keep living. I'll keep living until I die."
+> "Whether your words...are lies created to deceive me... or the truth that I have sought all my life... It makes no difference. You will rot."
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Sephiroth**](https://myanimelist.net/character.php?q=Sephiroth&cat=character), [**Final Fantasy VII: Advent Children**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Advent%20Children&cat=all)
