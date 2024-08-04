@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Work together with everyone, motivating one another...even though they may not be your close friends, you can still understand each another. I'm looking forward to bonding with more people."
+> "The world is destined for even greater chaos."
 
-&mdash; [**Mikan Sakura**](https://myanimelist.net/character.php?q=Mikan%20Sakura&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
