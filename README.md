@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes things go badly, even if nobody really did anything wrong."
+> "Love and Peace!"
 
-&mdash; [**Kouhei Inuzuma**](https://myanimelist.net/character.php?q=Kouhei%20Inuzuma&cat=character), [**Amaama to Inazuma**](https://myanimelist.net/search/all?q=Amaama%20to%20Inazuma&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
