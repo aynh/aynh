@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People cry, not because they're weak. Its because they've been strong for too long."
+> "Then let me ask you, if your God would allow my madness to flourish across the globe, then wouldn't it seem to you that any god like that would be just as mad as I?"
 
-&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Montana Max**](https://myanimelist.net/character.php?q=Montana%20Max&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
