@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There was no reason for me to stay in the real world any longer. In the real world, it didn't matter if I was there or not. When I realized that, I was no longer afraid of losing my body."
+> "Yhwach. You desired a world... Where fear would no longer be a burden. But... In a world without fear of death... People will never attain the hope that is to be found from casting their fears aside and preserving through them. While it is true that people can continue to press forward through the simple act of living... That is no way comparable to marching forward in the face of death, while doing their damndest to keep it at bay. That is why... That is why people have given that very march a unique and special name. 'COURAGE.'"
 
-&mdash; [**Chisa Yomoda**](https://myanimelist.net/character.php?q=Chisa%20Yomoda&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
