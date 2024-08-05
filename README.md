@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regardless of whether your friends believe, you still care for them, correct? Isn't that why you feel so sad?"
+> "There's no way of telling what people will do when their entire world gets turned upside down. There are people who selfishly take advantage  of the chaos and nice people who try to help others before even worrying about themselves."
 
-&mdash; [**Harumi Sakuraba**](https://myanimelist.net/character.php?q=Harumi%20Sakuraba&cat=character), [**Rokujouma no Shinryakusha!?**](https://myanimelist.net/search/all?q=Rokujouma%20no%20Shinryakusha!%3F&cat=all)
+&mdash; [**Rika Suzuki**](https://myanimelist.net/character.php?q=Rika%20Suzuki&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
