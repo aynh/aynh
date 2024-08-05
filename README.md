@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now you're suddenly in a big rush to go? What's the point in hurrying, we're already three hours late."
+> "You can never tell what'll happen next in life. But so long as you have faith in your feet, the road you walk will be a part of you."
 
-&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
