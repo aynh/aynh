@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are many kinds of fights in this world, but if you don't stick to the rules you won't win support from the people around you."
+> "Y-you actually used your head??? You're going to get a fever!"
 
-&mdash; [**Maebara Ichirō**](https://myanimelist.net/character.php?q=Maebara%20Ichir%C5%8D&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
+&mdash; [**Tobio Kageyama**](https://myanimelist.net/character.php?q=Tobio%20Kageyama&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
