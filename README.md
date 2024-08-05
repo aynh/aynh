@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you could calculate feelings, then we'd be in a digital age by now... The remaining answer that you couldn't calculate is what they call the feelings of people."
+> "I bet it's not easy to persevere in one's goal. I never tried, so I wouldn't know. But to achieve a goal, one must work hard even when no one is looking. Having a dream might not be all that great."
 
-&mdash; [**Shizuka Hiratsuka**](https://myanimelist.net/character.php?q=Shizuka%20Hiratsuka&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Fujisaki Yusuke**](https://myanimelist.net/character.php?q=Fujisaki%20Yusuke&cat=character), [**Sket Dance**](https://myanimelist.net/search/all?q=Sket%20Dance&cat=all)
