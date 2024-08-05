@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We have to find a way to face this scar."
+> "There are many kinds of fights in this world, but if you don't stick to the rules you won't win support from the people around you."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Maebara Ichirō**](https://myanimelist.net/character.php?q=Maebara%20Ichir%C5%8D&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
