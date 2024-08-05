@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Onizuka's p*nis is bit by a snake]Someone. Suck the poison out! ...Fuyutsuki-chan! I beg you! Suck it out quickly!"
+> "If I described him in one word, it'd be di*k[beep]!"
 
-&mdash; [**Eikichi Onizuka**](https://myanimelist.net/character.php?q=Eikichi%20Onizuka&cat=character), [**Great Teacher Onizuka**](https://myanimelist.net/search/all?q=Great%20Teacher%20Onizuka&cat=all)
+&mdash; [**Chika Akatsuki**](https://myanimelist.net/character.php?q=Chika%20Akatsuki&cat=character), [**Zombie-Loan**](https://myanimelist.net/search/all?q=Zombie-Loan&cat=all)
