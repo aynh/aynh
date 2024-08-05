@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I described him in one word, it'd be di*k[beep]!"
+> "Now you're suddenly in a big rush to go? What's the point in hurrying, we're already three hours late."
 
-&mdash; [**Chika Akatsuki**](https://myanimelist.net/character.php?q=Chika%20Akatsuki&cat=character), [**Zombie-Loan**](https://myanimelist.net/search/all?q=Zombie-Loan&cat=all)
+&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
