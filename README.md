@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry I'm late. You wouldn't believe the traffic."
+> "Love really is like playing with fire. Anyone can play easily and lightheartedly. But when you mess up and get burned, that scar stays with you your whole life."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ushiromiya Kyrie**](https://myanimelist.net/character.php?q=Ushiromiya%20Kyrie&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
