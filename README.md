@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is all that remains of the world. Though we knew it was coming, it’s pretty shocking, huh? The disappearance not of matter but of awareness, of ideals. Not death. Something even more pure. The fact that we life-forms ever existed…… Our past, present and future, it will all disappear."
+> "Forcing yourself to like something you don't like brings sorrow."
 
-&mdash; [**Fumi Kanno**](https://myanimelist.net/character.php?q=Fumi%20Kanno&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
