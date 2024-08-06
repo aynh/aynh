@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love really is like playing with fire. Anyone can play easily and lightheartedly. But when you mess up and get burned, that scar stays with you your whole life."
+> "If a person could so ideally control their feelings... how carefree would life be?"
 
-&mdash; [**Ushiromiya Kyrie**](https://myanimelist.net/character.php?q=Ushiromiya%20Kyrie&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Jun Isurugi**](https://myanimelist.net/character.php?q=Jun%20Isurugi&cat=character), [**True Tears**](https://myanimelist.net/search/all?q=True%20Tears&cat=all)
