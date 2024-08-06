@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not interested in fighting. What I'm interested in is living."
+> "Yes, my lord. I devote my entire being to you. Until the day... that lies become truth."
 
-&mdash; [**Sakunosuke Oda**](https://myanimelist.net/character.php?q=Sakunosuke%20Oda&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji: Book of Murder**](https://myanimelist.net/search/all?q=Kuroshitsuji%3A%20Book%20of%20Murder&cat=all)
