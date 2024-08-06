@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who seem kindest, are often the most insidiously cruel."
+> "Everyone is sacrificing something precious to them in order to save something else. Is that the reason for human action?"
 
-&mdash; [**Karyuudo Tsukishima**](https://myanimelist.net/character.php?q=Karyuudo%20Tsukishima&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Shijima Kurookano**](https://myanimelist.net/character.php?q=Shijima%20Kurookano&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
