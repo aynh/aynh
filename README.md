@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the ideal world can be found in a bad game, it can be found in the real world as well."
+> "Your back is your one big blind spot."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Yoko Littner**](https://myanimelist.net/character.php?q=Yoko%20Littner&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
