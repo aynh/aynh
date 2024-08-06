@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being able to cry for his companion. I was thinking you couldn't cry, nor did you have a heart. But in that case why... even a little... don't you share that feeling... with all the people you kill !!"
+> "[tsume bites into his neck] Let's meet up again in Paradise."
 
-&mdash; [**Gon Freecss**](https://myanimelist.net/character.php?q=Gon%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
