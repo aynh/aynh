@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've always seen yourself as just a normal kid, and you're right, that's exactly what you are. You're normally caring, normally cheerful, and you're normally nosy. You've a strong moral compass, concern for your friends, and honor. I know you don't see this, but what's normal to you, well it's far from it. Everyone else would call it courageous and noble. It's because of the person you are that you don't think twice about your own safety when it comes to helping your friends. 'Cause that's just normal to you."
+> "I thought I could just apologize tomorrow. But that tomorrow... never came."
 
-&mdash; [**Zed O'Brien**](https://myanimelist.net/character.php?q=Zed%20O'Brien&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Jinta Yadomi**](https://myanimelist.net/character.php?q=Jinta%20Yadomi&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
