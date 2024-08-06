@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I can protect, I want to protect."
+> "(In Gamma worldline, to Okabe) Look, even if we were enemies in the world you were before, right now I'm your only ally. Even if the whole world turned against you, I would continue to be your only ally."
 
-&mdash; [**Syaoran Li**](https://myanimelist.net/character.php?q=Syaoran%20Li&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Moeka Kiryū**](https://myanimelist.net/character.php?q=Moeka%20Kiry%C5%AB&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
