@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My, my! Do I really need to spell it out for you? There is nothing that you can acquire without making a move on your own. It's the same with romance - your only hope is to be more aggressive."
+> "If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud!"
 
-&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
