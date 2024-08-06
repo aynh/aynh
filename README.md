@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your back is your one big blind spot."
+> "It is not justice that can oppose evil. It is an absolute evil that overpowers evil itself."
 
-&mdash; [**Yoko Littner**](https://myanimelist.net/character.php?q=Yoko%20Littner&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
+&mdash; [**Tendou Kisara**](https://myanimelist.net/character.php?q=Tendou%20Kisara&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
