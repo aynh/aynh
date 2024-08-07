@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dad left... A long time ago, when brother and I were still boys. Mom stared off into the distance a lot. But she carried on as if nothing were wrong."
+> "Whether you get mad, whether you laugh. The sun will set, morning will come. Each and every time, I'll just start over again."
 
-&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Atsuhiro Maeda**](https://myanimelist.net/character.php?q=Atsuhiro%20Maeda&cat=character), [**Tari Tari**](https://myanimelist.net/search/all?q=Tari%20Tari&cat=all)
