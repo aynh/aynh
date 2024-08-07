@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "History is not merely a linear collection of points that we pass through on a timeline. They are connected by a line. No, perhaps it is more accurate to say that they are made to connect."
+> "As time goes by without anyone eating it, it starts getting dry and looking anything but appetizing, and no one's willing to make a move, but when the busboy takes it you go 'wait, we're not done with that yet.' kinda on reflex. But then you end up leaving without eating it."
 
-&mdash; [**Serial Experiments Lain**](https://myanimelist.net/character.php?q=Serial%20Experiments%20Lain&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
+&mdash; [**Konata Izumi**](https://myanimelist.net/character.php?q=Konata%20Izumi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
