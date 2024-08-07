@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When one person is cursed, two graves are dug."
+> "Knockin' on Heaven's Door."
 
-&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
