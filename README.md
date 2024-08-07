@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes the blood rushes to my head and I feel like, if I run I'll lose something important."
+> "Leave people to their own thoughts, and sooner or later they start questioning the powers that be. If you're in a position of power, the last thing you want folks to ask is whether or not the way things are, is the way they have to be."
 
-&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Sunda Granitz**](https://myanimelist.net/character.php?q=Sunda%20Granitz&cat=character), [**Fractale**](https://myanimelist.net/search/all?q=Fractale&cat=all)
