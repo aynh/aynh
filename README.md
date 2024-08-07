@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether you get mad, whether you laugh. The sun will set, morning will come. Each and every time, I'll just start over again."
+> "You're trying to break the curse. Stop it. What are you trying to do? Do you look down on us? Do you pity our wretched state? Don't bother! We never asked for your sympathy! (To Tohru)"
 
-&mdash; [**Atsuhiro Maeda**](https://myanimelist.net/character.php?q=Atsuhiro%20Maeda&cat=character), [**Tari Tari**](https://myanimelist.net/search/all?q=Tari%20Tari&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
