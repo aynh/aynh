@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to hear who you are, not what you have."
+> "Dad left... A long time ago, when brother and I were still boys. Mom stared off into the distance a lot. But she carried on as if nothing were wrong."
 
-&mdash; [**Nino**](https://myanimelist.net/character.php?q=Nino&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
