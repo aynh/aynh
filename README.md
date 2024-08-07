@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, immortality. Heh, I gave that to the snake."
+> "I have my own method of bending spoons. (bends the spoon with his hands) Ha! Muscle over mind!"
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
