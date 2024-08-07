@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're trying to break the curse. Stop it. What are you trying to do? Do you look down on us? Do you pity our wretched state? Don't bother! We never asked for your sympathy! (To Tohru)"
+> "There's no point in the world. But isn't that wonderful? Because if there isn't one, then you can decide what it is for yourself."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Filicia Heideman**](https://myanimelist.net/character.php?q=Filicia%20Heideman&cat=character), [**Sora No Woto**](https://myanimelist.net/search/all?q=Sora%20No%20Woto&cat=all)
