@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Can I shoot them now?"
+> "I already lost this life. I do not intend to stretch it out at the cost of my honor."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Jean**](https://myanimelist.net/character.php?q=Jean&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
