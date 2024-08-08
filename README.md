@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Right now, I'm letting you live. And I'll continue to keep you alive... until you've grown enough to become worth killing."
+> "There's no point in having physical strength alone. The real deal needs to have mental strength and will."
 
-&mdash; [**Hisoka**](https://myanimelist.net/character.php?q=Hisoka&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
