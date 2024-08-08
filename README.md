@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To become an observer, you shouldn't have someone you like or dislike, because special feelings or bias info would make it difficult for one to judge a situation."
+> "That hot dog must've fried your brain!"
 
-&mdash; [**Kanoko Naedoko**](https://myanimelist.net/character.php?q=Kanoko%20Naedoko&cat=character), [**Warau Kanoko-sama**](https://myanimelist.net/search/all?q=Warau%20Kanoko-sama&cat=all)
+&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
