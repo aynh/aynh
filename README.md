@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anything can happen. No one ever thinks it will until it does. What will happen, happens. That's how the world is. The most important thing is to not let the tragedy defeat you. To believe that you can get through it."
+> "I'm sure it's not wrong for people to want to understand each other. And even if it is, I want us to understand each other."
 
-&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Chiyuki**](https://myanimelist.net/character.php?q=Chiyuki&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
