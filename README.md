@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end, guilt is just the question of whether you're capable of forgiving yourself or not. If you've really changed, then prove it with your actions."
+> "Can I shoot them now?"
 
-&mdash; [**Hestia**](https://myanimelist.net/character.php?q=Hestia&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
