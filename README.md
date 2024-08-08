@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm sure it's not wrong for people to want to understand each other. And even if it is, I want us to understand each other."
+> "Death is not friendly. It's dark, black where you look at it. You're all alone. But it's no different when you're alive, right? No matter how many relationships we seem to have, we're all alone."
 
-&mdash; [**Chiyuki**](https://myanimelist.net/character.php?q=Chiyuki&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Mei Misaki**](https://myanimelist.net/character.php?q=Mei%20Misaki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
