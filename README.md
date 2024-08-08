@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death is not friendly. It's dark, black where you look at it. You're all alone. But it's no different when you're alive, right? No matter how many relationships we seem to have, we're all alone."
+> "So, who should we hold responsible? Compensation. Punishment. If you didn't want any problems you shouldn't have taken risks."
 
-&mdash; [**Mei Misaki**](https://myanimelist.net/character.php?q=Mei%20Misaki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
