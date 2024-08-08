@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can make a rain of 1,000 needles. I will make it rain blood."
+> "To become an observer, you shouldn't have someone you like or dislike, because special feelings or bias info would make it difficult for one to judge a situation."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kanoko Naedoko**](https://myanimelist.net/character.php?q=Kanoko%20Naedoko&cat=character), [**Warau Kanoko-sama**](https://myanimelist.net/search/all?q=Warau%20Kanoko-sama&cat=all)
