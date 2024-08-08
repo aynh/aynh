@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People can face tomorrow because they can see reality and accept it. By denying reality, you cloud up the present, and tomorrow will never come. No, you can cloud it up, but your tomorrow will be that much crueler."
+> "I'm not going to lie to you, Vegeta, although the answer may be difficult for you to hear. This is the truth. Goku devoted his life to protecting the lives of other. Because of his selflessness, when he died, he was allowed to keep his body and travel to King Kai's Planet. You, on the other hand, have spent your life in pursuit of your own selfish desires. You've caused too much pain. When you die, you will not receive the same reward."
 
-&mdash; [**Kurokawa Mari**](https://myanimelist.net/character.php?q=Kurokawa%20Mari&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
