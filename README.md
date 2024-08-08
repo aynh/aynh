@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I already lost this life. I do not intend to stretch it out at the cost of my honor."
+> "You can make a rain of 1,000 needles. I will make it rain blood."
 
-&mdash; [**Jean**](https://myanimelist.net/character.php?q=Jean&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
