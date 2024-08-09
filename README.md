@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there is a creator, he surely made this world too large. This is inconvenient for us small, fearful humans. For all the world's vastness, we can't measure the distance between ourselves. There are 6 billion of us, yet still, everyone is alone. That is why we are all frantically searching for that one person we need no distance from."
+> "There are stars and planets floating around me. I don't think I could handle astronomy right now."
 
-&mdash; [**Kou Ichinomiya**](https://myanimelist.net/character.php?q=Kou%20Ichinomiya&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
