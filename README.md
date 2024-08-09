@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I like you. I came here to get rejected properly. To end this, so I can move forward. To make me convinced of this broken heart, I want to get rejected properly."
+> "If there is a creator, he surely made this world too large. This is inconvenient for us small, fearful humans. For all the world's vastness, we can't measure the distance between ourselves. There are 6 billion of us, yet still, everyone is alone. That is why we are all frantically searching for that one person we need no distance from."
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Kou Ichinomiya**](https://myanimelist.net/character.php?q=Kou%20Ichinomiya&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
