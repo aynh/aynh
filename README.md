@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as you keep thinking out of the box, you’ll probably discover that imaginary situations you find in manga and games are already happening in real life."
+> "A heaven that only watches has no meaning."
 
-&mdash; [**Da Capo III**](https://myanimelist.net/character.php?q=Da%20Capo%20III&cat=character), [**Da Capo III**](https://myanimelist.net/search/all?q=Da%20Capo%20III&cat=all)
+&mdash; [**Su-won**](https://myanimelist.net/character.php?q=Su-won&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
