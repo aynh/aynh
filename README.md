@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The longer one holds on to a memory, the longer one lives in the past. The deeper the memory they hold onto, the more beautiful the past will become. The beautiful memories will eventually turn into hate. Even if they look ahead, they lose the ability to walk. As long as the heavy chain called revenge continues to bind the heart, the tears of sadness will continue to flow."
+> "You're all grown up, so you won't feel dirty looking at my body, right?"
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Nadeko Sengoku**](https://myanimelist.net/character.php?q=Nadeko%20Sengoku&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
