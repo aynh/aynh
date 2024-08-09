@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even though I've lost my way, I will save you."
+> "Logic is panic's prey."
 
-&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
