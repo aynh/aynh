@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People aren't so simple that they can accept anything and everything."
+> "I was feeling down, but you distracted me by subjecting me to your selfish whims. There are times when selfishness can save a person."
 
-&mdash; [**Guy Cecil**](https://myanimelist.net/character.php?q=Guy%20Cecil&cat=character), [**Tales of the Abyss**](https://myanimelist.net/search/all?q=Tales%20of%20the%20Abyss&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
