@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was feeling down, but you distracted me by subjecting me to your selfish whims. There are times when selfishness can save a person."
+> "I would no longer fight against my feelings because I realized how useless and ineffective it was to fight them."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
