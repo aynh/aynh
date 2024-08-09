@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're all grown up, so you won't feel dirty looking at my body, right?"
+> "Even though I've lost my way, I will save you."
 
-&mdash; [**Nadeko Sengoku**](https://myanimelist.net/character.php?q=Nadeko%20Sengoku&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
