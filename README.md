@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry, a trick is nothing but a puzzle mankind came up with. If you use your head, you can uncover the logical answer. It’s disappointing. No matter the explanation I think of, I cannot understand why one person would kill another. Even if I can see why, I can’t understand why."
+> "He realized that he had lost sight of something important. No matter what turn he took he should have kept singing. Even if his songs couldn’t save the world, he could still sing songs for her. Don’t ever lose sight of what’s important to you."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
