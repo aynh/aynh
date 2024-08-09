@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't care if it is fortunate or unfortunate that Light picked up the Death Note. However... It is generally bad luck for a person to be followed by a God of Death."
+> "Look, I hate to be the wet blanket here, but since Katara's busy, I guess it's up to me."
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
