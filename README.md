@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I would no longer fight against my feelings because I realized how useless and ineffective it was to fight them."
+> "Why does everybody have to fight about everything, argue and steal from each other all the time? I mean, it's a big enough world. Why can't we share it?"
 
-&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
+&mdash; [**Toboe**](https://myanimelist.net/character.php?q=Toboe&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
