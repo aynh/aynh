@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are stars and planets floating around me. I don't think I could handle astronomy right now."
+> "Can't you tell, Aizen? You no longer have a place to run away to."
 
-&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
