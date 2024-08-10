@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The Bird of the Hermes is my name, eating my wings to make me tame."
+> "I'll tattle-tale to Yachiru if you keep that up, Ikkaku!"
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
