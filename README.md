@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We have to fight in order to live. That's what will make us strong."
+> "I am not a hero. I can't make anyone happy with any result. I can only do what I deem right with me not hating my choice at a later point."
 
-&mdash; [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/character.php?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Osamu Mikumo**](https://myanimelist.net/character.php?q=Osamu%20Mikumo&cat=character), [**World Trigger**](https://myanimelist.net/search/all?q=World%20Trigger&cat=all)
