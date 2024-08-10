@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't need any calming tea! I need to capture the Avatar!"
+> "Only I can help myself, and in the future, I can make up for all my misfortunes and change the world into a place where there's no irrational discrimination and that's why there's no way in hell that I can die here!"
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Mine**](https://myanimelist.net/character.php?q=Mine&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
