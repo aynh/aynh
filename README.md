@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're a team player, a save-the-day superhero... I hate people like you."
+> "Resenting the past won't change anything. It just makes me want to kill myself! I have some control over my future, but there's no changing the past! I'll simply do what I can right now."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Tomoko Kuroki**](https://myanimelist.net/character.php?q=Tomoko%20Kuroki&cat=character), [**WATAMOTE**](https://myanimelist.net/search/all?q=WATAMOTE&cat=all)
