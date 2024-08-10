@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Resenting the past won't change anything. It just makes me want to kill myself! I have some control over my future, but there's no changing the past! I'll simply do what I can right now."
+> "The Bird of the Hermes is my name, eating my wings to make me tame."
 
-&mdash; [**Tomoko Kuroki**](https://myanimelist.net/character.php?q=Tomoko%20Kuroki&cat=character), [**WATAMOTE**](https://myanimelist.net/search/all?q=WATAMOTE&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
