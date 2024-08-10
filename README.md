@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "“Miracles don't exist in this world. All that exists are accidents, inevitabilities and the actions that one takes.” That’s Himura’s favorite phrase, isn’t it? But sometimes the outcome of your actions, which becomes inevitable, will overlap with accidents, and fulfill your dream unexpectedly. I don’t know if that can be called a miracle, but there’s one thing I’m certain about. Nothing will happen if you don’t wish for it."
+> "I don't need any calming tea! I need to capture the Avatar!"
 
-&mdash; [**ef: a tale of memories**](https://myanimelist.net/character.php?q=ef%3A%20a%20tale%20of%20memories&cat=character), [**ef: a tale of memories**](https://myanimelist.net/search/all?q=ef%3A%20a%20tale%20of%20memories&cat=all)
+&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
