@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stellar Spirits are not 'Shields'."
+> "This is what's inside your heart right now. A sky that has become this lovely, will not always remain sunny. There will be times when rain will fall and storms will carry on. The scenery will change, but if it is left alone, it will stay changed forever. For that, you must continue to fight, because that is to live. To live is to fight."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Shinku**](https://myanimelist.net/character.php?q=Shinku&cat=character), [**Rozen Maiden**](https://myanimelist.net/search/all?q=Rozen%20Maiden&cat=all)
