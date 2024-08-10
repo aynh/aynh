@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am not a hero. I can't make anyone happy with any result. I can only do what I deem right with me not hating my choice at a later point."
+> "Only frustrated adults and naive kids believe themselves to be special."
 
-&mdash; [**Osamu Mikumo**](https://myanimelist.net/character.php?q=Osamu%20Mikumo&cat=character), [**World Trigger**](https://myanimelist.net/search/all?q=World%20Trigger&cat=all)
+&mdash; [**Kiyomasa Senji**](https://myanimelist.net/character.php?q=Kiyomasa%20Senji&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
