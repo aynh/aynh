@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I won't die no matter what. That's what I believe, so stay silent and believe in me. I am a guy who will never die."
+> "Stellar Spirits are not 'Shields'."
 
-&mdash; [**Claire Stanfield**](https://myanimelist.net/character.php?q=Claire%20Stanfield&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
