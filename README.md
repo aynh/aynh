@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I knew it. You can't even ask your own zanpakutō its name."
+> "Let's eat fast so we can eat again!"
 
-&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
