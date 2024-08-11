@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen, girls like guys who are strong and can protect them. So if you keep working hard and get stronger, she just might like you back."
+> "I believe that people have the individual right to decide how they want to live. So whether you just listen to what others say, or get stuck a lot of times...and cause trouble to others, it ultimately comes back to yourself."
 
-&mdash; [**Eina Tulle**](https://myanimelist.net/character.php?q=Eina%20Tulle&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
+&mdash; [**Shirasagi Yuki**](https://myanimelist.net/character.php?q=Shirasagi%20Yuki&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
