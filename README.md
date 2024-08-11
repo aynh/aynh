@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kira... fails to see he's being manipulated by the Naturals! Brilliant as he is, he is also naive and good-natured. They're exploiting him, but he's blind to it. That's why I have to go back! I have to reason with him! Kira is still a fellow Coordinator! I'm positive that he'll come around to our way of thinking."
+> "As for me, I have a lot of things that I'm not good at and that I need to work on. My comrades make up for those weaknesses by help me out, and maybe that's how we've found a balance in our party."
 
-&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
