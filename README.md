@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The best way to write a realistic romance is to first be in love. Everyone can write a love story from their life."
+> "You're as good as naked before my spear."
 
-&mdash; [**Lida Ayano**](https://myanimelist.net/character.php?q=Lida%20Ayano&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Lancer**](https://myanimelist.net/character.php?q=Lancer&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
