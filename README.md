@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those with talent who aren't aware of themselves cause pain for those who have none."
+> "All meetings must end with partings."
 
-&mdash; [**Fuyumi Irisu**](https://myanimelist.net/character.php?q=Fuyumi%20Irisu&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Dera Mochimazzi**](https://myanimelist.net/character.php?q=Dera%20Mochimazzi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
