@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't bring back what you've lost, think about what you have now!"
+> "I knew it. You can't even ask your own zanpakutō its name."
 
-&mdash; [**Jinbei**](https://myanimelist.net/character.php?q=Jinbei&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
