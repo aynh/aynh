@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end no one's going to protect you but yourself."
+> "Ephemeral and brilliant one, fall to my embrace. That is my decision."
 
-&mdash; [**Yamato Kurosawa**](https://myanimelist.net/character.php?q=Yamato%20Kurosawa&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
