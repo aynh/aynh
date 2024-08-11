@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe that people have the individual right to decide how they want to live. So whether you just listen to what others say, or get stuck a lot of times...and cause trouble to others, it ultimately comes back to yourself."
+> "People respect it when someone they are distant from is boring and harmless. However, they only like that person because he or she doesn't get in their way. No human would want to hang around a boring person."
 
-&mdash; [**Shirasagi Yuki**](https://myanimelist.net/character.php?q=Shirasagi%20Yuki&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
+&mdash; [**Featherine Augustus Aurora**](https://myanimelist.net/character.php?q=Featherine%20Augustus%20Aurora&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
