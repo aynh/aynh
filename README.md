@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It only took a moment for everything to click. In that instant, I understood. A leader is somebody who can bring a sense of calm and excitement at the same time."
+> "You can't bring back what you've lost, think about what you have now!"
 
-&mdash; [**Mutta Namba**](https://myanimelist.net/character.php?q=Mutta%20Namba&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Jinbei**](https://myanimelist.net/character.php?q=Jinbei&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
