@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't break anyone's heart, they only have one. Break their bones, they have 206."
+> "It's impossible to work hard for something you don't enjoy."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Keiko Ayano**](https://myanimelist.net/character.php?q=Keiko%20Ayano&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
