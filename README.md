@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why is it that when humans regret the decision based on a misunderstanding they feel resentment toward the other party?"
+> "People have to save themselves. One person saving another is impossible."
 
-&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
