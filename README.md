@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who'd eat a pervert's banana? *blushing*"
+> "The fact that I’m standing here means that I’m resolved to fight for my guild. I do not need your sympathy. As long as I’m still standing, please come at me with all you’ve got! Please do!"
 
-&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Wendy Marvell**](https://myanimelist.net/character.php?q=Wendy%20Marvell&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
