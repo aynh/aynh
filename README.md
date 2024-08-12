@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "True kindness isn't something we're born with. It's something we had to work on... (to Tohru)"
+> "I don't believe in god. There's no proof he exists. In a world where there isn't even proof of the future, the past exists. Even if it's tainted with misunderstandings and delusions, if the people themselves believe in it, the past is the truth to them. And, if you base your actions or your life around it, in a way, it's a type of god itself."
 
-&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
