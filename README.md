@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't believe in god. There's no proof he exists. In a world where there isn't even proof of the future, the past exists. Even if it's tainted with misunderstandings and delusions, if the people themselves believe in it, the past is the truth to them. And, if you base your actions or your life around it, in a way, it's a type of god itself."
+> "A farewell is like the other side of a coin. It will only happen when there is an encounter. Rather than dreading the day we have to part, shouldn't we be happy that we had the chance to meet today instead?"
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
