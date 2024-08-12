@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are so many weapons scattered across my path that it makes me wonder if this world is made of little more than lead and gunpowder."
+> "I wanted to hurt you, make you suffer, and make sure that you'd never forget me."
 
-&mdash; [**Jonathan Mar**](https://myanimelist.net/character.php?q=Jonathan%20Mar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Miu Asakura**](https://myanimelist.net/character.php?q=Miu%20Asakura&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
