@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What you see isn't necessarily reality. Everyone has secrets, things they feel that they can't tell anyone. There's no such thing as a normal person."
+> "Don't break anyone's heart, they only have one. Break their bones, they have 206."
 
-&mdash; [**Celty Sturluson**](https://myanimelist.net/character.php?q=Celty%20Sturluson&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
