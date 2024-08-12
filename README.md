@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's impossible to work hard for something you don't enjoy."
+> "That's when I realized! That I had become a child who would be found. So I broke into tears of happiness. No matter how far we're separated, you two would definitely find me. It's nice knowing someone will find you."
 
-&mdash; [**Keiko Ayano**](https://myanimelist.net/character.php?q=Keiko%20Ayano&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Himari Takakura**](https://myanimelist.net/character.php?q=Himari%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
