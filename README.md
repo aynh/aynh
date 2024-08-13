@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I bet it's not easy to persevere in one's goal. I never tried, so I wouldn't know. But to achieve a goal, one must work hard even when no one is looking. Having a dream might not be all that great."
+> "It is my perception, that a true friend never relies on another's dream. A person with the potential to be my true friend, must be able to find his reason for life without my help. And, he would have to put his heart and soul into protecting his dream. He would never hesitate to fight for his dream, even against me. For me, a true friend is one who stands equal on those terms."
 
-&mdash; [**Fujisaki Yusuke**](https://myanimelist.net/character.php?q=Fujisaki%20Yusuke&cat=character), [**Sket Dance**](https://myanimelist.net/search/all?q=Sket%20Dance&cat=all)
+&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
