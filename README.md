@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stellar Spirits are not 'Shields'."
+> "Romance is all about how far you'll go to prove your love. Finding a person who's worth the effort is pure luck. You just gotta wait for the right hurricane to sweep you off your feet."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Tomoko Kuroki**](https://myanimelist.net/character.php?q=Tomoko%20Kuroki&cat=character), [**WATAMOTE**](https://myanimelist.net/search/all?q=WATAMOTE&cat=all)
