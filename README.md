@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is my perception, that a true friend never relies on another's dream. A person with the potential to be my true friend, must be able to find his reason for life without my help. And, he would have to put his heart and soul into protecting his dream. He would never hesitate to fight for his dream, even against me. For me, a true friend is one who stands equal on those terms."
+> "Humans have faith too. It's important not to lose oneself. The strength to think, the courage not to run away."
 
-&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
