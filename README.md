@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When it's time for the flowers to bloom, they'll bloom. When it's time for spring to come, it'll come."
+> "*referring to Winry* I didn't know she could be so cute."
 
-&mdash; [**Atsushi Shimao**](https://myanimelist.net/character.php?q=Atsushi%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
