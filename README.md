@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*referring to Winry* I didn't know she could be so cute."
+> "You can’t stop fighting to play. Once you've lost that drive, you’ll start to lose your edge."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Yuusei Nishida**](https://myanimelist.net/character.php?q=Yuusei%20Nishida&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
