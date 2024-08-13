@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The human world is a boring place with boring people doing boring things."
+> "After you've gobbled him down you'd be left alone to regret it while covered in blood and guts. That's the hunger of a ghoul. That's our destiny."
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Touka Kirishima**](https://myanimelist.net/character.php?q=Touka%20Kirishima&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
