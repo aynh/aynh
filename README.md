@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Romance is all about how far you'll go to prove your love. Finding a person who's worth the effort is pure luck. You just gotta wait for the right hurricane to sweep you off your feet."
+> "A castle that vanishes at the first gust of wind is worthless. A skyscraper within your mind will never fall down."
 
-&mdash; [**Tomoko Kuroki**](https://myanimelist.net/character.php?q=Tomoko%20Kuroki&cat=character), [**WATAMOTE**](https://myanimelist.net/search/all?q=WATAMOTE&cat=all)
+&mdash; [**Satsuki Kiryuuin**](https://myanimelist.net/character.php?q=Satsuki%20Kiryuuin&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
