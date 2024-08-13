@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is your life right? Then decide for yourself! If you want to protect everything with your hands then do so, if you want to abandon everything then do so. But, what do you yourself want to do right now? Can you really be satisfied giving someone else that you don’t really understand your most important thing?"
+> "Doctor Tenma, for you all lives are created equal, that's why I came back to life. But you've finally come to realize it now, haven't you? Only one thing is equal for all, and that is death."
 
-&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
