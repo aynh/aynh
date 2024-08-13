@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A farewell is like the other side of a coin. It will only happen when there is an encounter. Rather than dreading the day we have to part, shouldn't we be happy that we had the chance to meet today instead?"
+> "The human world is a boring place with boring people doing boring things."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
