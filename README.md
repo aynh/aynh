@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans have faith too. It's important not to lose oneself. The strength to think, the courage not to run away."
+> "I know the loneliness of being a prisoner. I know the joy you feel when your friends come to rescue you and the fear of them being injured and defeated."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
