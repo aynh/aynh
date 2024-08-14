@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Isn’t there something strange in becoming friends because you’re asked? Friends aren’t given; you’re supposed to make them."
+> "The strength of life lies in the possibility of dying."
 
-&mdash; [**Fujibayashi Kyou**](https://myanimelist.net/character.php?q=Fujibayashi%20Kyou&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Kouichi Aizawa**](https://myanimelist.net/character.php?q=Kouichi%20Aizawa&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
