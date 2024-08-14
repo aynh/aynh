@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world might seem boring. But, if you just look, you'll find all kinds of crazy stuff. The world is the best form of entertainment. Something like this couldn't just have happened by chance. There must be a writer writing the stories of more than five-billion people. And the only thing we could possibly call this person is God."
+> "That's ridiculous. People usually have a stereotypical idea, or an assumption like that and that's what creates a blind spot"
 
-&mdash; [**Ryuunosuke Uryuu**](https://myanimelist.net/character.php?q=Ryuunosuke%20Uryuu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
