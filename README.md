@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Okita, who tells him that he should take his job more seriously* Shall I put you to sleep, ingrate?"
+> "The world might seem boring. But, if you just look, you'll find all kinds of crazy stuff. The world is the best form of entertainment. Something like this couldn't just have happened by chance. There must be a writer writing the stories of more than five-billion people. And the only thing we could possibly call this person is God."
 
-&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Ryuunosuke Uryuu**](https://myanimelist.net/character.php?q=Ryuunosuke%20Uryuu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
