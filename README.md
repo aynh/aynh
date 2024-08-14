@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You make a fine octopus, Pupil Aang."
+> "You were always smiling, real friendly like, but the way you smiled was so empty it hurt to watch you."
 
-&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
