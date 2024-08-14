@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's time to launch the dams!"
+> "Was I able to live inside someone’s heart? Was I able to live inside your heart? Do you think you’ll remember me at least a little? You’d better not hit 'reset!' Don’t forget me, okay? That’s a promise, okay? I'm glad it’s you, after all. Will I reach you? I hope I can reach you."
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
