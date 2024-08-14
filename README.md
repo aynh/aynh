@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You were always smiling, real friendly like, but the way you smiled was so empty it hurt to watch you."
+> "No matter what, if you intend to interfere, I will eliminate you too."
 
-&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Scar**](https://myanimelist.net/character.php?q=Scar&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
