@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The strength of life lies in the possibility of dying."
+> "People who call others stupid are usually more stupid. But I'm stupid, so I'll say it anyways...YOU'RE STUPID!"
 
-&mdash; [**Kouichi Aizawa**](https://myanimelist.net/character.php?q=Kouichi%20Aizawa&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Shizuo Heiwajima**](https://myanimelist.net/character.php?q=Shizuo%20Heiwajima&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
