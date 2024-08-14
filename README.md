@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has a past they wish to erase."
+> "I am not a person who only wants to receive things from him, I want to be the person who can give things to him."
 
-&mdash; [**Kaoru Kamiya**](https://myanimelist.net/character.php?q=Kaoru%20Kamiya&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
