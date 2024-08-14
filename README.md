@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll always love you. (To Yuki)"
+> "The depths of despair…. I feel so calm here. I won’t be tricked by anyone anymore, and I don’t have to resent anyone. There’s nothing here. Not even loving. Nothing but to keep dancing until I die away."
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Rue Kuroha**](https://myanimelist.net/character.php?q=Rue%20Kuroha&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
