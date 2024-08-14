@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what, if you intend to interfere, I will eliminate you too."
+> "*to Okita, who tells him that he should take his job more seriously* Shall I put you to sleep, ingrate?"
 
-&mdash; [**Scar**](https://myanimelist.net/character.php?q=Scar&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
