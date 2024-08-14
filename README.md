@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I might seem to be on the losing side to you, but I'm still fighting... Not all battles happen in the brightest, flashiest spots."
+> "I dreamed that you were a dog. And the dog was my husband. Anyway, it was the worst dream ever."
 
-&mdash; [**Saeki Ryutaro**](https://myanimelist.net/character.php?q=Saeki%20Ryutaro&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
