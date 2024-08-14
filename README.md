@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am not a person who only wants to receive things from him, I want to be the person who can give things to him."
+> "Isn’t there something strange in becoming friends because you’re asked? Friends aren’t given; you’re supposed to make them."
 
-&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Fujibayashi Kyou**](https://myanimelist.net/character.php?q=Fujibayashi%20Kyou&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
