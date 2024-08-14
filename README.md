@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no need for any proof. There is no need to create any. We just have to live every second to the fullest, and the traces of the path we lived will burn into the ground. That will serve as proof of our existence."
+> "[after winning a game of beach volleyball'Kuai Ball'] Yes! We defeated you for all time! You will never rise from the ashes of your shame and humiliation! [pause] Well, that was fun."
 
-&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Azula**](https://myanimelist.net/character.php?q=Azula&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
