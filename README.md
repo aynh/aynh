@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're a monster who deserves to die, right here, with me."
+> "Water is mysterious, isn't it?. It can become vapor. It can become snow. It may take various forms, but in reality - it's all water. Even if it's invisible to our eyes, it cannot disappear from this world."
 
-&mdash; [**Natarle Badgiruel**](https://myanimelist.net/character.php?q=Natarle%20Badgiruel&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Saki**](https://myanimelist.net/character.php?q=Saki&cat=character), [**Steel Angel Kurumi**](https://myanimelist.net/search/all?q=Steel%20Angel%20Kurumi&cat=all)
