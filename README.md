@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But its power goes beyond what is necessary... Does one really need the power to destroy everything?"
+> "[when Naruto transforms into a woman in front of the whole class] CUT THE STUPID TRICKS! THIS IS YOUR LAST WARNING!!"
 
-&mdash; [**Fei Fong Wong**](https://myanimelist.net/character.php?q=Fei%20Fong%20Wong&cat=character), [**Xenogears**](https://myanimelist.net/search/all?q=Xenogears&cat=all)
+&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
