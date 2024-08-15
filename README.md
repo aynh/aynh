@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now that I think about it, I really didn't understand anything back then. Neither what it meant to pray for a miracle...nor the price of one."
+> "But being optimistic isn't a bad thing, is it? It's not like you're doing anything bad. It's also not like you're cheating either."
 
-&mdash; [**Sayaka Miki**](https://myanimelist.net/character.php?q=Sayaka%20Miki&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
