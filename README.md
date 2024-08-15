@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Water is mysterious, isn't it?. It can become vapor. It can become snow. It may take various forms, but in reality - it's all water. Even if it's invisible to our eyes, it cannot disappear from this world."
+> "Cut off a wolf's head and it still has the power to bite."
 
-&mdash; [**Saki**](https://myanimelist.net/character.php?q=Saki&cat=character), [**Steel Angel Kurumi**](https://myanimelist.net/search/all?q=Steel%20Angel%20Kurumi&cat=all)
+&mdash; [**Lady Eboshi**](https://myanimelist.net/character.php?q=Lady%20Eboshi&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
