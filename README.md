@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If a man will not work, he shall not eat."
+> "Now that I think about it, I really didn't understand anything back then. Neither what it meant to pray for a miracle...nor the price of one."
 
-&mdash; [**Olivier Mira Armstrong**](https://myanimelist.net/character.php?q=Olivier%20Mira%20Armstrong&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Sayaka Miki**](https://myanimelist.net/character.php?q=Sayaka%20Miki&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
