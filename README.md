@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why you ask? That's the stupidest question I've ever heard.  The answer is obvious.  Because I want to! *to Misaki Takahashi*"
+> "If you know pain and hardship, it's easier to be kind to others."
 
-&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Ryoji Kaji**](https://myanimelist.net/character.php?q=Ryoji%20Kaji&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
