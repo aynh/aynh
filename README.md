@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Cut off a wolf's head and it still has the power to bite."
+> "What irony. Such beauty, sprung from such an ugly soil."
 
-&mdash; [**Lady Eboshi**](https://myanimelist.net/character.php?q=Lady%20Eboshi&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
