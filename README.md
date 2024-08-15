@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm so happy I think I might die."
+> "The rain, the wind, the sun... you bring them all with you. Every time our eyes meet. You bring the world to me."
 
-&mdash; [**Misaki Takahashi**](https://myanimelist.net/character.php?q=Misaki%20Takahashi&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
