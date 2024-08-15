@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's troublesome if the villain doesn't show their evil. Villains are necessary to make knights into heroes."
+> "You're a monster who deserves to die, right here, with me."
 
-&mdash; [**Helbram**](https://myanimelist.net/character.php?q=Helbram&cat=character), [**Nanatsu no Taizai**](https://myanimelist.net/search/all?q=Nanatsu%20no%20Taizai&cat=all)
+&mdash; [**Natarle Badgiruel**](https://myanimelist.net/character.php?q=Natarle%20Badgiruel&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
