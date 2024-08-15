@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even when our eyes are closed, there's a whole world out there, that lives outside of ourselves and our dreams."
+> "You've really got to hold on to what's important to you."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kazuya Kujō**](https://myanimelist.net/character.php?q=Kazuya%20Kuj%C5%8D&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
