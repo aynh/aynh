@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "While we talk,  look forward to making up for all the time you've wasted looking back! We can start by talking about tomorrow. You can say anything like, whether you'll make Japanese or Western style breakfast tomorrow, or whether you'll put on your right or left shoe first. It can be something silly like that. No matter how silly it is, you can talk about tomorrow because you have a tomorrow."
+> "It's troublesome if the villain doesn't show their evil. Villains are necessary to make knights into heroes."
 
-&mdash; [**Subaru Natsuki**](https://myanimelist.net/character.php?q=Subaru%20Natsuki&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
+&mdash; [**Helbram**](https://myanimelist.net/character.php?q=Helbram&cat=character), [**Nanatsu no Taizai**](https://myanimelist.net/search/all?q=Nanatsu%20no%20Taizai&cat=all)
