@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've really got to hold on to what's important to you."
+> "For you I will go deeper than mountains, and higher than sea."
 
-&mdash; [**Kazuya Kujō**](https://myanimelist.net/character.php?q=Kazuya%20Kuj%C5%8D&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
+&mdash; [**Apachai**](https://myanimelist.net/character.php?q=Apachai&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
