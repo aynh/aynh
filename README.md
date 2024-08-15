@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The rain, the wind, the sun... you bring them all with you. Every time our eyes meet. You bring the world to me."
+> "If you don't see her, you won't fall in love. If you don't fall in love, you won't get hurt."
 
-&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Satou Tatsuhiro**](https://myanimelist.net/character.php?q=Satou%20Tatsuhiro&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
