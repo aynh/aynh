@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Songs are good. Singing brings us joy. It is the highest point in the culture that Lilims have created."
+> "You hit me with everything you had, so I decided I could trust you with everything I had."
 
-&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Konno Yuuki**](https://myanimelist.net/character.php?q=Konno%20Yuuki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
