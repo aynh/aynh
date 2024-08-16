@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who underestimate their enemies will not last long in this world."
+> "A faint clap of thunder, clouded skies; perhaps rain comes. If so, will you stay here with me?"
 
-&mdash; [**Horobi**](https://myanimelist.net/character.php?q=Horobi&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
+&mdash; [**Yukari Yukino**](https://myanimelist.net/character.php?q=Yukari%20Yukino&cat=character), [**The Garden of Words**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Words&cat=all)
