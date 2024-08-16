@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you taste poison, you might as well finish the meal. If it comes to that you would make as fine a dish as any."
+> "A person who can't care about himself can't protect anyone, I think."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Mitsukuni Haninozuka**](https://myanimelist.net/character.php?q=Mitsukuni%20Haninozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
