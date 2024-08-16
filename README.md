@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after drawing the infinity symbol] I thought of it myself, it stands for... Mugen."
+> "Those who underestimate their enemies will not last long in this world."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Horobi**](https://myanimelist.net/character.php?q=Horobi&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
