@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, dying for honor isn't such a bad thing. Because it's hard to survive and live in misery."
+> "Being strong on your own is meaningless. To have power you need other people, and they need a world where they can be at their best."
 
-&mdash; [**Kouichirou Marito**](https://myanimelist.net/character.php?q=Kouichirou%20Marito&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
+&mdash; [**Shiroe**](https://myanimelist.net/character.php?q=Shiroe&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
