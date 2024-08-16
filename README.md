@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Destiny. Fate. Dreams. These unstoppable ideas are held deep in the heart of man. As long as there people who seek freedom in this life, These things shall not vanish from the Earth."
+> "Songs are good. Singing brings us joy. It is the highest point in the culture that Lilims have created."
 
-&mdash; [**Gol D. Roger**](https://myanimelist.net/character.php?q=Gol%20D.%20Roger&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
