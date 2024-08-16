@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A faint clap of thunder, clouded skies; perhaps rain comes. If so, will you stay here with me?"
+> "Hmm... *puts on a happy face* Delectable tea... *changes to serious face* or deadly poison?.."
 
-&mdash; [**Yukari Yukino**](https://myanimelist.net/character.php?q=Yukari%20Yukino&cat=character), [**The Garden of Words**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Words&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
