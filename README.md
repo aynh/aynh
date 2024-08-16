@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hmm... *puts on a happy face* Delectable tea... *changes to serious face* or deadly poison?.."
+> "Human memories aren't reliable. Your brain will add something or just glorify it, memories make you believe what happened was better than it actually was."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Motoharu Yano**](https://myanimelist.net/character.php?q=Motoharu%20Yano&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
