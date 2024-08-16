@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We're not going to sneak in, we're gonna bust in. To bust in means to go in from the front, guns blazing."
+> "Even if it's a rule... whether or not I follow it is up to me. Whether I obey the rule or break it and get killed by my comrades... is my choice."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
