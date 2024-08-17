@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if it's dangerous, even if it lasts until the ends of the earth... I need to walk my path."
+> "Do all of you really want... to win that badly? You all want the Grail that desperately?! You'd crush the only wish I have in my heart... do none of you feel any shame at all?! I won't forgive you... I? won't forgive ANY of you for this! All of you monsters who'd disregard a knight's honor for personal gain... let my blood taint your dreams! Let the Grail be cursed! Let the wish it grants bring disaster! And when you fall into the pits of hell... remember the rage of Diarmuid!"
 
-&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Lancer**](https://myanimelist.net/character.php?q=Lancer&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
