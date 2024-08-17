@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ah, you're awake. I was hoping you'd cry out in your sleep, then I would have bitten your head off to silence you."
+> "What are you talking about, Ryu?! That's no damsel, that's a dude!"
 
-&mdash; [**Moro**](https://myanimelist.net/character.php?q=Moro&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Horohoro**](https://myanimelist.net/character.php?q=Horohoro&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
