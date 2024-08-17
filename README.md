@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People's lives don't end when they die. It ends when they lose faith."
+> "They say that ill weeds grow apace, but... You know, the nice ones don't live long."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Yatori**](https://myanimelist.net/character.php?q=Yatori&cat=character), [**Kamisama Hajimemashita**](https://myanimelist.net/search/all?q=Kamisama%20Hajimemashita&cat=all)
