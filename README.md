@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say that ill weeds grow apace, but... You know, the nice ones don't live long."
+> "Ah, you're awake. I was hoping you'd cry out in your sleep, then I would have bitten your head off to silence you."
 
-&mdash; [**Yatori**](https://myanimelist.net/character.php?q=Yatori&cat=character), [**Kamisama Hajimemashita**](https://myanimelist.net/search/all?q=Kamisama%20Hajimemashita&cat=all)
+&mdash; [**Moro**](https://myanimelist.net/character.php?q=Moro&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
