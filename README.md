@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stress makes you bald, but it's stressful to avoid stress, so you end up stressed out anyway. In the end, there's nothing you can do."
+> "Don't ever think there's any perfect society made by humans!! If you think that way you'll overlook the enemy!! Don't be fooled by appearances!!"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Smoker**](https://myanimelist.net/character.php?q=Smoker&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
