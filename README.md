@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is like a mountain - you can say you've reached the top, but only after climbing back down."
+> "Stress makes you bald, but it's stressful to avoid stress, so you end up stressed out anyway. In the end, there's nothing you can do."
 
 &mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
