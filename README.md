@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In ages past, dragons and men were one. Those who lusted after wealth chose the land and the sea and became men. Those who cherished freedom, became dragons and chose wind and fire."
+> "Even if it's dangerous, even if it lasts until the ends of the earth... I need to walk my path."
 
-&mdash; [**Root**](https://myanimelist.net/character.php?q=Root&cat=character), [**Tales from Earthsea**](https://myanimelist.net/search/all?q=Tales%20from%20Earthsea&cat=all)
+&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
