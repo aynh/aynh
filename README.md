@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "SLEEPING is the only TALENT I have."
+> "So what if I'd spare him? In my mind it's the certainty in myself that I possess which allows me to have that kind of mercy or compassion. There's no wavering on that point. It's fixed like the stars. The fact is I'm never gonna be killed! So remember this: mercy and compassion are virtues that only the strong are privileged to possess. And I am strong."
 
-&mdash; [**Nagi Sanzenin**](https://myanimelist.net/character.php?q=Nagi%20Sanzenin&cat=character), [**Hayate no Gotoku!**](https://myanimelist.net/search/all?q=Hayate%20no%20Gotoku!&cat=all)
+&mdash; [**Claire Stanfield**](https://myanimelist.net/character.php?q=Claire%20Stanfield&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
