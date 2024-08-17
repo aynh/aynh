@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Looking back on the past is a dangerous thing. It's nothing more than an attachment."
+> "People's lives don't end when they die. It ends when they lose faith."
 
-&mdash; [**Fukase**](https://myanimelist.net/character.php?q=Fukase&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
