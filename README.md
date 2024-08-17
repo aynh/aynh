@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So what if I'd spare him? In my mind it's the certainty in myself that I possess which allows me to have that kind of mercy or compassion. There's no wavering on that point. It's fixed like the stars. The fact is I'm never gonna be killed! So remember this: mercy and compassion are virtues that only the strong are privileged to possess. And I am strong."
+> "Looking back on the past is a dangerous thing. It's nothing more than an attachment."
 
-&mdash; [**Claire Stanfield**](https://myanimelist.net/character.php?q=Claire%20Stanfield&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Fukase**](https://myanimelist.net/character.php?q=Fukase&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
