@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I dont need to believe in God to believe in myself."
+> "You can't keep something without fighting for it."
 
-&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Hajime Kanzaki**](https://myanimelist.net/character.php?q=Hajime%20Kanzaki&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
