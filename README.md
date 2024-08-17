@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'... Although this won't happen instantly, as long as you have the thought, you will have a chance. Because at the moment you want to change, you have already taken the first step to changing.'"
+> "If you keep lying like that, no one, not even yourself, will believe you anymore."
 
-&mdash; [**Tachibana Hotaru**](https://myanimelist.net/character.php?q=Tachibana%20Hotaru&cat=character), [**Aoharu x Kikanjuu**](https://myanimelist.net/search/all?q=Aoharu%20x%20Kikanjuu&cat=all)
+&mdash; [**Aladdin**](https://myanimelist.net/character.php?q=Aladdin&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
