@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world you can see isn't all out there. In the world there are a lot of fascinating things that no living soul has ever seen! And just in knowing that is one cause for happiness. I'm sure you can find happiness meant for you! It might be something you might not quite understand yet. But you'll find it, that much is certain!"
+> "Love in real life isn’t as smooth as in manga..."
 
-&mdash; [**Fujitaka Kinomoto**](https://myanimelist.net/character.php?q=Fujitaka%20Kinomoto&cat=character), [**Cardcaptor Sakura**](https://myanimelist.net/search/all?q=Cardcaptor%20Sakura&cat=all)
+&mdash; [**Shōta Kisa**](https://myanimelist.net/character.php?q=Sh%C5%8Dta%20Kisa&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
