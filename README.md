@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't keep something without fighting for it."
+> "Okay, here's the plan: We go in, start hitting people, and see where it takes us."
 
-&mdash; [**Hajime Kanzaki**](https://myanimelist.net/character.php?q=Hajime%20Kanzaki&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
