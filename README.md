@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Trust'. The act is without a doubt a very noble one. But you know, what many people call 'trust' is actually giving up on trying to understand others. And that has nothing to do with 'trust', but is rather apathy."
+> "Those who win are not strong. It is those who lose and crawl back up who are strong."
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
