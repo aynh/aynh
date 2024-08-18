@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mankind's greatest fear is Mankind itself."
+> "Making his presence felt on his favorite piece of work - this is an oppurtunity no otaku would miss."
 
-&mdash; [**Gendou Ikari**](https://myanimelist.net/character.php?q=Gendou%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
