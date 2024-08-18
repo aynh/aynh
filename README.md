@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My arm did not obey a certain command I gave it, so I decided it needed to be punished."
+> "It's okay, cool guys see naked women all the time, I'm totally used to it."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
