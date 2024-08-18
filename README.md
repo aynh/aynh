@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, you know what I'm talking about. That stupid line that all you Quincies keep saying up until the moment you die. By the honor of the Quincy I cannot do this, by the honor of the Quincy I won't allow that. Quincy this, Quincy that! Every last one of you! It's so annoying!"
+> "'Trust'. The act is without a doubt a very noble one. But you know, what many people call 'trust' is actually giving up on trying to understand others. And that has nothing to do with 'trust', but is rather apathy."
 
-&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
