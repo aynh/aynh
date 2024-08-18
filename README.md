@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[About Omashu] There really is no fathoming the depths of my hatred for this place."
+> "My arm did not obey a certain command I gave it, so I decided it needed to be punished."
 
-&mdash; [**Mai**](https://myanimelist.net/character.php?q=Mai&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
