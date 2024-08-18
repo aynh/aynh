@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is too bitter, so coffee, at least, should be sweet…"
+> "Hey Nana, if Cinderella's glass slipper fits so perfectly, I wonder why it fell off along the way? I can't help but think that it was on purpose, to attract the prince's affections. No matter what I do, I'll still have the fate of a girl who just keeps getting hurt, wondering if she can be happy in this pointless, one man show?"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Nana Komatsu**](https://myanimelist.net/character.php?q=Nana%20Komatsu&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
