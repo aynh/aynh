@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay, cool guys see naked women all the time, I'm totally used to it."
+> "Even when you want to say something, there are times when you'll lose the chance to."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Tateyama Ayano**](https://myanimelist.net/character.php?q=Tateyama%20Ayano&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
