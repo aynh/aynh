@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who win are not strong. It is those who lose and crawl back up who are strong."
+> "*referring to Jun* Look at her! Because she hasn't got any boyfriends around she fawns all over her guardian ghost."
 
-&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Tao Len**](https://myanimelist.net/character.php?q=Tao%20Len&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
