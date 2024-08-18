@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I didn’t choose you. Don’t you see this is all just an accident. You actually thought you were chosen because you’re so smart or something? Don’t be so vain. It just happened to fall around here and you just happen to pick it up, and that’s all there is to it."
+> "We lost. We got wiped out. We may be finished. Maybe it was all a waste. Like they always said... We're idiots who've wasted our time on something as pointless as games. Game junkies who never leave their houses. Vegetables. But who cares? We knew that all along. We knew it, and we do it anyway. But we love games. We chose this. And sometimes we'll win, and sometimes we'll lose. So what? We've dedicated our lives to it. So it's real!"
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**William Massachusetts**](https://myanimelist.net/character.php?q=William%20Massachusetts&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
