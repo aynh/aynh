@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People are capable of creating another part of themselves inside themselves at any time. A part that they can truly like."
+> "Mankind's greatest fear is Mankind itself."
 
-&mdash; [**Ushiromiya Jessica**](https://myanimelist.net/character.php?q=Ushiromiya%20Jessica&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Gendou Ikari**](https://myanimelist.net/character.php?q=Gendou%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
