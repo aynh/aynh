@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Music isn't supposed to be something you do to show off your abilities to your rivals."
+> "Whatever you lose, you'll find it again, but what you throw away you'll never get it back."
 
-&mdash; [**Noboru Taki**](https://myanimelist.net/character.php?q=Noboru%20Taki&cat=character), [**Hibike! Euphonium**](https://myanimelist.net/search/all?q=Hibike!%20Euphonium&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
