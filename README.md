@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't end a good party without someone on the floor."
+> "[dying] Kuchiki, I dragged you into this...I'm sorry. You must've been scared. Thanks, Kuchiki. Thanks to you...I can leave my heart here."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
