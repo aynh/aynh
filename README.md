@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's always someone better. That's why I can't stop fighting."
+> "If you don't believe in history... Just believe in the world you see with your own eyes."
 
-&mdash; [**Hidetora Toujo**](https://myanimelist.net/character.php?q=Hidetora%20Toujo&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
