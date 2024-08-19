@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[dying] Kuchiki, I dragged you into this...I'm sorry. You must've been scared. Thanks, Kuchiki. Thanks to you...I can leave my heart here."
+> "Music isn't supposed to be something you do to show off your abilities to your rivals."
 
-&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Noboru Taki**](https://myanimelist.net/character.php?q=Noboru%20Taki&cat=character), [**Hibike! Euphonium**](https://myanimelist.net/search/all?q=Hibike!%20Euphonium&cat=all)
