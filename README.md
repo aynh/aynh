@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to see confused and troubled Lithuania to come crying to me."
+> "The feeling of not wanting to lose, everyone has it. If you find it unfair, you’ll have to work harder yourself."
 
-&mdash; [**Russia**](https://myanimelist.net/character.php?q=Russia&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Shuuko Murao**](https://myanimelist.net/character.php?q=Shuuko%20Murao&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
