@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whatever you lose, you'll find it again, but what you throw away you'll never get it back."
+> "I want to see confused and troubled Lithuania to come crying to me."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Russia**](https://myanimelist.net/character.php?q=Russia&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
