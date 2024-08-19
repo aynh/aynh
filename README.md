@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Usui, you perverted, outer spaceman human being!"
+> "Her sword shines, a dream that all warriors  scattered in battle, past, present, and future, hold and mournfully exalt as their final moments approach. She carries their will as her pride, bidding them to remain steadfast in their loyalty."
 
-&mdash; [**Misaki Ayuzawa**](https://myanimelist.net/character.php?q=Misaki%20Ayuzawa&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Irisviel von Einzbern**](https://myanimelist.net/character.php?q=Irisviel%20von%20Einzbern&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
