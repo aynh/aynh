@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But the truth is merely the majority of the living. It only revolves around their choices and actions and nothing more."
+> "Maybe I got something wrong, but it doesn't matter because the thought of wanting to help others definitely isn't wrong."
 
-&mdash; [**Karoku Arumerita**](https://myanimelist.net/character.php?q=Karoku%20Arumerita&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
