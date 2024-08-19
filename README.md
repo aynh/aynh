@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The feeling of not wanting to lose, everyone has it. If you find it unfair, you’ll have to work harder yourself."
+> "If I can do it tomorrow, I won't do it today!"
 
-&mdash; [**Shuuko Murao**](https://myanimelist.net/character.php?q=Shuuko%20Murao&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**KyÅko ToshinÅ**](https://myanimelist.net/character.php?q=Ky%C3%85%C2%8Dko%20Toshin%C3%85%C2%8D&cat=character), [**Yuri Yuri**](https://myanimelist.net/search/all?q=Yuri%20Yuri&cat=all)
