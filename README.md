@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wanted to be a cat. I was jealous of them. They're liked by everyone... Even though they don't do anything at all. I just wanted everyone to like me."
+> "But the truth is merely the majority of the living. It only revolves around their choices and actions and nothing more."
 
-&mdash; [**Shiro**](https://myanimelist.net/character.php?q=Shiro&cat=character), [**Neko no Machi no Ko**](https://myanimelist.net/search/all?q=Neko%20no%20Machi%20no%20Ko&cat=all)
+&mdash; [**Karoku Arumerita**](https://myanimelist.net/character.php?q=Karoku%20Arumerita&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
