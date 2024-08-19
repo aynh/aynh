@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Chains can be torn off. Your sister knew that. Be it an artificially produced human or a wild animal stained by sin... I believe that all living things have the right to be happy."
+> "Defying me till the very end, huh? But I'll forgive you. Some things are beautiful exactly because they are unobtainable."
 
-&mdash; [**Elica**](https://myanimelist.net/character.php?q=Elica&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
