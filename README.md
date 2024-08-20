@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If a sorry could resolve everything, why would there be a need for hell in this world?"
+> "Our world is like a terminal cancer. Saying you'll change things through individual will is rambling of a peace-loving fool."
 
-&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
+&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
