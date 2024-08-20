@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who use cheating as their weapon, will be strangled by cheating in the end."
+> "I'm home. What, are you greeting me in an apron? You look pretty good in it."
 
-&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
