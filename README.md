@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm home. What, are you greeting me in an apron? You look pretty good in it."
+> "My place really was here. I was too foolish and stubborn to notice. But, what I truly hoped for then was here. Why do I always realize it... when I've already lost it."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
