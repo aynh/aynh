@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no point in dwelling on the past, so I'm trying to think of the future instead."
+> "If the words are of rage and hate, I must accept them. I've run for so long but I can never forget."
 
-&mdash; [**Sorata Kanda**](https://myanimelist.net/character.php?q=Sorata%20Kanda&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Yobiko**](https://myanimelist.net/character.php?q=Yobiko&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
