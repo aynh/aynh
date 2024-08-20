@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay if you don't understand, just stay with me, watch me, and slowly come to understand."
+> "A man who raises his hands on a woman is trash. If I have to become trash in order to survive... It'll be just like dying."
 
-&mdash; [**Agata Katsuhira**](https://myanimelist.net/character.php?q=Agata%20Katsuhira&cat=character), [**Kiznaiver**](https://myanimelist.net/search/all?q=Kiznaiver&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
