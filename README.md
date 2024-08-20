@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People are all evil. In order to falsely believe yourself to be just, you must inevitably falsely believe that someone else is more evil than you."
+> "After all, justice in this world is just a bunch of principles, made by those with power to suit themselves."
 
-&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach the Movie: Hell Verse**](https://myanimelist.net/search/all?q=Bleach%20the%20Movie%3A%20Hell%20Verse&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
