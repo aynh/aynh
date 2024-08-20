@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So you're trying to accept everyone and their feelings, aren't you? I think you already know this, but if you keep trying to do this 'accepting' thing with everyone, you're liable to be torn to bits."
+> "Black Star, it's over between us."
 
-&mdash; [**Rachnera Arachnera**](https://myanimelist.net/character.php?q=Rachnera%20Arachnera&cat=character), [**Monster Musume no Iru Nichijou**](https://myanimelist.net/search/all?q=Monster%20Musume%20no%20Iru%20Nichijou&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
