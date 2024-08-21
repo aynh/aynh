@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are some things you can gain by letting some things go. Happiness isn't just what you have here and now."
+> "Recklessness is the way of the young and tolerance is the beauty of adulthood."
 
-&mdash; [**Kunio Yaobi**](https://myanimelist.net/character.php?q=Kunio%20Yaobi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
+&mdash; [**Nyanta**](https://myanimelist.net/character.php?q=Nyanta&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
