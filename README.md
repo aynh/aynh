@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how many years it's been since they met, brothers are brothers, aren't they? Even without having seen, I can tell."
+> "You're all grown up, so you won't feel dirty looking at my body, right?"
 
-&mdash; [**Matahachi Hon'iden**](https://myanimelist.net/character.php?q=Matahachi%20Hon'iden&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
+&mdash; [**Nadeko Sengoku**](https://myanimelist.net/character.php?q=Nadeko%20Sengoku&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
