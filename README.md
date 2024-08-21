@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you can't walk or stand and even if you can't have kids, I'll still marry you, I'll always stay by your side."
+> "The worst kind of pain is when you're smiling just to stop the tears from falling."
 
-&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
