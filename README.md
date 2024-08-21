@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's only natural for the girl you're crushing on to be in love with someone else. Since you're in love with her, she sparkles in your eyes. That's why people fall so irrationally in love."
+> "Nothing's perfect, the world's not perfect, but it's there for us, trying the best it can. That's what makes it so damn beautiful."
 
-&mdash; [**Watari Ryouta**](https://myanimelist.net/character.php?q=Watari%20Ryouta&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
