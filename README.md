@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You shouldn't mouth off when you don't know shit."
+> "'I'm different.', 'It has nothing to do with me.', 'It's all happening in a different world.' Turning away from reality like that is just a kind of inadvertent malice..."
 
-&mdash; [**Shinichi Izumi**](https://myanimelist.net/character.php?q=Shinichi%20Izumi&cat=character), [**Parasyte -the maxim-**](https://myanimelist.net/search/all?q=Parasyte%20-the%20maxim-&cat=all)
+&mdash; [**Tieria Erde**](https://myanimelist.net/character.php?q=Tieria%20Erde&cat=character), [**Mobile Suit Gundam 00 2nd.Season**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000%202nd.Season&cat=all)
