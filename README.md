@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The worst kind of pain is when you're smiling just to stop the tears from falling."
+> "You're afraid to face what you know you must. So instead... you run away. The air that you said was smothering you... you know that it can also heal you. But you refuse to let it. You refuse to let anyone see you for your true self. You're too afraid of what you might lose. You're running away because you're afraid to admit your feelings even to yourself."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kazuma Sohma**](https://myanimelist.net/character.php?q=Kazuma%20Sohma&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
