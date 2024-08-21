@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Neither God nor the Devil can give aid to those without the will to fight…"
+> "There are some things you can gain by letting some things go. Happiness isn't just what you have here and now."
 
-&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Kunio Yaobi**](https://myanimelist.net/character.php?q=Kunio%20Yaobi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
