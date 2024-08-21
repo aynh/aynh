@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'I'm different.', 'It has nothing to do with me.', 'It's all happening in a different world.' Turning away from reality like that is just a kind of inadvertent malice..."
+> "If we are frightened, the people behind us will be, as well. You must be a shining star... that washes away fear, so that those behind you wil not be afraid!"
 
-&mdash; [**Tieria Erde**](https://myanimelist.net/character.php?q=Tieria%20Erde&cat=character), [**Mobile Suit Gundam 00 2nd.Season**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000%202nd.Season&cat=all)
+&mdash; [**Genjuurou Tsukishima**](https://myanimelist.net/character.php?q=Genjuurou%20Tsukishima&cat=character), [**Mushibugyou**](https://myanimelist.net/search/all?q=Mushibugyou&cat=all)
