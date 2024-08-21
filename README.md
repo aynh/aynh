@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't do anything about what doesn't exist. In the end, humans have to settle for what's in front of them."
+> "We all have our scars from loving someone too deeply, from wanting to protect  someone too much."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Mei Tachibana**](https://myanimelist.net/character.php?q=Mei%20Tachibana&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
