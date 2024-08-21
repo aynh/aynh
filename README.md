@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm ho-ome! Yuki-kun, Tohru-kun, I'm home! Oh, and let's not forget stupid-clumsy-Kyo-kun-who-lost-yet-another-fight!"
+> "You can't do anything about what doesn't exist. In the end, humans have to settle for what's in front of them."
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
