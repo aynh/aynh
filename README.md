@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we are frightened, the people behind us will be, as well. You must be a shining star... that washes away fear, so that those behind you wil not be afraid!"
+> "You were like a bomb, one wrong move and I might have lost you again."
 
-&mdash; [**Genjuurou Tsukishima**](https://myanimelist.net/character.php?q=Genjuurou%20Tsukishima&cat=character), [**Mushibugyou**](https://myanimelist.net/search/all?q=Mushibugyou&cat=all)
+&mdash; [**Hayashida Nana**](https://myanimelist.net/character.php?q=Hayashida%20Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
