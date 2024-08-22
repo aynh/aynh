@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What do I have to live for now that I know Cain won't come back? You tell me that, Ed!"
+> "It's pointless to force people to do their best if they don't want to."
 
-&mdash; [**Winry Rockbell**](https://myanimelist.net/character.php?q=Winry%20Rockbell&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Hansode Shiranui**](https://myanimelist.net/character.php?q=Hansode%20Shiranui&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
