@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The year may end, but some things never do. You may not see them with your eyes, but when you look with your heart, you can."
+> "Live well, Ichigo. Live well, age well, go bald well, and die after me. And... if you can, die smiling."
 
-&mdash; [**Dera Mochimazzi**](https://myanimelist.net/character.php?q=Dera%20Mochimazzi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
+&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
