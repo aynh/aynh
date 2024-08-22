@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Say good-bye to The Unstoppable Exodia!"
+> "Being weak means that there is a room to grow."
 
-&mdash; [**Underwood Weevil**](https://myanimelist.net/character.php?q=Underwood%20Weevil&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Ittetsu Takeda**](https://myanimelist.net/character.php?q=Ittetsu%20Takeda&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
