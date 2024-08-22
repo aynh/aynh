@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's pointless to force people to do their best if they don't want to."
+> "People are mirrors. If you smile, a smile will be reflected."
 
-&mdash; [**Hansode Shiranui**](https://myanimelist.net/character.php?q=Hansode%20Shiranui&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Zeno**](https://myanimelist.net/character.php?q=Zeno&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
