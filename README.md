@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Vash the Stampede... every time I observe his actions I can't help but sense something hidden deep within him, something we can't being to understand. But this much is certain: everyone who has become involved with him has somehow regained an emotion which was once lost."
+> "You guys are free to have a fight anywhere you want to, but interfering with an innocent girl’s meal is unforgivable. And, if it happens to be Lina Inverse’s meal, you’re lucky to be alive!"
 
-&mdash; [**Meryl Stryfe**](https://myanimelist.net/character.php?q=Meryl%20Stryfe&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
