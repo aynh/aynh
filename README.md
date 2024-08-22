@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Real GAY will not be swayed no matter how cute a girl is. Please remember this: out of a hundred men... five are GAY."
+> "People who neglect to make efforts or who don't take any actions at all are always the ones who dream that someday they will suddenly become wildly successful."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Misaki Nakahara**](https://myanimelist.net/character.php?q=Misaki%20Nakahara&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
