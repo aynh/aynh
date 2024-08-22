@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's not exactly right. If you had to sacrifice many things to protect one, you're more likely to give up and throw it away. Including relationships you have in your hand now."
+> "Whether in a brawl or anything else, bones can be broken but the spirit must not yield. Once a decision was made, it must be upheld until the bitter end."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Kamiya Kyousuke**](https://myanimelist.net/character.php?q=Kamiya%20Kyousuke&cat=character), [**Psycho Love Comedy**](https://myanimelist.net/search/all?q=Psycho%20Love%20Comedy&cat=all)
