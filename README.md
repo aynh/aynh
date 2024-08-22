@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You guys are free to have a fight anywhere you want to, but interfering with an innocent girl’s meal is unforgivable. And, if it happens to be Lina Inverse’s meal, you’re lucky to be alive!"
+> "The year may end, but some things never do. You may not see them with your eyes, but when you look with your heart, you can."
 
-&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
+&mdash; [**Dera Mochimazzi**](https://myanimelist.net/character.php?q=Dera%20Mochimazzi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
