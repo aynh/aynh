@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Where is your honor!? Like all pure-blooded Saiyans, Kakarot would rather die fighting than win with one of those disgraceful senzu beans as his crutch! Kakarot trained in the hyperbolic time chamber just as we did! Now let’s see what he can do!"
+> "I never like to work based on trust. It takes hard work to build up trust, but only an instant to lose it. There's no less profitable investment."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Ushiromiya Kyrie**](https://myanimelist.net/character.php?q=Ushiromiya%20Kyrie&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
