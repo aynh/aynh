@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether in a brawl or anything else, bones can be broken but the spirit must not yield. Once a decision was made, it must be upheld until the bitter end."
+> "What do I have to live for now that I know Cain won't come back? You tell me that, Ed!"
 
-&mdash; [**Kamiya Kyousuke**](https://myanimelist.net/character.php?q=Kamiya%20Kyousuke&cat=character), [**Psycho Love Comedy**](https://myanimelist.net/search/all?q=Psycho%20Love%20Comedy&cat=all)
+&mdash; [**Winry Rockbell**](https://myanimelist.net/character.php?q=Winry%20Rockbell&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
