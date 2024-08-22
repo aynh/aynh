@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who neglect to make efforts or who don't take any actions at all are always the ones who dream that someday they will suddenly become wildly successful."
+> "What's the problem... to being different? Even if Vincent-sama is a Baskerville, as you say, even if he is completely different from me, it doesn't matter. I don't care if we're different! And if he really is that different, that's just one more reason to try to understand him!"
 
-&mdash; [**Misaki Nakahara**](https://myanimelist.net/character.php?q=Misaki%20Nakahara&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
+&mdash; [**Ada Vessalius**](https://myanimelist.net/character.php?q=Ada%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
