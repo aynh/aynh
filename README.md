@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The fight to protect life and the fight to protect honor——that's Captain Ukitake's policy. But you know, Kuchiki...I think that in the end, those both end up being the same thing. ...Heart."
+> "Vash the Stampede... every time I observe his actions I can't help but sense something hidden deep within him, something we can't being to understand. But this much is certain: everyone who has become involved with him has somehow regained an emotion which was once lost."
 
-&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Meryl Stryfe**](https://myanimelist.net/character.php?q=Meryl%20Stryfe&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
