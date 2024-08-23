@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ayuzawa, you are the first person ever to appear in my life and able to make me a mess."
+> "Did you not understand? All dreams eventually disappear when the dreamers wake."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
