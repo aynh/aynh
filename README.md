@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If... If you have such good deductive skills, you should have been able to see through my sister's disguise easily... But... but... WHY...!!!"
+> "Don't touch the poster at the Game Corner! There's no secret switch behind it!"
 
-&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Rocket Grunt**](https://myanimelist.net/character.php?q=Rocket%20Grunt&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
