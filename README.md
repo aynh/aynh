@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You gotta love humans. When everything sticks to the script, they can put on a great act. But as soon as something unexpected happens, they react completely true to their nature."
+> "I don't want someone that can easily be replaced by others. What I need is... what I really want is... someone that will be with me no matter what. A best friend."
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Ginbei Haruomi Sawatari**](https://myanimelist.net/character.php?q=Ginbei%20Haruomi%20Sawatari&cat=character), [**Onii-chan Dakedo Ai Sae Areba Kankeinai yo ne!**](https://myanimelist.net/search/all?q=Onii-chan%20Dakedo%20Ai%20Sae%20Areba%20Kankeinai%20yo%20ne!&cat=all)
