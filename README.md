@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But... When I lost the whole foundation of my happiness in one instant, I realized that I was the biggest coward in the world."
+> "If I have to hurt someone, if I have to injure a comrade, then I might as well hurt myself."
 
-&mdash; [**Kaidou Haru**](https://myanimelist.net/character.php?q=Kaidou%20Haru&cat=character), [**Super Lovers**](https://myanimelist.net/search/all?q=Super%20Lovers&cat=all)
+&mdash; [**Juvia Loxar**](https://myanimelist.net/character.php?q=Juvia%20Loxar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
