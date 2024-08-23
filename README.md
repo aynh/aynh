@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To deceive your enemy, begin with your ally."
+> "My happiness can only be... can only be made with my own hands! My happiness doesn't depend on anyone but me!"
 
-&mdash; [**Hattori Heiji**](https://myanimelist.net/character.php?q=Hattori%20Heiji&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
