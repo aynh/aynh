@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It works better if you don't try as hard, just like in real life."
+> "Ayuzawa, you are the first person ever to appear in my life and able to make me a mess."
 
-&mdash; [**Nagisa Hazuki**](https://myanimelist.net/character.php?q=Nagisa%20Hazuki&cat=character), [**Free!**](https://myanimelist.net/search/all?q=Free!&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
