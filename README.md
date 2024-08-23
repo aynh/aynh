@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe being an author is a lonely line of work that asks you to pass through a narrow gate alone."
+> "Fine then, in exchange, you can roam around looking like a cosplayer, violate weapon laws, get arrested by the police, and get interviewed on television."
 
-&mdash; [**Kanako Sakurai**](https://myanimelist.net/character.php?q=Kanako%20Sakurai&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
