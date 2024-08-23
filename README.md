@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't touch the poster at the Game Corner! There's no secret switch behind it!"
+> "I am the Dark Flame Master. Perish, enveloped in the flames of darkness!"
 
-&mdash; [**Rocket Grunt**](https://myanimelist.net/character.php?q=Rocket%20Grunt&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Togashi Yuuta**](https://myanimelist.net/character.php?q=Togashi%20Yuuta&cat=character), [**Chuunibyou Demo Koi Ga Shitai!**](https://myanimelist.net/search/all?q=Chuunibyou%20Demo%20Koi%20Ga%20Shitai!&cat=all)
