@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want someone that can easily be replaced by others. What I need is... what I really want is... someone that will be with me no matter what. A best friend."
+> "Maybe you are right. Where did I come from and where will I go? When I die? Maybe all this time that is what I wanted: the freedom to find out."
 
-&mdash; [**Ginbei Haruomi Sawatari**](https://myanimelist.net/character.php?q=Ginbei%20Haruomi%20Sawatari&cat=character), [**Onii-chan Dakedo Ai Sae Areba Kankeinai yo ne!**](https://myanimelist.net/search/all?q=Onii-chan%20Dakedo%20Ai%20Sae%20Areba%20Kankeinai%20yo%20ne!&cat=all)
+&mdash; [**Lust**](https://myanimelist.net/character.php?q=Lust&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
