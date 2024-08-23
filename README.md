@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe you are right. Where did I come from and where will I go? When I die? Maybe all this time that is what I wanted: the freedom to find out."
+> "Where do people stray off the path? When do they begin to obey their greed rather than their ideals? Or are ideals just prone to morphing easily into greed?"
 
-&mdash; [**Lust**](https://myanimelist.net/character.php?q=Lust&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Sion**](https://myanimelist.net/character.php?q=Sion&cat=character), [**No.6**](https://myanimelist.net/search/all?q=No.6&cat=all)
