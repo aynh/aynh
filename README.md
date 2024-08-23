@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I have to hurt someone, if I have to injure a comrade, then I might as well hurt myself."
+> "It looks like you're wishing you had died instead of someone else, but... isn't it wrong to think that way? No one can take the place of another. Each person has his own destiny."
 
-&mdash; [**Juvia Loxar**](https://myanimelist.net/character.php?q=Juvia%20Loxar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Momo**](https://myanimelist.net/character.php?q=Momo&cat=character), [**Shinigami no Ballad**](https://myanimelist.net/search/all?q=Shinigami%20no%20Ballad&cat=all)
