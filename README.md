@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am the Dark Flame Master. Perish, enveloped in the flames of darkness!"
+> "To deceive your enemy, begin with your ally."
 
-&mdash; [**Togashi Yuuta**](https://myanimelist.net/character.php?q=Togashi%20Yuuta&cat=character), [**Chuunibyou Demo Koi Ga Shitai!**](https://myanimelist.net/search/all?q=Chuunibyou%20Demo%20Koi%20Ga%20Shitai!&cat=all)
+&mdash; [**Hattori Heiji**](https://myanimelist.net/character.php?q=Hattori%20Heiji&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
