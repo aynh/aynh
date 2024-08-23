@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "With death staring you in the face, you truly understand what it means to be alive."
+> "Everything you've been taught is based on theories and logic. Soon, you'll come to realize how pointless they are."
 
-&mdash; [**Saori Shibuki**](https://myanimelist.net/character.php?q=Saori%20Shibuki&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
+&mdash; [**Tomomi Masaoka**](https://myanimelist.net/character.php?q=Tomomi%20Masaoka&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
