@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you keep my secret, this strawberry is yours."
+> "But... When I lost the whole foundation of my happiness in one instant, I realized that I was the biggest coward in the world."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kaidou Haru**](https://myanimelist.net/character.php?q=Kaidou%20Haru&cat=character), [**Super Lovers**](https://myanimelist.net/search/all?q=Super%20Lovers&cat=all)
