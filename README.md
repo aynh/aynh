@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everything you've been taught is based on theories and logic. Soon, you'll come to realize how pointless they are."
+> "*to Hige* Coming from you, that sounds kind of fishy."
 
-&mdash; [**Tomomi Masaoka**](https://myanimelist.net/character.php?q=Tomomi%20Masaoka&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
