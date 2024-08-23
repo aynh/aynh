@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Where do people stray off the path? When do they begin to obey their greed rather than their ideals? Or are ideals just prone to morphing easily into greed?"
+> "With death staring you in the face, you truly understand what it means to be alive."
 
-&mdash; [**Sion**](https://myanimelist.net/character.php?q=Sion&cat=character), [**No.6**](https://myanimelist.net/search/all?q=No.6&cat=all)
+&mdash; [**Saori Shibuki**](https://myanimelist.net/character.php?q=Saori%20Shibuki&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
