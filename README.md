@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Hige* Coming from you, that sounds kind of fishy."
+> "If you keep my secret, this strawberry is yours."
 
-&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
