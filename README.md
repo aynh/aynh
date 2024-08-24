@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't do anything about what doesn't exist. In the end, humans have to settle for what's in front of them."
+> "Let us commence, Zaraki! Your favorite game of carnage!!"
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
