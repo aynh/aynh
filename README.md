@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Where will we be in five or ten years from now? No one knows. All we know right now, all we can see right now, is what's right in front of us. That's why we'll always live our 'right now' to the fullest!"
+> "Even if my left arm can transform into a monstrous claw and can destroy Akuma, im just a normal person with a promise..."
 
-&mdash; [**Kanzaki Tomoyo**](https://myanimelist.net/character.php?q=Kanzaki%20Tomoyo&cat=character), [**Inou Battle wa Nichijou-kei no Naka de**](https://myanimelist.net/search/all?q=Inou%20Battle%20wa%20Nichijou-kei%20no%20Naka%20de&cat=all)
+&mdash; [**Allen Walker**](https://myanimelist.net/character.php?q=Allen%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
