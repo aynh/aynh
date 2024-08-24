@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was trying to take the easy way out by running away from everything. No matter the pain, I will keep living. So when I die, I'll feel I did the best I could."
+> "Don't remind me. I'm mad enough to hurt somebody and pounding you just might be the therapy I need."
 
-&mdash; [**Koala**](https://myanimelist.net/character.php?q=Koala&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
