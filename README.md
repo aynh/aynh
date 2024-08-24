@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't remind me. I'm mad enough to hurt somebody and pounding you just might be the therapy I need."
+> "It's impossible for humans to forget their emotions."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Wolfgang Grimmer**](https://myanimelist.net/character.php?q=Wolfgang%20Grimmer&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
