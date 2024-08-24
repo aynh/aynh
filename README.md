@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if my left arm can transform into a monstrous claw and can destroy Akuma, im just a normal person with a promise..."
+> "I can kill anything that exists - even if it's a god."
 
-&mdash; [**Allen Walker**](https://myanimelist.net/character.php?q=Allen%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Ryougi Shiki**](https://myanimelist.net/character.php?q=Ryougi%20Shiki&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
