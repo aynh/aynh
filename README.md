@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll be back."
+> "I wonder if there really is a God... If such an entity really existed, wouldn't all honest, hard-working people be happy?"
 
-&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Vermouth**](https://myanimelist.net/character.php?q=Vermouth&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
