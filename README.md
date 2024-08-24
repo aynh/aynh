@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You may not always see the light at the end of the tunnel, but if you keep moving, you will come to a better place."
+> "Look. Look at me! Watch as the man you cast out spills his blood and dies. Take a nice long look! I will save you all. I want you to live the rest of your lives knowing the man you abandoned saved you. And I will laugh at you from the afterlife. And tell you that it serves you right!"
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Ikoma**](https://myanimelist.net/character.php?q=Ikoma&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
