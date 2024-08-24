@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let us commence, Zaraki! Your favorite game of carnage!!"
+> "You are really red. It would be fun to hang you from a traffic light, and stop cars."
 
-&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kuroyukihime**](https://myanimelist.net/character.php?q=Kuroyukihime&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
