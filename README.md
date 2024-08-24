@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can kill anything that exists - even if it's a god."
+> "We all live under the same sky. If each of us learns to shine, it won't matter how far apart we are. We'll be able to see each other."
 
-&mdash; [**Ryougi Shiki**](https://myanimelist.net/character.php?q=Ryougi%20Shiki&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
