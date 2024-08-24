@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are really red. It would be fun to hang you from a traffic light, and stop cars."
+> "You may not always see the light at the end of the tunnel, but if you keep moving, you will come to a better place."
 
-&mdash; [**Kuroyukihime**](https://myanimelist.net/character.php?q=Kuroyukihime&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
