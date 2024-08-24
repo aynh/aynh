@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To have a name. To remove one layer of the unknown. To be painted in reality. If you have your feet firmly planted to the ground, you may have a chance to pull someone down."
+> "Listen up you guys! This is the final battle! Grit your teeth and get ready to go with all your might! We're only aiming to win! It doesn't matter whether we're idiots or ordinary people or smart people! Everyone's to do whatever they can do! We're definitely... going to win this battle! Just watch, 3rd years...! I'm going to smash those heads of yours and show you how capable these idiots you look down on really are!"
 
-&mdash; [**Makoto Niwa**](https://myanimelist.net/character.php?q=Makoto%20Niwa&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
+&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
