@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Learn to treasure your life because unfortunately, it can be taken away from you anytime."
+> "You can't do anything about what doesn't exist. In the end, humans have to settle for what's in front of them."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
