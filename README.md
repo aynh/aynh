@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't underestimate me! I don't quit and I don't run! You can act tough all you want! You're not gonna scare me off! No way! I don't care if I DO get stuck as a Genin for the rest of my life! I'll still be Hokage someday!"
+> "Where will we be in five or ten years from now? No one knows. All we know right now, all we can see right now, is what's right in front of us. That's why we'll always live our 'right now' to the fullest!"
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kanzaki Tomoyo**](https://myanimelist.net/character.php?q=Kanzaki%20Tomoyo&cat=character), [**Inou Battle wa Nichijou-kei no Naka de**](https://myanimelist.net/search/all?q=Inou%20Battle%20wa%20Nichijou-kei%20no%20Naka%20de&cat=all)
