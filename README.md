@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's human nature not to realize the true value of something, unless they lose it."
+> "But just between you and I, what I'm more interested in is traveling and seeing new places. (screams as she goes down a hill after being scared by a Duskull) I guess I... shoulda worn a... (crashes into a tree) helmet."
 
-&mdash; [**Orochimaru**](https://myanimelist.net/character.php?q=Orochimaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Haruka**](https://myanimelist.net/character.php?q=Haruka&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
