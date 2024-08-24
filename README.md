@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder if there really is a God... If such an entity really existed, wouldn't all honest, hard-working people be happy?"
+> "Learn to treasure your life because unfortunately, it can be taken away from you anytime."
 
-&mdash; [**Vermouth**](https://myanimelist.net/character.php?q=Vermouth&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
