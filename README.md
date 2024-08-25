@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We all have to die when our time comes, but if we do our duty we don't got regrets. So taste a little piece of my sword, Toguro!"
+> "Just 'cause you're a girl, it doesn't mean you have to wait for a prince to come along on a white horse. You can go out and find Prince Charming yourself. It is up to you to find the right boy."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Sailor Chibi Moon**](https://myanimelist.net/character.php?q=Sailor%20Chibi%20Moon&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
