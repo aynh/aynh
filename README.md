@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am Horo the Wise Wolf, and I am a very proud wolf."
+> "[To Rukia as she is taken to Sokyoku Hill] Bye Bye, Rukia chan! See 'ya at the execution grounds."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
