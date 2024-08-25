@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why is it?.. I'm so sad and so lonely. But the tears just won't come."
+> "You, who've taken on his name, have managed – well, nothing."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
