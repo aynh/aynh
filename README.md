@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look, I hate to be the wet blanket here, but since Katara's busy, I guess it's up to me."
+> "Tell me, are all you Saiyans so full of yourselves? Is this how you hide your incompetence? We androids will always be superior to your kind."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Android 17**](https://myanimelist.net/character.php?q=Android%2017&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
