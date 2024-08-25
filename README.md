@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't worry fool, we've entered into an alliance and I'm not the type to break it. Of course, after we win the tournament I can't guarantee anything."
+> "To climb a hill on a difficult road, you need to be walking steadily."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
