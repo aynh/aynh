@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A normal guy like me isn't going to be part of some 'believe it or not' episode with nutcases like you guys!"
+> "Why is it?.. I'm so sad and so lonely. But the tears just won't come."
 
-&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
