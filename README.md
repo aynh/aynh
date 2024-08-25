@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why don't you stop forcing yourself on him and calling it love? It's painful to watch (to Kagura about Kyo)"
+> "Kings do not become kings by themselves. If the poor raise up together, declaring that they don't want any money, kings will be overthrown. However, poor seek money so that they can become kings themselves. Which in turn only strengthens the position of the current king."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Hyoudou Kazutaka**](https://myanimelist.net/character.php?q=Hyoudou%20Kazutaka&cat=character), [**Kaiji**](https://myanimelist.net/search/all?q=Kaiji&cat=all)
