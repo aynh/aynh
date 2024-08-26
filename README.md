@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Karla, nothing can surpass a human's curiosity."
+> "Please remember that there are times to take someone's hand and lead them along... But also times when you must be stern and let them fend for themselves."
 
-&mdash; [**Grisha Jaeger**](https://myanimelist.net/character.php?q=Grisha%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
