@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "“Your hard work will be rewarded.” What kind of idiot came up with that nonsense?"
+> "Maybe it's just the morning light, but he looks pretty cool standing there with his sword. *about Inuyasha*"
 
-&mdash; [**Hyuuga Junpei**](https://myanimelist.net/character.php?q=Hyuuga%20Junpei&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
