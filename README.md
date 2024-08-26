@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My face feels heavy, and I can't walk in these shoes."
+> "Love really is like playing with fire. Anyone can play easily and lightheartedly. But when you mess up and get burned, that scar stays with you your whole life."
 
-&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Ushiromiya Kyrie**](https://myanimelist.net/character.php?q=Ushiromiya%20Kyrie&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
