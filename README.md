@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Please remember that there are times to take someone's hand and lead them along... But also times when you must be stern and let them fend for themselves."
+> "My face feels heavy, and I can't walk in these shoes."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
