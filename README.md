@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe it's just the morning light, but he looks pretty cool standing there with his sword. *about Inuyasha*"
+> "DEATH is so unfair. It comes to those who don't need it. But not the people who are asking for it."
 
-&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Yuu Otosaka**](https://myanimelist.net/character.php?q=Yuu%20Otosaka&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
