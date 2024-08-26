@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Such a shame. I overestimated you. As a vampire, you were just a pathetic piece of shit. And now you're nothing but dog shit!"
+> "I pull the trigger. The gun goes off. Your brains splatter all over the sand. The beach gets bloody and you get dead."
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Bando**](https://myanimelist.net/character.php?q=Bando&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
