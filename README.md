@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "DEATH is so unfair. It comes to those who don't need it. But not the people who are asking for it."
+> "Karla, nothing can surpass a human's curiosity."
 
-&mdash; [**Yuu Otosaka**](https://myanimelist.net/character.php?q=Yuu%20Otosaka&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
+&mdash; [**Grisha Jaeger**](https://myanimelist.net/character.php?q=Grisha%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
