@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No I can't go on like this! I should die! How could this happen? Did I really forget to fold the tip of the toilet paper into a triangle?"
+> "I read in some book that sad and painful things are the spices of an enjoyable life... But I seem to get nothing but spices!"
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Tomoko Kuroki**](https://myanimelist.net/character.php?q=Tomoko%20Kuroki&cat=character), [**WATAMOTE**](https://myanimelist.net/search/all?q=WATAMOTE&cat=all)
