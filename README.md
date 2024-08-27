@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "None of that will ever happen. I hate myself! But still, I have to keep these fantasies going! If I have a thousand of them, at least one of them might come true one day. If you stop fantasizing, you have no choice but to be crushed by reality."
+> "Just as there isn't a problem that can't be solved by being right, there isn't a problem that can't be solved by money."
 
-&mdash; [**Kidou Eita**](https://myanimelist.net/character.php?q=Kidou%20Eita&cat=character), [**Ore no Kanojo to Osananajimi ga Shuraba Sugiru**](https://myanimelist.net/search/all?q=Ore%20no%20Kanojo%20to%20Osananajimi%20ga%20Shuraba%20Sugiru&cat=all)
+&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
