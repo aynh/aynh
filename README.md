@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I read in some book that sad and painful things are the spices of an enjoyable life... But I seem to get nothing but spices!"
+> "...She's scary. People who can put on a serious face while joking are the scariest."
 
-&mdash; [**Tomoko Kuroki**](https://myanimelist.net/character.php?q=Tomoko%20Kuroki&cat=character), [**WATAMOTE**](https://myanimelist.net/search/all?q=WATAMOTE&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
