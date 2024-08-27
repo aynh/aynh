@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Real power is forged from the desire smoldering in the heart. It fans into a flame and begins to burn with an intensity scarcely imagined to be possible."
+> "Eating together makes food taste better and makes friends grow closer."
 
-&mdash; [**Orochimaru**](https://myanimelist.net/character.php?q=Orochimaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Karuta Roromiya**](https://myanimelist.net/character.php?q=Karuta%20Roromiya&cat=character), [**Inu X Boku SS**](https://myanimelist.net/search/all?q=Inu%20X%20Boku%20SS&cat=all)
