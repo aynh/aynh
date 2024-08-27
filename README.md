@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Obey the ones with power'. That's the true meaning of the law of the jungle. If you don't wish to be bound by that, obtain greater power. Because there's always times one must fight power with power."
+> "Don't try to find a reason for somebody's love!!"
 
-&mdash; [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/character.php?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Sengoku the Buddha**](https://myanimelist.net/character.php?q=Sengoku%20the%20Buddha&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
