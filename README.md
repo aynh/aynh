@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just as there isn't a problem that can't be solved by being right, there isn't a problem that can't be solved by money."
+> "He appeared right in front of me, and he wasn't a demon... but what looked like a human. As if he'd been yanked from before into the present unchanged. I gazed at him and for a second... I forgot to kill him."
 
-&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
