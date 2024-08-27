@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even as a child, I found tremendous pleasure in spilling my enemy's blood. Their screams of agony were my music. Once I learned that my mother's frozen tear drop was valuable, I began wearing in open sight of everyone, hoping their greed would entice them to challenge me, thus giving me the opportunity for my next kill."
+> "No I can't go on like this! I should die! How could this happen? Did I really forget to fold the tip of the toilet paper into a triangle?"
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
