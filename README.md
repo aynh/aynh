@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't try to find a reason for somebody's love!!"
+> "Weak humans are sly and irresponsible, they always put the blame on and hurt others."
 
-&mdash; [**Sengoku the Buddha**](https://myanimelist.net/character.php?q=Sengoku%20the%20Buddha&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Toto Sakigami**](https://myanimelist.net/character.php?q=Toto%20Sakigami&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
