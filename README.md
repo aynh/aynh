@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who rely on 'someday' will only grow weaker and lowlier."
+> "[after learning Guy Sensei's name. Might Guy] Yeah, mighty stupid looking guy!"
 
-&mdash; [**Shana**](https://myanimelist.net/character.php?q=Shana&cat=character), [**Shakugan no Shana**](https://myanimelist.net/search/all?q=Shakugan%20no%20Shana&cat=all)
+&mdash; [**Kisame Hoshigaki**](https://myanimelist.net/character.php?q=Kisame%20Hoshigaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
