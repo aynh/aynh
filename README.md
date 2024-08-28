@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I too, was looking for something. Something real in this world. For me, it was the warmth of your hand."
+> "We as humans have the power to do such, but whether we grab on to the thread or not is a choice we make."
 
-&mdash; [**Lisbeth**](https://myanimelist.net/character.php?q=Lisbeth&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
