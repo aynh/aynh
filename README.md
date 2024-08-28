@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Men don't get touchy-feely with each other."
+> "Are you not your own master? You should walk the path you desire. No one else should be able to stop you."
 
-&mdash; [**Taichi Mashima**](https://myanimelist.net/character.php?q=Taichi%20Mashima&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Jet**](https://myanimelist.net/character.php?q=Jet&cat=character), [**Neo Angelique Abyss -Second Age-**](https://myanimelist.net/search/all?q=Neo%20Angelique%20Abyss%20-Second%20Age-&cat=all)
