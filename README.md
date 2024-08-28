@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is right? What is wrong? In this mixed up world, deciding what is right and wrong is not easy. You can't just go by somebody else's rules. If you let yourself be controlled like that, you'll just become a puppet that can't make decisions on it's own. You have to live by your rules."
+> "The world is not so simple. You can't save people with kindness only."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Anji Yūkyūzan**](https://myanimelist.net/character.php?q=Anji%20Y%C5%ABky%C5%ABzan&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
