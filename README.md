@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't look like you'd be endowned with something so great (To Tohru, referring to 'womans intuition')"
+> "Men don't get touchy-feely with each other."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Taichi Mashima**](https://myanimelist.net/character.php?q=Taichi%20Mashima&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
