@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If a prediction is right, then it's like you only have one future. Like that future has been decided. But if it's wrong, then you have an almost infinite number of possibilities. And that means that even the tiniest twist of fate can change your future. I want to believe that I have choices - that the path I walk has many different turns, and many different roads to follow!"
+> "I too, was looking for something. Something real in this world. For me, it was the warmth of your hand."
 
-&mdash; [**Fujibayashi Ryou**](https://myanimelist.net/character.php?q=Fujibayashi%20Ryou&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Lisbeth**](https://myanimelist.net/character.php?q=Lisbeth&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
