@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Work together with everyone, motivating one another...even though they may not be your close friends, you can still understand each another. I'm looking forward to bonding with more people."
+> "I think running a restaurant would fit you better than being an assassin."
 
-&mdash; [**Mikan Sakura**](https://myanimelist.net/character.php?q=Mikan%20Sakura&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
+&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
