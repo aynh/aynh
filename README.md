@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Meeting you was the best thing that ever happened to me. You made me so happy. I don’t want you to be lost or afraid or anything like that. From here on out, I know things might be hard sometimes. But no matter what may await, please don’t regret meeting me."
+> "What is right? What is wrong? In this mixed up world, deciding what is right and wrong is not easy. You can't just go by somebody else's rules. If you let yourself be controlled like that, you'll just become a puppet that can't make decisions on it's own. You have to live by your rules."
 
-&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
