@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As you go through life, the might current of society is bound to get in your way and there will certainly be times that things don't go as you'd hoped. When this happens, don't look to society for a cause. Do not renounce society. Frankly, you'd be wasting your time. Instead just say, 'That's life!' and muddle your way through with frustration. Once you're past it, consider: If society's swift current is tossing you around, how should you be swimming there in it's midst. You should have learned how, here in the E class, in this assassination classroom. You don't always have to stand and face it head-on. You can run and you can hide. If it's not against the rules, you can try a sneak attack. You can use unconventional weapons. Stay determined - not impatient nor discouraged - and with repeated trial and error, you're bound to reach a splendid outcome eventually."
+> "I think Monster Beast Doughnut is a perfect name."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
