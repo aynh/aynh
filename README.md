@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after learning Guy Sensei's name. Might Guy] Yeah, mighty stupid looking guy!"
+> "Those who forgive themselves, and are able to accept their true nature... They are the strong ones!"
 
-&mdash; [**Kisame Hoshigaki**](https://myanimelist.net/character.php?q=Kisame%20Hoshigaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
