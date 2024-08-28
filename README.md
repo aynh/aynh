@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you not your own master? You should walk the path you desire. No one else should be able to stop you."
+> "If we only focus on making the best moves, we will never get the better of our opponent. When necessary, we must be willing to take big risks, and be prepared to lose everything. Unless we change how we fight, we cannot win."
 
-&mdash; [**Jet**](https://myanimelist.net/character.php?q=Jet&cat=character), [**Neo Angelique Abyss -Second Age-**](https://myanimelist.net/search/all?q=Neo%20Angelique%20Abyss%20-Second%20Age-&cat=all)
+&mdash; [**Erwin Smith**](https://myanimelist.net/character.php?q=Erwin%20Smith&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
