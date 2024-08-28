@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't think I'm cut out for manual labor. I need to get a more creative job, like saving the whales."
+> "Do not live bowing down. You must die standing up."
 
-&mdash; [**Tenma Tsukamoto**](https://myanimelist.net/character.php?q=Tenma%20Tsukamoto&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
+&mdash; [**Shigekuni Yamamoto-Genryusai**](https://myanimelist.net/character.php?q=Shigekuni%20Yamamoto-Genryusai&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
