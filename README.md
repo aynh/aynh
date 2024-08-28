@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We as humans have the power to do such, but whether we grab on to the thread or not is a choice we make."
+> "I don't think I'm cut out for manual labor. I need to get a more creative job, like saving the whales."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Tenma Tsukamoto**](https://myanimelist.net/character.php?q=Tenma%20Tsukamoto&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
