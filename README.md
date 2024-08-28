@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think Monster Beast Doughnut is a perfect name."
+> "Idiot... There's no win or lose in this, no higher or lower... There is always...only ONE truth."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
