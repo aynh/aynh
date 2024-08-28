@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how painful, no matter how much solitary struggle awaits us, because we have joyous moments like this, we can face the challenges over and over again."
+> "If a prediction is right, then it's like you only have one future. Like that future has been decided. But if it's wrong, then you have an almost infinite number of possibilities. And that means that even the tiniest twist of fate can change your future. I want to believe that I have choices - that the path I walk has many different turns, and many different roads to follow!"
 
-&mdash; [**Chiaki Shinichi**](https://myanimelist.net/character.php?q=Chiaki%20Shinichi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
+&mdash; [**Fujibayashi Ryou**](https://myanimelist.net/character.php?q=Fujibayashi%20Ryou&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
