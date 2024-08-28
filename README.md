@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think running a restaurant would fit you better than being an assassin."
+> "You don't look like you'd be endowned with something so great (To Tohru, referring to 'womans intuition')"
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
