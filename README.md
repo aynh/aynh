@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you truly want to continue escaping from everyday life, you've no other choice but to keep evolving. No matter whether you're aiming higher or lower."
+> "I believe there are many things in this world that people haven't seen yet. If you really want to see something, there's nothing you can't see. You can't see it because you're closing your eyes on purpose. Because if you use your eyes to see it, it'll be painful, and sad. That's why they're closed in the first place. I think photography is like borrowing someone else's eyes. So even if your eyes are closed... you can borrow someone else's."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Maria Oosawa**](https://myanimelist.net/character.php?q=Maria%20Oosawa&cat=character), [**CANAAN**](https://myanimelist.net/search/all?q=CANAAN&cat=all)
