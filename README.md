@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to possess her...to make her belong to me, and only me. (about Rin)"
+> "A fallen angel banished from heaven, arises into the light to be recieved by the benevolence of God..."
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
