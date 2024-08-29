@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen up, Cookie. Summer break is a break. We forget about homework. That's common sense. Understand?"
+> "As long as our love is stronger than the hatred within us, we can keep it sealed away."
 
-&mdash; [**Himeki Chifuyu**](https://myanimelist.net/character.php?q=Himeki%20Chifuyu&cat=character), [**Inou Battle wa Nichijou-kei no Naka de**](https://myanimelist.net/search/all?q=Inou%20Battle%20wa%20Nichijou-kei%20no%20Naka%20de&cat=all)
+&mdash; [**Yayoi Kanbara**](https://myanimelist.net/character.php?q=Yayoi%20Kanbara&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
