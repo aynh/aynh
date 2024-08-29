@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ash to ashes, dust to dust, trash to trash can and useless people to uselessness box."
+> "There are times we can't run away, no matter how bad the odds are. When the people we're supposed to protect are threatened, we have to enter the fray and shield them. And it doesn't matter who or what the enemy is. We need to master skills and get stronger, with artillery as well as hand-do-hand combat. I think that's our responsibility as strong soldiers."
 
-&mdash; [**Tsukiko Tsutsukakushi**](https://myanimelist.net/character.php?q=Tsukiko%20Tsutsukakushi&cat=character), [**Hentai Ouji To Warawanai Neko**](https://myanimelist.net/search/all?q=Hentai%20Ouji%20To%20Warawanai%20Neko&cat=all)
+&mdash; [**Reiner Braun**](https://myanimelist.net/character.php?q=Reiner%20Braun&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
