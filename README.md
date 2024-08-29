@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When the guarantee of safety is dangled right in front of their eyes, humans will turn their eye from probability."
+> "I want to possess her...to make her belong to me, and only me. (about Rin)"
 
-&mdash; [**Saori Shibuki**](https://myanimelist.net/character.php?q=Saori%20Shibuki&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
