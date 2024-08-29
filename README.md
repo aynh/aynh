@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was wrong, kindness is pointless."
+> "You asked me if I was ready to carry on. In all honesty, I am not sure of myself. But there is something that must be done now. And I will do it."
 
-&mdash; [**Shū Ouma**](https://myanimelist.net/character.php?q=Sh%C5%AB%20Ouma&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Bishamonten**](https://myanimelist.net/character.php?q=Bishamonten&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
