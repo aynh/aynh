@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A fallen angel banished from heaven, arises into the light to be recieved by the benevolence of God..."
+> "If you truly want to continue escaping from everyday life, you've no other choice but to keep evolving. No matter whether you're aiming higher or lower."
 
-&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
