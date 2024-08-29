@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can only become friends by talking to people and finding out whether you get along."
+> "Ash to ashes, dust to dust, trash to trash can and useless people to uselessness box."
 
-&mdash; [**Shougo Kiryuu**](https://myanimelist.net/character.php?q=Shougo%20Kiryuu&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
+&mdash; [**Tsukiko Tsutsukakushi**](https://myanimelist.net/character.php?q=Tsukiko%20Tsutsukakushi&cat=character), [**Hentai Ouji To Warawanai Neko**](https://myanimelist.net/search/all?q=Hentai%20Ouji%20To%20Warawanai%20Neko&cat=all)
