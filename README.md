@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm tired if trying, sick of crying, I know I've been smiling, but inside I'm dying."
+> "When the time comes, I may need to borrow your chest to cry upon. That's one promise I'll need from you."
 
-&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
