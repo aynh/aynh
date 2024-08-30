@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When the time comes, I may need to borrow your chest to cry upon. That's one promise I'll need from you."
+> "The sounds you find pretty, and the sounds the other members find pretty... Are they really the same?"
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Len Tsukimori**](https://myanimelist.net/character.php?q=Len%20Tsukimori&cat=character), [**Kiniro no Corda: Blue♪Sky**](https://myanimelist.net/search/all?q=Kiniro%20no%20Corda%3A%20Blue%E2%99%AASky&cat=all)
