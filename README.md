@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey, mutt! I need exercise, so I'll play with you!"
+> "Sometimes, your future is already set, and there's nothing you can do about it. There are some things you just can't change, no matter how hard you work. Unfair, don't you think? It isn't an easy fact to accept, and I'm not telling you to, but that's just how life is. Unfair."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kazuki Fujisawa**](https://myanimelist.net/character.php?q=Kazuki%20Fujisawa&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
