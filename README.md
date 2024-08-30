@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A woman must always move with grace, whether you're wiping a table or drying sheets. Or in the fight for your life."
+> "Sometimes I think delinquents are people… Who still have hope that things still can get better if they just put up a SOS sign. But I don’t even have the will to lift that sign anymore."
 
-&mdash; [**Ooe Kanade**](https://myanimelist.net/character.php?q=Ooe%20Kanade&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
