@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Inside your mouth, it's rat-ta-ta-ta-ta-ta-ta, wonderful."
+> "Perhaps the souls of those we couldn't save, will eventually find their way to my sister. If they do, could they relay a message for me? That I promise to live for her too. And even if she feels a little lonely, just wait there for me for a little while longer."
 
-&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Ikoma**](https://myanimelist.net/character.php?q=Ikoma&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
