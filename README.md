@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you look away and just turn your back on those you don't understand, you'll regret it someday. Accept what's happening before your eyes as a fact. That's a shortcut to becoming an adult."
+> "Do I have to kill you to stop you from being foolish?"
 
-&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
