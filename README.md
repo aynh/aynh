@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I love the word 'fate'. Because, you know how they talk about 'fated encounters'? A single encounter can completely change your life. Such special encounters are not just coincidences. They're definitely... fate. Of course, life is not all happy encounters. There are many painful, sad moments. But this is what I think: sad and painful things definitely happen for a reason. Nothing in this world is pointless."
+> "[in front of an execution squad] I don't give a rat's ass about going to hell. Guess I feel like I'm already there. What I do mind is the thought of being killed by you ugly bastards. I've gone my whole life without being helped by anyone else, and I'll be damned if I'm gonna let you help me into my grave."
 
-&mdash; [**Ringo Oginome**](https://myanimelist.net/character.php?q=Ringo%20Oginome&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
