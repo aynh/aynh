@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*on the phone* I'm sorry to interrupt you, Major, but let me offer a bit of feminine advice. BABIES AREN'T BORN AFTER JUST FIVE MONTHS!"
+> "A woman must always move with grace, whether you're wiping a table or drying sheets. Or in the fight for your life."
 
-&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Ooe Kanade**](https://myanimelist.net/character.php?q=Ooe%20Kanade&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
