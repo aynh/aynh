@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[in front of an execution squad] I don't give a rat's ass about going to hell. Guess I feel like I'm already there. What I do mind is the thought of being killed by you ugly bastards. I've gone my whole life without being helped by anyone else, and I'll be damned if I'm gonna let you help me into my grave."
+> "I'm tired if trying, sick of crying, I know I've been smiling, but inside I'm dying."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
