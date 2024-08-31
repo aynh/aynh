@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A man can't just live on carbohydrates alone..."
+> "I'm impressed. No one has ever gotten the better of me like that. It is almost a shame to take the bending of someone so talented. ALMOST."
 
-&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Amon**](https://myanimelist.net/character.php?q=Amon&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
