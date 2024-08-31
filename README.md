@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Perhaps the souls of those we couldn't save, will eventually find their way to my sister. If they do, could they relay a message for me? That I promise to live for her too. And even if she feels a little lonely, just wait there for me for a little while longer."
+> "Rush in there right now and break his hands and legs so he'll never be able to use them again. Make it so he won't be able to do anything without you anymore. Then he'll be yours. His heart, body, everything."
 
-&mdash; [**Ikoma**](https://myanimelist.net/character.php?q=Ikoma&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
+&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
