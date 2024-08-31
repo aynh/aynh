@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It could be real difficult to hide when you're as big a star as I am."
+> "Dammit, is that how you greet your son who went out of his way to help a ghost on the way home?!"
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
