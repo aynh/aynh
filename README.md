@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's the sky...that allows the clouds to move about freely."
+> "It's fine. Everyone makes mistakes. You just need to make an effort not to make the same mistake again."
 
-&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Ainz Ooal Gown**](https://myanimelist.net/character.php?q=Ainz%20Ooal%20Gown&cat=character), [**Overlord**](https://myanimelist.net/search/all?q=Overlord&cat=all)
