@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your home is the place where you can be yourself."
+> "Forget all that formal crap 'bout comin' at me one at a time. I'll take all you bitches on!"
 
-&mdash; [**Wataru Kurozuma**](https://myanimelist.net/character.php?q=Wataru%20Kurozuma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
