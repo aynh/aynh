@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Forget all that formal crap 'bout comin' at me one at a time. I'll take all you bitches on!"
+> "If you pick a fight with a god of death, I can't guarantee your soul's safety."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
