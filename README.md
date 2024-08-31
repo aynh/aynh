@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm impressed. No one has ever gotten the better of me like that. It is almost a shame to take the bending of someone so talented. ALMOST."
+> "Our contracts are completely dependent upon you agreeing to them first. I think that, in and of itself, is quite kind of us."
 
-&mdash; [**Amon**](https://myanimelist.net/character.php?q=Amon&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
+&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
