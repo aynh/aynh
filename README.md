@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter who they are, I won't forgive anyone who tries to stand out more than me."
+> "A man can't just live on carbohydrates alone..."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
