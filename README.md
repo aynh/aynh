@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who do not fear the sword they wield, have no right to wield a sword at all."
+> "While we are talking of peace, people are dying."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Setsuna F. Seiei**](https://myanimelist.net/character.php?q=Setsuna%20F.%20Seiei&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
