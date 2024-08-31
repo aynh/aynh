@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "While we are talking of peace, people are dying."
+> "Stand back? [To Kira after Gin asked him to stand back] No, Kira...Run. Run until you're out of my sight, and keep running. Otherwise...I can't guarantee you won't get dragged into this and be killed."
 
-&mdash; [**Setsuna F. Seiei**](https://myanimelist.net/character.php?q=Setsuna%20F.%20Seiei&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
