@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nake, Snake, Cobra, Cobra."
+> "You can go anywhere you want in this world with a single blade. This may be a virtual world, but I feel more alive here than in the real world."
 
-&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
