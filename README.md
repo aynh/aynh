@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you hurt me, then so be it. Do you think that there is any human in all the world who has never hurt another? You are all so kind...It hurts you to hurt others. That is why I had been hiding my pain, as well."
+> "In fairy tales, when the protagonists end up in a different world, they do their best to get back home, right? But who would want to go back to a world like that?"
 
-&mdash; [**Bishamonten**](https://myanimelist.net/character.php?q=Bishamonten&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
