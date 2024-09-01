@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans and spirits. We're indeed different beings, but that is why understanding each other is meaningful."
+> "You are a fool who creates slaves to do your dirty work. A coward and an incompetent, incapable of doing anything on your own. You are not worthy of the lowest pits of Hell!"
 
-&mdash; [**Tatara Phoron**](https://myanimelist.net/character.php?q=Tatara%20Phoron&cat=character), [**Shinkyoku Soukai Polyphonica**](https://myanimelist.net/search/all?q=Shinkyoku%20Soukai%20Polyphonica&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
