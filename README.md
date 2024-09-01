@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is hating someone but you still want to be with them."
+> "I was going to let you go. After all, there aren't many of us out there, but you're just such a pain in the ass."
 
-&mdash; [**Taichi Mashima**](https://myanimelist.net/character.php?q=Taichi%20Mashima&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
