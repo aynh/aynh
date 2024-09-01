@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Work together with everyone, motivating one another...even though they may not be your close friends, you can still understand each another. I'm looking forward to bonding with more people."
+> "A sin, once committed, is never forgotten. It haunts you for all eternity."
 
-&mdash; [**Mikan Sakura**](https://myanimelist.net/character.php?q=Mikan%20Sakura&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
+&mdash; [**Shinobu Nunotaba**](https://myanimelist.net/character.php?q=Shinobu%20Nunotaba&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
