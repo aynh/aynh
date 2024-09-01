@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No idiot would want to be friends with an unmoving, unspeaking telephone pole. However, unmoving and unspeaking is exactly what you'd want from a telephone pole."
+> "The essence of good deeds and evil is the same. They're both no more than a person's actions to make up for a defect in themselves."
 
-&mdash; [**Ushiromiya Ange**](https://myanimelist.net/character.php?q=Ushiromiya%20Ange&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Yashiro Gaku**](https://myanimelist.net/character.php?q=Yashiro%20Gaku&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
