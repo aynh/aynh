@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "However happy or sad something is, you’ll soon forget it if you don’t get a chance to recall it. What people don’t realize is that they’ve forgotten about forgetting. If everyone really preserved the happiest memory from their past perfectly, they’d only be sadder living in their relatively hollow present. And if everyone preserved the worst memory from their past perfectly, well, they’d still be sad. Everyone just remembers what it’s inconvenient not to remember."
+> "It's not bad enough they buried us alive in the oversized dung heap, but now they're stealing our chakra. You gotta give these guys credit for thoroughness!"
 
-&mdash; [**Kusonoki**](https://myanimelist.net/character.php?q=Kusonoki&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
+&mdash; [**Kiba Inuzuka**](https://myanimelist.net/character.php?q=Kiba%20Inuzuka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
