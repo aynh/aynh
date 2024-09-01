@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A sin, once committed, is never forgotten. It haunts you for all eternity."
+> "I don't regret using my wish for another's sake. If I regret my decision now, the feelings upon which it was based will be for naught."
 
-&mdash; [**Shinobu Nunotaba**](https://myanimelist.net/character.php?q=Shinobu%20Nunotaba&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Sayaka Miki**](https://myanimelist.net/character.php?q=Sayaka%20Miki&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
