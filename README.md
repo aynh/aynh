@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are a fool who creates slaves to do your dirty work. A coward and an incompetent, incapable of doing anything on your own. You are not worthy of the lowest pits of Hell!"
+> "Accident or amnesia, you can't rewind your life and start again. If you struggle, you'll just hurt yourself, and the people around you."
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
