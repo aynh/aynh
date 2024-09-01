@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't regret using my wish for another's sake. If I regret my decision now, the feelings upon which it was based will be for naught."
+> "Humans and spirits. We're indeed different beings, but that is why understanding each other is meaningful."
 
-&mdash; [**Sayaka Miki**](https://myanimelist.net/character.php?q=Sayaka%20Miki&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Tatara Phoron**](https://myanimelist.net/character.php?q=Tatara%20Phoron&cat=character), [**Shinkyoku Soukai Polyphonica**](https://myanimelist.net/search/all?q=Shinkyoku%20Soukai%20Polyphonica&cat=all)
