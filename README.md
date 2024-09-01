@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The essence of good deeds and evil is the same. They're both no more than a person's actions to make up for a defect in themselves."
+> "If you hurt me, then so be it. Do you think that there is any human in all the world who has never hurt another? You are all so kind...It hurts you to hurt others. That is why I had been hiding my pain, as well."
 
-&mdash; [**Yashiro Gaku**](https://myanimelist.net/character.php?q=Yashiro%20Gaku&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
+&mdash; [**Bishamonten**](https://myanimelist.net/character.php?q=Bishamonten&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
