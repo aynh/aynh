@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Then, if he accepts who you are, it doesn't matter if you're perfect for him or not. Rather, he may prefer you just the way you are now."
+> "Kurama, do not make me come over there and remove that precious thing you call a voice box."
 
-&mdash; [**Tanaka**](https://myanimelist.net/character.php?q=Tanaka&cat=character), [**Tanaka-kun wa Itsumo Kedaruge**](https://myanimelist.net/search/all?q=Tanaka-kun%20wa%20Itsumo%20Kedaruge&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
