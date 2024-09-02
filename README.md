@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mayama, if you can't be with her on every festival, then you have no right to say anything."
+> "If a person continues killing, their heart changes into that of a demon without them even noticing."
 
-&mdash; [**Takumi Nomiya**](https://myanimelist.net/character.php?q=Takumi%20Nomiya&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Gensei**](https://myanimelist.net/character.php?q=Gensei&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
