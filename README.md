@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't think it's possible to save everyone. I just want to save as many as I can."
+> "Give advice and good guidance, then halt if such is of no avail. Do not disgrace yourself for it."
 
-&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Takaaki Morofushi**](https://myanimelist.net/character.php?q=Takaaki%20Morofushi&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
