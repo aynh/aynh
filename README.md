@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pain, suffering. It's pointless to just think about those things. The traveler (referring to 'The Most Foolish Traveler' by Natsuki Takaya) didn't. That may be stupid to some people but that's not stupid to me. Yuki... Kyo... when you close your eyes, what do you think?"
+> "I did say that you could ask, but I didn't say that I would answer."
 
-&mdash; [**Sohma Momiji**](https://myanimelist.net/character.php?q=Sohma%20Momiji&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
