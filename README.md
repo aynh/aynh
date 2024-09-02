@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That is when I realized that in all of the world no one needed me. I was alone."
+> "Cute, cute Nanao-chaaaan. Lovely, lovely Nanao -- AHHHHHHH!!!!"
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
