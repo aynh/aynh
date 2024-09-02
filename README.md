@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A smile is the best way to get oneself out of a tight spot, even if it is a fake one. Surprisingly enough, everyone takes it at face value."
+> "Pain, suffering. It's pointless to just think about those things. The traveler (referring to 'The Most Foolish Traveler' by Natsuki Takaya) didn't. That may be stupid to some people but that's not stupid to me. Yuki... Kyo... when you close your eyes, what do you think?"
 
-&mdash; [**Sai**](https://myanimelist.net/character.php?q=Sai&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sohma Momiji**](https://myanimelist.net/character.php?q=Sohma%20Momiji&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
