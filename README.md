@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Cute, cute Nanao-chaaaan. Lovely, lovely Nanao -- AHHHHHHH!!!!"
+> "[About Naruto] Well that's typical. Not happy unless he's giving people a heart attack."
 
-&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
