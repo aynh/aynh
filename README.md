@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Better to ask and be a fool once than never to ask and be a fool forever."
+> "Yeah, I know. It's not good to be reading Jump at my age."
 
-&mdash; [**Yumi Iguchi**](https://myanimelist.net/character.php?q=Yumi%20Iguchi&cat=character), [**Shirobako**](https://myanimelist.net/search/all?q=Shirobako&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
