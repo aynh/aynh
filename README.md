@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I were to survive, but couldn't protect what was important to me, then I might as well be dead."
+> "Even though everything is going to disappear, it isn't supposed to be meaningless. It's exactly because you know you're going to part ways, that now and only now is your only chance."
 
-&mdash; [**Tama**](https://myanimelist.net/character.php?q=Tama&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Onoya An**](https://myanimelist.net/character.php?q=Onoya%20An&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
