@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Give advice and good guidance, then halt if such is of no avail. Do not disgrace yourself for it."
+> "Better to ask and be a fool once than never to ask and be a fool forever."
 
-&mdash; [**Takaaki Morofushi**](https://myanimelist.net/character.php?q=Takaaki%20Morofushi&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Yumi Iguchi**](https://myanimelist.net/character.php?q=Yumi%20Iguchi&cat=character), [**Shirobako**](https://myanimelist.net/search/all?q=Shirobako&cat=all)
