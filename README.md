@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If a person continues killing, their heart changes into that of a demon without them even noticing."
+> "Not killing people is really hard. Clean living is tough."
 
-&mdash; [**Gensei**](https://myanimelist.net/character.php?q=Gensei&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Killua Zoldyck**](https://myanimelist.net/character.php?q=Killua%20Zoldyck&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
