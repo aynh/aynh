@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even though everything is going to disappear, it isn't supposed to be meaningless. It's exactly because you know you're going to part ways, that now and only now is your only chance."
+> "That is when I realized that in all of the world no one needed me. I was alone."
 
-&mdash; [**Onoya An**](https://myanimelist.net/character.php?q=Onoya%20An&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
