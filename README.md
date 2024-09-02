@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can go anywhere you want in this world with a single blade. This may be a virtual world, but I feel more alive here than in the real world."
+> "If I were to survive, but couldn't protect what was important to me, then I might as well be dead."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Tama**](https://myanimelist.net/character.php?q=Tama&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
