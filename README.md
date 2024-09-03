@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Necessary murder. Man must kill to live. That hasn't changed, even with humanity's decline. The situation has reached the point in which escape and refusal are no longer options, so I must act."
+> "If you truly want to continue escaping from everyday life, you've no other choice but to keep evolving. No matter whether you're aiming higher or lower."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
