@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter the journey, when you come to a fork in the road, you must decide in an instant which path to take."
+> "I want to believe that memories, even sad and painful ones, should not be forgotten forever."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Sohma Momiji**](https://myanimelist.net/character.php?q=Sohma%20Momiji&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
