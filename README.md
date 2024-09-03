@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My heart was taken by you, broken by you, and now it's in pieces because of you."
+> "If I'm protecting someone, I won't let her die, and if I'm attacking, I'll cut you."
 
-&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
