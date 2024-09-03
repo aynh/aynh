@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The human psyche goes out of whack so easily with minor elements, such as wall colors and staircase placement. Those who use them every day would be affected more dramatically."
+> "When you love someone, I think it's only natural to worry about what they love."
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**Kara no Kyoukai**](https://myanimelist.net/search/all?q=Kara%20no%20Kyoukai&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
