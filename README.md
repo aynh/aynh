@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But maybe life isn't about counting all the things you've lost."
+> "The human psyche goes out of whack so easily with minor elements, such as wall colors and staircase placement. Those who use them every day would be affected more dramatically."
 
-&mdash; [**Tsukamoto Tsukushi**](https://myanimelist.net/character.php?q=Tsukamoto%20Tsukushi&cat=character), [**Days TV**](https://myanimelist.net/search/all?q=Days%20TV&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**Kara no Kyoukai**](https://myanimelist.net/search/all?q=Kara%20no%20Kyoukai&cat=all)
