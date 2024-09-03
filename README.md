@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to believe that memories, even sad and painful ones, should not be forgotten forever."
+> "The heart becomes scratched and dented and repaired over time, and with one glance, you'd be able to tell your own from others."
 
-&mdash; [**Sohma Momiji**](https://myanimelist.net/character.php?q=Sohma%20Momiji&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
