@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fright is about the feeling that you will die. The true meaning of terror doesn't lie in a static condition, but in a change."
+> "Comrades are comrades because they help each other out."
 
-&mdash; [**Caster**](https://myanimelist.net/character.php?q=Caster&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
