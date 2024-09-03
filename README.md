@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ha ha! Eat my dust, rat-boy! (to Yuki)"
+> "Fright is about the feeling that you will die. The true meaning of terror doesn't lie in a static condition, but in a change."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Caster**](https://myanimelist.net/character.php?q=Caster&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
