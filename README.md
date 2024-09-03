@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you truly want to continue escaping from everyday life, you've no other choice but to keep evolving. No matter whether you're aiming higher or lower."
+> "No matter the journey, when you come to a fork in the road, you must decide in an instant which path to take."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
