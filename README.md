@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just as water runs downhill, the human heart also tends to revert to its basest instincts."
+> "Look at this world, so many people deserve to be killed. At the same time, a murderer must be ready to be killed as he lives. That's what retribution is. So, in this world, evil or whatever, a person strongly determined to live is the one who survives in the end."
 
-&mdash; [**Hideo Kuze**](https://myanimelist.net/character.php?q=Hideo%20Kuze&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
