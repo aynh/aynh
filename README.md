@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is... care and devotion you feel for the precious ones around you."
+> "Does it hurt? Relish the taste, because it is going to be the last sensation you feel in this life."
 
-&mdash; [**Yashamaru**](https://myanimelist.net/character.php?q=Yashamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Asakura Ryouko**](https://myanimelist.net/character.php?q=Asakura%20Ryouko&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
