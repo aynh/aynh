@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People should be doubted. Many people misunderstand this concept. Doubting people is just a part of getting to know them. What many people call 'trust' is really just giving up on trying to understand others, and that very act is far worse than doubting. It is actually 'apathy'."
+> "Just as water runs downhill, the human heart also tends to revert to its basest instincts."
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Hideo Kuze**](https://myanimelist.net/character.php?q=Hideo%20Kuze&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
