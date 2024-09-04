@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not like something is going to happen because I believe in it.  Sometimes you end up worse off because you believed in something too much. There are times it's tough to believe in something."
+> "Fear. That is what we live with. And we live it everyday. Only in death are we free of it."
 
-&mdash; [**Eureka**](https://myanimelist.net/character.php?q=Eureka&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Neji Hyuuga**](https://myanimelist.net/character.php?q=Neji%20Hyuuga&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
