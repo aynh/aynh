@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Any harm that comes to me because of you is harm that I need. I want to share your pain. So I want you to let me fight. With you."
+> "When someone does something nice for you… shut up and accept it!"
 
-&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Tsugumi**](https://myanimelist.net/character.php?q=Tsugumi&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
