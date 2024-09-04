@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Victory and Glory!"
+> "[after witnessing a small argument between Inuyasha and Kagome] Inuyasha, your patience with this creature is astonishing to me. You protect her, indulge her, even seem to love her."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
