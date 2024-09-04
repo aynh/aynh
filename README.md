@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The second humans lose their comfort zone, the more simplistic their actions become."
+> "We can no longer go back though, I’m totally different from that person in the past, you too. That was just a brief reminiscing of our past, that’s all."
 
-&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
