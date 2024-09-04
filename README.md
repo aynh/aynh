@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If history repeats itself, and moves in a circular path, then believing that whatever force is turning it is perfect, is all we can do as we move ahead. Pushed along by forces beyond our control, waiting, for the blade to be swung."
+> "If we understood how other people felt, then nobody would ever start wars!"
 
-&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
