@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no way someone who can't even protect himself can protect anyone else, is there?"
+> "Crying is a nosebleed of the heart."
 
-&mdash; [**Touka Kirishima**](https://myanimelist.net/character.php?q=Touka%20Kirishima&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
