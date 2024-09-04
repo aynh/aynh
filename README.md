@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're lonely, you should say something! If you're worried, say something! Most people aren't as sharp as you are! If you want those people to understand you, you should say something! Even if you're worried that you'll embarrass yourself, you should still say something!"
+> "Nobody thinks they're cuter than others unless they're conceited."
 
-&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Maki Nishikino**](https://myanimelist.net/character.php?q=Maki%20Nishikino&cat=character), [**Love Live! School idol project TV 2/2014**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project%20TV%202%2F2014&cat=all)
