@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're too loud, Police Girl. I don't care if you're a vampire, you're still English. Have some manners."
+> "The second humans lose their comfort zone, the more simplistic their actions become."
 
-&mdash; [**Integra Hellsing**](https://myanimelist.net/character.php?q=Integra%20Hellsing&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
