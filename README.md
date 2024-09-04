@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We can no longer go back though, I’m totally different from that person in the past, you too. That was just a brief reminiscing of our past, that’s all."
+> "There's no way someone who can't even protect himself can protect anyone else, is there?"
 
-&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Touka Kirishima**](https://myanimelist.net/character.php?q=Touka%20Kirishima&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
