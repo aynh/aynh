@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nobody thinks they're cuter than others unless they're conceited."
+> "[about 500 feet behind InuYasha] I can see why being called a mutt by Koga would upset him... but now that I see him sitting there sniffing the ground he does look like a dog."
 
-&mdash; [**Maki Nishikino**](https://myanimelist.net/character.php?q=Maki%20Nishikino&cat=character), [**Love Live! School idol project TV 2/2014**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project%20TV%202%2F2014&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
