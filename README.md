@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "PIKA-CHU-UUUUUUU!"
+> "If history repeats itself, and moves in a circular path, then believing that whatever force is turning it is perfect, is all we can do as we move ahead. Pushed along by forces beyond our control, waiting, for the blade to be swung."
 
-&mdash; [**Pikachu**](https://myanimelist.net/character.php?q=Pikachu&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
