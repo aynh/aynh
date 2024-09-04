@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm neither a soldier, nor a brave man. Not to mention that running away isn't the same thing as losing. You only truly lose by dying. So as long you're alive, you win!"
+> "Victory and Glory!"
 
-&mdash; [**Senator Figaro**](https://myanimelist.net/character.php?q=Senator%20Figaro&cat=character), [**Kakumeiki Valvrave**](https://myanimelist.net/search/all?q=Kakumeiki%20Valvrave&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
