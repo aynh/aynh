@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When someone does something nice for you… shut up and accept it!"
+> "I'm neither a soldier, nor a brave man. Not to mention that running away isn't the same thing as losing. You only truly lose by dying. So as long you're alive, you win!"
 
-&mdash; [**Tsugumi**](https://myanimelist.net/character.php?q=Tsugumi&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Senator Figaro**](https://myanimelist.net/character.php?q=Senator%20Figaro&cat=character), [**Kakumeiki Valvrave**](https://myanimelist.net/search/all?q=Kakumeiki%20Valvrave&cat=all)
