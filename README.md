@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Crying is a nosebleed of the heart."
+> "Does math bring out your wrath?"
 
-&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Shun Izuki**](https://myanimelist.net/character.php?q=Shun%20Izuki&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
