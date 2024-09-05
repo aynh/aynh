@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Men are not men on the battlefield. We turn into some other creature. You can do the cruelest things... It doesn't even matter if it's an order or not. To protect yourself, your mind shuts out any emotions you have. It's like a steel door. But once the war is over, you can't keep it closed forever."
+> "Because my time is limited, I don't have any time to waste hesitating. That is why I can walk straight ahead. That is why I never stop."
 
-&mdash; [**Fullmetal Alchemist**](https://myanimelist.net/character.php?q=Fullmetal%20Alchemist&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Rosette Christopher**](https://myanimelist.net/character.php?q=Rosette%20Christopher&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
