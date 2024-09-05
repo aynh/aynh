@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after Hisagi thanks him] Aren't you clever? Is that supposed to be sarcastic?"
+> "'To enjoy what one loves to do'. Those words come easily from the mouth. But it's another thing to help them grow."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
