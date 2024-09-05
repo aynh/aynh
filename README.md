@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Using a rescued civilian as a hostage? So do you still feel justified in fighting by their side with these cowards? Kira?"
+> "Even if everyone in the whole world dies, I won't care, as long as my beloved survives."
 
-&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Shinra Kishitani**](https://myanimelist.net/character.php?q=Shinra%20Kishitani&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
