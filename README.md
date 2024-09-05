@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't believe in yourself, who will!? You're the only one demeaning yourself!"
+> "What we need now is not the diary of the past, but instead the calendar of the future."
 
-&mdash; [**Amu Hinamori**](https://myanimelist.net/character.php?q=Amu%20Hinamori&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
+&mdash; [**Dusty Attenborough**](https://myanimelist.net/character.php?q=Dusty%20Attenborough&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
