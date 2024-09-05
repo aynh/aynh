@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is your home now, so make yourself comfortable. And take advantage of everything here, except me."
+> "Do you remember the first time you walked? No. So you weren't conscious of it. Then why did you walk? Everyone was born knowing how to walk. It's called instinct. That's what this boy reminds me of. He knows he can achieve bankai, so he continues."
 
-&mdash; [**Misato Katsuragi**](https://myanimelist.net/character.php?q=Misato%20Katsuragi&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
