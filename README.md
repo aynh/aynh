@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's always a lot more easier to let something fall apart than it is to try to hold it together."
+> "It is far more difficult to capture an enemy than to kill them. Capturing a soldier involves three times the effort and three times the danger. If you wish to save the life of an enemy soldier, remember that you'll lose three of your own in the process."
 
-&mdash; [**Ayasegawa Yumichika**](https://myanimelist.net/character.php?q=Ayasegawa%20Yumichika&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Baldr**](https://myanimelist.net/character.php?q=Baldr&cat=character), [**Broken Blade**](https://myanimelist.net/search/all?q=Broken%20Blade&cat=all)
