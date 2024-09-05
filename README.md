@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What we need now is not the diary of the past, but instead the calendar of the future."
+> "[after Hisagi thanks him] Aren't you clever? Is that supposed to be sarcastic?"
 
-&mdash; [**Dusty Attenborough**](https://myanimelist.net/character.php?q=Dusty%20Attenborough&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
