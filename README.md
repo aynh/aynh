@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is far more difficult to capture an enemy than to kill them. Capturing a soldier involves three times the effort and three times the danger. If you wish to save the life of an enemy soldier, remember that you'll lose three of your own in the process."
+> "I think it's fun to get to know a person little by little, through looking at their personality."
 
-&mdash; [**Baldr**](https://myanimelist.net/character.php?q=Baldr&cat=character), [**Broken Blade**](https://myanimelist.net/search/all?q=Broken%20Blade&cat=all)
+&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
