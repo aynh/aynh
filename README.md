@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if everyone in the whole world dies, I won't care, as long as my beloved survives."
+> "It’s unbearable to die hating someone."
 
-&mdash; [**Shinra Kishitani**](https://myanimelist.net/character.php?q=Shinra%20Kishitani&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
