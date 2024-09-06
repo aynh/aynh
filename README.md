@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans have the ability to actively put things to an end rather than simply accept what's in store."
+> "Being able to work hard is the best talent of all."
 
-&mdash; [**Souda Manatsu**](https://myanimelist.net/character.php?q=Souda%20Manatsu&cat=character), [**RDG: Red Data Girl**](https://myanimelist.net/search/all?q=RDG%3A%20Red%20Data%20Girl&cat=all)
+&mdash; [**Hiroshi Kido**](https://myanimelist.net/character.php?q=Hiroshi%20Kido&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
