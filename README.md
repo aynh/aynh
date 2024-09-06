@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In some ways, the more one thinks, the closer one feels to getting the answer...but in the end, it's hard to tell what is really the safe answer. I started to dislike being like that at one point, and my motto is, 'make quick decisions and act fast.' I choose the first answer that feels 'right' to me."
+> "Mighty Katara..? I like that."
 
-&mdash; [**Shirasagi Yuki**](https://myanimelist.net/character.php?q=Shirasagi%20Yuki&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
+&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
