@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "These days, I feel more comfortable in dark places.  I look at these shadows as a part of you.  They absorb all the light.  There's no one in the world who has this color but you."
+> "I knew it. The Earth Forces' new mobile weapons. Father, I knew you'd betray us all!"
 
-&mdash; [**Shinra Kishitani**](https://myanimelist.net/character.php?q=Shinra%20Kishitani&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Cagalli Yula Athha**](https://myanimelist.net/character.php?q=Cagalli%20Yula%20Athha&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
