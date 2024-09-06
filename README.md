@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud!"
+> "One human only has the power to do so much. That's why I'm going to protect...even if it's just a handful of them...the ones most important to me."
 
-&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
