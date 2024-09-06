@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've got to enjoy life, or else you'll end up wasting it."
+> "You idiot. You'd gotten yourself up in a tizzy about romance, right? 'Love' you experience in that state is just self-delusion. There's no point in getting depressed over love like that."
 
-&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
+&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
