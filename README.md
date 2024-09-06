@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This world is full of secrets meant never to be disturbed."
+> "Everyone has different faces."
 
-&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
+&mdash; [**Taichi Yaegashi**](https://myanimelist.net/character.php?q=Taichi%20Yaegashi&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
