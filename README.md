@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don’t like someone who makes a fool out of earnest people."
+> "Justice is a weapon. It can be used to cause harm, but it cannot protect or save others."
 
-&mdash; [**Noriko Paku**](https://myanimelist.net/character.php?q=Noriko%20Paku&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
