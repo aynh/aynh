@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One human only has the power to do so much. That's why I'm going to protect...even if it's just a handful of them...the ones most important to me."
+> "You've got to enjoy life, or else you'll end up wasting it."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
