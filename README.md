@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has different faces."
+> "These days, I feel more comfortable in dark places.  I look at these shadows as a part of you.  They absorb all the light.  There's no one in the world who has this color but you."
 
-&mdash; [**Taichi Yaegashi**](https://myanimelist.net/character.php?q=Taichi%20Yaegashi&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Shinra Kishitani**](https://myanimelist.net/character.php?q=Shinra%20Kishitani&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
