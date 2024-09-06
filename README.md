@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*referring to Yoh* [annoyed] Why does he always seem so carefree? He doesn't study... He listens to his favorite music... He even watches the rivers and stars!.. I wish I could live like that..."
+> "I've learned that from a war ignited by revenge, nothing can be born, but sorrow."
 
-&mdash; [**Manta Oyamada**](https://myanimelist.net/character.php?q=Manta%20Oyamada&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Aladdin**](https://myanimelist.net/character.php?q=Aladdin&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
