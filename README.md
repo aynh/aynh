@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've been wondering... There must be a purpose for people being born into this world. Why are we here? What does it mean? I've been thinking about it a lot lately. I realized that finding our purpose IS the meaning. That's why we're here. And the ones who find it... They're the only ones who are truly free."
+> "If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud!"
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
