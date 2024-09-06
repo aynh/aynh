@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You idiot. You'd gotten yourself up in a tizzy about romance, right? 'Love' you experience in that state is just self-delusion. There's no point in getting depressed over love like that."
+> "I don’t like someone who makes a fool out of earnest people."
 
-&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
+&mdash; [**Noriko Paku**](https://myanimelist.net/character.php?q=Noriko%20Paku&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
