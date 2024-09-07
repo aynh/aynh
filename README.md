@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hmm... you can go anywhere you want? Cuz' I'll go... anywhere with you, y'know. (To Kureno)"
+> "The first one to move wins. Stay on the defensive and you'll lose your chance."
 
-&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Nobutaka Oda**](https://myanimelist.net/character.php?q=Nobutaka%20Oda&cat=character), [**Btooom!**](https://myanimelist.net/search/all?q=Btooom!&cat=all)
