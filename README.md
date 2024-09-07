@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People aren't so simple that they can accept anything and everything."
+> "Living should mean no do-overs. This is for the best."
 
-&mdash; [**Guy Cecil**](https://myanimelist.net/character.php?q=Guy%20Cecil&cat=character), [**Tales of the Abyss**](https://myanimelist.net/search/all?q=Tales%20of%20the%20Abyss&cat=all)
+&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
