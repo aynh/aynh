@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Remote islands are all about strange incidents, right?"
+> "Nobody can make someone who isn't trying to be happy into someone that's happy"
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Tsubasa Hanekawa**](https://myanimelist.net/character.php?q=Tsubasa%20Hanekawa&cat=character), [**Owarimonogatari**](https://myanimelist.net/search/all?q=Owarimonogatari&cat=all)
