@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The road of life is never without trials and tribulations."
+> "A bratty little midget."
 
-&mdash; [**Castor**](https://myanimelist.net/character.php?q=Castor&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
