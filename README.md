@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The first one to move wins. Stay on the defensive and you'll lose your chance."
+> "I won’t accept it! I want to have a choice, too! I don’t want to write poems about regret."
 
-&mdash; [**Nobutaka Oda**](https://myanimelist.net/character.php?q=Nobutaka%20Oda&cat=character), [**Btooom!**](https://myanimelist.net/search/all?q=Btooom!&cat=all)
+&mdash; [**Sumire Hanano**](https://myanimelist.net/character.php?q=Sumire%20Hanano&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
