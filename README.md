@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hope it's a cool morning. That's how cool days always start out. And a cool guy like me deserves the coolest morning possible."
+> "What are you smoking? Don't you see how cool I am? You think I'm going to settle for a flat chested girl like her?"
 
 &mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
