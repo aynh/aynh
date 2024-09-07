@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't make it sound so easy! Don't you realize how hard I had to study? I worked hard... I worked so hard!"
+> "There are no lives in this world that shouldn't be valued."
 
-&mdash; [**Hakua Du Lot Herminium**](https://myanimelist.net/character.php?q=Hakua%20Du%20Lot%20Herminium&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Moroha Haimura**](https://myanimelist.net/character.php?q=Moroha%20Haimura&cat=character), [**Seiken Tsukai no World Break**](https://myanimelist.net/search/all?q=Seiken%20Tsukai%20no%20World%20Break&cat=all)
