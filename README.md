@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sympathy only gets people hurt."
+> "The road of life is never without trials and tribulations."
 
-&mdash; [**Tsugumi**](https://myanimelist.net/character.php?q=Tsugumi&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Castor**](https://myanimelist.net/character.php?q=Castor&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
