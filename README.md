@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Any event is a personal episode, where only those involved comprehend what's happening."
+> "People aren't so simple that they can accept anything and everything."
 
-&mdash; [**Kuro Fukase**](https://myanimelist.net/character.php?q=Kuro%20Fukase&cat=character), [**ib: Instant Bullet**](https://myanimelist.net/search/all?q=ib%3A%20Instant%20Bullet&cat=all)
+&mdash; [**Guy Cecil**](https://myanimelist.net/character.php?q=Guy%20Cecil&cat=character), [**Tales of the Abyss**](https://myanimelist.net/search/all?q=Tales%20of%20the%20Abyss&cat=all)
