@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Jojo, being human means having limits. I've learned something. The more carefully you scheme, the more unexpected events come along"
+> "Never send a boy to do a mans job."
 
-&mdash; [**Dio Brando**](https://myanimelist.net/character.php?q=Dio%20Brando&cat=character), [**JoJo's Bizarre Adventure: Phantom Blood**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Phantom%20Blood&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
