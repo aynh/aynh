@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A real man is someone who forgives a woman for her lies!"
+> "Does she understand what she's doing, this stupid woman?"
 
-&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
