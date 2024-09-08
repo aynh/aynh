@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well I do have abilities you haven't yet been given, just like not everyones has the strengths you do."
+> "(To Ichigo Kurosaki before getting shot point-blank by his Cero) I see. So you show no mercy. Just like a true Hollow. I care not. Defeated by you as I stand, my existence holds no further meaning. Do it."
 
-&mdash; [**Asano Gakuho**](https://myanimelist.net/character.php?q=Asano%20Gakuho&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
