@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mom, you're embarrassing me! In front of all these people? Don't you know I'm a big kid now?"
+> "I went with raven for a long bathroom break."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
