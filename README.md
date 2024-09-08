@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how you look, as long as your judgement is clouded you won't find the truth."
+> "I’m not going to lie to you, Vegeta, although the answer may be difficult for you to hear. This is the truth. Goku devoted his life to protecting the lives of other. Because of his selflessness, when he died, he was allowed to keep his body and travel to King Kai’s Planet. You, on the other hand, have spent your life in pursuit of your own selfish desires. You’ve caused too much pain. When you die, you will not receive the same reward."
 
-&mdash; [**Igor Neuhaus**](https://myanimelist.net/character.php?q=Igor%20Neuhaus&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
