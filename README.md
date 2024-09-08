@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Never give up without even trying. Do what you can, no matter how small the effect it may have!"
+> "Living has it own challenges. I'll give you just one piece of advice. Don't quit. Yes, when you die, you die. But if you give up, you're definitely going to die. That, I am sure of."
 
-&mdash; [**Ōnoki**](https://myanimelist.net/character.php?q=%C5%8Cnoki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Brittany**](https://myanimelist.net/character.php?q=Brittany&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
