@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All of the connections we encounter in this world serve as teachers who nurture us."
+> "If this world wasn't a complete hell for me, that's because you were alive."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Ein**](https://myanimelist.net/character.php?q=Ein&cat=character), [**Phantom: Requiem For The Phantom**](https://myanimelist.net/search/all?q=Phantom%3A%20Requiem%20For%20The%20Phantom&cat=all)
