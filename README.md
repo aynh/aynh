@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Inherited will, the swelling of the changing times, and the dreams of people. These are things that cannot be stopped. As long as people seek the answer to freedom, these will never cease to be!"
+> "Never give up without even trying. Do what you can, no matter how small the effect it may have!"
 
-&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Ōnoki**](https://myanimelist.net/character.php?q=%C5%8Cnoki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
