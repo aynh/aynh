@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't make me slap you upside the head, just shoot the damn thing!"
+> "A real man is someone who forgives a woman for her lies!"
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
