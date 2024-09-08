@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Colors and lies both get blacker as you add more. Add enough red, and it'll turn black too."
+> "Don't make me slap you upside the head, just shoot the damn thing!"
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
