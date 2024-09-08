@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't just leave a crying girl alone and go home. I'm too wimpy to carry you, but I can lend you a shoulder, and get you down the stairs."
+> "[thinking] I only take family as patients and I still get worked to death."
 
-&mdash; [**Ooga Kazuomi**](https://myanimelist.net/character.php?q=Ooga%20Kazuomi&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
