@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Does she understand what she's doing, this stupid woman?"
+> "So you want to die honorably? You are being selfish. Each and every person you killed had his own life. Whether that life was blessed or not ... everyone is born into this world ... they grow up ... some people have family ... some are alone in this world ... some have young children ... some are engaged ... some have pets ...some people have high hopes and great dreams ... other have no ambition at all and you ended everything for them Takezo"
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Takuan Sōhō**](https://myanimelist.net/character.php?q=Takuan%20S%C5%8Dh%C5%8D&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
