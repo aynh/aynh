@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’m not going to lie to you, Vegeta, although the answer may be difficult for you to hear. This is the truth. Goku devoted his life to protecting the lives of other. Because of his selflessness, when he died, he was allowed to keep his body and travel to King Kai’s Planet. You, on the other hand, have spent your life in pursuit of your own selfish desires. You’ve caused too much pain. When you die, you will not receive the same reward."
+> "The disturbance in the stitch, is a disturbance in the heart."
 
-&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Anissina von Karbelnikoff**](https://myanimelist.net/character.php?q=Anissina%20von%20Karbelnikoff&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
