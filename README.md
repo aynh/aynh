@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Crying is a nosebleed of the heart."
+> "Words are cheap. There's no guarantee she won't tell anyone. Humans lie without a second thought. Including me, of course."
 
-&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji: Book of Circus**](https://myanimelist.net/search/all?q=Kuroshitsuji%3A%20Book%20of%20Circus&cat=all)
