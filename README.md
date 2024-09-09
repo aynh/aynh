@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[about Rau] But are you sure that's me? Oh well. He will be my successor in any case. Why should that woman's child be my heir? Keep a close eye on him and educate him well. Whatever you do, don't make him into another weakling."
+> "People don't give damn about reasons, but nobody can resist miracles."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
