@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Weapons are used by soldiers on the battlefield. If you have never used them yourself, you have no idea what you're selling."
+> "The more painful the memories one recollects, the better the laughter."
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
