@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(In response to Seaman's question) When real men do what they're supposed to, it's not always about what they want."
+> "Weapons are used by soldiers on the battlefield. If you have never used them yourself, you have no idea what you're selling."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
