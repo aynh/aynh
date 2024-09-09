@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Therefore let me inform you...All of your dreams are to be thrown away."
+> "[about Rau] But are you sure that's me? Oh well. He will be my successor in any case. Why should that woman's child be my heir? Keep a close eye on him and educate him well. Whatever you do, don't make him into another weakling."
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
