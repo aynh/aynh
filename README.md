@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When faced with a decision... At such times, we must choose only one option and it can be very confusing. When that happens, simply using your head and charging straight into the obstacle is a fine option."
+> "Crying is a nosebleed of the heart."
 
-&mdash; [**Sakamoto**](https://myanimelist.net/character.php?q=Sakamoto&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
