@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm sure it's not wrong for people to want to understand each other. And even if it is, I want us to understand each other."
+> "Idiot... There's no win or lose in this, no higher or lower... There is always...only ONE truth."
 
-&mdash; [**Chiyuki**](https://myanimelist.net/character.php?q=Chiyuki&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
