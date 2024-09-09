@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Idiot... There's no win or lose in this, no higher or lower... There is always...only ONE truth."
+> "Sometimes it's necessary to courageously retreat."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Ashiya Shirou**](https://myanimelist.net/character.php?q=Ashiya%20Shirou&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
