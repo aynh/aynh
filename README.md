@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Most people don’t mind killing cows and chickens but they’d probably have a hard time doing the same to chimpanzees. Partially, it’s because chimpanzees bear a slight resemblance to humans, but the primary reason is that they can draw pictures. Suppose fish were able to draw pictures. Even if we are unable to understand what they’re thinking, it becomes harder to kill animals that can draw. Instinctively, in our minds we would say to ourselves… “May be they have feelings” That shows how high a value we assign to expression."
+> "When faced with a decision... At such times, we must choose only one option and it can be very confusing. When that happens, simply using your head and charging straight into the obstacle is a fine option."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
+&mdash; [**Sakamoto**](https://myanimelist.net/character.php?q=Sakamoto&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
