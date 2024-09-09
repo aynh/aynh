@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can fool your friends, you can fool your enemies."
+> "Therefore let me inform you...All of your dreams are to be thrown away."
 
-&mdash; [**Xelloss Metallium**](https://myanimelist.net/character.php?q=Xelloss%20Metallium&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
