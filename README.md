@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans... Do humans have a purpose when they are born? I have been wondering recently. Because they are born, do they have an important duty? The meaning of being born... For humans to find that answer... It is the one freedom God gave them."
+> "While I was with you guys, I became more human. I didn't like that. I even have a family and started to like living on earth."
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
