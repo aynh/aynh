@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The choices we make in life have unlimited possibilities."
+> "What you learn at your school is more important than where you go to school."
 
-&mdash; [**Rem Saverem**](https://myanimelist.net/character.php?q=Rem%20Saverem&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
