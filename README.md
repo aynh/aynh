@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what kind of 'strength' you possess. There are places you can never reach no matter how hard you try. The farther it is... The higher it is..."
+> "The choices we make in life have unlimited possibilities."
 
-&mdash; [**Rika Noyamano**](https://myanimelist.net/character.php?q=Rika%20Noyamano&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Rem Saverem**](https://myanimelist.net/character.php?q=Rem%20Saverem&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
