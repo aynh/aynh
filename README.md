@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not good to expect too much, but you can't do anything if you're being overly pessimistic. If you just wait thinking it's useless, nothing will come of it."
+> "What is 'Courage'? Courage is owning your fear!"
 
-&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**William A. Zeppeli**](https://myanimelist.net/character.php?q=William%20A.%20Zeppeli&cat=character), [**JoJo's Bizarre Adventure**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure&cat=all)
