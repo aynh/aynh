@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I got angry at every little thing, my body wouldn't be able to hold it all."
+> "No matter what kind of 'strength' you possess. There are places you can never reach no matter how hard you try. The farther it is... The higher it is..."
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Rika Noyamano**](https://myanimelist.net/character.php?q=Rika%20Noyamano&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
