@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Accept that your life will be painful, bite back your grief and find the power to stand again."
+> "The end result is important. But what's truly important... is the journey to get there."
 
-&mdash; [**Nakiami**](https://myanimelist.net/character.php?q=Nakiami&cat=character), [**Bounen No Zamned**](https://myanimelist.net/search/all?q=Bounen%20No%20Zamned&cat=all)
+&mdash; [**Hikari Hanazono**](https://myanimelist.net/character.php?q=Hikari%20Hanazono&cat=character), [**Special A**](https://myanimelist.net/search/all?q=Special%20A&cat=all)
