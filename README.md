@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are so voracious, though. They eat everything from plants to animals... almost as if they think they are the top living creature to roam the earth. No being is more full of themselves as the humans."
+> "Once a person is ready to die, anything is possible."
 
-&mdash; [**Hildegard**](https://myanimelist.net/character.php?q=Hildegard&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
+&mdash; [**Shimada Minami**](https://myanimelist.net/character.php?q=Shimada%20Minami&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
