@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The end result is important. But what's truly important... is the journey to get there."
+> "Thus at long last the fighting between the rival gangs had ended! To sum up, this leads us to number 778 of the 1,000 provisions you must observe. Never mail a letter without the return address or the proper postage. And don't call collect."
 
-&mdash; [**Hikari Hanazono**](https://myanimelist.net/character.php?q=Hikari%20Hanazono&cat=character), [**Special A**](https://myanimelist.net/search/all?q=Special%20A&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
