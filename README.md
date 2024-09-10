@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you are weak, don't bare your fangs."
+> "If I got angry at every little thing, my body wouldn't be able to hold it all."
 
-&mdash; [**Kiyomasa Senji**](https://myanimelist.net/character.php?q=Kiyomasa%20Senji&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
