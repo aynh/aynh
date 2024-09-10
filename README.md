@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is 'Courage'? Courage is owning your fear!"
+> "I don't want fear for a future, that may not even come, to stop me from acting today."
 
-&mdash; [**William A. Zeppeli**](https://myanimelist.net/character.php?q=William%20A.%20Zeppeli&cat=character), [**JoJo's Bizarre Adventure**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure&cat=all)
+&mdash; [**Simon**](https://myanimelist.net/character.php?q=Simon&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
