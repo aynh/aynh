@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is the world too peaceful? Is the future bothersome? Is reality your enemy? Don't worry, even if it is - LIFE IS EPIC."
+> "As a leader, you need to learn from the mistakes of others, not your own."
 
-&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
