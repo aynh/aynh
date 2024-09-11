@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I realized one morning... That I hate this world. This world is made of countless boxes. People bend and stuff their bodies into their own boxes. And stay there for the rest of their lives. And eventually, inside the box, they forget: what they looked like; what they loved; who they loved. That's why I'm getting out of my box. I'm one of the chosen. That's why I'm going to destroy this world."
+> "Do you know what's the most important thing about climbing mountains is? It's not about having the courage to challenge it, It's about having the courage to back down."
 
-&mdash; [**Sanetoshi Watase**](https://myanimelist.net/character.php?q=Sanetoshi%20Watase&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Nozomi Tōjō**](https://myanimelist.net/character.php?q=Nozomi%20T%C5%8Dj%C5%8D&cat=character), [**Love Live! School idol project**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project&cat=all)
