@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being alone and being lonely are two different things."
+> "The only thing we're allowed to do... is to believe that we won't regret the choice we made."
 
-&mdash; [**Yasushi Takagi**](https://myanimelist.net/character.php?q=Yasushi%20Takagi&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
