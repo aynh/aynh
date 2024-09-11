@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has a sword within their hearts; the purer the heart, the sharper the sword."
+> "The more inexperienced you are, the more you want to show off."
 
-&mdash; [**Gankutsuou**](https://myanimelist.net/character.php?q=Gankutsuou&cat=character), [**Gankutsuou**](https://myanimelist.net/search/all?q=Gankutsuou&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
