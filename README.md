@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't just wait. You need to make things happen yourself."
+> "Being alone and being lonely are two different things."
 
-&mdash; [**Tokie**](https://myanimelist.net/character.php?q=Tokie&cat=character), [**Sakamichi no Apollon**](https://myanimelist.net/search/all?q=Sakamichi%20no%20Apollon&cat=all)
+&mdash; [**Yasushi Takagi**](https://myanimelist.net/character.php?q=Yasushi%20Takagi&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
