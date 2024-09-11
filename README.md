@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I knew it. You can't even ask your own zanpakutō its name."
+> "If providing people with what they desire is a sin, then all mothers are sinners, and the world is bereft of love."
 
-&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Moral**](https://myanimelist.net/character.php?q=Moral&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
