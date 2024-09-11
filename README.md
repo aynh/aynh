@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more inexperienced you are, the more you want to show off."
+> "How can you say that you will never change? That you will not change, no matter how great the pain you face? Can you continue believing in yourself forever? Can you guarantee it? Can you have such faith in yourself?!"
 
-&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
