@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are we friends? Or are we foes? That kind of thing you decide for yourselves!"
+> "You mongrels. By our next meeting see that you've culled your numbers. Only a true hero is worthy to look upon my glorious presence."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
