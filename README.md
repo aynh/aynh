@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if all the confidence and pride you've built over the years is blown to pieces by a major failure, even if you've had a soul-crushing experience, you still have to open the shop the next day. That's who chefs are."
+> "First it was that sewer-face and now I'm up against a superhero."
 
-&mdash; [**Sōma Yukihira**](https://myanimelist.net/character.php?q=S%C5%8Dma%20Yukihira&cat=character), [**Shokugeki no Sōma: Ni no Sara**](https://myanimelist.net/search/all?q=Shokugeki%20no%20S%C5%8Dma%3A%20Ni%20no%20Sara&cat=all)
+&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
