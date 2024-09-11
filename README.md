@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When a human, gives birth to a child, they give it a form. When they give it a name, they recognize it. And when they raise it in the world, they deepen it's existence."
+> "You're not God, nor are you a sister. But it's because I feel that you're much closer to me than God, I'm much more afraid of being hated by you."
 
-&mdash; [**Beatrice**](https://myanimelist.net/character.php?q=Beatrice&cat=character), [**Umineko no Naku Koro ni Chiru Episode 7: Requiem of the...**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni%20Chiru%20Episode%207%3A%20Requiem%20of%20the...&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
