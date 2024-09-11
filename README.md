@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'd rather fight for my life than live it."
+> "Everyone has a sword within their hearts; the purer the heart, the sharper the sword."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Gankutsuou**](https://myanimelist.net/character.php?q=Gankutsuou&cat=character), [**Gankutsuou**](https://myanimelist.net/search/all?q=Gankutsuou&cat=all)
