@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If providing people with what they desire is a sin, then all mothers are sinners, and the world is bereft of love."
+> "Atone for my sins? [...] I have no sins to atone for, nor have I forced such a meaningless concept on anyone."
 
-&mdash; [**Moral**](https://myanimelist.net/character.php?q=Moral&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
