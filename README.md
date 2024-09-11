@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You mongrels. By our next meeting see that you've culled your numbers. Only a true hero is worthy to look upon my glorious presence."
+> "Believe in yourself and create your own destiny. Don't fear fate."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Outlaw Star**](https://myanimelist.net/character.php?q=Outlaw%20Star&cat=character), [**Outlaw Star**](https://myanimelist.net/search/all?q=Outlaw%20Star&cat=all)
