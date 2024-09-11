@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're not God, nor are you a sister. But it's because I feel that you're much closer to me than God, I'm much more afraid of being hated by you."
+> "I realized one morning... That I hate this world. This world is made of countless boxes. People bend and stuff their bodies into their own boxes. And stay there for the rest of their lives. And eventually, inside the box, they forget: what they looked like; what they loved; who they loved. That's why I'm getting out of my box. I'm one of the chosen. That's why I'm going to destroy this world."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Sanetoshi Watase**](https://myanimelist.net/character.php?q=Sanetoshi%20Watase&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
