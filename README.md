@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I took the life of the woman I was supposed to call mother in the process of being born... in order to become the world's strongest shinobi... I became the incarnation of sand..."
+> "The beauty of the stars never changes. However, stars that change are beautiful as well."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Eucliwood Hellscythe**](https://myanimelist.net/character.php?q=Eucliwood%20Hellscythe&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
