@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Songs are good. Singing brings us joy. It is the highest point in the culture that Lilims have created."
+> "I know as much of games as I do of hugs and puppies, and care for them even less. Wake me for the end of the world."
 
-&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
