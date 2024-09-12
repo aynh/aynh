@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every phenomenon that happens in the human world is caused by people for their own convenience."
+> "Who knew that floating on a piece of drift wood for three weeks with no food or water... and sea volchers waiting to pluck out your liver could make one so tense."
 
-&mdash; [**Takano Miyo**](https://myanimelist.net/character.php?q=Takano%20Miyo&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
