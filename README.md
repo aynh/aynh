@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is better to be hated for what you are. Than to be loved for what you are not."
+> "In the human world, truth and reality aren't always one and the same. Humans just call their desires and ambitions as 'truth'. Humans will even kill other humans if they have 'truth' as an excuse."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Sanetoshi Watase**](https://myanimelist.net/character.php?q=Sanetoshi%20Watase&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
