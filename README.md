@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The beauty of the stars never changes. However, stars that change are beautiful as well."
+> "If you stay hidden like this, you'll be able to get away from the police, however, you will never escape your crime... Madam, are you trying... Are you trying to force your son to carry this burden for the rest of his life?"
 
-&mdash; [**Eucliwood Hellscythe**](https://myanimelist.net/character.php?q=Eucliwood%20Hellscythe&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
