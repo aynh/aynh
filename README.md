@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know as much of games as I do of hugs and puppies, and care for them even less. Wake me for the end of the world."
+> "People are all evil. In order to falsely believe yourself to be just, you must inevitably falsely believe that someone else is more evil than you."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach the Movie: Hell Verse**](https://myanimelist.net/search/all?q=Bleach%20the%20Movie%3A%20Hell%20Verse&cat=all)
