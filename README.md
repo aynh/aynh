@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just as no matter how hard you try to keep it away, despair will attack you again and again. In the same manner, hope will return to you. Again and again."
+> "I took the life of the woman I was supposed to call mother in the process of being born... in order to become the world's strongest shinobi... I became the incarnation of sand..."
 
-&mdash; [**Kazuma Sohma**](https://myanimelist.net/character.php?q=Kazuma%20Sohma&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
