@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How will you live if every little thing from your memories always hurts you easily?"
+> "Just as no matter how hard you try to keep it away, despair will attack you again and again. In the same manner, hope will return to you. Again and again."
 
-&mdash; [**Daiki Mamura**](https://myanimelist.net/character.php?q=Daiki%20Mamura&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Kazuma Sohma**](https://myanimelist.net/character.php?q=Kazuma%20Sohma&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
