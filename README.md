@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the human world, truth and reality aren't always one and the same. Humans just call their desires and ambitions as 'truth'. Humans will even kill other humans if they have 'truth' as an excuse."
+> "*To Tamaki* It's easy to feel sorry for him, but the hardships that he endured as a child, molded him into the person he is today. He'll be fine, the Host Club is his refuge, which means when all is said and done... he still has us."
 
-&mdash; [**Sanetoshi Watase**](https://myanimelist.net/character.php?q=Sanetoshi%20Watase&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Kyoya Ootori**](https://myanimelist.net/character.php?q=Kyoya%20Ootori&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
