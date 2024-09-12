@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kakarot! Dodge this next attack, if you can!.. But even if I miss you... THIS WHOLE PLANET'S GOING UP IN SMOOOOKE!"
+> "Please stop adding to my misery. (to Ayame)"
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
