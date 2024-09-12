@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think I would like someone else to kill me. I want someone else to interfere with my life. Is that not what wanting to be loved means, Saikawa-sensei? No life is born of it's own volition. Isn't the instinctive desire of beings, born not of their own volition, for their lives to be taken in the same way?"
+> "It is better to be hated for what you are. Than to be loved for what you are not."
 
-&mdash; [**Magata Shiki**](https://myanimelist.net/character.php?q=Magata%20Shiki&cat=character), [**Subete ga F ni Naru**](https://myanimelist.net/search/all?q=Subete%20ga%20F%20ni%20Naru&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
