@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No, but I can learn. I'll bathe in blood. If that's what it takes to protect my friends, I'll take it. All the hatred, the disease. I'll take it as my own and end it."
+> "Battles aren't supposed to be heroic affairs. They are not supposed to be fun or exciting, to us every battle is filled with despair, they are dark, horrifying, grizzly. We should fear warfare, avoid it always and whenever possible choose the path of peace."
 
-&mdash; [**Shū Ouma**](https://myanimelist.net/character.php?q=Sh%C5%AB%20Ouma&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Kira Izuru**](https://myanimelist.net/character.php?q=Kira%20Izuru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
