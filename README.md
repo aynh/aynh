@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life isn't about what can and can not be done, it's about doing it or not doing it!"
+> "I have no fear of death. It just means dreaming in silence. A dream that lasts for eternity"
 
-&mdash; [**Shio Sakaki**](https://myanimelist.net/character.php?q=Shio%20Sakaki&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
+&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
