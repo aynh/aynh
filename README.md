@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Looks like Long Feng is long gone! (laughs) Oh, I've been waiting to use that one!"
+> "Sorry, Aizen-sama. I got caught."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
