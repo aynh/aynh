@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not all warriors fight on the battlefield with a sword in hand. A sailor makes his living battling the sea"
+> "I hate talkative guys... They gross me out."
 
-&mdash; [**Leif Ericson**](https://myanimelist.net/character.php?q=Leif%20Ericson&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
