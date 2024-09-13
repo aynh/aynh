@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My will is society's will. My eyes are society's eyes. Since you vowed to respect the law, you cannot deny me... no matter how much you despise latent criminals."
+> "This is the first and last time I bring a dude to my bed."
 
-&mdash; [**Sakuya Tougane**](https://myanimelist.net/character.php?q=Sakuya%20Tougane&cat=character), [**Psycho-Pass 2**](https://myanimelist.net/search/all?q=Psycho-Pass%202&cat=all)
+&mdash; [**Sha Gojyo**](https://myanimelist.net/character.php?q=Sha%20Gojyo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
