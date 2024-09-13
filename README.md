@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Please stop adding to my misery. (to Ayame)"
+> "As I had encountered kindness, I wanted to be kind myself. I wanted to be able to do something, just like others had done for me."
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
