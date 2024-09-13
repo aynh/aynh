@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is the first and last time I bring a dude to my bed."
+> "Meeting you was the best thing that ever happened to me. You made me so happy. I don’t want you to be lost or afraid or anything like that. From here on out, I know things might be hard sometimes. But no matter what may await, please don’t regret meeting me."
 
-&mdash; [**Sha Gojyo**](https://myanimelist.net/character.php?q=Sha%20Gojyo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
