@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You destroyed those Menos Grandes. That's enough for me! I have decided to fight by your side! I won't accept no as an answer, masked ones!"
+> "Life happens wherever you are, whether you make it or not."
 
-&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
