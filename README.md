@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Meeting you was the best thing that ever happened to me. You made me so happy. I don’t want you to be lost or afraid or anything like that. From here on out, I know things might be hard sometimes. But no matter what may await, please don’t regret meeting me."
+> "Come on now. Is that anyway to talk to your new boss, landlord, and all-around overseer?"
 
-&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
