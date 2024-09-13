@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We do not give a starving man a fish. We teach him how to fish and make him independent."
+> "From the moment a magus is born, he is someone that has 'power'. And some day, he will achieve a 'greater power'. This responsibility was already flowing in his 'blood' before he realized this destiny. That is what it means to be born into this world as the child of a magus."
 
-&mdash; [**Yukino Yukinoshita**](https://myanimelist.net/character.php?q=Yukino%20Yukinoshita&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Tohsaka Tokiomi**](https://myanimelist.net/character.php?q=Tohsaka%20Tokiomi&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
