@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry, Aizen-sama. I got caught."
+> "My will is society's will. My eyes are society's eyes. Since you vowed to respect the law, you cannot deny me... no matter how much you despise latent criminals."
 
-&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sakuya Tougane**](https://myanimelist.net/character.php?q=Sakuya%20Tougane&cat=character), [**Psycho-Pass 2**](https://myanimelist.net/search/all?q=Psycho-Pass%202&cat=all)
