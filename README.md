@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has their own talents, and strong wills that won't lose to anyone else."
+> "Looks like Long Feng is long gone! (laughs) Oh, I've been waiting to use that one!"
 
-&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
