@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have no fear of death. It just means dreaming in silence. A dream that lasts for eternity"
+> "You destroyed those Menos Grandes. That's enough for me! I have decided to fight by your side! I won't accept no as an answer, masked ones!"
 
-&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
