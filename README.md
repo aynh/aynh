@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "From the moment a magus is born, he is someone that has 'power'. And some day, he will achieve a 'greater power'. This responsibility was already flowing in his 'blood' before he realized this destiny. That is what it means to be born into this world as the child of a magus."
+> "Life isn't about what can and can not be done, it's about doing it or not doing it!"
 
-&mdash; [**Tohsaka Tokiomi**](https://myanimelist.net/character.php?q=Tohsaka%20Tokiomi&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Shio Sakaki**](https://myanimelist.net/character.php?q=Shio%20Sakaki&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
