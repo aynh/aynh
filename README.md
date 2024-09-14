@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are some things you'll never see if you're always running."
+> "It's amazing how much you kiss your own ass."
 
-&mdash; [**Takahiro Mizuno**](https://myanimelist.net/character.php?q=Takahiro%20Mizuno&cat=character), [**Walkure Romanze**](https://myanimelist.net/search/all?q=Walkure%20Romanze&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
