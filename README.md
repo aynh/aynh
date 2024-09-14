@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sinful? Corrupt? I don't understand your logic. Why must pleasure and sin be connected? Pleasure gotten through evil means could be a sin. But pleasure can also result from good deeds. What kind of philosophy calls pleasure itself a sin?"
+> "Oh, no! Wrong way! I want my mom!"
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Hikari**](https://myanimelist.net/character.php?q=Hikari&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
