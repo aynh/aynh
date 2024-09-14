@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no point in having physical strength alone. The real deal needs to have mental strength and will."
+> "Seek not beauty in battle. Seek not beauty in death. Consider not your own life. If you wish to protect that which must be protected, then strike while your opponent's back is turned."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
