@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People can say there is a balance, a logic that everything happens for a reason... But the truth is far less designed. No matter how hard you work, when you die, you die. Some spend their entire life trying to scratch their way to the top, and still die in poverty. While others are born into wealth without ever working at all. It's a cruel and random world. And yet the chaos is all so beautiful."
+> "It's all right to grieve over your defeat. It's important to admit when you've lost. Not being able to do so makes it impossible for you to climb back up after a fall, and even more impossible, for you to move forward. So go on ahead and grieve to your heart's extent. But after you're done grieving, be sure to set your eyes upon your next goal and move towards it."
 
-&mdash; [**Dante (Fullmetal Alchemist)**](https://myanimelist.net/character.php?q=Dante%20(Fullmetal%20Alchemist)&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Yoshii Akira**](https://myanimelist.net/character.php?q=Yoshii%20Akira&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
