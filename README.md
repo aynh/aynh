@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Seek not beauty in battle. Seek not beauty in death. Consider not your own life. If you wish to protect that which must be protected, then strike while your opponent's back is turned."
+> "*thinking* Every day, I hang out with an alien, a time traveler, and a Esper...and I'm still as sane and objective as ever. Hmm...I wonder if that makes me special or something."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
