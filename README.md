@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's all right to grieve over your defeat. It's important to admit when you've lost. Not being able to do so makes it impossible for you to climb back up after a fall, and even more impossible, for you to move forward. So go on ahead and grieve to your heart's extent. But after you're done grieving, be sure to set your eyes upon your next goal and move towards it."
+> "In my eyes, there is no difference between wiping away one speck of dust or two."
 
-&mdash; [**Yoshii Akira**](https://myanimelist.net/character.php?q=Yoshii%20Akira&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
