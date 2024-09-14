@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's amazing how much you kiss your own ass."
+> "On this planet you call females who have yet to become adults, girls. It makes sense then that since you'll eventually become withes, you should be called Magical Girls."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Puella Magi Madoka Magica**](https://myanimelist.net/search/all?q=Puella%20Magi%20Madoka%20Magica&cat=all)
