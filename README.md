@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This may come as something of a surprise, but I'm a sore loser."
+> "There's no need to worry about trivial things like vocal rights or working together. If nobody's going to accept me, I'll make them obey me, whether it's by threat or by assassination. This is my-- our F class modus operandi."
 
-&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
