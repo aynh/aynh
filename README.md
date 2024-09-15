@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All this time, I seriously thought that it's better to die than to live your life alone."
+> "We can't let the past be mere water under the bridge. Even so, there's no reason that we can't come together."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
