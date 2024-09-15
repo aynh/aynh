@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans only can reveal their true potential during an absolutely critical situation."
+> "Living your life to the fullest 'til the moment of your death, this is the rule to live by in any world."
 
-&mdash; [**Anna Kyouyama**](https://myanimelist.net/character.php?q=Anna%20Kyouyama&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Crusty**](https://myanimelist.net/character.php?q=Crusty&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
