@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Levels are just numbers. In this world, strength is just an illusion. There are more important things."
+> "All this time, I seriously thought that it's better to die than to live your life alone."
 
 &mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
