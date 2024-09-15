@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To Mello, it's like playing a videogame against me, I think. 'See who gets to Kira, the last boss, first.'"
+> "Logic is panic's prey."
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
