@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can make a rain of 1,000 needles. I will make it rain blood."
+> "If I wouldn't have tripped, you wouldn't have stopped, now would you?"
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
