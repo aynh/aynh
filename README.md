@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "History is always made by the wisdom of the old and the passion of the young. Pave the way for a new age, youngsters of the next generation!"
+> "Levels are just numbers. In this world, strength is just an illusion. There are more important things."
 
-&mdash; [**Donten ni Warau**](https://myanimelist.net/character.php?q=Donten%20ni%20Warau&cat=character), [**Donten ni Warau**](https://myanimelist.net/search/all?q=Donten%20ni%20Warau&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
