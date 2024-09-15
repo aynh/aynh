@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Huh? In a real war, what fool waits for their enemy's 'turn'?"
+> "To Mello, it's like playing a videogame against me, I think. 'See who gets to Kira, the last boss, first.'"
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
