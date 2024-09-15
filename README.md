@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm no expert, but I think people mope when their expectations are too high. It's tiring when you always have to overachieve. Don't overdo it. Just work on achieving what you can."
+> "This steak is too well done. Take it back and make it rare."
 
-&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
