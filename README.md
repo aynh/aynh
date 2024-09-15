@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I wouldn't have tripped, you wouldn't have stopped, now would you?"
+> "Humans only can reveal their true potential during an absolutely critical situation."
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Anna Kyouyama**](https://myanimelist.net/character.php?q=Anna%20Kyouyama&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
