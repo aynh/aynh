@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This steak is too well done. Take it back and make it rare."
+> "You can make a rain of 1,000 needles. I will make it rain blood."
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
