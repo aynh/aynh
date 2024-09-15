@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don’t win alone. That’s just how it is."
+> "I'm no expert, but I think people mope when their expectations are too high. It's tiring when you always have to overachieve. Don't overdo it. Just work on achieving what you can."
 
-&mdash; [**Tobio Kageyama**](https://myanimelist.net/character.php?q=Tobio%20Kageyama&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
