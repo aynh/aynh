@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Logic is panic's prey."
+> "History is always made by the wisdom of the old and the passion of the young. Pave the way for a new age, youngsters of the next generation!"
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Donten ni Warau**](https://myanimelist.net/character.php?q=Donten%20ni%20Warau&cat=character), [**Donten ni Warau**](https://myanimelist.net/search/all?q=Donten%20ni%20Warau&cat=all)
