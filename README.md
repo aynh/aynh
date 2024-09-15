@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yes, I'm the nice twin, but this conversation bores me. Go play in traffic, please."
+> "Huh? In a real war, what fool waits for their enemy's 'turn'?"
 
-&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
