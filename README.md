@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Living your life to the fullest 'til the moment of your death, this is the rule to live by in any world."
+> "This may come as something of a surprise, but I'm a sore loser."
 
-&mdash; [**Crusty**](https://myanimelist.net/character.php?q=Crusty&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
