@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We can't live if we don't keep running forward."
+> "It smells girly. I don't think I like it."
 
-&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
