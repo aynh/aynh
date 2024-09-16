@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's true that you're lacking in ability. That's because you don't work at it. However, you have a natural potential. That's why I chose you."
+> "It's one of the basics... So I will teach you. A shinigami at the rank of Captain can control the size of his zanpakuto got it? Otherwise everyone'd carry around ginormous swords... just like you. Remember this well. You can't fathom the power of your rival simply from the size of his zanpakuto. You shouldn't give lectures about Shinigami until you understand that."
 
-&mdash; [**Koichiro Oota**](https://myanimelist.net/character.php?q=Koichiro%20Oota&cat=character), [**Gunbuster**](https://myanimelist.net/search/all?q=Gunbuster&cat=all)
+&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
