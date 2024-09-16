@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I realized that back then, the reason I wanted to become human, was that I really just wanted to have friends. Now, I just want to be a monster that can help Luffy."
+> "If you think about it, death really isn't so frightening. Who knows, you might actually enjoy it."
 
-&mdash; [**Tony Tony Chopper**](https://myanimelist.net/character.php?q=Tony%20Tony%20Chopper&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Karasu**](https://myanimelist.net/character.php?q=Karasu&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
