@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you think about it, death really isn't so frightening. Who knows, you might actually enjoy it."
+> "So you feel like you're being dishonest or something? That's not true. It's a great thing to come to like someone. If you ask me... The important thing here is, that you have to make a clear choice between the two of them."
 
-&mdash; [**Karasu**](https://myanimelist.net/character.php?q=Karasu&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
