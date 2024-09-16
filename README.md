@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In my room at the palace, right before I go to sleep... I always think to myself, 'What's Syaoran doing right now? Is he thinking about me?'."
+> "Be on the Side that saves people, if both sides are the same, become a good man."
 
-&mdash; [**Sakura Kinomoto**](https://myanimelist.net/character.php?q=Sakura%20Kinomoto&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Sakunosuke Oda**](https://myanimelist.net/character.php?q=Sakunosuke%20Oda&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
