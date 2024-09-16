@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Saya, no matter what happens, do what you believe is right. Accept your past. And if you trip, remember nankurunasia. Live through today for tomorrow's sake."
+> "Black leg!"
 
-&mdash; [**George Miyagusuku**](https://myanimelist.net/character.php?q=George%20Miyagusuku&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
+&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
