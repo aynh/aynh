@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Be on the Side that saves people, if both sides are the same, become a good man."
+> "You said she's smart, but it only means she got high marks, and she's actually a stupid woman."
 
-&mdash; [**Sakunosuke Oda**](https://myanimelist.net/character.php?q=Sakunosuke%20Oda&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
