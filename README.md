@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tears and rain, fall down on my face, my body is unable to stay yet my heart is unwilling to leave."
+> "We can't live if we don't keep running forward."
 
-&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
