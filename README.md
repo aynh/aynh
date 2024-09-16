@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's one of the basics... So I will teach you. A shinigami at the rank of Captain can control the size of his zanpakuto got it? Otherwise everyone'd carry around ginormous swords... just like you. Remember this well. You can't fathom the power of your rival simply from the size of his zanpakuto. You shouldn't give lectures about Shinigami until you understand that."
+> "I realized that back then, the reason I wanted to become human, was that I really just wanted to have friends. Now, I just want to be a monster that can help Luffy."
 
-&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tony Tony Chopper**](https://myanimelist.net/character.php?q=Tony%20Tony%20Chopper&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
