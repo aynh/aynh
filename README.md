@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tohru, I can't stand not being with you... I... because I love you."
+> "Canaan. You're a victim whose past was taken away by war. And she's a defeated person who lost her past in a power struggle. Soldiers who are born within destruction, take hatred as their weapon. Even though you and her became soldiers for the same reason, you both live differently. Listen Canaan, you cannot counter hatred with hatred... ever."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Siam**](https://myanimelist.net/character.php?q=Siam&cat=character), [**CANAAN**](https://myanimelist.net/search/all?q=CANAAN&cat=all)
