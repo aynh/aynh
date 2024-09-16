@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The brighter they shine, the darker the shadow grows."
+> "It's true that you're lacking in ability. That's because you don't work at it. However, you have a natural potential. That's why I chose you."
 
-&mdash; [**Makino Fumito**](https://myanimelist.net/character.php?q=Makino%20Fumito&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
+&mdash; [**Koichiro Oota**](https://myanimelist.net/character.php?q=Koichiro%20Oota&cat=character), [**Gunbuster**](https://myanimelist.net/search/all?q=Gunbuster&cat=all)
