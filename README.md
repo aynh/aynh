@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate talkative guys... They gross me out."
+> "Happiness isn't something you divide in halves."
 
-&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**L-elf**](https://myanimelist.net/character.php?q=L-elf&cat=character), [**Kakumeiki Valvrave**](https://myanimelist.net/search/all?q=Kakumeiki%20Valvrave&cat=all)
