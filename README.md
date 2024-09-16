@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you pick the only option you have to choose from, can you really call that your own decision?"
+> "Tears and rain, fall down on my face, my body is unable to stay yet my heart is unwilling to leave."
 
-&mdash; [**Hayato Hayama**](https://myanimelist.net/character.php?q=Hayato%20Hayama&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
