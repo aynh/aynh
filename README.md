@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're right, all efforts are pointless... If you don't believe in yourself."
+> "I'd better split before I catch loser-itis!"
 
-&mdash; [**Might Guy**](https://myanimelist.net/character.php?q=Might%20Guy&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Green**](https://myanimelist.net/character.php?q=Green&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
