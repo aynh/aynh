@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether we die or not, isn't really that big a deal."
+> "Doesn't even think about giving up just because it's useless! The moment you give up is when your life ends."
 
-&mdash; [**Juuzou Suzuya**](https://myanimelist.net/character.php?q=Juuzou%20Suzuya&cat=character), [**Tokyo Ghoul √A**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%20%E2%88%9AA&cat=all)
+&mdash; [**Ushiromiya Jessica**](https://myanimelist.net/character.php?q=Ushiromiya%20Jessica&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
