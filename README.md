@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To become Hokage is my dream!"
+> "If you aren't remembered, then you never existed."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Arisu Mizuki**](https://myanimelist.net/character.php?q=Arisu%20Mizuki&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
