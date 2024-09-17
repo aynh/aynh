@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "First you say I'm faster then you get the heads up on me like I'm an old lady crossing the freeway! Just once I'd like some honesty from the bad guys!"
+> "Even if the world doesn't accept you, I'll always be right by your side!"
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Tendou Kisara**](https://myanimelist.net/character.php?q=Tendou%20Kisara&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
