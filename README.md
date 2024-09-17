@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want to see any more things that've changed! It's exhausting!"
+> "You're right, all efforts are pointless... If you don't believe in yourself."
 
-&mdash; [**Hikari Sakishima**](https://myanimelist.net/character.php?q=Hikari%20Sakishima&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
+&mdash; [**Might Guy**](https://myanimelist.net/character.php?q=Might%20Guy&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
