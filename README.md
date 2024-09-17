@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A fair warning... we ninja of the Sand aren't as easygoing as those of the Leaf. But getting close to Kuroari so carelessly...isn't good!"
+> "I watch over Gin-san to protect him. Just like a fairy, like Tinkerbell!"
 
-&mdash; [**Kankuro**](https://myanimelist.net/character.php?q=Kankuro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sarutobi Ayame**](https://myanimelist.net/character.php?q=Sarutobi%20Ayame&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
