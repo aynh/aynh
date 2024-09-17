@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We need to stop living for others. From now on...Let's live for ourselves!!"
+> "A sin, once committed, is never forgotten. It haunts you for all eternity."
 
-&mdash; [**Historia Reiss**](https://myanimelist.net/character.php?q=Historia%20Reiss&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Shinobu Nunotaba**](https://myanimelist.net/character.php?q=Shinobu%20Nunotaba&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
