@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dreams, ambition, love, hope; in this world, could the glories of a youthful heart be.. forbidden?"
+> "Hey God, if you're there, my life has really sucked. So please, for once, let me have a sweet dream."
 
-&mdash; [**Berserk**](https://myanimelist.net/character.php?q=Berserk&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Kyōko Sakura**](https://myanimelist.net/character.php?q=Ky%C5%8Dko%20Sakura&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
