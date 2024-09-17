@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know no one expects much from me! And I know better than anyone how useless a C Class hero is! I know I'm too weak even for B Class! I know more than anyone else that I'll never beat you! But I must fight you anyway! I'm the only one left! It's not about winning or losing! I just have to stand here and face you!"
+> "Dreams, ambition, love, hope; in this world, could the glories of a youthful heart be.. forbidden?"
 
-&mdash; [**Mumen Rider**](https://myanimelist.net/character.php?q=Mumen%20Rider&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Berserk**](https://myanimelist.net/character.php?q=Berserk&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
