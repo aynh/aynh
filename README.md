@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The stars sure are beautiful tonight. [angrily] Too bad you can't see them, Toph!"
+> "Let's just say... what's mine is mine, and what's yours... is also mine."
 
-&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Hajime Saitou**](https://myanimelist.net/character.php?q=Hajime%20Saitou&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
