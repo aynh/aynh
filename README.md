@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Inability to overcome fear is human."
+> "Stories where love and courage win in the end always turn out like that, you know? When I think about it, I became a magical girl because I always loved those stories."
 
-&mdash; [**Yun**](https://myanimelist.net/character.php?q=Yun&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
