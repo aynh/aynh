@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one knows what’s going to happen to the world. But I believe we have the ability to deal with that. Although we cannot change the past - we can change the future. We can change it into the world we desire."
+> "What a laughable attempt. You should just stay where you are, groveling at my feet."
 
-&mdash; [**Saji Crossroad**](https://myanimelist.net/character.php?q=Saji%20Crossroad&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
