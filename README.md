@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't just follow orders! You're men, not machines! In your hearts, you know what's right, the answer is sitting there, waiting for you. Are you brave enough to look inside yourselves?"
+> "Time brings an end to all things. Even if we plug our ears and cover our eyes."
 
-&mdash; [**Wolfgang Grimmer**](https://myanimelist.net/character.php?q=Wolfgang%20Grimmer&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Pharos**](https://myanimelist.net/character.php?q=Pharos&cat=character), [**Persona 3**](https://myanimelist.net/search/all?q=Persona%203&cat=all)
