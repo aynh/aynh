@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What a laughable attempt. You should just stay where you are, groveling at my feet."
+> "Don't just follow orders! You're men, not machines! In your hearts, you know what's right, the answer is sitting there, waiting for you. Are you brave enough to look inside yourselves?"
 
-&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Wolfgang Grimmer**](https://myanimelist.net/character.php?q=Wolfgang%20Grimmer&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
