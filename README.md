@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let's just say... what's mine is mine, and what's yours... is also mine."
+> "I'll never forget that you wasted three minutes of my life."
 
-&mdash; [**Hajime Saitou**](https://myanimelist.net/character.php?q=Hajime%20Saitou&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Barnaby Brooks Jr.**](https://myanimelist.net/character.php?q=Barnaby%20Brooks%20Jr.&cat=character), [**Tiger & Bunny**](https://myanimelist.net/search/all?q=Tiger%20%26%20Bunny&cat=all)
