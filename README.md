@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There ain't a single coward who'd turn tail and run from just that! Not among the men of the Shiba clan!"
+> "Inability to overcome fear is human."
 
-&mdash; [**Ganju Shiba**](https://myanimelist.net/character.php?q=Ganju%20Shiba&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yun**](https://myanimelist.net/character.php?q=Yun&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
