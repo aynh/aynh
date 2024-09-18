@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Grown-ups are idiots. If they really want to bring an end to this endless fighting, they need to sit down with one another and reach a truce."
+> "To be loved out of sympathy is more devastating than to be rejected."
 
-&mdash; [**Tobirama Senju**](https://myanimelist.net/character.php?q=Tobirama%20Senju&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Shinobu Takatsuki**](https://myanimelist.net/character.php?q=Shinobu%20Takatsuki&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
