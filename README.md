@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, life is fun! Try sayin' that ten times fast ten thousand times a minute every day for the rest of your life and it'll screw with your head so bad that all problems will disappear like MAGIC! Okay okay okay, I've gotten past the sadness and as of now I'm evolving to a HIGHER STAAAATE! Right? Tell me you all think so! Life is a magnificent beast, and it excites me!"
+> "How sad it would be if laughter should disappear."
 
-&mdash; [**Graham Specter**](https://myanimelist.net/character.php?q=Graham%20Specter&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Undertaker**](https://myanimelist.net/character.php?q=Undertaker&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
