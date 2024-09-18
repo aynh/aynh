@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment a person says he's working hard without thinking, he's still being naive. He is not trying at all!"
+> "Fear is what creates order."
 
-&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
