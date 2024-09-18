@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I should use a cheerful joke to lighten the mood. Would you like a snack? Or, maybe I should snack on you instead?"
+> "Grown-ups are idiots. If they really want to bring an end to this endless fighting, they need to sit down with one another and reach a truce."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Tobirama Senju**](https://myanimelist.net/character.php?q=Tobirama%20Senju&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
