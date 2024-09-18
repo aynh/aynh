@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll never forget that you wasted three minutes of my life."
+> "This device paints the illusion of fairy tales for those with naive wishes in their hearts, who say they wish something eternal existed, who say they wish the power of miracles existed. But, there's no place higher than this room. This room is the summit of Ohtori Academy, and of the world."
 
-&mdash; [**Barnaby Brooks Jr.**](https://myanimelist.net/character.php?q=Barnaby%20Brooks%20Jr.&cat=character), [**Tiger & Bunny**](https://myanimelist.net/search/all?q=Tiger%20%26%20Bunny&cat=all)
+&mdash; [**Akio Ohtori**](https://myanimelist.net/character.php?q=Akio%20Ohtori&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
