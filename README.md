@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm rather proud of my ability to tell lies. I can trick not only others, but even my own heart."
+> "Inuyasha, after meeting you I renounced my postion as a shrine priestess. I became an ordinary woman. I longed to embrace you like this when I was alive..."
 
-&mdash; [**Ludenberg Celestia**](https://myanimelist.net/character.php?q=Ludenberg%20Celestia&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
