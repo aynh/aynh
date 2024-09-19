@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I didn't abduct her. It was voluntary arrest."
+> "It's like I'd want to ask what justice is doing right now if it existed in this world. Well, justice is empty and ineffectual."
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
