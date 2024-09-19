@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Drat, we wasted this episode cheering the good guys!"
+> "Don't look away, Rose! You need to see what happens when you try to bring a human to life, when you cross into God's territory or whatever the hell it is! Is this what you want?! Look!!"
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
