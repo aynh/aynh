@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Reim* It means that you have no affinity for chains with fighting skills. You try to avoid violence even when you fight. That's a very good thing."
+> "The concept of lateness being evil is wrong in the first place... The police don't mobilize until after an accident happens, and it's standard for heroes to show up late. But would anyone condemn them for being late? So, speaking paradoxically, lateness is justice."
 
-&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
