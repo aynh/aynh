@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nanao-chan is last place!"
+> "Even in the depths of Hell... blooms a beautiful flower of friendship... leaving its petals as mementos... bobbing back and forth on the waves... may it one day bloom once more...the Okama Way."
 
-&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Mr. 2 Bon Clay**](https://myanimelist.net/character.php?q=Mr.%202%20Bon%20Clay&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
