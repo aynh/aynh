@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Gajeel Redfox* You guys are complete idiots! I feel so sorry for you, I think I'm tearing up. Phantom Lord? The spirit ruler? What a joke; I'm not afraid of you at all!"
+> "Nanao-chan is last place!"
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
