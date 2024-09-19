@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To be loved out of sympathy is more devastating than to be rejected."
+> "Drat, we wasted this episode cheering the good guys!"
 
-&mdash; [**Shinobu Takatsuki**](https://myanimelist.net/character.php?q=Shinobu%20Takatsuki&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
