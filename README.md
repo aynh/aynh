@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's human nature. We have regrets, and go on blaming ourselves forever."
+> "The others taught me something. That one needn't fear the future. That one needn't hate the world. From now on, the world will not simply be my fantasy. It will be our one and only, real future."
 
-&mdash; [**Kazuki Kuwanomi**](https://myanimelist.net/character.php?q=Kazuki%20Kuwanomi&cat=character), [**Plastic Memories**](https://myanimelist.net/search/all?q=Plastic%20Memories&cat=all)
+&mdash; [**Kozakura Marry**](https://myanimelist.net/character.php?q=Kozakura%20Marry&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
