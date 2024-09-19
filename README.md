@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no such thing as a person who doesn’t belong. You’re here because there’s someone who wants you to be here."
+> "My legend dates back to the 12th Century you see. My legend is quite old. The 12th Century was a long time ago."
 
-&mdash; [**Seki Kenji**](https://myanimelist.net/character.php?q=Seki%20Kenji&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
