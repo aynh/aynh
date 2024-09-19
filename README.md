@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A lie is truth, until you recognize it as a lie. To see the truth behind those lies is probably the right thing to do. However, it may not necessarily bring happiness. Lies are Happiness."
+> "*to Reim* It means that you have no affinity for chains with fighting skills. You try to avoid violence even when you fight. That's a very good thing."
 
-&mdash; [**Hoody**](https://myanimelist.net/character.php?q=Hoody&cat=character), [**Ergo Proxy**](https://myanimelist.net/search/all?q=Ergo%20Proxy&cat=all)
+&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
