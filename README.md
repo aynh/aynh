@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My legend dates back to the 12th Century you see. My legend is quite old. The 12th Century was a long time ago."
+> "I think manga and life are the same thing. A weekly manga lasts for a week, and life lasts until you die. It's making the best of whatever time you're given. So, you can't hold back. 'Conceit' and 'Luck' are important, but the most important one is 'Hard Work'."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Akito Takagi**](https://myanimelist.net/character.php?q=Akito%20Takagi&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
