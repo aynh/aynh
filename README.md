@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are a fool who creates slaves to do your dirty work. A coward and an incompetent, incapable of doing anything on your own. You are not worthy of the lowest pits of Hell!"
+> "It's better for a man to be slow than fast."
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
