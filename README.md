@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will do what I can, even if my chance of passing is minuscule, if that will allow me to move forward."
+> "Lately, I've been looking at these two guys only. As expected, I see flowers when there are women in the workplace... the atmosphere!"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
