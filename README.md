@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Lately, I've been looking at these two guys only. As expected, I see flowers when there are women in the workplace... the atmosphere!"
+> "I wonder why illegal contractees try to kill people?"
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
