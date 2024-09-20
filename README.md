@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Nemu about Uryuu. Nemu is currently attempting to restrain Uryuu so Mayruri can heal him, but she is unknowingly smothering him with her breasts] Yes, Nemu. Just smother him with those things. Worst case, he dies happy."
+> "I am not strong in the least, I merely started walking steps earlier than you. The only difference between you and me is the distance between us at this moment."
 
-&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ewan Remington**](https://myanimelist.net/character.php?q=Ewan%20Remington&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
