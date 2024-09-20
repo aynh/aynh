@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you are facing a bitter aspect of life... Drugs and murder are foul, without any excuse. Deserve a red card, for a loser."
+> "There are those people who are born aloof and prefer to stay away from groups. In such a case, others should just leave those people alone. It's not a matter of sympathy."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Shin Meguro**](https://myanimelist.net/character.php?q=Shin%20Meguro&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
