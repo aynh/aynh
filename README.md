@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To all the young ones in your group, you are no longer someone who passes through their lives and is forgotten. You have become someone very important to them. Your hardships are their hardships too."
+> "I will do what I can, even if my chance of passing is minuscule, if that will allow me to move forward."
 
-&mdash; [**Fay D. Flourite**](https://myanimelist.net/character.php?q=Fay%20D.%20Flourite&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
