@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who aren't geniuses only have effort. All you can do is use effort to compensate for a deficiency of talent."
+> "[to Nemu about Uryuu. Nemu is currently attempting to restrain Uryuu so Mayruri can heal him, but she is unknowingly smothering him with her breasts] Yes, Nemu. Just smother him with those things. Worst case, he dies happy."
 
-&mdash; [**Kurusu Syo**](https://myanimelist.net/character.php?q=Kurusu%20Syo&cat=character), [**Uta no Prince-sama**](https://myanimelist.net/search/all?q=Uta%20no%20Prince-sama&cat=all)
+&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
