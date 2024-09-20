@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But there are no coincidences in this world. There is only Hitsuzen. You were destined to meet each other."
+> "Those who aren't geniuses only have effort. All you can do is use effort to compensate for a deficiency of talent."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Kurusu Syo**](https://myanimelist.net/character.php?q=Kurusu%20Syo&cat=character), [**Uta no Prince-sama**](https://myanimelist.net/search/all?q=Uta%20no%20Prince-sama&cat=all)
