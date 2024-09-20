@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder why illegal contractees try to kill people?"
+> "I thought I just heard someone say 'We're blasting off again' but we copyrighted that!"
 
-&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
