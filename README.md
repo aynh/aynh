@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, you’ll run into a situation which is dangerous, but which you can't run from. Sometimes, you know you’ll lose, but you have to advance anyway. If you can't be a smart man, then you should be the stupidest man of all. What do you think?"
+> "People like you will never understand... Although it is true that many humans are stupid, immature, and high school drop outs... But! Humans possess the power of possibilities!"
 
-&mdash; [**Duran**](https://myanimelist.net/character.php?q=Duran&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Inferno Cop**](https://myanimelist.net/character.php?q=Inferno%20Cop&cat=character), [**Inferno Cop**](https://myanimelist.net/search/all?q=Inferno%20Cop&cat=all)
