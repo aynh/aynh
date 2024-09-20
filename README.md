@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am not strong in the least, I merely started walking steps earlier than you. The only difference between you and me is the distance between us at this moment."
+> "Sometimes, you’ll run into a situation which is dangerous, but which you can't run from. Sometimes, you know you’ll lose, but you have to advance anyway. If you can't be a smart man, then you should be the stupidest man of all. What do you think?"
 
-&mdash; [**Ewan Remington**](https://myanimelist.net/character.php?q=Ewan%20Remington&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
+&mdash; [**Duran**](https://myanimelist.net/character.php?q=Duran&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
