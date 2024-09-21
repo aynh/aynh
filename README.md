@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe I was lonely. Maybe I've just... always... been lonely."
+> "Pum, Pumkins, Smashing Pumkins!"
 
-&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Blair**](https://myanimelist.net/character.php?q=Blair&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
