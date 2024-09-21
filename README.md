@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "DYNAMIC ENTRY!"
+> "It's a cruel and random world. And yet the chaos is all so beautiful."
 
-&mdash; [**Might Guy**](https://myanimelist.net/character.php?q=Might%20Guy&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Dante**](https://myanimelist.net/character.php?q=Dante&cat=character), [**Devil May Cry**](https://myanimelist.net/search/all?q=Devil%20May%20Cry&cat=all)
