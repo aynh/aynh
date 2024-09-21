@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am known as Valentinez Alkalinella Xifax Sicidabohertz Gombigobilla Blue Stradivari Talentrent Pierre Andri Charton-Haymoss Ivanovici Baldeus George Doitzel Kaiser III. Don't hesitate to call."
+> "Don't lie if you don't have to."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Kaname Tanuma**](https://myanimelist.net/character.php?q=Kaname%20Tanuma&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
