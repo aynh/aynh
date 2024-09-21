@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You find a glimmer of hope, only to lose it. That is when your despair tastes the most divine."
+> "We don't have to know what tomorrow holds! That's why we can live for everything we're worth today!"
 
-&mdash; [**Takaya Kurisu**](https://myanimelist.net/character.php?q=Takaya%20Kurisu&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
