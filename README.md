@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We don't have to know what tomorrow holds! That's why we can live for everything we're worth today!"
+> "I want to believe that memories, even sad and painful ones, should not be forgotten forever."
 
-&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Sohma Momiji**](https://myanimelist.net/character.php?q=Sohma%20Momiji&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
