@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't think I'm cut out for manual labor. I need to get a more creative job, like saving the whales."
+> "Every girl is born a princess, some of them just forget is all."
 
-&mdash; [**Tenma Tsukamoto**](https://myanimelist.net/character.php?q=Tenma%20Tsukamoto&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
+&mdash; [**Kuranosuke Koibuchi**](https://myanimelist.net/character.php?q=Kuranosuke%20Koibuchi&cat=character), [**Kuragehime**](https://myanimelist.net/search/all?q=Kuragehime&cat=all)
