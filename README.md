@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A beautiful flower too will eventually wither and fall. That's the fate of all living beings. If that's the case, it's only natural for one to want to stop the time while they're still blossoming in all full glory."
+> "You find a glimmer of hope, only to lose it. That is when your despair tastes the most divine."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
+&mdash; [**Takaya Kurisu**](https://myanimelist.net/character.php?q=Takaya%20Kurisu&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
