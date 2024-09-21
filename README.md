@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's a cruel and random world. And yet the chaos is all so beautiful."
+> "If I can't even manage a polite smile, I'll be in trouble in the real world."
 
-&mdash; [**Dante**](https://myanimelist.net/character.php?q=Dante&cat=character), [**Devil May Cry**](https://myanimelist.net/search/all?q=Devil%20May%20Cry&cat=all)
+&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
