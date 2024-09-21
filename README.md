@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every girl is born a princess, some of them just forget is all."
+> "DYNAMIC ENTRY!"
 
-&mdash; [**Kuranosuke Koibuchi**](https://myanimelist.net/character.php?q=Kuranosuke%20Koibuchi&cat=character), [**Kuragehime**](https://myanimelist.net/search/all?q=Kuragehime&cat=all)
+&mdash; [**Might Guy**](https://myanimelist.net/character.php?q=Might%20Guy&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
