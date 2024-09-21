@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What took a very long time to build up takes mere moments to destroy. But you can always start over. Next time around, you'll do a better job."
+> "I hate all these damn rich people."
 
-&mdash; [**Kenji Makabe**](https://myanimelist.net/character.php?q=Kenji%20Makabe&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
