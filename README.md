@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't lie if you don't have to."
+> "A beautiful flower too will eventually wither and fall. That's the fate of all living beings. If that's the case, it's only natural for one to want to stop the time while they're still blossoming in all full glory."
 
-&mdash; [**Kaname Tanuma**](https://myanimelist.net/character.php?q=Kaname%20Tanuma&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
