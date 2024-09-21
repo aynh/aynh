@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Religion, ideology, resources, land, spite, love or just because. No matter how pathetic the reason, it's enough to start a war."
+> "Maybe I was lonely. Maybe I've just... always... been lonely."
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
