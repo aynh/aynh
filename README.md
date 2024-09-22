@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, if I had to give a reason for my actions, I guess it's because I love people. I guess I wanted to see the faces that mankind has to offer."
+> "I hate these horns."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
