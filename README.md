@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If an angelic being fell from the sky and tried to live in this world of ours, I think even they would commit many wrongs."
+> "Well, if I had to give a reason for my actions, I guess it's because I love people. I guess I wanted to see the faces that mankind has to offer."
 
-&mdash; [**Juuzou Suzuya**](https://myanimelist.net/character.php?q=Juuzou%20Suzuya&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
