@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was trying to take the easy way out by running away from everything. No matter the pain, I will keep living. So when I die, I'll feel I did the best I could."
+> "But being optimistic isn't a bad thing, is it? It's not like you're doing anything bad. It's also not like you're cheating either."
 
-&mdash; [**Koala**](https://myanimelist.net/character.php?q=Koala&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
