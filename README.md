@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pum, Pumkins, Smashing Pumkins!"
+> "Those people had us dancing right in the palms of their hands, didn't they? I guess it doesn't matter what we do. We'll never be the ones in control."
 
-&mdash; [**Blair**](https://myanimelist.net/character.php?q=Blair&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
