@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whenever I counted on someone, I ended up getting hurt."
+> "Among thousands of comrades and ten thousand enemies, only you... only you made me forget my dream. I see it!"
 
-&mdash; [**Ohana Matsumae**](https://myanimelist.net/character.php?q=Ohana%20Matsumae&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
+&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
