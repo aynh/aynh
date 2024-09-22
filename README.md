@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I had been more decisive, and acted sooner, I could have stopped Sozin, and stopped the war before it started. I offer you this wisdom, Aang, you must be decisive."
+> "If you think it's natural for people to sacrifice their own lives to save others, surely you understand that sometimes a single death can save many lives."
 
-&mdash; [**Roku**](https://myanimelist.net/character.php?q=Roku&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
