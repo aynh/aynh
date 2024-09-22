@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At a place where you feel most restful… Next to the person you find most dear. People's lives are repetitions of inflicting pain on each other. It's understandable to doubt others. But being unable to trust anything is the same as being unable to feel other people's love. Aren’t you, perhaps, feeling lonely? Aren’t you, perhaps, living slavishly? Are you able to laugh with an honest heart?"
+> "When it's time for the flowers to bloom, they'll bloom. When it's time for spring to come, it'll come."
 
-&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Atsushi Shimao**](https://myanimelist.net/character.php?q=Atsushi%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
