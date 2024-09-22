@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The fake is of far greater value. In its deliberate attempt to be real, it's more real than the real thing."
+> "The most annoying thing is that I can't do anything for you, even though you're crying."
 
-&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Daiki Mamura**](https://myanimelist.net/character.php?q=Daiki%20Mamura&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
