@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say some defeats are meaningful and losing makes you stronger. Do you understand what that means? For living creatures victory is life, and defeat means death. It's an extreme example, but humans retain that instinct. Those who know the terror of defeat, hunger for victory."
+> "You're not supposed to find yourself, you're supposed to choose yourself!"
 
-&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Grizzly-san**](https://myanimelist.net/character.php?q=Grizzly-san&cat=character), [**Polar Bear's Café**](https://myanimelist.net/search/all?q=Polar%20Bear's%20Caf%C3%A9&cat=all)
