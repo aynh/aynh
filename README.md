@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's never been 'The one who becomes Hokage will be acknowledge by everyone', it's 'The one who is acknowledge by everyone, becomes the Hokage'."
+> "Sometimes the truth can hurt others more than a lie."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Nonomiya**](https://myanimelist.net/character.php?q=Nonomiya&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
