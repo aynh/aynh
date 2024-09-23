@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just think we're missing out if we're not trying different things and having fun. Life's too short."
+> "There's always room for free food."
 
-&mdash; [**Birthday**](https://myanimelist.net/character.php?q=Birthday&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
+&mdash; [**Kasumi Fuu**](https://myanimelist.net/character.php?q=Kasumi%20Fuu&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
