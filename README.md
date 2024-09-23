@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how much this world may change, I shall always remain myself."
+> "One who does something he hates just because he's told to.. is called an errand boy."
 
-&mdash; [**Jurai Andou**](https://myanimelist.net/character.php?q=Jurai%20Andou&cat=character), [**Inou-Battle wa Nichijou-kei no Naka de**](https://myanimelist.net/search/all?q=Inou-Battle%20wa%20Nichijou-kei%20no%20Naka%20de&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
