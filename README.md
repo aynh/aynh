@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One who does something he hates just because he's told to.. is called an errand boy."
+> "It's never been 'The one who becomes Hokage will be acknowledge by everyone', it's 'The one who is acknowledge by everyone, becomes the Hokage'."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
