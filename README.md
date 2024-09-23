@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you think it's natural for people to sacrifice their own lives to save others, surely you understand that sometimes a single death can save many lives."
+> "'I would die for you' is what the weak say. If you're in love with someone - live for them."
 
-&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Ross**](https://myanimelist.net/character.php?q=Ross&cat=character), [**Senyuu. 2**](https://myanimelist.net/search/all?q=Senyuu.%202&cat=all)
