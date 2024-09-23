@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The question is what does it take to be the one in control? Money? Brains? Strategic Prowess? Of course, all three are very important. However, there is something that outshines them all and provides a faster and more effective way to victory. And that is... information. The one in possession of information will be able to easily become the ruler of the liar game."
+> "The world doesn't get to decide whether my life is boring, fun, or ordinary, because that's my decision to make. As long as I have the will, nothing is impossible!"
 
-&mdash; [**Yokoya Norihiko**](https://myanimelist.net/character.php?q=Yokoya%20Norihiko&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
