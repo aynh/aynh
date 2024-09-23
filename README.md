@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you hurt me, then so be it. Do you think that there is any human in all the world who has never hurt another? You are all so kind...It hurts you to hurt others. That is why I had been hiding my pain, as well."
+> "Defiance toward parents is an establishment of one's self; it's a sign of independence."
 
-&mdash; [**Bishamonten**](https://myanimelist.net/character.php?q=Bishamonten&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Hiroko Seto**](https://myanimelist.net/character.php?q=Hiroko%20Seto&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
