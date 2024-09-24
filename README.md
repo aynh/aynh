@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someday, I promise you, they will all watch as I change the world."
+> "They come without asking, and then they leave just the same. But once you meet them, even if nobody ever knows it, that encounter will change your life for the better."
 
-&mdash; [**Monkey D. Dragon**](https://myanimelist.net/character.php?q=Monkey%20D.%20Dragon&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
