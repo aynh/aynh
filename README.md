@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My legend dates back to the 12th Century you see. My legend is quite old. The 12th Century was a long time ago."
+> "Someday, I promise you, they will all watch as I change the world."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Monkey D. Dragon**](https://myanimelist.net/character.php?q=Monkey%20D.%20Dragon&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
