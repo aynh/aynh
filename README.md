@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anyone may claim that he will act in the direst times, yet only a brave man acts in times great and small."
+> "For the right price, you can buy not only treasures, but dreams, hearts and even people's lives!"
 
-&mdash; [**Cloud Strife**](https://myanimelist.net/character.php?q=Cloud%20Strife&cat=character), [**Final Fantasy VII: Advent Children**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Advent%20Children&cat=all)
+&mdash; [**Leorio Paladiknight**](https://myanimelist.net/character.php?q=Leorio%20Paladiknight&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
