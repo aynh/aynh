@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, nobody is free. Even the flying birds are chained to the sky."
+> "Don’t allow hatred to devour your heart. The one that you care for will only move farther away."
 
-&mdash; [**Yuu Otosaka**](https://myanimelist.net/character.php?q=Yuu%20Otosaka&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
