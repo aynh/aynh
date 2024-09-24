@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't think anyone is born knowing the reason why they're here. It's just something you have to find as you go along."
+> "There's nothing more deceiving than an obvious truth."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji: Book of Murder**](https://myanimelist.net/search/all?q=Kuroshitsuji%3A%20Book%20of%20Murder&cat=all)
