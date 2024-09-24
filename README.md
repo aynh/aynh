@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I love clichés, I love predictable scripts, I love it when they paste over problems and I love it when they force a happy ending too. What's wrong with working towards that?"
+> "Accept me for what I am today, don't reject me because of what I was yesterday."
 
-&mdash; [**Ryuugamine Mikado**](https://myanimelist.net/character.php?q=Ryuugamine%20Mikado&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Russia**](https://myanimelist.net/character.php?q=Russia&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
