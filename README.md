@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I have to hurt someone, if I have to injure a comrade, then I might as well hurt myself."
+> "Oh, no! Wrong way! I want my mom!"
 
-&mdash; [**Juvia Loxar**](https://myanimelist.net/character.php?q=Juvia%20Loxar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Hikari**](https://myanimelist.net/character.php?q=Hikari&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
