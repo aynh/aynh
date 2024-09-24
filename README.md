@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We can only live while we lose."
+> "Forty thousand brothers could not, with all their quantity of love, make up my sum."
 
-&mdash; [**Renji Yomo**](https://myanimelist.net/character.php?q=Renji%20Yomo&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
