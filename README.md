@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They come without asking, and then they leave just the same. But once you meet them, even if nobody ever knows it, that encounter will change your life for the better."
+> "The world is a dark place... because you have a gloomy look on your face."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**No-Sense**](https://myanimelist.net/character.php?q=No-Sense&cat=character), [**Coppelion**](https://myanimelist.net/search/all?q=Coppelion&cat=all)
