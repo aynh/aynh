@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Forty thousand brothers could not, with all their quantity of love, make up my sum."
+> "I can't help you. I belong to a world where all is death. Your world of choices was not meant for me to interfere with."
 
-&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
