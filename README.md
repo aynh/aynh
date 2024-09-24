@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Accept me for what I am today, don't reject me because of what I was yesterday."
+> "My legend dates back to the 12th Century you see. My legend is quite old. The 12th Century was a long time ago."
 
-&mdash; [**Russia**](https://myanimelist.net/character.php?q=Russia&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
