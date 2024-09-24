@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I didn't abduct her. It was voluntary arrest."
+> "If I have to hurt someone, if I have to injure a comrade, then I might as well hurt myself."
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Juvia Loxar**](https://myanimelist.net/character.php?q=Juvia%20Loxar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
