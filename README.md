@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For the right price, you can buy not only treasures, but dreams, hearts and even people's lives!"
+> "Once the revenge is dealt, you are required to pay the compensation."
 
-&mdash; [**Leorio Paladiknight**](https://myanimelist.net/character.php?q=Leorio%20Paladiknight&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
