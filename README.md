@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Ohana* You can't do everything by yourself!... But I can't do it by myself, either. I need your help."
+> "Saying that people's personalities are products of their pasts isn't totally wrong. The way people live depends on their experiences."
 
-&mdash; [**Minko Tsurugi**](https://myanimelist.net/character.php?q=Minko%20Tsurugi&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
+&mdash; [**Kirie Kanoe**](https://myanimelist.net/character.php?q=Kirie%20Kanoe&cat=character), [**Dusk maiden of Amnesia**](https://myanimelist.net/search/all?q=Dusk%20maiden%20of%20Amnesia&cat=all)
