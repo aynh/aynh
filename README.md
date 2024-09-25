@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "According to my master, when you're a kid, just being a fast runner makes you popular. In middle school, it's holding your own in a fight. After that, brains make you popular. Her point seemed to be, 'Run fast, hit hard, and read books.'"
+> "When something dies or is lost, that thing doesn't truly disappear, as long as someone remembers it. And that remembering it is to acknowledge its existence, and because of that, it can sometimes be seen again."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
