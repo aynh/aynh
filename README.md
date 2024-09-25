@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't remind me. I'm mad enough to hurt somebody and pounding you just might be the therapy I need."
+> "It's better for a man to be slow than fast."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
