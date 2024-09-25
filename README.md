@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Damn, at least one of us should've died!"
+> "A true warrior would never beg someone for his life."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kira Izuru**](https://myanimelist.net/character.php?q=Kira%20Izuru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
