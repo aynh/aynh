@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's better for a man to be slow than fast."
+> "Everything happens for a reason. The daily tragedies and misfortunes are all meaningful events, leading toward an ideal conclusion. With that in mind, there probably isn't really any meaningless misfortune."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
