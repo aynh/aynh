@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you really intend to lose even more of your friends for something like that? I'll pass on that. As long as I'm alive, I'll live by my own rules. I'll live as I see fit and protect that which I hold dear."
+> "I will be the Man who surpass God."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
