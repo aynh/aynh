@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When something dies or is lost, that thing doesn't truly disappear, as long as someone remembers it. And that remembering it is to acknowledge its existence, and because of that, it can sometimes be seen again."
+> "Good evening, Espada. There has been an enemy attack. But first...Let us brew some tea."
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
