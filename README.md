@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Saying that people's personalities are products of their pasts isn't totally wrong. The way people live depends on their experiences."
+> "Team isn't just something to be protected. A team also protects you. We don't support each because we are a team. We are a team because we support each other."
 
-&mdash; [**Kirie Kanoe**](https://myanimelist.net/character.php?q=Kirie%20Kanoe&cat=character), [**Dusk maiden of Amnesia**](https://myanimelist.net/search/all?q=Dusk%20maiden%20of%20Amnesia&cat=all)
+&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
