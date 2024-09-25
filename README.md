@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I'd known that the end would come so fast, I would have said so much more."
+> "In this world, there are things you’re better off not knowing."
 
-&mdash; [**Daiki Mamura**](https://myanimelist.net/character.php?q=Daiki%20Mamura&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Aizawa Yuuichi**](https://myanimelist.net/character.php?q=Aizawa%20Yuuichi&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
