@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "GOOD MOOOORNING ICHIGOOOOOO!!!!"
+> "Sometimes the things that matter the most are right in front of you."
 
-&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
