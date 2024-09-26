@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One day I'd like to become something precious to others."
+> "I knew that it was pointless to hope for anything. I was so apathetic because of this sort of upbringing."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
