@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am Light's girlfriend from university."
+> "We are both merchants, and I'll promise you one thing. We will not laugh until we get the money, and we will not cry until we go bankrupt. And guess what? We are going to laugh."
 
-&mdash; [**Kiyomi Takada**](https://myanimelist.net/character.php?q=Kiyomi%20Takada&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
