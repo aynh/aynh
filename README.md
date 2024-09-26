@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are no convenient miracles, and there is logic that should be inviolable."
+> "Someone who can't see the opponent before them can't see the opponent lying beyond."
 
-&mdash; [**Hakaze Kusaribe**](https://myanimelist.net/character.php?q=Hakaze%20Kusaribe&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Hajime Iwaizumi**](https://myanimelist.net/character.php?q=Hajime%20Iwaizumi&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
