@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you truly loved her, you'd save her even if you were weak or it would be painful. That's the pride of a man"
+> "I've already decided. Getting good grades and listening to teachers can take me somewhere high and far away, but what if that's not where I want to go? Right here, by your side, Tomoya, is the only place I want to be."
 
-&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
+&mdash; [**Sakagami Tomoyo**](https://myanimelist.net/character.php?q=Sakagami%20Tomoyo&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
