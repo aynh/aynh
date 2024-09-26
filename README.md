@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Today might be the chance to grasp the chance to let your talent bloom. Maybe tomorrow, the day after, or next year... Maybe even when you're thirty. I'm not sure if physique has anything to do with it, but if you think that it will never come, it probably never will."
+> "Don't get me wrong. It's not like I'm worried about you. But if you don't come back I'll never forgive you."
 
-&mdash; [**Tooru Oikawa**](https://myanimelist.net/character.php?q=Tooru%20Oikawa&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
