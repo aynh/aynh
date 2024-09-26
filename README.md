@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I knew that it was pointless to hope for anything. I was so apathetic because of this sort of upbringing."
+> "Is that all your feelings have to offer? Go ahead. Try to wrench open my heart. That's the only way you'll get me."
 
-&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
