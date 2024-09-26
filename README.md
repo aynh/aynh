@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the world outside is void of hope, and if despair is contagious, then I'll just have to infect everyone with my hope. Living in despair really isn't living at all."
+> "It's simple. Even the strongest tree will die if left in the dark. I find that to be the best way to describe us. A giant oak, crashing through a dark soil, bringing order to an otherwise chaotic land. The Shinobi have done their job for centuries, and done it well. But in recent years, we have caught glimpses of the outside world, and asked: 'Why not us? Have we not earned the privilege others take for free?'."
 
-&mdash; [**Makoto Naegi**](https://myanimelist.net/character.php?q=Makoto%20Naegi&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Touya**](https://myanimelist.net/character.php?q=Touya&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
