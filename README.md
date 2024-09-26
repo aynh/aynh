@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's difficult to make a girl smile, even as a grown-up. But you should never, ever, make a girl cry. And if you ever see a girl crying, help her. You might not be able to make her smile, but they'll know how you feel."
+> "I am Light's girlfriend from university."
 
-&mdash; [**Yokodera Youto**](https://myanimelist.net/character.php?q=Yokodera%20Youto&cat=character), [**Hentai Ouji To Warawanai Neko**](https://myanimelist.net/search/all?q=Hentai%20Ouji%20To%20Warawanai%20Neko&cat=all)
+&mdash; [**Kiyomi Takada**](https://myanimelist.net/character.php?q=Kiyomi%20Takada&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
