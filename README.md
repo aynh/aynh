@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someone who can't see the opponent before them can't see the opponent lying beyond."
+> "Tears are handy for washing away troubling and sad feelings. But when you grow up, you'll learn that there are things so sad, they can never be washed away by tears. That there are painful memories that should never be washed away. So people who are truly strong laugh when they want to cry. They endure all of the pain and sorrow while laughing with everybody else."
 
-&mdash; [**Hajime Iwaizumi**](https://myanimelist.net/character.php?q=Hajime%20Iwaizumi&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
+&mdash; [**Obi Hajime**](https://myanimelist.net/character.php?q=Obi%20Hajime&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
