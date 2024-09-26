@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't get me wrong. It's not like I'm worried about you. But if you don't come back I'll never forgive you."
+> "There are no convenient miracles, and there is logic that should be inviolable."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Hakaze Kusaribe**](https://myanimelist.net/character.php?q=Hakaze%20Kusaribe&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
