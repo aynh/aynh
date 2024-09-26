@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Failing to act, for fear of the risk, is no different than a living death. No matter what world you’re in."
+> "One day I'd like to become something precious to others."
 
-&mdash; [**Crusty**](https://myanimelist.net/character.php?q=Crusty&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
