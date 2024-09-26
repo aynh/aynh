@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is that all your feelings have to offer? Go ahead. Try to wrench open my heart. That's the only way you'll get me."
+> "Such shallow emotions evoked by simple and cheerful stories won't solve anything! What people need is a more tangible sense of values with which to resolve the conflicts of everyday life! Even if that causes others to think of you as warped, as long as you can remain true to yourself until the moment you die; that is what I believe true dignity is!"
 
-&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
+&mdash; [**Sachi Nanjou**](https://myanimelist.net/character.php?q=Sachi%20Nanjou&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
