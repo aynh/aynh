@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have two rules: First, I'm never wrong. Second, if I'm wrong... back to the first rule."
+> "I'm gonna kick your ***."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
