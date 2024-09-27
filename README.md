@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The''present' is a leaf floating on top of the river. It moves along with the flow from past to future."
+> "The root of all evil is the kotatsu."
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Chiaki Shinichi**](https://myanimelist.net/character.php?q=Chiaki%20Shinichi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
