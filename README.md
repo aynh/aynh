@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The people laughing are laughing at their own ignorance."
+> "I never knew until the first years came, that we all cared about different things."
 
-&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Chihaya Ayase**](https://myanimelist.net/character.php?q=Chihaya%20Ayase&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
