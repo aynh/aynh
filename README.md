@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The crowd of people looks just like pixels in a picture to me. A single pixel is meaningless. But add two, three and four... They pile up rapidly until they ultimately form a picture. But I've never seen that picture."
+> "Colors and lies both get blacker as you add more. Add enough red, and it'll turn black too."
 
-&mdash; [**Narumi Fujishima**](https://myanimelist.net/character.php?q=Narumi%20Fujishima&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
