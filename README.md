@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never knew until the first years came, that we all cared about different things."
+> "The only thing we're allowed to do... is to believe that we won't regret the choice we made."
 
-&mdash; [**Chihaya Ayase**](https://myanimelist.net/character.php?q=Chihaya%20Ayase&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
