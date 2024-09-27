@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The summer continues to make me wonder. So my head, boiling like a pot, will never cool. With the heat. With the cicadas buzzing. With the twinkling of the myriad stars floating in the sky."
+> "The true mind can weather all lies and illusions without being lost. The true heart can touch the poison of hatred without being harmed. From beginningless time, darkness thrives in the void, but always yields to purifying light."
 
-&mdash; [**Makoto Niwa**](https://myanimelist.net/character.php?q=Makoto%20Niwa&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
+&mdash; [**Lion Turtle**](https://myanimelist.net/character.php?q=Lion%20Turtle&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
