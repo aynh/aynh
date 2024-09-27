@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It isn't even interesting fighting against someone who doesn't have their own goals."
+> "Honest feelings can sometimes lead to cruel endings."
 
-&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
