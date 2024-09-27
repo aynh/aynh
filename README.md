@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Aside from the fact that I don't have any friends or girlfriends, I'm still a high quality product!"
+> "Stop rushing me. I want to take my time falling in love with you."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Koizumi George**](https://myanimelist.net/character.php?q=Koizumi%20George&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
