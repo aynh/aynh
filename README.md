@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Readers betray their authors."
+> "The summer continues to make me wonder. So my head, boiling like a pot, will never cool. With the heat. With the cicadas buzzing. With the twinkling of the myriad stars floating in the sky."
 
-&mdash; [**Miu Asakura**](https://myanimelist.net/character.php?q=Miu%20Asakura&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
+&mdash; [**Makoto Niwa**](https://myanimelist.net/character.php?q=Makoto%20Niwa&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
