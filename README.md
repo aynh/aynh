@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know... you really are something... (to Tohru)"
+> "Living forever means that the suffering of life also continues forever."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Sakura Hiraga**](https://myanimelist.net/character.php?q=Sakura%20Hiraga&cat=character), [**Masquerade**](https://myanimelist.net/search/all?q=Masquerade&cat=all)
