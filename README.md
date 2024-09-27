@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Living forever means that the suffering of life also continues forever."
+> "I have two rules: First, I'm never wrong. Second, if I'm wrong... back to the first rule."
 
-&mdash; [**Sakura Hiraga**](https://myanimelist.net/character.php?q=Sakura%20Hiraga&cat=character), [**Masquerade**](https://myanimelist.net/search/all?q=Masquerade&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
