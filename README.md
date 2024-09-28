@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans cannot create anything out of nothingness. Humans cannot accomplish anything without holding onto something. After all, humans are not gods."
+> "If you truly loved her, you'd save her even if you were weak or it would be painful. That's the pride of a man"
 
-&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
