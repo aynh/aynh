@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now, you’ve only got two different options to choose from: Prove that everything I just said was bullshit, or admit your guilt."
+> "You can't spell 'slaughter' without 'laughter.'"
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Hollow Ichigo**](https://myanimelist.net/character.php?q=Hollow%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
