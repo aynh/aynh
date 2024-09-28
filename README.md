@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what kind of past you had, don't lose sight of yourself."
+> "Sit upon the frozen heavens! Hyōrinmaru!!"
 
-&mdash; [**Ayato Naoi**](https://myanimelist.net/character.php?q=Ayato%20Naoi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
