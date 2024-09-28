@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's a lot of products that you can buy with money...but my love is the only limited product that only you can have."
+> "Even if the truth is as one suspects, it may still be worthless."
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
