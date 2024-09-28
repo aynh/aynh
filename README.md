@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "More than anyone else, humanity is a species which looks forward to tomorrow. Because of their dreams, they can bear with the unjustness of the present."
+> "In the shinobi world, those that break the written and unwritten rules are deemed trash... but be that as it may... Those that would desregard their comrades so easily are even worse than trash. And those who don't have the decency to respect the memories of their comrades are the worst."
 
-&mdash; [**Rory Mercury**](https://myanimelist.net/character.php?q=Rory%20Mercury&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
