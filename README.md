@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you truly loved her, you'd save her even if you were weak or it would be painful. That's the pride of a man"
+> "You want to walk into a Fire Nation town when they're all fired up with their, you know, fire?"
 
-&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
