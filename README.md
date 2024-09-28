@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The weather's nice and the breeze feels good. The little birds are making their cute chirping sounds. Perhaps people nowadays have forgotten how wonderful nature is... Yes, don't you think it's a waste to not feel it with your entire body like this?"
+> "Let’s say I posed this question to you: “Can all human souls be bought with money or not?” Now remember, the keyword here is “all”. The answer is “There are times when you can buy them, and other times, not,” right? The human being… sometimes he’ll uphold his pride and conscience even if he’s offered ten billion yen, and other times he’ll murder someone over one yen."
 
-&mdash; [**Tanaka**](https://myanimelist.net/character.php?q=Tanaka&cat=character), [**Tanaka-kun wa Itsumo Kedaruge**](https://myanimelist.net/search/all?q=Tanaka-kun%20wa%20Itsumo%20Kedaruge&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!×2 Shou**](https://myanimelist.net/search/all?q=Durarara!!%C3%972%20Shou&cat=all)
