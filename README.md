@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you're trying to protect someone, you must never use your power to hurt others."
+> "The weather's nice and the breeze feels good. The little birds are making their cute chirping sounds. Perhaps people nowadays have forgotten how wonderful nature is... Yes, don't you think it's a waste to not feel it with your entire body like this?"
 
-&mdash; [**Jurai Andou**](https://myanimelist.net/character.php?q=Jurai%20Andou&cat=character), [**Inou Battle wa Nichijou-kei no Naka de**](https://myanimelist.net/search/all?q=Inou%20Battle%20wa%20Nichijou-kei%20no%20Naka%20de&cat=all)
+&mdash; [**Tanaka**](https://myanimelist.net/character.php?q=Tanaka&cat=character), [**Tanaka-kun wa Itsumo Kedaruge**](https://myanimelist.net/search/all?q=Tanaka-kun%20wa%20Itsumo%20Kedaruge&cat=all)
