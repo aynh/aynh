@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the shinobi world, those that break the written and unwritten rules are deemed trash... but be that as it may... Those that would desregard their comrades so easily are even worse than trash. And those who don't have the decency to respect the memories of their comrades are the worst."
+> "Humans cannot create anything out of nothingness. Humans cannot accomplish anything without holding onto something. After all, humans are not gods."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
