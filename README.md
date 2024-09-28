@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let’s say I posed this question to you: “Can all human souls be bought with money or not?” Now remember, the keyword here is “all”. The answer is “There are times when you can buy them, and other times, not,” right? The human being… sometimes he’ll uphold his pride and conscience even if he’s offered ten billion yen, and other times he’ll murder someone over one yen."
+> "No matter what kind of past you had, don't lose sight of yourself."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!×2 Shou**](https://myanimelist.net/search/all?q=Durarara!!%C3%972%20Shou&cat=all)
+&mdash; [**Ayato Naoi**](https://myanimelist.net/character.php?q=Ayato%20Naoi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
