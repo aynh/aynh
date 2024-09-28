@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sit upon the frozen heavens! Hyōrinmaru!!"
+> "There's a lot of products that you can buy with money...but my love is the only limited product that only you can have."
 
-&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
