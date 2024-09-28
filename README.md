@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You must look within yourself to save yourself from your other self. Only then will your true self reveal itself."
+> "Now, you’ve only got two different options to choose from: Prove that everything I just said was bullshit, or admit your guilt."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
