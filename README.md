@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Strength that knows no boundaries is merely violence."
+> "What's wrong with change? In life, if you don't take shortcuts, you're the only one losing out."
 
-&mdash; [**Bismarck Waldstein**](https://myanimelist.net/character.php?q=Bismarck%20Waldstein&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Chihiro Iwasaki**](https://myanimelist.net/character.php?q=Chihiro%20Iwasaki&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
