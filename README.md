@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone exists for a reason. As small as it can be. I'm sure you have a meaning too."
+> "I am your weapon partner Maka! That means I'm always prepared to die for my Meister!"
 
-&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
