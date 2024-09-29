@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What are you waiting for, your balls to drop?"
+> "I just know you are all my newest enemies... and you have really nice guns. You people are all the same. You think you're so special! 'Oh yeah, with all of our wonderful guns on this pathetic train, there's no way anyone can stop us! We are invincible and unbeatable! We are so strong with all of our men and our guns!' *laughs*"
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Ladd Russo**](https://myanimelist.net/character.php?q=Ladd%20Russo&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
