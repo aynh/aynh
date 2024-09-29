@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is foolish to listen to one who will not listen to you. Do as you wish."
+> "[To Kyo] Seriously... Must you break something every time you come home? When are you going to learn? You're too weak."
 
-&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
