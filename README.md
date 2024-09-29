@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's wrong with change? In life, if you don't take shortcuts, you're the only one losing out."
+> "[Shinpachi is tied up, hanging from a tree, and the rope is held by the client] What kind of training is this? What kind of potential does he have?"
 
-&mdash; [**Chihiro Iwasaki**](https://myanimelist.net/character.php?q=Chihiro%20Iwasaki&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Shimura Shinpachi**](https://myanimelist.net/character.php?q=Shimura%20Shinpachi&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
