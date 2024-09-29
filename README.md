@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ed believes he saved that town, it's one of the first successes he's had. I'll let him keep thinking that for a while. He'll learn the truth soon enough: we always do."
+> "There's no such thing as a perfect person in this world."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
