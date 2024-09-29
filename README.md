@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am your weapon partner Maka! That means I'm always prepared to die for my Meister!"
+> "Love does not hurt when you're loving the right person."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
