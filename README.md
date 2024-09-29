@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In order to learn you may have to risk your life... no, even your soul."
+> "It is foolish to listen to one who will not listen to you. Do as you wish."
 
-&mdash; [**Chun-Woo Han**](https://myanimelist.net/character.php?q=Chun-Woo%20Han&cat=character), [**The Breaker**](https://myanimelist.net/search/all?q=The%20Breaker&cat=all)
+&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
