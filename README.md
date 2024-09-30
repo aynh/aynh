@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's amazing how every time you open your mouth, you manage to prove you're an idiot."
+> "I was feeling down, but you distracted me by subjecting me to your selfish whims. There are times when selfishness can save a person."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
