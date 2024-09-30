@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't be indecisive. Just go for it."
+> "There are things in this world that you cannot oppose, no matter how hard you try."
 
-&mdash; [**Atsushi Otani**](https://myanimelist.net/character.php?q=Atsushi%20Otani&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
+&mdash; [**Zeref**](https://myanimelist.net/character.php?q=Zeref&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
