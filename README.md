@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Young ones! Do you want to hear the legend of me? Do you want to hear a heroic tale?"
+> "If I have the power to make a difference, I should put it to good use."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kira Yamato**](https://myanimelist.net/character.php?q=Kira%20Yamato&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
