@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things in this world that you cannot oppose, no matter how hard you try."
+> "Just what is right and what is wrong...? To begin with, just who is the enemy I must defeat?"
 
-&mdash; [**Zeref**](https://myanimelist.net/character.php?q=Zeref&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Rentaro Satomi**](https://myanimelist.net/character.php?q=Rentaro%20Satomi&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
