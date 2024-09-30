@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Looking at your own memories is recognizing the parts of you that you don't want to face."
+> "Don't be indecisive. Just go for it."
 
-&mdash; [**Rinne Higaki**](https://myanimelist.net/character.php?q=Rinne%20Higaki&cat=character), [**Katanagatari**](https://myanimelist.net/search/all?q=Katanagatari&cat=all)
+&mdash; [**Atsushi Otani**](https://myanimelist.net/character.php?q=Atsushi%20Otani&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
