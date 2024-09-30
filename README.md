@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just what is right and what is wrong...? To begin with, just who is the enemy I must defeat?"
+> "I didn't hate it as much as I said. That hollow, that is. If there's anything that I've truly hated for 20 years without thinking twice... it'd have to be the fact that I failed to save Masaki on that night."
 
-&mdash; [**Rentaro Satomi**](https://myanimelist.net/character.php?q=Rentaro%20Satomi&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
+&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
