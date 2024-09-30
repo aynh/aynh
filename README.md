@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can see through you, you're lying, you want to gobble up my hot body!"
+> "Real strength only reveals itself when one is faced with great turmoil! Therefore, I shall always tread a thorny path!"
 
-&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Aoi Asahina**](https://myanimelist.net/character.php?q=Aoi%20Asahina&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
