@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is a reason nesessary? I don't know why you would kill someone. But as for saving someone... A logical mind isn't needed, right?"
+> "It doesn't matter what you do, if you live and die as you like. However, no matter what road you end up taking, remember to protect the people that are precious to you."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Hiruzen Sarutobi**](https://myanimelist.net/character.php?q=Hiruzen%20Sarutobi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
