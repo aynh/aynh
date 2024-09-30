@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate waiting, but if waiting means being able to be with you I'll wait for as long as forever."
+> "I am who I am now because of my past. Calling any choice I made a mistake would be calling who I am now a mistake."
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
