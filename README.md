@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How many people you killed, or how many you let live, it doesn't matter to me. You people incurred my wrath... That's reason enough, for you to meet your demise."
+> "It's amazing how every time you open your mouth, you manage to prove you're an idiot."
 
-&mdash; [**Tatsuya Shiba**](https://myanimelist.net/character.php?q=Tatsuya%20Shiba&cat=character), [**Mahouka Koukou no Rettousei**](https://myanimelist.net/search/all?q=Mahouka%20Koukou%20no%20Rettousei&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
