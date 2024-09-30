@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The probability of success was zero percent. But I've learned that probabilities are meaningless when it comes to you guys."
+> "Looking at your own memories is recognizing the parts of you that you don't want to face."
 
-&mdash; [**Lordgenome**](https://myanimelist.net/character.php?q=Lordgenome&cat=character), [**Tengen Toppa Gurren Laggan**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Laggan&cat=all)
+&mdash; [**Rinne Higaki**](https://myanimelist.net/character.php?q=Rinne%20Higaki&cat=character), [**Katanagatari**](https://myanimelist.net/search/all?q=Katanagatari&cat=all)
