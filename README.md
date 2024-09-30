@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am who I am now because of my past. Calling any choice I made a mistake would be calling who I am now a mistake."
+> "I don't know if you noticed, but you just called him 'Captain.'"
 
-&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
