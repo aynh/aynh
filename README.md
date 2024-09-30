@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Kyo] Seriously... Must you break something every time you come home? When are you going to learn? You're too weak."
+> "I want to see the splendor of people's souls."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
