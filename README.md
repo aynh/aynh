@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to see the splendor of people's souls."
+> "People get corrupted. Not even saints and heroes are safe. There's nothing you can do to prevent it. That's our salvation."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Yuuki Shinjuurou**](https://myanimelist.net/character.php?q=Yuuki%20Shinjuurou&cat=character), [**Un-Go**](https://myanimelist.net/search/all?q=Un-Go&cat=all)
