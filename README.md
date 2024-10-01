@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if he hates me, being able to die with the knowledge that the one I love will never forget me… there is no greater happiness a woman could desire."
+> "The voice, the smile that still remains in his heart... all of it was a long time ago. Humans live such short lives."
 
-&mdash; [**Hakaze Kusaribe**](https://myanimelist.net/character.php?q=Hakaze%20Kusaribe&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
