@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're like a cat. If I get close, you'll ignore me and go far away. If I get hurt, you'll play around to share the pain."
+> "The things that are most important aren't written in books. You have to learn them by experiencing them yourself."
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
