@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am sane. It's this world that's crazy."
+> "If there's no door, then I'll make one!"
 
-&mdash; [**Kariya Jin**](https://myanimelist.net/character.php?q=Kariya%20Jin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
