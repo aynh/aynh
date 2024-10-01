@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The voice, the smile that still remains in his heart... all of it was a long time ago. Humans live such short lives."
+> "I am sane. It's this world that's crazy."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Kariya Jin**](https://myanimelist.net/character.php?q=Kariya%20Jin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
