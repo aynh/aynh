@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Jack* If you accept everything you're told without question, you'll lose your ability to think. Even if you reached the same conclusion, it would still be worth analyzing the reasons behind it."
+> "Believe you can do it. For sure. Because I... belong to you now."
 
-&mdash; [**Lacie Baskerville**](https://myanimelist.net/character.php?q=Lacie%20Baskerville&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Inori Yuzuriha**](https://myanimelist.net/character.php?q=Inori%20Yuzuriha&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
