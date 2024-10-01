@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let's calm down. The enemy is shooting at us."
+> "You're like a cat. If I get close, you'll ignore me and go far away. If I get hurt, you'll play around to share the pain."
 
-&mdash; [**Itsuki Koizumi**](https://myanimelist.net/character.php?q=Itsuki%20Koizumi&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
