@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The things that are most important aren't written in books. You have to learn them by experiencing them yourself."
+> "Are you helping because you're a doctor? Or is it because you're a Witch?"
 
-&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
