@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Killing for your own ideas... even a bandit could do that if it's killing a complete stranger. However, it's a completely different thing when it comes to killing a relative or a friend. Desire alone isn't enough. You need indomitable will and unwavering beliefs."
+> "Protect the one thing you want to protect until the very end."
 
-&mdash; [**Ichijiku Chisato**](https://myanimelist.net/character.php?q=Ichijiku%20Chisato&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
