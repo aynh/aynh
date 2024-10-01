@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're as good as naked before my spear."
+> "...a man without fear cannot be wise."
 
-&mdash; [**Lancer**](https://myanimelist.net/character.php?q=Lancer&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
