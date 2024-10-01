@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're trying to break the curse. Stop it. What are you trying to do? Do you look down on us? Do you pity our wretched state? Don't bother! We never asked for your sympathy! (To Tohru)"
+> "The role of the young is to break new ground without fear of failure. Remain in memories, not record books! Lose the battle, win the war!"
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kawafuji Takao**](https://myanimelist.net/character.php?q=Kawafuji%20Takao&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
