@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you're weak, there are miracles you can seize with your hands if you fight on to the very end."
+> "Always trying to make myself seem strong... So I locked my own heart in a suit of armor."
 
-&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
