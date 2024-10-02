@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After all cool men don't cheat on their partners, do they?"
+> "If you can't move with your hands then play with your feet! If you don't have enough fingers, then use your nose as well! Whether you're sad, you're a mess, or you've hit rock bottom, you still have to play! That's how people like us survive."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
