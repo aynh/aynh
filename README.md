@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesen't matter how far away a leader is from it's group, a leader is always a leader."
+> "Not knowing everything in this world is fun."
 
-&mdash; [**Takeshi**](https://myanimelist.net/character.php?q=Takeshi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Akise Aru**](https://myanimelist.net/character.php?q=Akise%20Aru&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
