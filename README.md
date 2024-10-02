@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you think your sin will disappear if you lie?"
+> "Love. I myself have never loved another person.  Most likely, I don't even love myself.  I do have knowledge of it.  But I am incapable of determining whether or not it is vital in my life."
 
-&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Vorona**](https://myanimelist.net/character.php?q=Vorona&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
