@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I love you. When did I start to love you so much?"
+> "It doesen't matter how far away a leader is from it's group, a leader is always a leader."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Takeshi**](https://myanimelist.net/character.php?q=Takeshi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
