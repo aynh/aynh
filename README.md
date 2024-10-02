@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One can evoke 'extraordinary' abilities if one focuses all energy on just one point."
+> "No matter where you go, everyone's connected."
 
-&mdash; [**Shindo Iroha**](https://myanimelist.net/character.php?q=Shindo%20Iroha&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Lain Iwakura**](https://myanimelist.net/character.php?q=Lain%20Iwakura&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
