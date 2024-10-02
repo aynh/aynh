@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter where you go, everyone's connected."
+> "I was trying to chop off your head from the eye up. A little scratch counts as a miss."
 
-&mdash; [**Lain Iwakura**](https://myanimelist.net/character.php?q=Lain%20Iwakura&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
