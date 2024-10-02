@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was trying to chop off your head from the eye up. A little scratch counts as a miss."
+> "No human beings, regardless of who they might be, want to look directly at their own shortcomings."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Satou Tatsuhiro**](https://myanimelist.net/character.php?q=Satou%20Tatsuhiro&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
