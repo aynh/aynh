@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not knowing everything in this world is fun."
+> "I hate these horns."
 
-&mdash; [**Akise Aru**](https://myanimelist.net/character.php?q=Akise%20Aru&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
