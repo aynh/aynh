@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is right for me, but not for you. Either way, the concept of 'right' means no more than that."
+> "Success is harder than failure for many things in this world."
 
-&mdash; [**Magata Shiki**](https://myanimelist.net/character.php?q=Magata%20Shiki&cat=character), [**Subete ga F ni Naru**](https://myanimelist.net/search/all?q=Subete%20ga%20F%20ni%20Naru&cat=all)
+&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
