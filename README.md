@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you're not interested, just read my recommendation. Putting aside disliking the food before trying it, I won't forgive you if you dismiss manga without giving it a chance."
+> "The strong one doesn't win. The one who wins is strong."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
