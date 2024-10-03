@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's impossible to feel exactly the same as someone else... but when you both care for each other, your hearts are able to draw a little closer together. I think that's what it means to make your hearts as one."
+> "Even if it’s a coincidence, it’s wonderful when someone understands how you feel."
 
-&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Norie Okazaki**](https://myanimelist.net/character.php?q=Norie%20Okazaki&cat=character), [**Tamayura**](https://myanimelist.net/search/all?q=Tamayura&cat=all)
