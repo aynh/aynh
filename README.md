@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I find it fascinating how we can see something with our eyes, hear with our ears and speak from our mouths. Although science tells us how they work, I just really can't grasp it. I don't know how everyday items like phones work. I can't even explain why a bicycle is fast. When I think like this, I wonder how many things I really understand. Yet I can live on. Because all these mysteries have joined together to keep me alive. Sometimes I admire that before I go to bed."
+> "No matter how colossal a power you obtain, no matter how gigantic an army you bring with you, I ain't scared. While you've abandoned a hundred, I've connected with a thousand. While you've destroyed a thousand, I've been helped by ten thousand. So what's an army of a few thousand? We have protected everything as just three people. We're the Yorozuya."
 
-&mdash; [**Mifune Ryouko**](https://myanimelist.net/character.php?q=Mifune%20Ryouko&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
