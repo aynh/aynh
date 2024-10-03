@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "On this planet you call females who have yet to become adults, girls. It makes sense then that since you'll eventually become withes, you should be called Magical Girls."
+> "*To Captain Kuro* So, you don’t like to get hit, huh? Well, you’re about to have a very bad day."
 
-&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Puella Magi Madoka Magica**](https://myanimelist.net/search/all?q=Puella%20Magi%20Madoka%20Magica&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
