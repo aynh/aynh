@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if it’s a coincidence, it’s wonderful when someone understands how you feel."
+> "Kurosaki Ichigo, those are the words of someone who does not know true despair. So I will show you. This is what true despair looks like."
 
-&mdash; [**Norie Okazaki**](https://myanimelist.net/character.php?q=Norie%20Okazaki&cat=character), [**Tamayura**](https://myanimelist.net/search/all?q=Tamayura&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
