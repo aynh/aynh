@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There was no reason for me to stay in the real world any longer. In the real world, it didn't matter if I was there or not. When I realized that, I was no longer afraid of losing my body."
+> "Even if you're not interested, just read my recommendation. Putting aside disliking the food before trying it, I won't forgive you if you dismiss manga without giving it a chance."
 
-&mdash; [**Chisa Yomoda**](https://myanimelist.net/character.php?q=Chisa%20Yomoda&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
