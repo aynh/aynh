@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So I'll search for my real ''wings'', because if I stay in the comfort of my nest, I'll never be able to use my own strength to fly."
+> "What are people? What is the 'self'? So long as you look like someone else, no one can't tell who's really on the inside."
 
-&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
