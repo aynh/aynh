@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kurosaki Ichigo, those are the words of someone who does not know true despair. So I will show you. This is what true despair looks like."
+> "What exactly would change if I wanted revenge, was consumed by hatred, or went insane with rage?"
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
