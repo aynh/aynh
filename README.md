@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Words are imperfect. Putting it in words will just create misunderstandings. Words are the root of misunderstandings."
+> "So I'll search for my real ''wings'', because if I stay in the comfort of my nest, I'll never be able to use my own strength to fly."
 
-&mdash; [**Nagi Sanzenin**](https://myanimelist.net/character.php?q=Nagi%20Sanzenin&cat=character), [**Hayate no Gotoku!**](https://myanimelist.net/search/all?q=Hayate%20no%20Gotoku!&cat=all)
+&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
