@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In manga, there's always a character who gets a sudden boost of power, right? Usually, it's when they're driven into a corner. Readers actually call it a 'convenient power up', but it actually does happen in the real world as well. We humans only truly show our mettle when we're pushed into a corner."
+> "On this planet you call females who have yet to become adults, girls. It makes sense then that since you'll eventually become withes, you should be called Magical Girls."
 
-&mdash; [**Shinobu Takamiya**](https://myanimelist.net/character.php?q=Shinobu%20Takamiya&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
+&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Puella Magi Madoka Magica**](https://myanimelist.net/search/all?q=Puella%20Magi%20Madoka%20Magica&cat=all)
