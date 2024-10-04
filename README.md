@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's so special about studying? Every problem has an answer. How hard can it be?"
+> "I'll die smiling! Because if you ever think of me in the future, I want you to remember me smiling."
 
-&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Donquixote Rosinante**](https://myanimelist.net/character.php?q=Donquixote%20Rosinante&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
