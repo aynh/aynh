@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It seems like the small leaves in the Village of Konoha have inherited that 'will of fire' you spoke of, Third. The fire on the leaves will eventually burn greater and stronger... It will flash its light and protect this village."
+> "It's easier to crush a dream than realize one. Forming a bond is infinitely more difficult than breaking one."
 
-&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
