@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you plan to continue being a detective and using words to entrap people, inscribe this in your hearts: Words are like knives. When used incorrectly, they turn into foul weapons. You have to understand the opponent’s heart and use them with discretion. No matter who it is you’re dealing with."
+> "Men are not men on the battlefield. We turn into some other creature. You can do the cruelest things... It doesn't even matter if it's an order or not. To protect yourself, your mind shuts out any emotions you have. It's like a steel door. But once the war is over, you can't keep it closed forever."
 
-&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Fullmetal Alchemist**](https://myanimelist.net/character.php?q=Fullmetal%20Alchemist&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
