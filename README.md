@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's easier to crush a dream than realize one. Forming a bond is infinitely more difficult than breaking one."
+> "I'm watching a dream I'll never wake up from."
 
-&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
