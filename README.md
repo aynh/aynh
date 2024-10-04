@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dreams, ambition, love, hope; in this world, could the glories of a youthful heart be.. forbidden?"
+> "Simplicity is the easiest path to true beauty."
 
-&mdash; [**Berserk**](https://myanimelist.net/character.php?q=Berserk&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Handa Seishū**](https://myanimelist.net/character.php?q=Handa%20Seish%C5%AB&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
