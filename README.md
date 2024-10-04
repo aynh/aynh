@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm watching a dream I'll never wake up from."
+> "Dreams, ambition, love, hope; in this world, could the glories of a youthful heart be.. forbidden?"
 
-&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Berserk**](https://myanimelist.net/character.php?q=Berserk&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
