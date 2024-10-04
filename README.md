@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those stars look like they're close to each other, but they're actually very far away, aren't they? It's like Kitamura-kun and I. The things you see aren't always real. How hard must I try in order to understand the unseen truth?"
+> "What's so special about studying? Every problem has an answer. How hard can it be?"
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
