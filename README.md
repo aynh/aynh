@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, you sure have weird ways of doing things. The one who taught me how to give your name out to he whom you are about to kill also said... that it was always the last lesson he taught his students. That way, if you do end a person's life... at the very least, they will know the name of the one who slashed their mortal coil. I'm of the 11th Division, 3rd seat, Madarame Ikkaku! You're right, there's no reason for me to hear your name, because the most important thing is that you know mine. After all, it is the name of the man... who will send you to your death!"
+> "I no longer pay attention to other people’s skills. It doesn’t matter; at the end of the day, you can only do your best."
 
-&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Usui Haruaki**](https://myanimelist.net/character.php?q=Usui%20Haruaki&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
