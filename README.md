@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But the big difference is who I work for. I'd rather die than be a yes-man to someone I don't even like."
+> "When you entrust so much of your everyday life to those electronic devices, the argument that you aren't a cyborg isn't very convincing. To you, those portable terminals are already your second brain. Isn't that right? It can be said that the history of science is a history of the expansion of the human body's functionality, in other words, the history of man's cyberization. That's why it's a matter of degree."
 
-&mdash; [**Shalnark**](https://myanimelist.net/character.php?q=Shalnark&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Toyohisa Senguji**](https://myanimelist.net/character.php?q=Toyohisa%20Senguji&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
