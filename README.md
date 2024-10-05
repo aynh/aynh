@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, hurting girls isn't one of my hobbies. That's why I'll make it my hobby... to stomp on their cell phones. Hahahahahaha!"
+> "Unlike demons, you’re base, you harbor a complicated malice, you lie… You struggle desperately, knocking down others in your way… You steal and are stolen from, you make endless excuses… And still you strive to get over the hill and far away. I suppose that’s why humans are so interesting."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji: Book of Circus**](https://myanimelist.net/search/all?q=Kuroshitsuji%3A%20Book%20of%20Circus&cat=all)
