@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're not as slow as you look, monk."
+> "In addition to knowing the secrets of the universe, I can assure you, I am quite potty trained."
 
-&mdash; [**Naraku**](https://myanimelist.net/character.php?q=Naraku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Koenma**](https://myanimelist.net/character.php?q=Koenma&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
