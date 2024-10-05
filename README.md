@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after stabbing some fishes] That's it! This is love! Little fishies, does it hurt? I'll teach you. This is love, you know! I have to eat lots and grow big! And this time, I'll teach everyone what love is. Everyone! Everyone!"
+> "Well, hurting girls isn't one of my hobbies. That's why I'll make it my hobby... to stomp on their cell phones. Hahahahahaha!"
 
-&mdash; [**Chaos**](https://myanimelist.net/character.php?q=Chaos&cat=character), [**Sora no Otoshimono: Forte**](https://myanimelist.net/search/all?q=Sora%20no%20Otoshimono%3A%20Forte&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
