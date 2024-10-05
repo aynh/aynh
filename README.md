@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether we die or not, isn't really that big a deal."
+> "Only once every hundred years can a Firebender experience this kind of power."
 
-&mdash; [**Juuzou Suzuya**](https://myanimelist.net/character.php?q=Juuzou%20Suzuya&cat=character), [**Tokyo Ghoul √A**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%20%E2%88%9AA&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
