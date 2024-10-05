@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What are you waiting for, your balls to drop?"
+> "What are you smoking? Don't you see how cool I am? You think I'm going to settle for a flat chested girl like her?"
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
