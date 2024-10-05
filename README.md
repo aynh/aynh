@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hate is a place, where a man who can't stand sadness, goes."
+> "It’s vulgar and foolish to spend all your time thinking about love!"
 
-&mdash; [**Godo**](https://myanimelist.net/character.php?q=Godo&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Kanade Ōe**](https://myanimelist.net/character.php?q=Kanade%20%C5%8Ce&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
