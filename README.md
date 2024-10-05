@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unlike demons, you’re base, you harbor a complicated malice, you lie… You struggle desperately, knocking down others in your way… You steal and are stolen from, you make endless excuses… And still you strive to get over the hill and far away. I suppose that’s why humans are so interesting."
+> "We're all connected. Just like the notes are intermittently connected. It's shared by us all. Through music, with the people you know, with the people you don't know, with all the people in this world."
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji: Book of Circus**](https://myanimelist.net/search/all?q=Kuroshitsuji%3A%20Book%20of%20Circus&cat=all)
+&mdash; [**Hiroko Seto**](https://myanimelist.net/character.php?q=Hiroko%20Seto&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
