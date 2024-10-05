@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To create something that appeals to the emotions of users, you need to make something that sways your own heart. You can't move others hearts, unless you can move your own."
+> "Hate is a place, where a man who can't stand sadness, goes."
 
-&mdash; [**Kazuki Fujisawa**](https://myanimelist.net/character.php?q=Kazuki%20Fujisawa&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Godo**](https://myanimelist.net/character.php?q=Godo&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
