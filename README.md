@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't regret using my wish for another's sake. If I regret my decision now, the feelings upon which it was based will be for naught."
+> "Are you scared? I understand. The first time I saw my reflection in the mirror, even I was frightened by how BIG my reflection was."
 
-&mdash; [**Sayaka Miki**](https://myanimelist.net/character.php?q=Sayaka%20Miki&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
