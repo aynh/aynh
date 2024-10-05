@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We're all connected. Just like the notes are intermittently connected. It's shared by us all. Through music, with the people you know, with the people you don't know, with all the people in this world."
+> "It's not a question of can or can't. There are some things in life you just do."
 
-&mdash; [**Hiroko Seto**](https://myanimelist.net/character.php?q=Hiroko%20Seto&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Éclair Farron**](https://myanimelist.net/character.php?q=%C3%89clair%20Farron&cat=character), [**Final Fantasy XIII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20XIII&cat=all)
