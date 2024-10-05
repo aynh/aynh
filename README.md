@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My, my. So dangerous."
+> "You're not as slow as you look, monk."
 
-&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Naraku**](https://myanimelist.net/character.php?q=Naraku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
