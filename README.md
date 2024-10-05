@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The scenery is so peaceful, you'd never think that wars were happening and people were dying around the world. If only this scenery could continue forever. But even if a time should come when I can no longer enjoy this scenery, as long as everyone is with me, I'll be fine. That's what I think today."
+> "People’s feelings sometimes go astray and lead to irreversible consequences."
 
-&mdash; [**Meiko Inoue**](https://myanimelist.net/character.php?q=Meiko%20Inoue&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
