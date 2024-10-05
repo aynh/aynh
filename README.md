@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My ears do more than just frame my face."
+> "[after stabbing some fishes] That's it! This is love! Little fishies, does it hurt? I'll teach you. This is love, you know! I have to eat lots and grow big! And this time, I'll teach everyone what love is. Everyone! Everyone!"
 
-&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Chaos**](https://myanimelist.net/character.php?q=Chaos&cat=character), [**Sora no Otoshimono: Forte**](https://myanimelist.net/search/all?q=Sora%20no%20Otoshimono%3A%20Forte&cat=all)
