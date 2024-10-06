@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No amount of natural talent trumps hard work."
+> "Remote islands are all about strange incidents, right?"
 
-&mdash; [**Rin Matsuoka**](https://myanimelist.net/character.php?q=Rin%20Matsuoka&cat=character), [**Free!**](https://myanimelist.net/search/all?q=Free!&cat=all)
+&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
