@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you feel yourself hitting up against your limit remember for what cause you clench your fists... remember why you started down this path, and let that memory carry you beyond your limit."
+> "Regret is a powerful poison. The more you harbor those thoughts, the harder it is to move on."
 
-&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
+&mdash; [**Sakurako Amamiya**](https://myanimelist.net/character.php?q=Sakurako%20Amamiya&cat=character), [**Psyren**](https://myanimelist.net/search/all?q=Psyren&cat=all)
