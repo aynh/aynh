@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I love you!! Even if you go bald or like underage girls, I can handle it! I'm crazy with love!! (Young Kyoko talking to Tohru's fatherher husband)"
+> "Humans lose focus of the big picture when they’re drunken in the midst of their feelings."
 
-&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Tojuro Hattori**](https://myanimelist.net/character.php?q=Tojuro%20Hattori&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
