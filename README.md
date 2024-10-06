@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've set fire to my frozen heart, I shall engrave this anger and sadness that's running through my blood onto you."
+> "Remember that everyone you meet is afraid of something, loves something, and has lost something."
 
-&mdash; [**Alexander Nikolaevich Hell**](https://myanimelist.net/character.php?q=Alexander%20Nikolaevich%20Hell&cat=character), [**Seikon no Qwaser**](https://myanimelist.net/search/all?q=Seikon%20no%20Qwaser&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
