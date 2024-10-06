@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So how about we become monsters together?.. And turn this world upside down? So that... nothing bad... or sad... would remain. Destroy, destroy, destroy it all!"
+> "When I'm away from you, even though I can't be around crowds, I want to go see you."
 
-&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Gin**](https://myanimelist.net/character.php?q=Gin&cat=character), [**Hotarubi no Mori e**](https://myanimelist.net/search/all?q=Hotarubi%20no%20Mori%20e&cat=all)
