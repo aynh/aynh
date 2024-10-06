@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We're always trying to justify our actions with ideals. But ideals cannot give grounds for killing another person. The act of taking a life will always be considered... evil."
+> "I am the alienated, the ridiculed, the despised. No need to praise my name. No need to envy my body. I am the shadow under the radiance of heroic spirits. Birthed of the darkness of glorious legend. And so, I hate, I resent. Nourished by the sighs of the people precipitated within the darkness, people that curse the light. This is my disgrace. Because of her unsullied glory, I must forever be belittled. You are, the sacrifice. Good, give me more, your blood and flesh, your life. Let them ignite my hatred!!"
 
-&mdash; [**Yoshimura**](https://myanimelist.net/character.php?q=Yoshimura&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Berserker**](https://myanimelist.net/character.php?q=Berserker&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
