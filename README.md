@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All men are NOT created equal! Some are born smarter, or more beautiful, or with parents of greater status. Some, by contrast, are born of weak body or mind, or with few, if any, talents. All men are different! Yes, the very existence of man is discriminatory! That's why there is war, violence and unrest."
+> "You've set fire to my frozen heart, I shall engrave this anger and sadness that's running through my blood onto you."
 
-&mdash; [**Charles Zi Britannia**](https://myanimelist.net/character.php?q=Charles%20Zi%20Britannia&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Alexander Nikolaevich Hell**](https://myanimelist.net/character.php?q=Alexander%20Nikolaevich%20Hell&cat=character), [**Seikon no Qwaser**](https://myanimelist.net/search/all?q=Seikon%20no%20Qwaser&cat=all)
