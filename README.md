@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans lose focus of the big picture when they’re drunken in the midst of their feelings."
+> "Even if everyone calls you a liar, even if you hate yourself, I’ll be on your side."
 
-&mdash; [**Tojuro Hattori**](https://myanimelist.net/character.php?q=Tojuro%20Hattori&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Inori Yuzuriha**](https://myanimelist.net/character.php?q=Inori%20Yuzuriha&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
