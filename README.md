@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hughes, just a bit of advice. The soldiers who never shut up about their girls back home... They don't make it."
+> "We're always trying to justify our actions with ideals. But ideals cannot give grounds for killing another person. The act of taking a life will always be considered... evil."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Yoshimura**](https://myanimelist.net/character.php?q=Yoshimura&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
