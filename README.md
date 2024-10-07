@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'd had fifteen years to think about him. And I realized that it wasn't a matter of the life or death of flesh. What's important to a warrior is the soul...And where it lies."
+> "You reject your femininity... yet at the end here you are using it."
 
-&mdash; [**Thorkell**](https://myanimelist.net/character.php?q=Thorkell&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
