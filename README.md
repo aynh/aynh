@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This area feels weird, it's been throbbing hard since that time. When you told me not to go. When you held me so tight. It won't go away. Your voice is still in my ear. What happened to me? Is this... love?"
+> "You kids don't understand anything! By declaring that you're neutral and have nothing to do with this, you can still distance yourselves from what's happening? You don't really believe that, do you?"
 
-&mdash; [**Mashiro Shiina**](https://myanimelist.net/character.php?q=Mashiro%20Shiina&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Murrue Ramius**](https://myanimelist.net/character.php?q=Murrue%20Ramius&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
