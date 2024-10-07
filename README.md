@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not like I'm pessimistic or anything... I'm just moving forward without looking back."
+> "Master Sergeant Fuery, during your last physical it was discovered you have Athletes Foot, and we now believe it is affecting your brain."
 
-&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
