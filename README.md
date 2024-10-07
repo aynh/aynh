@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One human only has the power to do so much. That's why I'm going to protect...even if it's just a handful of them...the ones most important to me."
+> "Nothing will progress while you can't make up your mind."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Ai Kotani**](https://myanimelist.net/character.php?q=Ai%20Kotani&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
