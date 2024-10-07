@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're either an open pervert or a closet pervert!"
+> "You may come to a standstill or get irritated because things don't work out the way you want them to, but what you gain from hard work will never betray you."
 
-&mdash; [**Naotsugu**](https://myanimelist.net/character.php?q=Naotsugu&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Tooru Miyagishi**](https://myanimelist.net/character.php?q=Tooru%20Miyagishi&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
