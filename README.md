@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You may come to a standstill or get irritated because things don't work out the way you want them to, but what you gain from hard work will never betray you."
+> "I'd had fifteen years to think about him. And I realized that it wasn't a matter of the life or death of flesh. What's important to a warrior is the soul...And where it lies."
 
-&mdash; [**Tooru Miyagishi**](https://myanimelist.net/character.php?q=Tooru%20Miyagishi&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
+&mdash; [**Thorkell**](https://myanimelist.net/character.php?q=Thorkell&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
