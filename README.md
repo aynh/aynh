@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm going to become the best manga editor anyone's ever seen! And then you can kiss your job goodbye!"
+> "For all our sake I will sing and pee my heart out in the name of spirit!"
 
-&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Yui**](https://myanimelist.net/character.php?q=Yui&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
