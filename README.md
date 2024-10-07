@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Risks are just an unavoidable part of life. Even if you realize the danger, nothing's gonna come from always running away. That way, even when you die, you can be content that you gave it your all."
+> "Friendship is unnecessary, like philosophy, like art. It has no survival value. Rather it is one of those things that give value to survival."
 
-&mdash; [**Sachi Nanjou**](https://myanimelist.net/character.php?q=Sachi%20Nanjou&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Shana**](https://myanimelist.net/character.php?q=Shana&cat=character), [**Shakugan no Shana**](https://myanimelist.net/search/all?q=Shakugan%20no%20Shana&cat=all)
