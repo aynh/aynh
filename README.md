@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You reject your femininity... yet at the end here you are using it."
+> "This is the end of my dream. My wings forgot how to fly, since I only kept pretending to flap them. Is there a meaning to wings that can't fly?"
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Misuzu Kamio**](https://myanimelist.net/character.php?q=Misuzu%20Kamio&cat=character), [**Air**](https://myanimelist.net/search/all?q=Air&cat=all)
