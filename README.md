@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You never appreciate the irreplaceable things in life until they're gone. Like summer vacation... or brothers."
+> "I love adventures."
 
-&mdash; [**Umaru Doma**](https://myanimelist.net/character.php?q=Umaru%20Doma&cat=character), [**Himouto! Umaru-chan**](https://myanimelist.net/search/all?q=Himouto!%20Umaru-chan&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
