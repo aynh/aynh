@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't surpress my feeling anymore. When she gets confused, I will still her back. Yes I know I am selfish, I don't care."
+> "Don't worry fool, we've entered into an alliance and I'm not the type to break it. Of course, after we win the tournament I can't guarantee anything."
 
-&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
