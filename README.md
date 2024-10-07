@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I'm away from you, even though I can't be around crowds, I want to go see you."
+> "The coin is appreciated...but not as much as your smile."
 
-&mdash; [**Gin**](https://myanimelist.net/character.php?q=Gin&cat=character), [**Hotarubi no Mori e**](https://myanimelist.net/search/all?q=Hotarubi%20no%20Mori%20e&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
