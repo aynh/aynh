@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Master Sergeant Fuery, during your last physical it was discovered you have Athletes Foot, and we now believe it is affecting your brain."
+> "The sun is my enemy, but the moon has been good to me."
 
-&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
