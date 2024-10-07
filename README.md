@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For all our sake I will sing and pee my heart out in the name of spirit!"
+> "You never appreciate the irreplaceable things in life until they're gone. Like summer vacation... or brothers."
 
-&mdash; [**Yui**](https://myanimelist.net/character.php?q=Yui&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Umaru Doma**](https://myanimelist.net/character.php?q=Umaru%20Doma&cat=character), [**Himouto! Umaru-chan**](https://myanimelist.net/search/all?q=Himouto!%20Umaru-chan&cat=all)
