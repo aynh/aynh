@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're going to make a wish, you must put forth the effort to ensure that it comes true!"
+> "The thread of human hope is spun with the flax of sorrow."
 
-&mdash; [**Kouki Akune**](https://myanimelist.net/character.php?q=Kouki%20Akune&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
