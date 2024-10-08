@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you throw your life away, you won't even have the capacity to feel regret."
+> "That's why Kagome sent me, so I can protect you from being protected by him."
 
-&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi Zoku Shou**](https://myanimelist.net/search/all?q=Mushishi%20Zoku%20Shou&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
