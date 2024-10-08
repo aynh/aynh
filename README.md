@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The longer you're with someone, the tougher it is to part ways."
+> "Everyone is the main character of their own life."
 
-&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Kaito Kuroba**](https://myanimelist.net/character.php?q=Kaito%20Kuroba&cat=character), [**Magic Kaito**](https://myanimelist.net/search/all?q=Magic%20Kaito&cat=all)
