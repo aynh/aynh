@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think the best disciplining is pain."
+> "Being free can mean many different things, but I think it's truest meaning is having a free heart that can't be bound by anything. So no matter what choice you make, as long as you remain who you are, you will forever be free."
 
-&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Rei Ryugazaki**](https://myanimelist.net/character.php?q=Rei%20Ryugazaki&cat=character), [**Free! Eternal Summer**](https://myanimelist.net/search/all?q=Free!%20Eternal%20Summer&cat=all)
