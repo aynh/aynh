@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[as a child, to Rangiku Matsumoto] I've decided. I'm going to become a Shinigami. Become a Shinigami and change things. So that they'll end...without Rangiku having to cry."
+> "I think that 'truth' is something that is covered up most of the time."
 
-&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Lloyd Asplund**](https://myanimelist.net/character.php?q=Lloyd%20Asplund&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
