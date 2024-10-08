@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being free can mean many different things, but I think it's truest meaning is having a free heart that can't be bound by anything. So no matter what choice you make, as long as you remain who you are, you will forever be free."
+> "Talent is a key factor, of course, but without some luck on your side you're likely to fail."
 
-&mdash; [**Rei Ryugazaki**](https://myanimelist.net/character.php?q=Rei%20Ryugazaki&cat=character), [**Free! Eternal Summer**](https://myanimelist.net/search/all?q=Free!%20Eternal%20Summer&cat=all)
+&mdash; [**Reiko Mikami**](https://myanimelist.net/character.php?q=Reiko%20Mikami&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
