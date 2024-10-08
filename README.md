@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Having someone saying you're okay as you are and being needed by that person... It was nice to have someone like that."
+> "If you throw your life away, you won't even have the capacity to feel regret."
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi Zoku Shou**](https://myanimelist.net/search/all?q=Mushishi%20Zoku%20Shou&cat=all)
