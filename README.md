@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who cares? Who cares if they're human or if they're something else? If they have boobs, what's the problem?"
+> "The final door is about to open! And I am the one opening it! Then the world that we know of will come to an end! This world of insatiable desires will end!"
 
-&mdash; [**Sakurai Tomozo**](https://myanimelist.net/character.php?q=Sakurai%20Tomozo&cat=character), [**Sora no Otoshimono: Forte**](https://myanimelist.net/search/all?q=Sora%20no%20Otoshimono%3A%20Forte&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
