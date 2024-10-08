@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think that 'truth' is something that is covered up most of the time."
+> "True kindness isn't something we're born with. It's something we had to work on... (to Tohru)"
 
-&mdash; [**Lloyd Asplund**](https://myanimelist.net/character.php?q=Lloyd%20Asplund&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
