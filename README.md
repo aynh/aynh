@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if it is shameless and vulgar, somewhere I seek some sort of connection with people."
+> "If you're going to make a wish, you must put forth the effort to ensure that it comes true!"
 
-&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
+&mdash; [**Kouki Akune**](https://myanimelist.net/character.php?q=Kouki%20Akune&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
