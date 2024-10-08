@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Talent is a key factor, of course, but without some luck on your side you're likely to fail."
+> "[as a child, to Rangiku Matsumoto] I've decided. I'm going to become a Shinigami. Become a Shinigami and change things. So that they'll end...without Rangiku having to cry."
 
-&mdash; [**Reiko Mikami**](https://myanimelist.net/character.php?q=Reiko%20Mikami&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
