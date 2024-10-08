@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was younger then, I wasn't afraid of anything, I didn't think about dying for a second. I thought I was invincible. Then I met some girl. I wanted to live, I started to think like that; for the first time I was afraid of death. I had never felt like that before."
+> "When one thing ends, another begins."
 
-&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Riko Aida**](https://myanimelist.net/character.php?q=Riko%20Aida&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
