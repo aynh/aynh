@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Forget all that formal crap 'bout comin' at me one at a time. I'll take all you bitches on!"
+> "*after Katsura asks him about what he is doing* Well, I suppose I'm doing something odd, like jogging or taking a walk or something like that."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
