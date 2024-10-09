@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're ever lost in the darkness, follow the compass in your heart."
+> "Caring for things brings a lot of trouble."
 
-&mdash; [**Kayo Senju**](https://myanimelist.net/character.php?q=Kayo%20Senju&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
+&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
