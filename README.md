@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay. There's no pain. [something snaps inside Morty] Oops! [grins maniacally at Yoh] I'm sorry."
+> "I don't think anyone is born knowing the reason why they're here. It's just something you have to find as you go along."
 
-&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
