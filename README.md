@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Girls are so annoying. They’re always stubborn and full of jealousy, gossiping about who gets along with whom and who loves whom. Violent too."
+> "If you're ever lost in the darkness, follow the compass in your heart."
 
-&mdash; [**Rentarou Kurahashi**](https://myanimelist.net/character.php?q=Rentarou%20Kurahashi&cat=character), [**Love Lab**](https://myanimelist.net/search/all?q=Love%20Lab&cat=all)
+&mdash; [**Kayo Senju**](https://myanimelist.net/character.php?q=Kayo%20Senju&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
