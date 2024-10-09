@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When people are protecting something truly special to them, they truly can become... as strong as they can be."
+> "Everytime Otani says or does something, I end up going to heaven, or hell."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
