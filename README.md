@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When one thing ends, another begins."
+> "When people are protecting something truly special to them, they truly can become... as strong as they can be."
 
-&mdash; [**Riko Aida**](https://myanimelist.net/character.php?q=Riko%20Aida&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
