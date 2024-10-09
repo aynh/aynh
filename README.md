@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everytime Otani says or does something, I end up going to heaven, or hell."
+> "I didn't say get naked, stupid. I just can't stand seeing you in those clothes."
 
-&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
