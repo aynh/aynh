@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Destiny isn't something to make you as you're told. By overcoming difficulties, life and this whole world can advance forward. That's what destiny is for. A world that has lost the power to advance forward, will be destroyed."
+> "Disappear. My sword does not exist to crush insects like you."
 
-&mdash; [**Aladdin**](https://myanimelist.net/character.php?q=Aladdin&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
