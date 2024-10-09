@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You disgust me. I am a Grim Reaper, I refuse to grant anyone the freedom to kill!"
+> "Shut up! I did what I had to do. People lie to survive. No one is blameless."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
