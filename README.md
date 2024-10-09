@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Coming together and working hard with everyone is a really fun thing!"
+> "You disgust me. I am a Grim Reaper, I refuse to grant anyone the freedom to kill!"
 
-&mdash; [**Masaru Ōfuna**](https://myanimelist.net/character.php?q=Masaru%20%C5%8Cfuna&cat=character), [**Hanayamata**](https://myanimelist.net/search/all?q=Hanayamata&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
