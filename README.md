@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All heroes have established their thrones atop, not just their enemies. But a large quantity of allied corpses as well. There are no monarchs with clean hands."
+> "Miracles are illusions caused by insufficient observation and understanding. They're just... glorious misunderstandings."
 
-&mdash; [**Paul von Oberstein**](https://myanimelist.net/character.php?q=Paul%20von%20Oberstein&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Tanya Degurechaff**](https://myanimelist.net/character.php?q=Tanya%20Degurechaff&cat=character), [**Youjo Senki**](https://myanimelist.net/search/all?q=Youjo%20Senki&cat=all)
