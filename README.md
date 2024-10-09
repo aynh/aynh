@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't care if no one likes me. I wasn't created in this world to entertain everyone."
+> "The only lucky item you'll need is already within - CONFIDENCE."
 
-&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Midorima Shintarou**](https://myanimelist.net/character.php?q=Midorima%20Shintarou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
