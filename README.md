@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The only lucky item you'll need is already within - CONFIDENCE."
+> "Whatever. It's okay, isn't it? Being dishonest with your feelings is part of who you are. If that would just suddenly change overnight, you'd be a different person."
 
-&mdash; [**Midorima Shintarou**](https://myanimelist.net/character.php?q=Midorima%20Shintarou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Kawayanagi Tsurezure**](https://myanimelist.net/character.php?q=Kawayanagi%20Tsurezure&cat=character), [**Ojojojo**](https://myanimelist.net/search/all?q=Ojojojo&cat=all)
