@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Disappear. My sword does not exist to crush insects like you."
+> "'Selection' is important. Even in life. Living, dying, killing are all the results from your selection. Bad luck? Poor fortune? Poor judges of character? You're wrong. It's a selection error for not thinking thoroughly and choosing the answer without proper consideration."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Blue Owl**](https://myanimelist.net/character.php?q=Blue%20Owl&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
