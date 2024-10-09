@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pain tends to heal as time passes, but personally, I don't want time to heal my wounds. You may think you've escaped the pain and forgotten it, but that's nothing more than stagnation. You can't move forward without the pain."
+> "Girls are so annoying. They’re always stubborn and full of jealousy, gossiping about who gets along with whom and who loves whom. Violent too."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Rentarou Kurahashi**](https://myanimelist.net/character.php?q=Rentarou%20Kurahashi&cat=character), [**Love Lab**](https://myanimelist.net/search/all?q=Love%20Lab&cat=all)
