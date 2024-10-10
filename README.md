@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*after meeting Aang for the first time* Good news for the Fire Lord. The nation's greatest threat is just a little kid."
+> "Can you not be something unless you're already somebody else's something?"
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Ross**](https://myanimelist.net/character.php?q=Ross&cat=character), [**Senyuu. 2**](https://myanimelist.net/search/all?q=Senyuu.%202&cat=all)
