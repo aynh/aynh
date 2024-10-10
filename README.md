@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yes I've used a condom before. They can store up to 1 liter of water."
+> "Don't understand? Then think more. If you can only think by calculating, then keep doing so until you can't. Think of all the answers you can and destroy them one by one with the process of elimination. Whatever remains is your answer."
 
-&mdash; [**Sousuke Sagara**](https://myanimelist.net/character.php?q=Sousuke%20Sagara&cat=character), [**Full Metal Panic!**](https://myanimelist.net/search/all?q=Full%20Metal%20Panic!&cat=all)
+&mdash; [**Shizuka Hiratsuka**](https://myanimelist.net/character.php?q=Shizuka%20Hiratsuka&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
