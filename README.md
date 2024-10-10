@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Awaken, Benihime."
+> "Why you little... nobody takes a shot at me!"
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Shani Andras**](https://myanimelist.net/character.php?q=Shani%20Andras&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
