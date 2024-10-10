@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Thinking of you wherever you are. We pray for our sorrows to end, and hope that our hearts will blend. Now I will step forward to realize this wish. And who knows... starting a new journey may not be so hard, or maybe it has already begun. There are many worlds, but they share the same sky... one sky, one destiny."
+> "The best way to write a realistic romance is to first be in love. Everyone can write a love story from their life."
 
-&mdash; [**Kairi**](https://myanimelist.net/character.php?q=Kairi&cat=character), [**Kingdom Hearts 2**](https://myanimelist.net/search/all?q=Kingdom%20Hearts%202&cat=all)
+&mdash; [**Lida Ayano**](https://myanimelist.net/character.php?q=Lida%20Ayano&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
