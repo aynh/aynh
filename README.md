@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*when Lady Eboshi asks him what he's here for* To see with eyes unclouded by hate."
+> "If you don't have the courage to change things then you might as well just die!!!"
 
-&mdash; [**Prince Ashitaka**](https://myanimelist.net/character.php?q=Prince%20Ashitaka&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
