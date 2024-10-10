@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't get accepted by anyone, does that mean there's no significance for you to live on?"
+> "L, do you know gods of death love apples?"
 
-&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
