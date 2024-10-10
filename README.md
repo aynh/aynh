@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What we cannot speak about, we must pass over in silence."
+> "*after meeting Aang for the first time* Good news for the Fire Lord. The nation's greatest threat is just a little kid."
 
-&mdash; [**Kurosu Etsurou**](https://myanimelist.net/character.php?q=Kurosu%20Etsurou&cat=character), [**Ana Satsujin**](https://myanimelist.net/search/all?q=Ana%20Satsujin&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
