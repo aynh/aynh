@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen. Right now, you're trying to shoulder someone else's life. That might be the right thing to do, but that act requires a lot of resolve. It'll become a thorn that can't be removed, and it'll continue to hurt you forever. The briar will continue to grow, but it'll never flower. It'll only hurt, it'll only cause you pain."
+> "This world revolves around two views on the same thing. In addition, it's about laughable miseries."
 
-&mdash; [**Isozaki Itsuki**](https://myanimelist.net/character.php?q=Isozaki%20Itsuki&cat=character), [**Sakurako-san no Ashioto ni wa Shitai ga Umatteiru**](https://myanimelist.net/search/all?q=Sakurako-san%20no%20Ashioto%20ni%20wa%20Shitai%20ga%20Umatteiru&cat=all)
+&mdash; [**Himura Yuu**](https://myanimelist.net/character.php?q=Himura%20Yuu&cat=character), [**ef - a tale of memories**](https://myanimelist.net/search/all?q=ef%20-%20a%20tale%20of%20memories&cat=all)
