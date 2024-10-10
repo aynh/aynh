@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whatever. It's okay, isn't it? Being dishonest with your feelings is part of who you are. If that would just suddenly change overnight, you'd be a different person."
+> "Yes I've used a condom before. They can store up to 1 liter of water."
 
-&mdash; [**Kawayanagi Tsurezure**](https://myanimelist.net/character.php?q=Kawayanagi%20Tsurezure&cat=character), [**Ojojojo**](https://myanimelist.net/search/all?q=Ojojojo&cat=all)
+&mdash; [**Sousuke Sagara**](https://myanimelist.net/character.php?q=Sousuke%20Sagara&cat=character), [**Full Metal Panic!**](https://myanimelist.net/search/all?q=Full%20Metal%20Panic!&cat=all)
