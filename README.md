@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The best way to write a realistic romance is to first be in love. Everyone can write a love story from their life."
+> "*when Lady Eboshi asks him what he's here for* To see with eyes unclouded by hate."
 
-&mdash; [**Lida Ayano**](https://myanimelist.net/character.php?q=Lida%20Ayano&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Prince Ashitaka**](https://myanimelist.net/character.php?q=Prince%20Ashitaka&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
