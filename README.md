@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When we were still in the world of living, death was something that came indiscriminately and randomly. So, there was no way to fight it."
+> "If you don't get accepted by anyone, does that mean there's no significance for you to live on?"
 
-&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
