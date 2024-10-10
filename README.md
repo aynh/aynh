@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more fun I have, the more it'll hurt when we part ways. I know that all too well."
+> "When we were still in the world of living, death was something that came indiscriminately and randomly. So, there was no way to fight it."
 
-&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
