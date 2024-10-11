@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The  pain on these wounds will last only a second. The pain of your death would last a lifetime."
+> "A flower can't choose the place where it blooms and a child can't choose the parents he's born to."
 
-&mdash; [**Kenshiro**](https://myanimelist.net/character.php?q=Kenshiro&cat=character), [**Fist of the North Star**](https://myanimelist.net/search/all?q=Fist%20of%20the%20North%20Star&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
