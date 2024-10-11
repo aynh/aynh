@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hmm... you can go anywhere you want? Cuz' I'll go... anywhere with you, y'know. (To Kureno)"
+> "My soul wave length just got taken away. I'm gonna miss it."
 
-&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
