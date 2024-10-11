@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's a rule that I've had in my life. Kill anyone who calls me 'Dirty Red'."
+> "The lifespan of a human is certainly way too short. That's why you've got to make the most of it and live your life to the fullest."
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Leone**](https://myanimelist.net/character.php?q=Leone&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
