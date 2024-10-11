@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regardless of who I was in the past or what I did, I feel like 'me' of the present should take responsibility."
+> "The world is not so simple. You can't save people with kindness only."
 
-&mdash; [**Yashiro Isana**](https://myanimelist.net/character.php?q=Yashiro%20Isana&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
+&mdash; [**Anji Yūkyūzan**](https://myanimelist.net/character.php?q=Anji%20Y%C5%ABky%C5%ABzan&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
