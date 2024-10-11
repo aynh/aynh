@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My soul wave length just got taken away. I'm gonna miss it."
+> "If someone says it's wrong to hope, I will tell them that they're wrong every time. I could tell them that countless times!"
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Madoka Kaname**](https://myanimelist.net/character.php?q=Madoka%20Kaname&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
