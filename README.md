@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is not so simple. You can't save people with kindness only."
+> "The  pain on these wounds will last only a second. The pain of your death would last a lifetime."
 
-&mdash; [**Anji Yūkyūzan**](https://myanimelist.net/character.php?q=Anji%20Y%C5%ABky%C5%ABzan&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Kenshiro**](https://myanimelist.net/character.php?q=Kenshiro&cat=character), [**Fist of the North Star**](https://myanimelist.net/search/all?q=Fist%20of%20the%20North%20Star&cat=all)
