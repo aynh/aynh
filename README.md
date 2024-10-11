@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's good to not have any enemies, but it's normal to unintentionally make a few along the way."
+> "The ticket to the future, is always blank."
 
-&mdash; [**Saya Irino**](https://myanimelist.net/character.php?q=Saya%20Irino&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
