@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This world revolves around two views on the same thing. In addition, it's about laughable miseries."
+> "It's good to not have any enemies, but it's normal to unintentionally make a few along the way."
 
-&mdash; [**Himura Yuu**](https://myanimelist.net/character.php?q=Himura%20Yuu&cat=character), [**ef - a tale of memories**](https://myanimelist.net/search/all?q=ef%20-%20a%20tale%20of%20memories&cat=all)
+&mdash; [**Saya Irino**](https://myanimelist.net/character.php?q=Saya%20Irino&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
