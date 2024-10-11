@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I don't have to do it, I won't. If I have to do it, I'll make it quick."
+> "Man this guy is stupid, ugly and a bad shooter."
 
-&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
