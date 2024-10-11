@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Man this guy is stupid, ugly and a bad shooter."
+> "Regardless of who I was in the past or what I did, I feel like 'me' of the present should take responsibility."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Yashiro Isana**](https://myanimelist.net/character.php?q=Yashiro%20Isana&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
