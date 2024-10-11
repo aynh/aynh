@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The lifespan of a human is certainly way too short. That's why you've got to make the most of it and live your life to the fullest."
+> "The brain is a microcosm, creating its own stories. People then live out these stories."
 
-&mdash; [**Leone**](https://myanimelist.net/character.php?q=Leone&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Seiichi Kirima**](https://myanimelist.net/character.php?q=Seiichi%20Kirima&cat=character), [**Boogiepop Phantom**](https://myanimelist.net/search/all?q=Boogiepop%20Phantom&cat=all)
