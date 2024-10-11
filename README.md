@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I described him in one word, it'd be di*k[beep]!"
+> "Smell ya later."
 
-&mdash; [**Chika Akatsuki**](https://myanimelist.net/character.php?q=Chika%20Akatsuki&cat=character), [**Zombie-Loan**](https://myanimelist.net/search/all?q=Zombie-Loan&cat=all)
+&mdash; [**Blue**](https://myanimelist.net/character.php?q=Blue&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
