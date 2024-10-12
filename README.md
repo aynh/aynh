@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let’s say I posed this question to you: “Can all human souls be bought with money or not?” Now remember, the keyword here is “all”. The answer is “There are times when you can buy them, and other times, not,” right? The human being… sometimes he’ll uphold his pride and conscience even if he’s offered ten billion yen, and other times he’ll murder someone over one yen."
+> "To sum up, that is what led to number 679 of the 1,000 provisions you must observe. Always place a dehumidifier in your room."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!×2 Shou**](https://myanimelist.net/search/all?q=Durarara!!%C3%972%20Shou&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
