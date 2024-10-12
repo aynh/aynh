@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop looking at my soul you creep!"
+> "I'll show you a real assassination. No... Maybe you won't even be able to see it."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
