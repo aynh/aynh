@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll show you a real assassination. No... Maybe you won't even be able to see it."
+> "It doesn't matter if you grew up without parents, and it doesn't matter if you don't believe in God. There's someone out there watching over you."
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
