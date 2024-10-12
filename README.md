@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Kyo] Perhaps if you'd just die you'd be reincarnated as something more pleasant."
+> "Upon researching the concept of demons, I believe that, among all life, humans are the closest thing to it."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Migi**](https://myanimelist.net/character.php?q=Migi&cat=character), [**Parasyte -the maxim-**](https://myanimelist.net/search/all?q=Parasyte%20-the%20maxim-&cat=all)
