@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you look back after a long life, you'll realize there's nothing that's really worth risking your life for."
+> "It is the path you have chosen. Take pride in it."
 
-&mdash; [**Mackenzie Glen**](https://myanimelist.net/character.php?q=Mackenzie%20Glen&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
