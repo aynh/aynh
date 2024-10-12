@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Upon researching the concept of demons, I believe that, among all life, humans are the closest thing to it."
+> "Justice is a weapon. It can be used to cause harm, but it cannot protect or save others."
 
-&mdash; [**Migi**](https://myanimelist.net/character.php?q=Migi&cat=character), [**Parasyte -the maxim-**](https://myanimelist.net/search/all?q=Parasyte%20-the%20maxim-&cat=all)
+&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
