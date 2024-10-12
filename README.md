@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter if you grew up without parents, and it doesn't matter if you don't believe in God. There's someone out there watching over you."
+> "I'd be lying if I said things are going according to my plan... but beggars can't be choosers, right?"
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
