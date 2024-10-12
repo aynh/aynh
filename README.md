@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To sum up, that is what led to number 679 of the 1,000 provisions you must observe. Always place a dehumidifier in your room."
+> "People are such strange beings. The sad memories seem to just fade away, until all a person is left with are the happier ones. People are certainly designed so conveniently."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Eva Heinemann**](https://myanimelist.net/character.php?q=Eva%20Heinemann&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
