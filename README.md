@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Justice is a weapon. It can be used to cause harm, but it cannot protect or save others."
+> "Oh, it IS a chore. Risking your life and keeping busy are all the same!"
 
-&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
