@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People are such strange beings. The sad memories seem to just fade away, until all a person is left with are the happier ones. People are certainly designed so conveniently."
+> "Don't you know that fans only make flames stronger?"
 
-&mdash; [**Eva Heinemann**](https://myanimelist.net/character.php?q=Eva%20Heinemann&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Azula**](https://myanimelist.net/character.php?q=Azula&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
