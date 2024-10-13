@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't let anyone in my sight get away, and my bullets never miss their mark. Especially if it's the heart of a beautiful lady... BANG."
+> "Human beings are strong because we have the ability to change ourselves."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
