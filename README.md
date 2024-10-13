@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The essence of good deeds and evil is the same. They're both no more than a person's actions to make up for a defect in themselves."
+> "If I don't understand how a friend feels, am I not allowed to worry about them? If I don't experience what you do, am I not allowed to worry about you, my friend?"
 
-&mdash; [**Yashiro Gaku**](https://myanimelist.net/character.php?q=Yashiro%20Gaku&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
+&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
