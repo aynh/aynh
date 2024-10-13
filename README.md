@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no such thing as a perfect person. That is why we cannot live alone."
+> "Even if I am to carry all the evils of this world, it won't matter. If that can save the world, then I'd gladly accept it."
 
-&mdash; [**Chichiri**](https://myanimelist.net/character.php?q=Chichiri&cat=character), [**Fushigi Yuugi**](https://myanimelist.net/search/all?q=Fushigi%20Yuugi&cat=all)
+&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
