@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, it IS a chore. Risking your life and keeping busy are all the same!"
+> "It's not a sin to fall in love. You can't even arrest someone over that."
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Gajeel Redfox**](https://myanimelist.net/character.php?q=Gajeel%20Redfox&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
