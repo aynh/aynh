@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So you feel like you're being dishonest or something? That's not true. It's a great thing to come to like someone. If you ask me... The important thing here is, that you have to make a clear choice between the two of them."
+> "There's nothing happy about having your fate decided for you! You have to grab your own happiness!"
 
-&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
