@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don’t want to waste a single second or meter. From your first step and second of the day, I want to be with you."
+> "I am sane. It's this world that's crazy."
 
-&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Kariya Jin**](https://myanimelist.net/character.php?q=Kariya%20Jin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
