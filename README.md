@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Uh, my name... is... Ketchup! No, wait! My name is really Tom Ato!"
+> "There are only two times when a man can cry in public: when he loses his wallet and when his mother dies. And even if you cry in private, there's a severe restriction. Shed tears for others. The only thing you should be shedding for yourself is sweat. Remember that."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
