@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We weep for the blood of a bird, but not for the blood of a fish. Blessed are those with a voice. If the dolls could speak, no doubt they'd scream, 'I didn't want to become human'."
+> "The essence of good deeds and evil is the same. They're both no more than a person's actions to make up for a defect in themselves."
 
-&mdash; [**Motoko Kusanagi**](https://myanimelist.net/character.php?q=Motoko%20Kusanagi&cat=character), [**Ghost in the Shell 2: Innocence**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell%202%3A%20Innocence&cat=all)
+&mdash; [**Yashiro Gaku**](https://myanimelist.net/character.php?q=Yashiro%20Gaku&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
