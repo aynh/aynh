@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Right now, I kinda wish that my mom named me Bob instead of Ash."
+> "Uh, my name... is... Ketchup! No, wait! My name is really Tom Ato!"
 
 &mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
