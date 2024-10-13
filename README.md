@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I am to carry all the evils of this world, it won't matter. If that can save the world, then I'd gladly accept it."
+> "I'm bothered by the very fact that people exist, but you're an exception."
 
-&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
