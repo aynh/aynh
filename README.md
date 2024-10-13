@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are only two times when a man can cry in public: when he loses his wallet and when his mother dies. And even if you cry in private, there's a severe restriction. Shed tears for others. The only thing you should be shedding for yourself is sweat. Remember that."
+> "There is no such thing as a perfect person. That is why we cannot live alone."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Chichiri**](https://myanimelist.net/character.php?q=Chichiri&cat=character), [**Fushigi Yuugi**](https://myanimelist.net/search/all?q=Fushigi%20Yuugi&cat=all)
