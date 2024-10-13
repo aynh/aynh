@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I don't understand how a friend feels, am I not allowed to worry about them? If I don't experience what you do, am I not allowed to worry about you, my friend?"
+> "I hate butterflies. I hate them for being pretty. I hate them for being easy to catch. And having pins stuck through their body and being turned into specimens is what I hate most."
 
-&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Agatsuma Soubi**](https://myanimelist.net/character.php?q=Agatsuma%20Soubi&cat=character), [**Loveless**](https://myanimelist.net/search/all?q=Loveless&cat=all)
