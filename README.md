@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if the questions change, it makes no difference to me."
+> "The length of time you've been in love isn't the only thing that matters, right?"
 
-&mdash; [**Karma Akabane**](https://myanimelist.net/character.php?q=Karma%20Akabane&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
