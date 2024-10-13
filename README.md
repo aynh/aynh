@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate sweets."
+> "I don’t want to waste a single second or meter. From your first step and second of the day, I want to be with you."
 
-&mdash; [**Yu Kanda**](https://myanimelist.net/character.php?q=Yu%20Kanda&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
