@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So now we know her past. So what? It doesn't have anything to do with us. We have to be nice to her just because she's had a rough past? You've got to be kidding."
+> "Whether you're a monster or human there's no difference in the value of someone's life."
 
-&mdash; [**Ranta**](https://myanimelist.net/character.php?q=Ranta&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Mizore Shirayuki**](https://myanimelist.net/character.php?q=Mizore%20Shirayuki&cat=character), [**Rosario Vampire**](https://myanimelist.net/search/all?q=Rosario%20Vampire&cat=all)
