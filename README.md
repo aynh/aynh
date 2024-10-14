@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A lie yields hope when you realize it's a lie. On the other hand, when you feel that a cruel fact is reality, you fall into despair all the more."
+> "So now we know her past. So what? It doesn't have anything to do with us. We have to be nice to her just because she's had a rough past? You've got to be kidding."
 
-&mdash; [**Miyazaki Ryuu**](https://myanimelist.net/character.php?q=Miyazaki%20Ryuu&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Ranta**](https://myanimelist.net/character.php?q=Ranta&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
