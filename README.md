@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Yoruichi] It's alright! Kurosaki-san's potential is greater than mine!"
+> "The chosen one? I feel more like the frozen one."
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
