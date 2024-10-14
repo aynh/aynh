@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans have always spent a lot of time on love. I’m not too interested in karuta, but I’m willing to work hard for love."
+> "There's nothing more deceiving than an obvious truth."
 
-&mdash; [**Sumire Hanano**](https://myanimelist.net/character.php?q=Sumire%20Hanano&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji: Book of Murder**](https://myanimelist.net/search/all?q=Kuroshitsuji%3A%20Book%20of%20Murder&cat=all)
