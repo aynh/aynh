@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You get free hatred for everything you sell. I've amassed a real supply of it, so I'd like to sell it too... But no one wants to buy it from me!"
+> "[To Yoruichi] It's alright! Kurosaki-san's potential is greater than mine!"
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
