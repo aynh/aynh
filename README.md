@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If someone always follows the perfect path without ever facing hardship... Is it really what's best for that person?"
+> "It's a cruel and random world. And yet the chaos is all so beautiful."
 
-&mdash; [**Yoake Ryou**](https://myanimelist.net/character.php?q=Yoake%20Ryou&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Dante**](https://myanimelist.net/character.php?q=Dante&cat=character), [**Devil May Cry**](https://myanimelist.net/search/all?q=Devil%20May%20Cry&cat=all)
