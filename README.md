@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'My heart controls the world.' But who can I control if I'm the only one living in this world?"
+> "Humans have always spent a lot of time on love. I’m not too interested in karuta, but I’m willing to work hard for love."
 
-&mdash; [**Yuyuka Nekota**](https://myanimelist.net/character.php?q=Yuyuka%20Nekota&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Sumire Hanano**](https://myanimelist.net/character.php?q=Sumire%20Hanano&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
