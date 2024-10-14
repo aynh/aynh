@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Are you prepared to die?'. Most astronauts answer with a simple 'yes', but you can say anything. It's just a weak yes. You shouldn't be prepared to die. Instead, you should have the resolve to live until the very end! If there's someone who replies 'no', you can trust them."
+> "In this world, evil can arise from the best of intentions. And there is good which can come from evil intentions."
 
-&mdash; [**Brian Jay**](https://myanimelist.net/character.php?q=Brian%20Jay&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
