@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can never tell what'll happen next in life. But so long as you have faith in your feet, the road you walk will be a part of you."
+> "I just...    ...want to make the woman I love happy."
 
-&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
