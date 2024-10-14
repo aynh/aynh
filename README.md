@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm bothered by the very fact that people exist, but you're an exception."
+> "You can never tell what'll happen next in life. But so long as you have faith in your feet, the road you walk will be a part of you."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
