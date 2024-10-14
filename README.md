@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's nothing more deceiving than an obvious truth."
+> "If someone always follows the perfect path without ever facing hardship... Is it really what's best for that person?"
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji: Book of Murder**](https://myanimelist.net/search/all?q=Kuroshitsuji%3A%20Book%20of%20Murder&cat=all)
+&mdash; [**Yoake Ryou**](https://myanimelist.net/character.php?q=Yoake%20Ryou&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
