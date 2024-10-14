@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't like to be treated like a kid, then why don't you try showing how much you have grown up."
+> "A fallen angel banished from heaven, arises into the light to be recieved by the benevolence of God..."
 
-&mdash; [**Fujimoto Shirou**](https://myanimelist.net/character.php?q=Fujimoto%20Shirou&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
