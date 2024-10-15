@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Gai...what I said earlier...I was out of line. I was being a self-righteous fool. I realize now that if I'd been in your shoes, I probably couldn't have stopped him, either."
+> "The past is just the past. There's no inherent value in getting over it or catching up to it."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
