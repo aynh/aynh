@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Kaiba* Yugi may have lost one lousy Duel Monsters game, but at least he hasn't lost his heart! Not like you - you've spent so much time with your machines, you've forgotten what being human is about! Yugi has a heart, Kaiba. Yugi has us. And what about you, Seto Kaiba? What do you have at the end of the day? Tell me. Tell me!"
+> "Flowers are fragile and ephemeral... Even if you meant to protect them with a surrounding fence from wind and rain, they would die without sunlight...and a spindly fence has no power against a strong wind. Are you fully aware of that, Kudo-kun?.."
 
-&mdash; [**Tea Gardner**](https://myanimelist.net/character.php?q=Tea%20Gardner&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
