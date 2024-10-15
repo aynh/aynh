@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mada mada dane."
+> "[to Katara] If you want to be a bender, you have to let go of fear."
 
-&mdash; [**Ryoma Echizen**](https://myanimelist.net/character.php?q=Ryoma%20Echizen&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
