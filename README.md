@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's simple. Even a single Coordinator is a threat to the Earth's survival, and our goal here is to get rid of them all!"
+> "No, I can’t lose!"
 
-&mdash; [**Muruta Azrael**](https://myanimelist.net/character.php?q=Muruta%20Azrael&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
