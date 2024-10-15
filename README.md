@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know what a scientist fears most in this world above all else? It's oblivion, my friend. A scientist measures our lives in the ways we develop and expand our knowledge through myriad variations. Nothing can take its place. It's our very soul. I have done the worst thing one scientist can do to another: I have altered your thought process. When my drug takes effect, you will find your mind has lost the ability to think."
+> "Gai...what I said earlier...I was out of line. I was being a self-righteous fool. I realize now that if I'd been in your shoes, I probably couldn't have stopped him, either."
 
-&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
