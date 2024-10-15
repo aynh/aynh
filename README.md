@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Change is never easy in this world. I can't even change one friend, let alone a whole country."
+> "Wrong or not, I'll follow my own path!"
 
-&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Mine**](https://myanimelist.net/character.php?q=Mine&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
