@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether you're a monster or human there's no difference in the value of someone's life."
+> "*to Kaiba* Yugi may have lost one lousy Duel Monsters game, but at least he hasn't lost his heart! Not like you - you've spent so much time with your machines, you've forgotten what being human is about! Yugi has a heart, Kaiba. Yugi has us. And what about you, Seto Kaiba? What do you have at the end of the day? Tell me. Tell me!"
 
-&mdash; [**Mizore Shirayuki**](https://myanimelist.net/character.php?q=Mizore%20Shirayuki&cat=character), [**Rosario Vampire**](https://myanimelist.net/search/all?q=Rosario%20Vampire&cat=all)
+&mdash; [**Tea Gardner**](https://myanimelist.net/character.php?q=Tea%20Gardner&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
