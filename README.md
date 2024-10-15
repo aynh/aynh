@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Katara] If you want to be a bender, you have to let go of fear."
+> "You should know. Your wish will not come true unless there is a clear evil. Even if it's not something you approve of, a hero of justice requires a villain to defeat."
 
-&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
