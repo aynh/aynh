@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past is just the past. There's no inherent value in getting over it or catching up to it."
+> "It's simple. Even a single Coordinator is a threat to the Earth's survival, and our goal here is to get rid of them all!"
 
-&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Muruta Azrael**](https://myanimelist.net/character.php?q=Muruta%20Azrael&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
