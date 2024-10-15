@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They're part of who I am. No matter how much they hurt, they're important to me."
+> "Change is never easy in this world. I can't even change one friend, let alone a whole country."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
