@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you're made a fool of by someone, even if the future becomes so dark that you can't see what's in front of you, even if the place we get to is the very end of the world, you and I are still together."
+> "Killing you now will be as easy as strangling a baby."
 
-&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
