@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I highly recommend pissing yourself followed by a course of praying to your impotent god."
+> "Impossible, right? Compared to the enemy we're facing, you and I are the same, no more than dots! What's the point in comparing our heights? That is what makes this exciting! The smallest, the weakest - it doesn't matter! I should still wish to go and take over the world, with nothing more than my tiny dot of a body! Within my chest, beats the heart of the King of Conquerors!"
 
-&mdash; [**Walter C. Dornez**](https://myanimelist.net/character.php?q=Walter%20C.%20Dornez&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
