@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's the sky...that allows the clouds to move about freely."
+> "I don’t know what you’re aiming at, but you can’t expect to be perfect right off the bat. You have to build up your confidence… by achieving small tasks one by one."
 
-&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
