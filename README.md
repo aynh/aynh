@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why? Why do humans always look to the sky? Why do you try so hard to fly when you don't have any wings? We'll run on our own legs."
+> "Even if they are locked in cage, as long as they have wings, birds can dream of the wide-open sky. But.. If their wings are plucked, they will cease to be birds..."
 
-&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Sion**](https://myanimelist.net/character.php?q=Sion&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
