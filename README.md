@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(To Ichigo Kurosaki) Do not allow yourself to be shaken. Do not weaken your stance. Open your senses. And do not let your guard down for an instant."
+> "It's the sky...that allows the clouds to move about freely."
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
