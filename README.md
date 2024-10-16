@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The weaker person is the more he gets hung up on other people's pain and then he self-destructs"
+> "Pum, Pum, Pum, Pum. I always get what I want, so just give it to me. Pum, Pum, Pum, Pum. I'm a beauty, beautiful pretty lady. But you know, you know I've got a secret yes I do. Pumpkins, Pum, Pum, Pumpkins. Pum, Pum, Pumpkins because that's my magic spell. Pum, Pum, Pumpkins, Pum, Pum, Pumpkins yeah!"
 
-&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Blair**](https://myanimelist.net/character.php?q=Blair&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
