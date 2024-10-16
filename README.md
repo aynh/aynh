@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm hungry! can we just get his damn zombie soul already?"
+> "I’ve always been alone. The only one that can bring warmth into my life, is you."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kaname Kuran**](https://myanimelist.net/character.php?q=Kaname%20Kuran&cat=character), [**Vampire Knight**](https://myanimelist.net/search/all?q=Vampire%20Knight&cat=all)
