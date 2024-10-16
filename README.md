@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm worthless garbage who can't even write a straight looking K!"
+> "It's a rule that I've had in my life. Kill anyone who calls me 'Dirty Red'."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
