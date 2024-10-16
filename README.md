@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pum, Pum, Pum, Pum. I always get what I want, so just give it to me. Pum, Pum, Pum, Pum. I'm a beauty, beautiful pretty lady. But you know, you know I've got a secret yes I do. Pumpkins, Pum, Pum, Pumpkins. Pum, Pum, Pumpkins because that's my magic spell. Pum, Pum, Pumpkins, Pum, Pum, Pumpkins yeah!"
+> "I highly recommend pissing yourself followed by a course of praying to your impotent god."
 
-&mdash; [**Blair**](https://myanimelist.net/character.php?q=Blair&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Walter C. Dornez**](https://myanimelist.net/character.php?q=Walter%20C.%20Dornez&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
