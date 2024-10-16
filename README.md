@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not rude... I just wasn't taught to politely pretend to be nice to people I can't stand."
+> "I haven't done anything yet. Getting depressed and losing confidence is way too egotistical."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Sorata Kanda**](https://myanimelist.net/character.php?q=Sorata%20Kanda&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
