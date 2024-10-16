@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no such thing as truth in this world. That is our reality. Anyone can become a God or a Devil. All it takes is for someone to claim that to be the truth."
+> "Why? Why do humans always look to the sky? Why do you try so hard to fly when you don't have any wings? We'll run on our own legs."
 
-&mdash; [**Eren Kruger**](https://myanimelist.net/character.php?q=Eren%20Kruger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
