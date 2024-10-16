@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We’re all afraid, you know.. to get up on stage. Maybe you’ll mess up. Maybe they’ll totally reject you. Even so, you grit your teeth and get up on stage anyway. Something compels us… moves us to play music."
+> "I can stand not eating or sleeping, but I absolutely would not be able to live without my computer."
 
-&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Kisaragi Shintaro**](https://myanimelist.net/character.php?q=Kisaragi%20Shintaro&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
