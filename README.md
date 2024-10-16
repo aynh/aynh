@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’ve always been alone. The only one that can bring warmth into my life, is you."
+> "Even crabs have to go on a journey sometime."
 
-&mdash; [**Kaname Kuran**](https://myanimelist.net/character.php?q=Kaname%20Kuran&cat=character), [**Vampire Knight**](https://myanimelist.net/search/all?q=Vampire%20Knight&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
