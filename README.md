@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can stand not eating or sleeping, but I absolutely would not be able to live without my computer."
+> "I'm hungry! can we just get his damn zombie soul already?"
 
-&mdash; [**Kisaragi Shintaro**](https://myanimelist.net/character.php?q=Kisaragi%20Shintaro&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
