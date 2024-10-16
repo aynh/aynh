@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even crabs have to go on a journey sometime."
+> "I'm not rude... I just wasn't taught to politely pretend to be nice to people I can't stand."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
