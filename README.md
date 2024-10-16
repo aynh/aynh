@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's a rule that I've had in my life. Kill anyone who calls me 'Dirty Red'."
+> "The world is lucky! Despite of how much I hate the world, I have decided to mend it rather than destroy it."
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
