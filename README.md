@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Kikyo* I swear... I will never let Naraku harm you."
+> "I'm worthless garbage who can't even write a straight looking K!"
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
