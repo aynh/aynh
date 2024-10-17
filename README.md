@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We will take revenge on your behalf."
+> "Women tend to kill when it's not necessary. They kill for reasons of passion. For trivial reasons like love and hate."
 
-&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
+&mdash; [**Lieutenant Colonel Yuuki**](https://myanimelist.net/character.php?q=Lieutenant%20Colonel%20Yuuki&cat=character), [**Joker Game**](https://myanimelist.net/search/all?q=Joker%20Game&cat=all)
