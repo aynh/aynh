@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I could kill you, but I wont become like you, who uses power for his own egoism."
+> "Justice? Truth? More than anything else existing in this world, those things are a burden! The things that are needed are 'acting' to deceive people and 'power' to control others."
 
-&mdash; [**Toki Fujiwara**](https://myanimelist.net/character.php?q=Toki%20Fujiwara&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
+&mdash; [**Natsu Tanimoto**](https://myanimelist.net/character.php?q=Natsu%20Tanimoto&cat=character), [**KenIchi the Mightiest Disciple**](https://myanimelist.net/search/all?q=KenIchi%20the%20Mightiest%20Disciple&cat=all)
