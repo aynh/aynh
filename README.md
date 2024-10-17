@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Assassins Rule Number Three - Speed: Take out the target before the target notices your presence."
+> "There is nothing left to believe in."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Vicious**](https://myanimelist.net/character.php?q=Vicious&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
