@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is nothing left to believe in."
+> "Leave this guy's key to me, I'll do what you cant do; you do what I can't do. Think carefully! Read the situation. If you're here, there's got to be a way Robin-chan can be saved! Usopp!"
 
-&mdash; [**Vicious**](https://myanimelist.net/character.php?q=Vicious&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
