@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Leave this guy's key to me, I'll do what you cant do; you do what I can't do. Think carefully! Read the situation. If you're here, there's got to be a way Robin-chan can be saved! Usopp!"
+> "You were like a bomb, one wrong move and I might have lost you again."
 
-&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Hayashida Nana**](https://myanimelist.net/character.php?q=Hayashida%20Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
