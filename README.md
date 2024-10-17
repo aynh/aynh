@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For there to be pain, there has to be kindness. For darkness to stand out, there has to be the sun."
+> "I could kill you, but I wont become like you, who uses power for his own egoism."
 
-&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Toki Fujiwara**](https://myanimelist.net/character.php?q=Toki%20Fujiwara&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
