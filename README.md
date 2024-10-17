@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bite my ankles shorty, I swear I'll make you cry to your mom! If you have a mom, that is!"
+> "It's true that you're lacking in ability. That's because you don't work at it. However, you have a natural potential. That's why I chose you."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Koichiro Oota**](https://myanimelist.net/character.php?q=Koichiro%20Oota&cat=character), [**Gunbuster**](https://myanimelist.net/search/all?q=Gunbuster&cat=all)
