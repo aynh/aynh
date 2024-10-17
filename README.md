@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is more than one way to win a game. You can win without fighting!"
+> "My will is society's will. My eyes are society's eyes. Since you vowed to respect the law, you cannot deny me... no matter how much you despise latent criminals."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Sakuya Tougane**](https://myanimelist.net/character.php?q=Sakuya%20Tougane&cat=character), [**Psycho-Pass 2**](https://myanimelist.net/search/all?q=Psycho-Pass%202&cat=all)
