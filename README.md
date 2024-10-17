@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why shouldn't you quit, if that's what you really want to do? Everything will work out somehow."
+> "I wish for a heart. A heart of the man whom I'll never allow to forget me."
 
-&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
