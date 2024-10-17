@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don’t know what you’re aiming at, but you can’t expect to be perfect right off the bat. You have to build up your confidence… by achieving small tasks one by one."
+> "Why shouldn't you quit, if that's what you really want to do? Everything will work out somehow."
 
-&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
