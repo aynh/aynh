@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Women tend to kill when it's not necessary. They kill for reasons of passion. For trivial reasons like love and hate."
+> "I've no interest in a 'Reality'."
 
-&mdash; [**Lieutenant Colonel Yuuki**](https://myanimelist.net/character.php?q=Lieutenant%20Colonel%20Yuuki&cat=character), [**Joker Game**](https://myanimelist.net/search/all?q=Joker%20Game&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
