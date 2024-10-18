@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There were sad days, and painful ones and there may be more. Even so they're treasured days that I'll never forget."
+> "It has happened many times throughout history. Resources, territory, wealth... Humans fight each other in order to gain something they don't have. It's simple. How can you be concerned with the lives of others when you're about to starve to death? You're too naive. Humans can only live by stealing what they don't have from others. If there's no future, we just take the future from others."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Tooru Kazasumi**](https://myanimelist.net/character.php?q=Tooru%20Kazasumi&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
