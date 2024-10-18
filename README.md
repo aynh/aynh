@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It has happened many times throughout history. Resources, territory, wealth... Humans fight each other in order to gain something they don't have. It's simple. How can you be concerned with the lives of others when you're about to starve to death? You're too naive. Humans can only live by stealing what they don't have from others. If there's no future, we just take the future from others."
+> "Nobody knows what will happen in the future. Something even better might happen tomorrow."
 
-&mdash; [**Tooru Kazasumi**](https://myanimelist.net/character.php?q=Tooru%20Kazasumi&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
