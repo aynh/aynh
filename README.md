@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is not justice that can oppose evil. It is an absolute evil that overpowers evil itself."
+> "Oh, guilds are organizations where wizards gather to share information and find work. You can't be considered a full-fledged wizard unless you're in a guild."
 
-&mdash; [**Tendou Kisara**](https://myanimelist.net/character.php?q=Tendou%20Kisara&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
