@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there's a start, there's a finish. There's no rain that doesn't stop falling at some point. Not as long as you're alive anyway."
+> "Most non-NEET people in the world don't realize that human nature isn't scalar, but vectorial."
 
-&mdash; [**Ryōsuke Hazuki**](https://myanimelist.net/character.php?q=Ry%C5%8Dsuke%20Hazuki&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
