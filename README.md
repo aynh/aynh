@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you lose all memory in your head, the ones engraved in your heart and the ones that exist in your soul will never disappear, no matter what happens."
+> "There were sad days, and painful ones and there may be more. Even so they're treasured days that I'll never forget."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gekijōban Gintama Kanketsu-hen: Yorozuya yo Eien Nare**](https://myanimelist.net/search/all?q=Gekij%C5%8Dban%20Gintama%20Kanketsu-hen%3A%20Yorozuya%20yo%20Eien%20Nare&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
