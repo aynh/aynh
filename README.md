@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It works better if you don't try as hard, just like in real life."
+> "If you feel yourself hitting up against your limit remember for what cause you clench your fists... remember why you started down this path, and let that memory carry you beyond your limit."
 
-&mdash; [**Nagisa Hazuki**](https://myanimelist.net/character.php?q=Nagisa%20Hazuki&cat=character), [**Free!**](https://myanimelist.net/search/all?q=Free!&cat=all)
+&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
