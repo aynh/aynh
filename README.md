@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've no interest in a 'Reality'."
+> "Life is built upon the taking of another life. If you have the resolve to kill, then you have the obligation to eat."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Usagi Yuzuha**](https://myanimelist.net/character.php?q=Usagi%20Yuzuha&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
