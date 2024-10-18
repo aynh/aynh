@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This place, Paradigm City, is a town of forgetfulness. One day, forty years ago, every person here lost all memory of anything which had occurred before that day. But humans are adaptable creatures. They make do and go on with life. If they're smart enough to figure out how to operate machinery and get electricity, they can still have something of a civilization even without a history. People can survive without knowing what did or didn't happen in the past, and each day they try their hardest to do just that. The only ones who regret the loss of these memories are the city's elderly. But memories, like nightmares, sometimes come when you least expect them."
+> "He has beaten me completely. First by his own actions and then through his son’s. And what has he left for me here? How? How could you die like that? How, Kakarot? I’ll never have the chance…to prove my strength against you. You died without fear. What does that make of me? I am no warrior. And I will never fight again."
 
-&mdash; [**Roger Smith**](https://myanimelist.net/character.php?q=Roger%20Smith&cat=character), [**The Big O**](https://myanimelist.net/search/all?q=The%20Big%20O&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
