@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is built upon the taking of another life. If you have the resolve to kill, then you have the obligation to eat."
+> "It works better if you don't try as hard, just like in real life."
 
-&mdash; [**Usagi Yuzuha**](https://myanimelist.net/character.php?q=Usagi%20Yuzuha&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
+&mdash; [**Nagisa Hazuki**](https://myanimelist.net/character.php?q=Nagisa%20Hazuki&cat=character), [**Free!**](https://myanimelist.net/search/all?q=Free!&cat=all)
