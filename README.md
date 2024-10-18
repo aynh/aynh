@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Most non-NEET people in the world don't realize that human nature isn't scalar, but vectorial."
+> "It's fine if he holds bad judgements without trying to get to know me. The real point is letting just the ones who want to understand me know my real self."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Kyoya Ootori**](https://myanimelist.net/character.php?q=Kyoya%20Ootori&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
