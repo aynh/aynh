@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We have no need for the past. All we need are the present and the future."
+> "It's fine. Everyone makes mistakes. You just need to make an effort not to make the same mistake again."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Ainz Ooal Gown**](https://myanimelist.net/character.php?q=Ainz%20Ooal%20Gown&cat=character), [**Overlord**](https://myanimelist.net/search/all?q=Overlord&cat=all)
