@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Three days of eating our food and her smell will go away. And if she doesn't work hard, roast her, boil her, do whatever you want. Now get back to work!"
+> "We have no need for the past. All we need are the present and the future."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
