@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you look away and just turn your back on those you don't understand, you'll regret it someday. Accept what's happening before your eyes as a fact. That's a shortcut to becoming an adult."
+> "Afterall, the fate of the world rests on my pitching. The world sure isn't worth much these days."
 
-&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
