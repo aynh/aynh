@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If someone here were hurt or lost their life because of me, I think I would also be in pain much like Loke. But, it’ll be all right. If everyone works together and unites in power, we can overcome any pinch ahead, right?"
+> "SLEEPING is the only TALENT I have."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Nagi Sanzenin**](https://myanimelist.net/character.php?q=Nagi%20Sanzenin&cat=character), [**Hayate no Gotoku!**](https://myanimelist.net/search/all?q=Hayate%20no%20Gotoku!&cat=all)
