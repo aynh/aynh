@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being kind to everyone, simply means there's no one special."
+> "If someone here were hurt or lost their life because of me, I think I would also be in pain much like Loke. But, it’ll be all right. If everyone works together and unites in power, we can overcome any pinch ahead, right?"
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
