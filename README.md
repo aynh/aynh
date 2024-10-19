@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But is it necessary to keep stroking my leg while you talk. *to Miroku*"
+> "Fortunately, I do not have any pride. But what about it? Will the name of the hero be disgraced? Hah, don't make me laugh, Lancer. You can wash away disgrace with results. You can feed your meaningless pride to the dogs."
 
-&mdash; [**Sango**](https://myanimelist.net/character.php?q=Sango&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
