@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not even your closest friends get to see your true blade."
+> "But is it necessary to keep stroking my leg while you talk. *to Miroku*"
 
-&mdash; [**Kaede Kayano**](https://myanimelist.net/character.php?q=Kaede%20Kayano&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Sango**](https://myanimelist.net/character.php?q=Sango&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
