@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if a fool dies, he won't be cured."
+> "A beautiful speech, I can see it now, you truly are a prince with the royal blood of a Saiyan."
 
-&mdash; [**Atsushi Shimao**](https://myanimelist.net/character.php?q=Atsushi%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
+&mdash; [**Android 17**](https://myanimelist.net/character.php?q=Android%2017&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
