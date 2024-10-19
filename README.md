@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as it's for the right cause, there's nothing wrong with playing dirty."
+> "Three days of eating our food and her smell will go away. And if she doesn't work hard, roast her, boil her, do whatever you want. Now get back to work!"
 
-&mdash; [**Kureo Mado**](https://myanimelist.net/character.php?q=Kureo%20Mado&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
