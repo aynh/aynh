@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The choices we make in life have unlimited possibilities."
+> "Alright then! Come here! Come over here, Black Star's giving you a big hug!"
 
-&mdash; [**Rem Saverem**](https://myanimelist.net/character.php?q=Rem%20Saverem&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
