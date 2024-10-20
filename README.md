@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But the big difference is who I work for. I'd rather die than be a yes-man to someone I don't even like."
+> "Even if a question has a proper answer, sometimes one cannot simply give it away."
 
-&mdash; [**Shalnark**](https://myanimelist.net/character.php?q=Shalnark&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
