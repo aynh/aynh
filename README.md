@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if a question has a proper answer, sometimes one cannot simply give it away."
+> "When you pick the only option you have to choose from, can you really call that your own decision?"
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Hayato Hayama**](https://myanimelist.net/character.php?q=Hayato%20Hayama&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
