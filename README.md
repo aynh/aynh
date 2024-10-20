@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't go believing everyone with glasses is smart!"
+> "But the big difference is who I work for. I'd rather die than be a yes-man to someone I don't even like."
 
-&mdash; [**Hyuuga Junpei**](https://myanimelist.net/character.php?q=Hyuuga%20Junpei&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Shalnark**](https://myanimelist.net/character.php?q=Shalnark&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
