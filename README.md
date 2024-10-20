@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who are you again? Sorry, I have a bad memory for ugly faces."
+> "It's not because the game was so interesting, that everyone's trying to ask sensei about it. But it's because sensei's interesting, so the students are talking about the game with him."
 
-&mdash; [**Ayasegawa Yumichika**](https://myanimelist.net/character.php?q=Ayasegawa%20Yumichika&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Minako Kanou**](https://myanimelist.net/character.php?q=Minako%20Kanou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
