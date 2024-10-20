@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Alright then! Come here! Come over here, Black Star's giving you a big hug!"
+> "The reason doesn't matter. As long as tiny bit of hope exists, that's all that matters."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
