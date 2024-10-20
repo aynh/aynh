@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You clearly have nerves of steel. But, I'd say you still have much to learn about the world."
+> "From the moment a magus is born, he is someone that has 'power'. And some day, he will achieve a 'greater power'. This responsibility was already flowing in his 'blood' before he realized this destiny. That is what it means to be born into this world as the child of a magus."
 
-&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Tohsaka Tokiomi**](https://myanimelist.net/character.php?q=Tohsaka%20Tokiomi&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
