@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Words are like swords. If you use them the wrong way, they can turn into ugly weapons."
+> "Spring will be here soon. Spring, the season I met you, is coming. A Spring without you...is coming."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
