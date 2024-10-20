@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not because the game was so interesting, that everyone's trying to ask sensei about it. But it's because sensei's interesting, so the students are talking about the game with him."
+> "Don't go believing everyone with glasses is smart!"
 
-&mdash; [**Minako Kanou**](https://myanimelist.net/character.php?q=Minako%20Kanou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Hyuuga Junpei**](https://myanimelist.net/character.php?q=Hyuuga%20Junpei&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
