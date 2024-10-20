@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, singing, or music... I think by nature it was always meant to convey something. So if there's something you want to say, don't you think you should try singing it?"
+> "Let go of me. It'll all be in vain anyway. No matter how gently you hold onto me. No matter what kind of expression you look at me with. In the end, you guys are... only my imagination. I have a slight addiction to fantasy. I sometimes mix the reality that I don't want to face with warm illusions. That's why I can think of 'that' as one of those moments."
 
-&mdash; [**Sakagami Takumi**](https://myanimelist.net/character.php?q=Sakagami%20Takumi&cat=character), [**Kokoro ga Sakebitagatterunda.**](https://myanimelist.net/search/all?q=Kokoro%20ga%20Sakebitagatterunda.&cat=all)
+&mdash; [**Kuro Fukase**](https://myanimelist.net/character.php?q=Kuro%20Fukase&cat=character), [**ib: Instant Bullet**](https://myanimelist.net/search/all?q=ib%3A%20Instant%20Bullet&cat=all)
