@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this country, we don't call someone who can stop a scooter with her bare hands a girl. We call her a mountain gorilla."
+> "In essence, language accounts for a mere 30% of human communication. The other 70% is made up of information collected from eye movements and other body language. With that, even a loner who never takes part in conversation can pull off 70% of what we consider communication."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
