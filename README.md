@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Spring will be here soon. Spring, the season I met you, is coming. A Spring without you...is coming."
+> "Who are you again? Sorry, I have a bad memory for ugly faces."
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Ayasegawa Yumichika**](https://myanimelist.net/character.php?q=Ayasegawa%20Yumichika&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
