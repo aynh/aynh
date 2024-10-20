@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let go of me. It'll all be in vain anyway. No matter how gently you hold onto me. No matter what kind of expression you look at me with. In the end, you guys are... only my imagination. I have a slight addiction to fantasy. I sometimes mix the reality that I don't want to face with warm illusions. That's why I can think of 'that' as one of those moments."
+> "Consume wine, don't let the wine consume you."
 
-&mdash; [**Kuro Fukase**](https://myanimelist.net/character.php?q=Kuro%20Fukase&cat=character), [**ib: Instant Bullet**](https://myanimelist.net/search/all?q=ib%3A%20Instant%20Bullet&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
