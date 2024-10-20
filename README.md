@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At that point in my life, I couldn't find any value in anything. I was a brat who may as well be dead."
+> "Well, singing, or music... I think by nature it was always meant to convey something. So if there's something you want to say, don't you think you should try singing it?"
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Sakagami Takumi**](https://myanimelist.net/character.php?q=Sakagami%20Takumi&cat=character), [**Kokoro ga Sakebitagatterunda.**](https://myanimelist.net/search/all?q=Kokoro%20ga%20Sakebitagatterunda.&cat=all)
