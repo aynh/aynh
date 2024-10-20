@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The reason doesn't matter. As long as tiny bit of hope exists, that's all that matters."
+> "You said that she's no different from us, right? So if we don't try to get to know her, she won't try to get to know us either. If we don't treat her as a friend, she won't treat us as her friends either, right?"
 
-&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
