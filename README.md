@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It’s not that I’m a tolerant person. I just don’t want to think about these troublesome things."
+> "Words are like swords. If you use them the wrong way, they can turn into ugly weapons."
 
-&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
