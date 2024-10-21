@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This silence belongs to us... and every single person out there, is waiting for us to fill it with something."
+> "Bears are creatures that feel no insecurity in living alone. They're an animal that lives in isolation. Plus, they can hibernate. What a fabulous thing that is. If I were to be reborn, I definitely want to be a bear."
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
