@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Compared to the 'righteous' greed of the rulers, the criminals of the world seem much more honorable. When scum rules the world, only more scum is born."
+> "When you said that we were scary, that means deep down, you had started to care about us! The thought of losing someone again… That’s the scary part, right?"
 
-&mdash; [**Eustass Kid**](https://myanimelist.net/character.php?q=Eustass%20Kid&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
