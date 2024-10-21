@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world offers up a choice to live or die. The survival of the fittest that's the only governing law this world recognizes."
+> "I am the Dark Flame Master. Perish, enveloped in the flames of darkness!"
 
-&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Togashi Yuuta**](https://myanimelist.net/character.php?q=Togashi%20Yuuta&cat=character), [**Chuunibyou Demo Koi Ga Shitai!**](https://myanimelist.net/search/all?q=Chuunibyou%20Demo%20Koi%20Ga%20Shitai!&cat=all)
