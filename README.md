@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't ever forget that with each step a person is able to take on their own, they have become that much stronger."
+> "Love is based on unpredictable events."
 
-&mdash; [**Tamahome**](https://myanimelist.net/character.php?q=Tamahome&cat=character), [**Fushigi Yugi**](https://myanimelist.net/search/all?q=Fushigi%20Yugi&cat=all)
+&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
