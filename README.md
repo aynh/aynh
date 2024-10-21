@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not stupid. I'm just too lazy to show how smart I am."
+> "God, if this world, this story, is moving ahead according to the system you created... then I first need to destroy that illusion!"
 
-&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
