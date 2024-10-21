@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "God, if this world, this story, is moving ahead according to the system you created... then I first need to destroy that illusion!"
+> "*referring to Winry* I didn't know she could be so cute."
 
-&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
