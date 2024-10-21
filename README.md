@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Where's the fun in it if everything is going just as planned?"
+> "Everybody has things they aren't good at or can't do. We cover each other's weakness. That's what a party's for."
 
-&mdash; [**Takeshi Tatsumi**](https://myanimelist.net/character.php?q=Takeshi%20Tatsumi&cat=character), [**Giant Killing**](https://myanimelist.net/search/all?q=Giant%20Killing&cat=all)
+&mdash; [**Manato**](https://myanimelist.net/character.php?q=Manato&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
