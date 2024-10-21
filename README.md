@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When something impossible happens, there are only two possibilities. Either your assumptions are wrong, or you have gone crazy."
+> "Where's the fun in it if everything is going just as planned?"
 
-&mdash; [**Kougami Shinya**](https://myanimelist.net/character.php?q=Kougami%20Shinya&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Takeshi Tatsumi**](https://myanimelist.net/character.php?q=Takeshi%20Tatsumi&cat=character), [**Giant Killing**](https://myanimelist.net/search/all?q=Giant%20Killing&cat=all)
