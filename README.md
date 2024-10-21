@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*referring to Winry* I didn't know she could be so cute."
+> "The world offers up a choice to live or die. The survival of the fittest that's the only governing law this world recognizes."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
