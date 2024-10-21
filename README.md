@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everybody has things they aren't good at or can't do. We cover each other's weakness. That's what a party's for."
+> "Seeing them as the same is wrong. It's a touchy subject, but the weight of something you bear with your own power and with someone else's are different."
 
-&mdash; [**Manato**](https://myanimelist.net/character.php?q=Manato&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
