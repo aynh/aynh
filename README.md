@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am the Dark Flame Master. Perish, enveloped in the flames of darkness!"
+> "Does the world hate me or something? I've always rejected it in an exceedingly friendly manner."
 
-&mdash; [**Togashi Yuuta**](https://myanimelist.net/character.php?q=Togashi%20Yuuta&cat=character), [**Chuunibyou Demo Koi Ga Shitai!**](https://myanimelist.net/search/all?q=Chuunibyou%20Demo%20Koi%20Ga%20Shitai!&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
