@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A place where someone still thinks about you is a place you can call home."
+> "People's feelings sometimes go astray and lead to irreversible consequences."
 
-&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
