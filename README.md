@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether it's good or bad, it's so unfortunate to wake up during a dream."
+> "I shall cleanse away thy bitterness..."
 
-&mdash; [**Judeau**](https://myanimelist.net/character.php?q=Judeau&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
