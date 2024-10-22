@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't believe in history... Just believe in the world you see with your own eyes."
+> "An unforeseen situation... An unexpected turn of events... In the face of those, you too will face your true self."
 
-&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
