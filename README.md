@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder what sort of criteria you use to divide people into good and evil."
+> "The closer you get to the sun, the darker your shadow will be."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Aria Link**](https://myanimelist.net/character.php?q=Aria%20Link&cat=character), [**Tegami Bachi**](https://myanimelist.net/search/all?q=Tegami%20Bachi&cat=all)
