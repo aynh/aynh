@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No point in wondering who someone really is, all you can do is trust them and accept them for who they are. Because the person you come to know is who that person really is."
+> "Pride is an eminent trait, but too much will cause arrogance. That is when it becomes disgusting."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Duke Tōgō**](https://myanimelist.net/character.php?q=Duke%20T%C5%8Dg%C5%8D&cat=character), [**Golgo 13**](https://myanimelist.net/search/all?q=Golgo%2013&cat=all)
