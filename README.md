@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There comes a time when we can no longer tell the invaders from the invaded. That is what we call “War”."
+> "Don't let yourself be blinded by fear or anger.  Everything is only as it is."
 
-&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
+&mdash; [**Nui**](https://myanimelist.net/character.php?q=Nui&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
