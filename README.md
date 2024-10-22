@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to know if it is a crime to live as you are, when you are different from others."
+> "Whether it's good or bad, it's so unfortunate to wake up during a dream."
 
-&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Judeau**](https://myanimelist.net/character.php?q=Judeau&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
