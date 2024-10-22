@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let's see what kind of heart you have!"
+> "Going against the flow... takes a lot of courage. I respect that. Maybe people who can do it are just stupid, but... Well... What I'm sure of is that people like that are rare. So you can't call them common. You can't call them normal, either. People like you... get called special."
 
-&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Annie Leonhardt**](https://myanimelist.net/character.php?q=Annie%20Leonhardt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
