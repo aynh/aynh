@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I shall cleanse away thy bitterness..."
+> "There comes a time when we can no longer tell the invaders from the invaded. That is what we call “War”."
 
-&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
+&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
