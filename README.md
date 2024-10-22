@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't let yourself be blinded by fear or anger.  Everything is only as it is."
+> "If Tayuya comes back, I'll kill her."
 
-&mdash; [**Nui**](https://myanimelist.net/character.php?q=Nui&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
