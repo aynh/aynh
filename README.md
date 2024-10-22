@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't know which option you should choose. I could never advise you on that... No matter what kind of wisdom dictates you the option you pick, no one will be able to tell if it's right or wrong until you arrive to some sort of outcome from your choice."
+> "If a prediction is right, then it's like you only have one future. Like that future has been decided. But if it's wrong, then you have an almost infinite number of possibilities. And that means that even the tiniest twist of fate can change your future. I want to believe that I have choices - that the path I walk has many different turns, and many different roads to follow!"
 
-&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Fujibayashi Ryou**](https://myanimelist.net/character.php?q=Fujibayashi%20Ryou&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
