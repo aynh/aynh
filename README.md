@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Shinpachi, just remember this... We aren't friends with justice or even your sister. We're YOUR friends."
+> "I wonder what sort of criteria you use to divide people into good and evil."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
