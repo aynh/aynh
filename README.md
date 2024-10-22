@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If Tayuya comes back, I'll kill her."
+> "No point in wondering who someone really is, all you can do is trust them and accept them for who they are. Because the person you come to know is who that person really is."
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
