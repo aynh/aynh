@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're either incompetent or you're spineless cowards. How pathetic. You can just sit here and suck on your fingers. Yeah, do that."
+> "It's not bad to dream. But you also have to consider what's realistic."
 
-&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
