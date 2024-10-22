@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pride is an eminent trait, but too much will cause arrogance. That is when it becomes disgusting."
+> "If you don't believe in history... Just believe in the world you see with your own eyes."
 
-&mdash; [**Duke Tōgō**](https://myanimelist.net/character.php?q=Duke%20T%C5%8Dg%C5%8D&cat=character), [**Golgo 13**](https://myanimelist.net/search/all?q=Golgo%2013&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
