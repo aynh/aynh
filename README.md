@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "However, as always, this girl was thinking up all sorts of nonsensical stuff. I can't help but wonder if there's a black hole inside her head, since her common sense seems to come from a different universe altogether."
+> "You are right. I have not yet introduced myself. I am Captain of the Seventh Division Komamura Sajin. And though it shames me, I am just as you say -- A meager worm of a man."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
