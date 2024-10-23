@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You shouldn't judge people by how they look."
+> "This is the world I live in. The dirty world of the adults."
 
-&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
