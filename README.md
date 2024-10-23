@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A four-poster coffin. Bloody hell."
+> "You can't sit around envying other peoples worlds. You have to go out and change your own."
 
-&mdash; [**Seras Victoria**](https://myanimelist.net/character.php?q=Seras%20Victoria&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Chiaki Shinichi**](https://myanimelist.net/character.php?q=Chiaki%20Shinichi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
