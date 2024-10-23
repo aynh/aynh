@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Chastity and grace - traditional virtues that have been lost. They comprise the educational ideology of Ousou Academy. They're priorities that are not valued in boys, only in girls. After having them instilled in us, we're shipped out as brand-name product, refined, sheltered maidens, and purchased by men who seek a classic piece of furniture called 'a good wife and mother' in a formality known as marriage. Students in this school are all components that will be processed into an artwork called 'the lady'. They are rough stones waiting to be polished and finished up. They live sad and boring lives, even though there are many other possible ways they could bloom."
+> "The great flow that maintains the universe, call it the cycle of life, the course of nature each one of us is just a small part of that part. One in the all. Yet without all the individual ones, the all can't exist. This world flows by following grander laws that we can't even imagine. To recognize that flow, to work in it. To decompose, and recreate, that is alchemy."
 
-&mdash; [**Oryou Rikako**](https://myanimelist.net/character.php?q=Oryou%20Rikako&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
