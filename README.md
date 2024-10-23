@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The stray dog in me is dyed into my bones... All I do is howl at the moon, but I don't have the guts to bite..."
+> "A four-poster coffin. Bloody hell."
 
-&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Seras Victoria**](https://myanimelist.net/character.php?q=Seras%20Victoria&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
