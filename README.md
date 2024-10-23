@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is right... what is wrong... you can't easily tell the difference. That's why you must keep thinking, whether what you are doing is right or not. That act itself, alone, can be called right."
+> "As long as you laugh at people's suffering, your goal will always be out of reach. If you never want to be defeated, you must first learn your own weakness, and always be kind."
 
-&mdash; [**Koutarou Amon**](https://myanimelist.net/character.php?q=Koutarou%20Amon&cat=character), [**Tokyo Ghoul:re**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%3Are&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
