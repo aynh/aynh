@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The great flow that maintains the universe, call it the cycle of life, the course of nature each one of us is just a small part of that part. One in the all. Yet without all the individual ones, the all can't exist. This world flows by following grander laws that we can't even imagine. To recognize that flow, to work in it. To decompose, and recreate, that is alchemy."
+> "That's why Kagome sent me, so I can protect you from being protected by him."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
