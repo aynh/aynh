@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well I do have abilities you haven't yet been given, just like not everyones has the strengths you do."
+> "What is right... what is wrong... you can't easily tell the difference. That's why you must keep thinking, whether what you are doing is right or not. That act itself, alone, can be called right."
 
-&mdash; [**Asano Gakuho**](https://myanimelist.net/character.php?q=Asano%20Gakuho&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Koutarou Amon**](https://myanimelist.net/character.php?q=Koutarou%20Amon&cat=character), [**Tokyo Ghoul:re**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%3Are&cat=all)
