@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*after Shinpachi caught up to him, while running from the police* What a nice boy you are. Have you come to return my wooden sword? That's all right. It was just a souvenir I bought on a school trip."
+> "Your voice sounds so lovely when you're whimpering in agony."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
