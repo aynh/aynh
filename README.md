@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's why Kagome sent me, so I can protect you from being protected by him."
+> "Yeah Kid you're not garbage. If you were garbage you would smell a lot worse so why don't we just get up and try again okay?"
 
-&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
