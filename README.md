@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everything has a beginning and an end. Life is just a cycle of starts and stops. There are ends we don't desire, but they're inevitable. We have to face them. It's what being human is all about."
+> "The stray dog in me is dyed into my bones... All I do is howl at the moon, but I don't have the guts to bite..."
 
-&mdash; [**Jet Black**](https://myanimelist.net/character.php?q=Jet%20Black&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
