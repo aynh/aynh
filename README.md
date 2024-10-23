@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is true happiness? Everyone seeks the land of happiness as if they're on a pilgrimage. They try to walk there. Still, no matter who they are, at times they become tired. Stories exist for those times. If you open the covers, you'll encounter someone else's imagination. If you feel lonely on your own, try reading a book. Try to imagine what the author was thinking, what he wanted to say. Then you might be able to obtain something wonderful."
+> "Everything has a beginning and an end. Life is just a cycle of starts and stops. There are ends we don't desire, but they're inevitable. We have to face them. It's what being human is all about."
 
-&mdash; [**Amano Touko**](https://myanimelist.net/character.php?q=Amano%20Touko&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
+&mdash; [**Jet Black**](https://myanimelist.net/character.php?q=Jet%20Black&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
