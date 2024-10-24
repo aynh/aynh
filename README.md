@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[about his deceased friend] I never overcame my shyness and told her that I actually liked clouds."
+> "Rush in there right now and break his hands and legs so he'll never be able to use them again. Make it so he won't be able to do anything without you anymore. Then he'll be yours. His heart, body, everything."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
