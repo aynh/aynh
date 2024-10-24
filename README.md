@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I now see that the circumstances of birth are irrelevant. It is what you do with the gift of life that determines who you are."
+> "Tired hands are better than none."
 
-&mdash; [**Mewtwo**](https://myanimelist.net/character.php?q=Mewtwo&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
