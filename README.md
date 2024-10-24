@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm gonna take you out in one giant bug blitzkrieg!"
+> "The Bird of the Hermes is my name, eating my wings to make me tame."
 
-&mdash; [**Underwood Weevil**](https://myanimelist.net/character.php?q=Underwood%20Weevil&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
