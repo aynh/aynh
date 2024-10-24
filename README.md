@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We as humans have the power to do such, but whether we grab on to the thread or not is a choice we make."
+> "I now see that the circumstances of birth are irrelevant. It is what you do with the gift of life that determines who you are."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Mewtwo**](https://myanimelist.net/character.php?q=Mewtwo&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
