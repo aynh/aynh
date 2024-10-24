@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Rush in there right now and break his hands and legs so he'll never be able to use them again. Make it so he won't be able to do anything without you anymore. Then he'll be yours. His heart, body, everything."
+> "'Why must everyone make such a fuss over the death of a single soldier? The moment a soldier dons his uniform, he accepts the reality that he might be buried in it.'"
 
-&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
