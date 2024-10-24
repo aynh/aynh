@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you love someone, sometimes your head hurts. And it's so agonizing that you want to burst into tears. But even the smallest thing can bring you happiness. It's complicated, but simple. Perhaps all these emotions are irreplaceable and precious."
+> "Just as there isn't a problem that can't be solved by being right, there isn't a problem that can't be solved by money."
 
-&mdash; [**Ageha Shiroi**](https://myanimelist.net/character.php?q=Ageha%20Shiroi&cat=character), [**Velvet Blue Rose**](https://myanimelist.net/search/all?q=Velvet%20Blue%20Rose&cat=all)
+&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
