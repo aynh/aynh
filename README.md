@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Wealth is a nightmare. With each coveted thing we buy, we lose a thing we dream about."
+> "If you don't believe in history... Just believe in the world you see with your own eyes."
 
-&mdash; [**Francis Scott Key Fitzgerald**](https://myanimelist.net/character.php?q=Francis%20Scott%20Key%20Fitzgerald&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
