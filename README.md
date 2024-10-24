@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is the world I live in. The dirty world of the adults."
+> "If you know pain and hardship, it's easier to be kind to others."
 
-&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Ryoji Kaji**](https://myanimelist.net/character.php?q=Ryoji%20Kaji&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
