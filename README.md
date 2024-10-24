@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's better for a man to be slow than fast."
+> "Wealth is a nightmare. With each coveted thing we buy, we lose a thing we dream about."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Francis Scott Key Fitzgerald**](https://myanimelist.net/character.php?q=Francis%20Scott%20Key%20Fitzgerald&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
