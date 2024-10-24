@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The Bird of the Hermes is my name, eating my wings to make me tame."
+> "How can he hope to stand back up, when he is still in the process of falling? Let him fall, all the way to the very bottom, before telling him to stand up again."
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Gen Fudou**](https://myanimelist.net/character.php?q=Gen%20Fudou&cat=character), [**Sousei no Aquarion**](https://myanimelist.net/search/all?q=Sousei%20no%20Aquarion&cat=all)
