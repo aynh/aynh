@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The system created by the divine ones segregates every single person into his living assignment in the world, determines his roles and controls them...the melancholy voices of those born into this world have pierced the depths of my heart. I feel the need to do something for them without discriminating against anyone."
+> "All they saw in me was another little ghetto rat with no power and no God. What's left for a poor little Chinese bitch to rely on? It's money of course. And guns. Fuckin' A, with these two things, the world is a great place."
 
-&mdash; [**Celestin**](https://myanimelist.net/character.php?q=Celestin&cat=character), [**Aah! Megami-Sama**](https://myanimelist.net/search/all?q=Aah!%20Megami-Sama&cat=all)
+&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
