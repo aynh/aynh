@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Real men know when to run like a little bitch."
+> "We as humans have the power to do such, but whether we grab on to the thread or not is a choice we make."
 
-&mdash; [**Sunabouzu**](https://myanimelist.net/character.php?q=Sunabouzu&cat=character), [**Sunabouzu**](https://myanimelist.net/search/all?q=Sunabouzu&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
