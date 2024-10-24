@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All they saw in me was another little ghetto rat with no power and no God. What's left for a poor little Chinese bitch to rely on? It's money of course. And guns. Fuckin' A, with these two things, the world is a great place."
+> "Unfortunately, the real world isn't the same as a fairy tale."
 
-&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
+&mdash; [**Blake Belladonna**](https://myanimelist.net/character.php?q=Blake%20Belladonna&cat=character), [**RWBY**](https://myanimelist.net/search/all?q=RWBY&cat=all)
