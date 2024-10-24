@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just as there isn't a problem that can't be solved by being right, there isn't a problem that can't be solved by money."
+> "Real men know when to run like a little bitch."
 
-&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Sunabouzu**](https://myanimelist.net/character.php?q=Sunabouzu&cat=character), [**Sunabouzu**](https://myanimelist.net/search/all?q=Sunabouzu&cat=all)
