@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Beautiful flowers, too, eventually wither and fall. That's the fate of all living beings."
+> "People's thoughts, wishes, hopes and desires... We live in a time where technology can read everything in your mind, and yet, this place teems with people who hate, lie, steal and try to harm others. If that's not irrational, then what is it?"
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Tomomi Masaoka**](https://myanimelist.net/character.php?q=Tomomi%20Masaoka&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
