@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even your gravest mistakes shouldn't stop you from moving forward."
+> "Mom, you're embarrassing me! In front of all these people? Don't you know I'm a big kid now?"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
