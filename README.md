@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kagura... Regardless of what your reason was, when you played with me...I was happy. Thanks. (To Kagura)"
+> "In three days, I will make this boy stronger than you."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
