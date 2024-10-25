@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Having my fate decided for me from the time I was born goes against my view of beauty."
+> "I couldn't confess my feelings for you, so I watched you from afar, being happy with someone else."
 
-&mdash; [**Jae-ha**](https://myanimelist.net/character.php?q=Jae-ha&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
