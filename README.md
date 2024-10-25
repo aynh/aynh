@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mom, you're embarrassing me! In front of all these people? Don't you know I'm a big kid now?"
+> "The throne itself does not half a will of its own. Depending upon who sits in it, it can be the seat of justice or it can be the seat of inhuman cruelty. As long as it is a man and not a god, doing the governing, he can never be perfect. But should he neglect to make efforts to reach for perfection, a king will surely tumble down the slippery slope towards evil with no one around to stop him."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Farangis**](https://myanimelist.net/character.php?q=Farangis&cat=character), [**The Heroic Legend of Arslan**](https://myanimelist.net/search/all?q=The%20Heroic%20Legend%20of%20Arslan&cat=all)
