@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You’d better not (rip my mask). Like Pandora’s box, you want to open it because you don’t know what’s inside. But if you know what’s inside before you open it… It’s boring, isn’t it?"
+> "You know, Nana... Even now, sometimes on street corners... when I meet someone, I see your shadow. I'm sure that even now, you're still wearing that man's cologne... so you can sleep, even alone..."
 
-&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Nana Osaki**](https://myanimelist.net/character.php?q=Nana%20Osaki&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
