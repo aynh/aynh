@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh great, it's a kid! I thought I was rescuing a babe, a luscious damsel in distress, not some flat chested little girl."
+> "I guess not knowing someone doesn't mean you don't understand them."
 
-&mdash; [**Gourry Gabriev**](https://myanimelist.net/character.php?q=Gourry%20Gabriev&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
+&mdash; [**Kyōko Kirigiri**](https://myanimelist.net/character.php?q=Ky%C5%8Dko%20Kirigiri&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
