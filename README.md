@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing amazing happens here. Only the ordinary."
+> "Madoka. My only friend... If... If it's for your sake... I don't mind being locked in this eternal maze!"
 
-&mdash; [**Naota Nandaba**](https://myanimelist.net/character.php?q=Naota%20Nandaba&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
