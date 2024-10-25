@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In society, those who don't have many abilities, tend to complain more."
+> "There were sad days, and painful ones and there may be more. Even so they're treasured days that I'll never forget."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
