@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I guess not knowing someone doesn't mean you don't understand them."
+> "The moment you find the courage to give up your life for someone, would be the moment you understand love."
 
-&mdash; [**Kyōko Kirigiri**](https://myanimelist.net/character.php?q=Ky%C5%8Dko%20Kirigiri&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Samurai X: Trust & Betrayal**](https://myanimelist.net/search/all?q=Samurai%20X%3A%20Trust%20%26%20Betrayal&cat=all)
