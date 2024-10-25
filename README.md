@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah, I know there's no right answer. All I know for sure is that time keeps on flowing like a river, and a river eventually leads to the ocean. Maybe I will try swimming against the current."
+> "You'll discover that problems have a way of working themselves out if you talk to your friends."
 
-&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Ryuuzen Gotou**](https://myanimelist.net/character.php?q=Ryuuzen%20Gotou&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
