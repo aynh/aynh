@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Most of the winning results in war is caused by pursuit. Do you know why? Leaving aside modern times, it seems during the era of bayonet warfare, the worst losses always, arise from the moments when the losing side is being pursued."
+> "Kagura... Regardless of what your reason was, when you played with me...I was happy. Thanks. (To Kagura)"
 
-&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
