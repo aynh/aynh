@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't just erase people's feelings. It's as if my emotions were lost somewhere hundreds of miles away. It's as if they were sent long ago, in a letter that was always intended for me."
+> "Fragility is always lurking behind our peaceful day-to-day life. Terrible things don’t only happen in places far beyond our reach."
 
-&mdash; [**Wolfgang Grimmer**](https://myanimelist.net/character.php?q=Wolfgang%20Grimmer&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
