@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I'm not around, nothing will change, you say? It's not as if I'm living my life to prove something silly like that! We live our lives to see how the world changes around us, don't you think?"
+> "You can't just erase people's feelings. It's as if my emotions were lost somewhere hundreds of miles away. It's as if they were sent long ago, in a letter that was always intended for me."
 
-&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Wolfgang Grimmer**](https://myanimelist.net/character.php?q=Wolfgang%20Grimmer&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
