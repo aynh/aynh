@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Go ahead! I'll just turn you into the police for assaulting a minor! (To Kyo)"
+> "Even if I'm not around, nothing will change, you say? It's not as if I'm living my life to prove something silly like that! We live our lives to see how the world changes around us, don't you think?"
 
-&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
