@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The hot blood that flows through my body... is not something that can be suppressed by other people!"
+> "When a dog soils the carpet, its master is responsible."
 
-&mdash; [**Bulat**](https://myanimelist.net/character.php?q=Bulat&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Cruhteo**](https://myanimelist.net/character.php?q=Cruhteo&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
