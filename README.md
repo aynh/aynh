@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Senpai, take me to the art museum again. Next time, I'll carefully listen to what you say. Please feed me worms!"
+> "Now it’s not just your heart, but also your breathing, your brain, your nervous system, and everything else… See, the human body is in some way always moving from the time they were in their mother’s womb until the last moments of their life. Even when someone is asleep, fainted, or unconscious, their body never stops. In other words, the concept of stopping is precisely how humans are able to perceive death."
 
-&mdash; [**Noda Megumi**](https://myanimelist.net/character.php?q=Noda%20Megumi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
+&mdash; [**Crow**](https://myanimelist.net/character.php?q=Crow&cat=character), [**Sugar Dark**](https://myanimelist.net/search/all?q=Sugar%20Dark&cat=all)
