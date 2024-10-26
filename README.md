@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If that bullet could also kill a player in the real world, and if you didn't shoot them, you or someone you loved would be killed, could you still pull the trigger?"
+> "Ha, you're too naive, Kami-yan. I have a wide range of acceptance when it comes to women: not just fallen female main characters, but also foster sisters, foster mothers, foster daughters, twins, widows, senpais, fellow classmates, teachers, childhood friends, ojousamas, blondes, brunettes, brown-haired, silver-haired, long-haired, medium-haired, short-haired, girls wearing bobby pins, wavy-haired, twintails, ponytails, one-sided ponytails, twin braids, ahoges, curly-haired, girls in sailor clothes, blazers, kindergarten nurses, maids, policewomen, witches, shrine maidens, nuns, military women, secretaries, lolis, shotas, tsunderes, cheerleaders, stewardesses, waitresses, goth girls wearing black, goth girls wearing white, girls in China dresses, frail girls, albino girls, fantasists, girls with split personalities, queens, princesses, thigh-high socks, garterbelts, girls who cross-dress as guys, girls who wear glasses, girls who wear an eye-patch, girls who wear bandages, girls in school swimsuits, one-piece swimsuits, bikinis, V-shaped bikinis, bikinis that barely cover anything, ghosts, animal-eared girls, etc.- any female is within my area of acceptance."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Pierce Aogami**](https://myanimelist.net/character.php?q=Pierce%20Aogami&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
