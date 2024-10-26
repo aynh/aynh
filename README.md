@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fragility is always lurking behind our peaceful day-to-day life. Terrible things don’t only happen in places far beyond our reach."
+> "While you're alive, you need a reason for your existence. Being unable to find one is the same as being dead."
 
-&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
