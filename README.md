@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone Makes Mistakes. But people's feelings can manifest through the most subtle of expressions."
+> "Even a dim star is sending light somewhere."
 
-&mdash; [**Nona**](https://myanimelist.net/character.php?q=Nona&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Imizu Asuhi**](https://myanimelist.net/character.php?q=Imizu%20Asuhi&cat=character), [**Mikagura School Suite**](https://myanimelist.net/search/all?q=Mikagura%20School%20Suite&cat=all)
