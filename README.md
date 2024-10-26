@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time brings an end to all things. Even if we plug our ears and cover our eyes."
+> "The hot blood that flows through my body... is not something that can be suppressed by other people!"
 
-&mdash; [**Pharos**](https://myanimelist.net/character.php?q=Pharos&cat=character), [**Persona 3**](https://myanimelist.net/search/all?q=Persona%203&cat=all)
+&mdash; [**Bulat**](https://myanimelist.net/character.php?q=Bulat&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
