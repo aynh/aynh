@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things you can't turn back, even if you want to."
+> "Don't deny your dreams, ok? There is no point at all in taking a first step, if your eyes are closed and you don't gaze at the future."
 
-&mdash; [**Jūdai Yūki**](https://myanimelist.net/character.php?q=J%C5%ABdai%20Y%C5%ABki&cat=character), [**Yu-Gi-Oh! GX**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20GX&cat=all)
+&mdash; [**Gaap**](https://myanimelist.net/character.php?q=Gaap&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
