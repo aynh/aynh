@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "While you're alive, you need a reason for your existence. Being unable to find one is the same as being dead."
+> "Time brings an end to all things. Even if we plug our ears and cover our eyes."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Pharos**](https://myanimelist.net/character.php?q=Pharos&cat=character), [**Persona 3**](https://myanimelist.net/search/all?q=Persona%203&cat=all)
