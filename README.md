@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone exists for a reason. As small as it can be. I'm sure you have a meaning too."
+> "Senpai, take me to the art museum again. Next time, I'll carefully listen to what you say. Please feed me worms!"
 
-&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Noda Megumi**](https://myanimelist.net/character.php?q=Noda%20Megumi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
