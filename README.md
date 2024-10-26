@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You must be prepared to face the worst possible scenarios. Because harsh reality strikes without warning."
+> "Everyone exists for a reason. As small as it can be. I'm sure you have a meaning too."
 
-&mdash; [**Hunter X Hunter**](https://myanimelist.net/character.php?q=Hunter%20X%20Hunter&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
