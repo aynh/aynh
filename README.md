@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When a dog soils the carpet, its master is responsible."
+> "Gekokujou."
 
-&mdash; [**Cruhteo**](https://myanimelist.net/character.php?q=Cruhteo&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
+&mdash; [**Wakashi Hiyoshi**](https://myanimelist.net/character.php?q=Wakashi%20Hiyoshi&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
