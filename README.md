@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop pitying yourself. Pity yourself, and life becomes an endless nightmare."
+> "Really, what's with that? Such a power doesn't even appear in Academy City's databank. If I am a 1-in-328,571 prodigy, then aren't you, the only one in Academy City, a 1-in-2,300,000 disaster?"
 
-&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
+&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
