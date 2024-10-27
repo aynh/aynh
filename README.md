@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Really, what's with that? Such a power doesn't even appear in Academy City's databank. If I am a 1-in-328,571 prodigy, then aren't you, the only one in Academy City, a 1-in-2,300,000 disaster?"
+> "I went with raven for a long bathroom break."
 
-&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
