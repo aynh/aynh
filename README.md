@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is nothing outside of yourself that can ever enable you to get better, stronger, richer, quicker, or smarter. Everything is within. Everything exists. Seek nothing outside of yourself."
+> "A beast in human's clothing understands better than anyone how people want to be treated."
 
-&mdash; [**Miyamoto Musashi**](https://myanimelist.net/character.php?q=Miyamoto%20Musashi&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
+&mdash; [**Kurapika**](https://myanimelist.net/character.php?q=Kurapika&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
