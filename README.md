@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Gekokujou."
+> "Knowing what it feels to be in pain, is exactly why we try to be kind to others."
 
-&mdash; [**Wakashi Hiyoshi**](https://myanimelist.net/character.php?q=Wakashi%20Hiyoshi&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
