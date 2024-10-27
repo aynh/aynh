@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dragons are just bigger swallows."
+> "I don't intentionally ignore anyone. Their words simply don't resonate with me."
 
-&mdash; [**Assassin**](https://myanimelist.net/character.php?q=Assassin&cat=character), [**Fate Grand Order**](https://myanimelist.net/search/all?q=Fate%20Grand%20Order&cat=all)
+&mdash; [**Asaba Yuki**](https://myanimelist.net/character.php?q=Asaba%20Yuki&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
