@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Knowing what it feels to be in pain, is exactly why we try to be kind to others."
+> "I'll show you a real assassination. No... Maybe you won't even be able to see it."
 
-&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
