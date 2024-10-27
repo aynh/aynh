@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll show you a real assassination. No... Maybe you won't even be able to see it."
+> "Normally I hate people who whine all the time, but in your case... it would be okay to complain, be selfish and say what you want once in a while. It's okay to let yourself be sad."
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
