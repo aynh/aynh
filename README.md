@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You wont be laughing once you taste our power of friendship!"
+> "Over the course of several hundred years, I've seen many ages end, conflict between people, hatred, wicked hearts. I always have hope that the new age will purify all of that. How many times has it happened? People repeat themselves. They commit the same mistakes, over and over.... They haven't survived, not in true sense. The precious race called people has become extinct."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Zeref**](https://myanimelist.net/character.php?q=Zeref&cat=character), [**Fairy Tail TV 2/2014**](https://myanimelist.net/search/all?q=Fairy%20Tail%20TV%202%2F2014&cat=all)
