@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whenever I get up in the morning, I always think to myself, 'Am I really the same person I was yesterday?' For example, just as a computer loads its OS into memory and boots up each time it restarts, is it possible I'm just booting up the person called 'Saikawa Sohuei' each morning and trying to play that role?"
+> "'If I do this, I can stop the rebellion', 'if I do that, I can stop the rebellion'... Open your eyes, princess! Your zealous idealism disgusts me! Ideals can only be spoken by those powerful enough to carry them out. And that excludes you!"
 
-&mdash; [**Souhei Saikawa**](https://myanimelist.net/character.php?q=Souhei%20Saikawa&cat=character), [**Subete ga F ni Naru**](https://myanimelist.net/search/all?q=Subete%20ga%20F%20ni%20Naru&cat=all)
+&mdash; [**Crocodile**](https://myanimelist.net/character.php?q=Crocodile&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
