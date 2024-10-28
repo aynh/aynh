@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry I'm late guys, a black cat crossed my path so I had to go the long way."
+> "If you live after giving up on the things you want to do and the world around you doesn't sparkle, it's the same thing as being dead. If you don't give up, even if it's short, it'll be a fantastic life!"
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Marga**](https://myanimelist.net/character.php?q=Marga&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
