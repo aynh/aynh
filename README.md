@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*after Misa-chan says that she can't imagine a world without Light* Hmmm... Yes, it would be dark!"
+> "If I die here, then I'm a man that could only make it this far."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
