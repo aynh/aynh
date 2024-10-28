@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Last words] Well done. You win. As promised, I entrust you with everything. After all I can't do any more at this point anyways. Man, this really annoys me. I really hate people, who put their life on the line like you. Now quickly, finish me off. If you don't hurry, I'll regenerate again. Since you will be fighting in my stead, I won't stand for it if you lose, understand?"
+> "Yeah, I know there's no right answer. All I know for sure is that time keeps on flowing like a river, and a river eventually leads to the ocean. Maybe I will try swimming against the current."
 
-&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
