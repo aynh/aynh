@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is not beautiful; and that, in a way, lends it a sort of beauty."
+> "I'm going to kill you, have a beautiful laugh, then dance until I go mad."
 
-&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
+&mdash; [**Ladd Russo**](https://myanimelist.net/character.php?q=Ladd%20Russo&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
