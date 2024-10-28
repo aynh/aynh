@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't stray from my path for those I've left behind."
+> "Why you ask? That's the stupidest question I've ever heard.  The answer is obvious.  Because I want to! *to Misaki Takahashi*"
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
