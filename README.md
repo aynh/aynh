@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Making such a sleazebag a spokesman..."
+> "The world is not beautiful; and that, in a way, lends it a sort of beauty."
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
