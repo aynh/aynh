@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Does a death wish cause you to talk to me that way?"
+> "The weak can never break out of their own mold. They cry piteously within their cells, while they try to kick down anyone who strives to break free."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Moral**](https://myanimelist.net/character.php?q=Moral&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
