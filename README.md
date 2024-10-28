@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah, I know there's no right answer. All I know for sure is that time keeps on flowing like a river, and a river eventually leads to the ocean. Maybe I will try swimming against the current."
+> "I can't stray from my path for those I've left behind."
 
-&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
