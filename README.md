@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All I ever did was pay attention to myself. And I'm not even sure I saw myself clearly."
+> "Being alive...is a sign of strength!"
 
-&mdash; [**Luke Fon Fabre**](https://myanimelist.net/character.php?q=Luke%20Fon%20Fabre&cat=character), [**Tales of the Abyss**](https://myanimelist.net/search/all?q=Tales%20of%20the%20Abyss&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
