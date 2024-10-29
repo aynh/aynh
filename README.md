@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am not so noble that I would stake my life for someone else. Nor am I so forgiving that I would sit by and allow someone to trample me. I am selfish... and self righteous human being! That's why! I... to clear my own shame... I used your power. Not for anyone else! But for myself!"
+> "Sometimes, it's necessary to look back at the past in order to move on to the future."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
