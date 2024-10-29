@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no reason to pretend to be cool. Let’s show our lame sides. That’s who we really are, after all."
+> "I don't remember saying that I would kill you because I'm a Soul Reaper. The reason I am killing you is simple. It's because you aimed your blade at my only pride."
 
-&mdash; [**Hidenori Tabata**](https://myanimelist.net/character.php?q=Hidenori%20Tabata&cat=character), [**Danshi Koukousei no Nichijou**](https://myanimelist.net/search/all?q=Danshi%20Koukousei%20no%20Nichijou&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
