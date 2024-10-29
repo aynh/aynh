@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There can be no going back once you come to love someone."
+> "Whenever I look at you, I'm reminded about everything I hate about myself. It hurts."
 
-&mdash; [**Miyagi**](https://myanimelist.net/character.php?q=Miyagi&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
+&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
