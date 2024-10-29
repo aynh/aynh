@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate Shinigami."
+> "One must take time to think! Rushing forward without considering things beforehand is the hight of foolishness. Ahh yes, that reminds me of another time when I had to consider things, that case was long ago but I remember it still. It was back when I still hung my hat on Bakers St. and called it home."
 
-&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
