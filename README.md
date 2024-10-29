@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's because you're so fucking honest that you're so easy to fool."
+> "People like you... are the reason why people like me need medication."
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
