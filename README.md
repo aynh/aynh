@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What took a very long time to build up takes mere moments to destroy. But you can always start over. Next time around, you'll do a better job."
+> "[after Princess Yue unexpectedly kisses him] Okay, now I'm really confused. Happy, but confused."
 
-&mdash; [**Kenji Makabe**](https://myanimelist.net/character.php?q=Kenji%20Makabe&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
