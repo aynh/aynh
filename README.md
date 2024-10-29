@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after Princess Yue unexpectedly kisses him] Okay, now I'm really confused. Happy, but confused."
+> "Me personally, I like to work and train."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Goku**](https://myanimelist.net/character.php?q=Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
