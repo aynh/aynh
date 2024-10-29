@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One must take time to think! Rushing forward without considering things beforehand is the hight of foolishness. Ahh yes, that reminds me of another time when I had to consider things, that case was long ago but I remember it still. It was back when I still hung my hat on Bakers St. and called it home."
+> "Time passes, people move. Like a river's flow, it never ends. A childish mind will turn to noble ambition. Young love will become deep affection. The clear water's surface reflects growth. Now listen to the Serenade of water to reflect upon yourself."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Sheik**](https://myanimelist.net/character.php?q=Sheik&cat=character), [**The Legend Of Zelda**](https://myanimelist.net/search/all?q=The%20Legend%20Of%20Zelda&cat=all)
