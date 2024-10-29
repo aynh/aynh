@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whenever I look at you, I'm reminded about everything I hate about myself. It hurts."
+> "All I ever did was pay attention to myself. And I'm not even sure I saw myself clearly."
 
-&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Luke Fon Fabre**](https://myanimelist.net/character.php?q=Luke%20Fon%20Fabre&cat=character), [**Tales of the Abyss**](https://myanimelist.net/search/all?q=Tales%20of%20the%20Abyss&cat=all)
