@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't remember saying that I would kill you because I'm a Soul Reaper. The reason I am killing you is simple. It's because you aimed your blade at my only pride."
+> "One human only has the power to do so much. That's why I'm going to protect...even if it's just a handful of them...the ones most important to me."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
