@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, well. No matter what path they take, people without guts have nothing ahead of them."
+> "Welcome. Welcome to my cave young ones. Please forgive the belated salutations I am the holy sword Excalibur!"
 
-&mdash; [**Hiruma Youichi**](https://myanimelist.net/character.php?q=Hiruma%20Youichi&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
