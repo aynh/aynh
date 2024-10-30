@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ah, you're awake. I was hoping you'd cry out in your sleep, then I would have bitten your head off to silence you."
+> "Shadow and light are two sides of the same coin... One cannot exist without another."
 
-&mdash; [**Moro**](https://myanimelist.net/character.php?q=Moro&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Princess Zelda**](https://myanimelist.net/character.php?q=Princess%20Zelda&cat=character), [**The Legend Of Zelda**](https://myanimelist.net/search/all?q=The%20Legend%20Of%20Zelda&cat=all)
