@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Clouds... come here. Drops... fall here. Drive out the flames... tell him... that despite all of this... the world is still beautiful."
+> "The only one who can beat me, is me!"
 
-&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Daiki Aomine**](https://myanimelist.net/character.php?q=Daiki%20Aomine&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
