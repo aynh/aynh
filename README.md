@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you aren't remembered, then you never existed."
+> "[to Katara] If you want to be a bender, you have to let go of fear."
 
-&mdash; [**Arisu Mizuki**](https://myanimelist.net/character.php?q=Arisu%20Mizuki&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
