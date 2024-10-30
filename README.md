@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As time passes, the day will come when everything will fade to memories. But, those miraculous days, when you and I along with everyone else, searched together for just one thing... will continue revolving forever. Somewhere deep in my heart as my bittersweet memory."
+> "Humans were meant to work and sweat for their money after all. Those that try to get rich quickly or live at expense of others - all get divine retribution along the way. That is the lesson. But, one thing about humans is that they quickly forget the lesson they have learnt."
 
-&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Jet Black**](https://myanimelist.net/character.php?q=Jet%20Black&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
