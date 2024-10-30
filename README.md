@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*referring to the man that took her mothers life* I wanted to do it. I wanted to take out all my anger at him. But... I couldn't. I don't know if it's because I'm too weak to do it, or if it's because I'm strong enough not to."
+> "Clouds... come here. Drops... fall here. Drive out the flames... tell him... that despite all of this... the world is still beautiful."
 
-&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
