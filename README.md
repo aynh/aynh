@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't start thinking of killing just when the slightest thing doesn't go your way! How selfish are you!?"
+> "[when Naruto transforms into a woman in front of the whole class] CUT THE STUPID TRICKS! THIS IS YOUR LAST WARNING!!"
 
-&mdash; [**Hikawa Renko**](https://myanimelist.net/character.php?q=Hikawa%20Renko&cat=character), [**Psycho Love Comedy**](https://myanimelist.net/search/all?q=Psycho%20Love%20Comedy&cat=all)
+&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
