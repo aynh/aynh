@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't hurt! It's not hot! I'm not scared! I will not be beaten!"
+> "Humility is a virtue, but do not insult yourself."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ryu Lion**](https://myanimelist.net/character.php?q=Ryu%20Lion&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
