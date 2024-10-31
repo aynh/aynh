@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The longer you're with someone, the tougher it is to part ways."
+> "If you don't believe in history... Just believe in the world you see with your own eyes."
 
-&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
