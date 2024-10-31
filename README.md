@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "SILENCE! This is number 349 of the 1,000 provisions you must observe. Meisters should eat everything regardless of personal likes and dislikes. Never say anything as selfish as 'I don't like carrots.' again."
+> "If you don't believe in yourself, who will!? You're the only one demeaning yourself!"
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Amu Hinamori**](https://myanimelist.net/character.php?q=Amu%20Hinamori&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
