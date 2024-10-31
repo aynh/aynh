@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't believe in history... Just believe in the world you see with your own eyes."
+> "If you can't see something through the end, then don't do anything."
 
-&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Itami Youji**](https://myanimelist.net/character.php?q=Itami%20Youji&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
