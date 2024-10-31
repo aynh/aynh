@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey! Hold on, come back! I'll tell you what! I can lower those 1,000 provisions down to 800, just as long as you take part in the five hour story telling party."
+> "Everyone's the same, no exceptions.  All of them, equal before god."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
