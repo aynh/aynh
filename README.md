@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone's the same, no exceptions.  All of them, equal before god."
+> "Your sudden smiles always surprise me. But are dangerous enough to make my heart race."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
