@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can't see something through the end, then don't do anything."
+> "There's nothing special about being born. Not a thing. Most of the universe is just death, nothing more. In this universe of ours, the birth of a new life on some corner of our planet is nothing but a tiny, insignificant flash. Death is a normal thing. So why live?"
 
-&mdash; [**Itami Youji**](https://myanimelist.net/character.php?q=Itami%20Youji&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
