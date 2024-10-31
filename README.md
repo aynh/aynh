@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, I wonder what the prince would do if he knew, you authorized Planet Vegeta’s destruction from the start?"
+> "SILENCE! This is number 349 of the 1,000 provisions you must observe. Meisters should eat everything regardless of personal likes and dislikes. Never say anything as selfish as 'I don't like carrots.' again."
 
-&mdash; [**Whis**](https://myanimelist.net/character.php?q=Whis&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
