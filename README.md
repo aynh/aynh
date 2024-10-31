@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why don't you give it a try? You don't need to come up with a reason, you try things because you want to. Isn't that how you start doing things that you really like?"
+> "Well, I wonder what the prince would do if he knew, you authorized Planet Vegeta’s destruction from the start?"
 
-&mdash; [**Nozomi Tōjō**](https://myanimelist.net/character.php?q=Nozomi%20T%C5%8Dj%C5%8D&cat=character), [**Love Live! School idol project**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project&cat=all)
+&mdash; [**Whis**](https://myanimelist.net/character.php?q=Whis&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
