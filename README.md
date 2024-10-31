@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The mistakes people make are eventually labeled as experience. But with a true mistake, there will be no experience to be gained. Because the mistake you made taking me as your opponent will leave you with no future."
+> "Surviving means continuing to shoulder one's burden. When you can't handle that strain, then you'll be the one to die next."
 
-&mdash; [**Hades**](https://myanimelist.net/character.php?q=Hades&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
