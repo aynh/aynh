@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[when Naruto transforms into a woman in front of the whole class] CUT THE STUPID TRICKS! THIS IS YOUR LAST WARNING!!"
+> "Why don't you give it a try? You don't need to come up with a reason, you try things because you want to. Isn't that how you start doing things that you really like?"
 
-&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Nozomi Tōjō**](https://myanimelist.net/character.php?q=Nozomi%20T%C5%8Dj%C5%8D&cat=character), [**Love Live! School idol project**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project&cat=all)
