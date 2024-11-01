@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, mermaids can devour tigers."
+> "The longer you're with someone, the tougher it is to part ways."
 
-&mdash; [**Kagura Mikazuchi**](https://myanimelist.net/character.php?q=Kagura%20Mikazuchi&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
