@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I already told you...you can't kill me with that sword anymore!"
+> "Freedom can be found at the bottom of your heart."
 
-&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Rob**](https://myanimelist.net/character.php?q=Rob&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
