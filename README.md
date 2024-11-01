@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To take responsibility is to take pain onto yourself. It means to bear more pain than what others felt because of your mistakes! If you ruined someone's silver tableware, you must repay with gold tableware. The president of a polluting manufacturing plant must live beside the plant's chimney. That's what taking responsibility means. However the people in so-called high positions never see the consequences. When mistakes are made, they will casually bow their heads and apologize. They think that's enough. Are you one of them too?"
+> "A journey of a thousand miles begins with a single step. Even though each step is small, you never know if you'll end up achieving your major goal."
 
-&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
+&mdash; [**Ensei Rou**](https://myanimelist.net/character.php?q=Ensei%20Rou&cat=character), [**The Story of Saiunkoku**](https://myanimelist.net/search/all?q=The%20Story%20of%20Saiunkoku&cat=all)
