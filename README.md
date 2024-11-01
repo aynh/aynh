@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how many years it's been since they met, brothers are brothers, aren't they? Even without having seen, I can tell."
+> "I'm no saint. A sense of duty, a sense of righteousness - they're just nuisances in life."
 
-&mdash; [**Matahachi Hon'iden**](https://myanimelist.net/character.php?q=Matahachi%20Hon'iden&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
+&mdash; [**Okajima Rokuro**](https://myanimelist.net/character.php?q=Okajima%20Rokuro&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
