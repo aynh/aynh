@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's true that there's a lot we don't know about this world. But that's why we must go forward and do what we can. One thing at a time."
+> "Does the world hate me or something? I've always rejected it in an exceedingly friendly manner."
 
-&mdash; [**Shiroe**](https://myanimelist.net/character.php?q=Shiroe&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
