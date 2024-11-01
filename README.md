@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm no saint. A sense of duty, a sense of righteousness - they're just nuisances in life."
+> "If it's fear that you speak of, then I'll stand and face it. I'll never give up. The only time I lose is when I die!"
 
-&mdash; [**Okajima Rokuro**](https://myanimelist.net/character.php?q=Okajima%20Rokuro&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
