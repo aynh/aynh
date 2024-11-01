@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A journey of a thousand miles begins with a single step. Even though each step is small, you never know if you'll end up achieving your major goal."
+> "You people, are you satisfied with this kind of world? I'm not."
 
-&mdash; [**Ensei Rou**](https://myanimelist.net/character.php?q=Ensei%20Rou&cat=character), [**The Story of Saiunkoku**](https://myanimelist.net/search/all?q=The%20Story%20of%20Saiunkoku&cat=all)
+&mdash; [**Lockon Stratos**](https://myanimelist.net/character.php?q=Lockon%20Stratos&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
