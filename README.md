@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it's fear that you speak of, then I'll stand and face it. I'll never give up. The only time I lose is when I die!"
+> "What you need are feelings and experiences. The feelings of the person seeking the rain must be in concert with those of the person making it."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
