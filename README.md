@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People's thoughts, wishes, hopes and desires... We live in a time where technology can read everything in your mind, and yet, this place teems with people who hate, lie, steal and try to harm others. If that's not irrational, then what is it?"
+> "To take responsibility is to take pain onto yourself. It means to bear more pain than what others felt because of your mistakes! If you ruined someone's silver tableware, you must repay with gold tableware. The president of a polluting manufacturing plant must live beside the plant's chimney. That's what taking responsibility means. However the people in so-called high positions never see the consequences. When mistakes are made, they will casually bow their heads and apologize. They think that's enough. Are you one of them too?"
 
-&mdash; [**Tomomi Masaoka**](https://myanimelist.net/character.php?q=Tomomi%20Masaoka&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
+&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
