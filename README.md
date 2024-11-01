@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everybody has to display a certain loyalty to their paycheck. I was the same way. It isn’t just a piece of paper, but a chain that binds people."
+> "Dummy. I'm not gonna dwell on what happened forever. All that junk... it's the furthest thing on my mind. You should especially quit worrying about it and get some more sleep. Hurry up and get rid of your Panda eyes, got it?"
 
-&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
