@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What you need are feelings and experiences. The feelings of the person seeking the rain must be in concert with those of the person making it."
+> "Crying is a nosebleed of the heart."
 
-&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
