@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't dress stylishly or put on makeup to impress guys. You do it to keep other girls in their place."
+> "It's true that there's a lot we don't know about this world. But that's why we must go forward and do what we can. One thing at a time."
 
-&mdash; [**Rika Yoshitake**](https://myanimelist.net/character.php?q=Rika%20Yoshitake&cat=character), [**Genshiken: Second Generation**](https://myanimelist.net/search/all?q=Genshiken%3A%20Second%20Generation&cat=all)
+&mdash; [**Shiroe**](https://myanimelist.net/character.php?q=Shiroe&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
