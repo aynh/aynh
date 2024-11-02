@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The word 'ignorant' has a nice ring to it, so I don't mind being called that, but 'incompetent' is going just a bit too far..."
+> "To be loved out of sympathy is more devastating than to be rejected."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Shinobu Takatsuki**](https://myanimelist.net/character.php?q=Shinobu%20Takatsuki&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
