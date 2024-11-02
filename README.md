@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has changed. That's not it. The one who's changed the most, is me."
+> "Even if we are far apart. We'll always be united by tennis."
 
-&mdash; [**Jinta Yadomi**](https://myanimelist.net/character.php?q=Jinta%20Yadomi&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
+&mdash; [**Fuji Shuusuke**](https://myanimelist.net/character.php?q=Fuji%20Shuusuke&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
