@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't like your destiny, don't accept it. Instead, have the courage to change it the way you want it to be!"
+> "My own mother thought I was a monster. She was right of course... but it still hurt."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Azula**](https://myanimelist.net/character.php?q=Azula&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
