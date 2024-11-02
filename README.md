@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The difference between your decision and ours is experience. But you don't have to rely on that. CHOOSE... Believe in yourself, or believe in the survey corps and me. I don't know... I never have. I can believe in my own abilities or the choices of the companions I trust. But no one ever knows how it will turn out. So choose for yourself, whichever decision you will regret the least."
+> "The interaction of men and women isn't very logical."
 
-&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Ritsuko Akagi**](https://myanimelist.net/character.php?q=Ritsuko%20Akagi&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
