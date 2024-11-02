@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To be loved out of sympathy is more devastating than to be rejected."
+> "Women who cannot become princesses have no choice but to become witches."
 
-&mdash; [**Shinobu Takatsuki**](https://myanimelist.net/character.php?q=Shinobu%20Takatsuki&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Akio Ohtori**](https://myanimelist.net/character.php?q=Akio%20Ohtori&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
