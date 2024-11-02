@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No amount of natural talent trumps hard work."
+> "The word 'ignorant' has a nice ring to it, so I don't mind being called that, but 'incompetent' is going just a bit too far..."
 
-&mdash; [**Rin Matsuoka**](https://myanimelist.net/character.php?q=Rin%20Matsuoka&cat=character), [**Free!**](https://myanimelist.net/search/all?q=Free!&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
