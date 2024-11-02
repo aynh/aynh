@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The interaction of men and women isn't very logical."
+> "People say love can be developed, but in the end the only person they love is themselves, that's why you choose to love someone who can please you the most."
 
-&mdash; [**Ritsuko Akagi**](https://myanimelist.net/character.php?q=Ritsuko%20Akagi&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Takumi Ichinose**](https://myanimelist.net/character.php?q=Takumi%20Ichinose&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
