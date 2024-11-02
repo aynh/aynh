@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if we are far apart. We'll always be united by tennis."
+> "If you want to be strong, smile! He who can smile, even when he's so sad that he wants to die, when it's so painful that he wants to give it all up and run away, is the one who becomes strong."
 
-&mdash; [**Fuji Shuusuke**](https://myanimelist.net/character.php?q=Fuji%20Shuusuke&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Atro Spiker**](https://myanimelist.net/character.php?q=Atro%20Spiker&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
