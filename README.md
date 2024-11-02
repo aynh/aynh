@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Women who cannot become princesses have no choice but to become witches."
+> "They say you never know when a bullet you fired in battle will find its way back to you."
 
-&mdash; [**Akio Ohtori**](https://myanimelist.net/character.php?q=Akio%20Ohtori&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Meikyuu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Meikyuu&cat=all)
