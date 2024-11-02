@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I only joined this war to avoid spilling rivers of blood. Fight for the Holy Grail, no meaningless bloodshed, minimize sacrifices, one person taking up the mission of fate instead of armies of men and competing here! This is what we Servants should do."
+> "No amount of natural talent trumps hard work."
 
-&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Rin Matsuoka**](https://myanimelist.net/character.php?q=Rin%20Matsuoka&cat=character), [**Free!**](https://myanimelist.net/search/all?q=Free!&cat=all)
