@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You yourself have to change first, or nothing will change for you."
+> "If you don't like your destiny, don't accept it. Instead, have the courage to change it the way you want it to be!"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
