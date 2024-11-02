@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say you never know when a bullet you fired in battle will find its way back to you."
+> "I have no idea what you really want, what you're really thinking, or what the right thing to do really is. But I'm your friend. Let me stay."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Meikyuu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Meikyuu&cat=all)
+&mdash; [**Takeo Gouda**](https://myanimelist.net/character.php?q=Takeo%20Gouda&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
