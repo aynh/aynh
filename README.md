@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People say love can be developed, but in the end the only person they love is themselves, that's why you choose to love someone who can please you the most."
+> "You yourself have to change first, or nothing will change for you."
 
-&mdash; [**Takumi Ichinose**](https://myanimelist.net/character.php?q=Takumi%20Ichinose&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
