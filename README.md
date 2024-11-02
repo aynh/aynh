@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to be strong, smile! He who can smile, even when he's so sad that he wants to die, when it's so painful that he wants to give it all up and run away, is the one who becomes strong."
+> "Stop looking at my soul you creep!"
 
-&mdash; [**Atro Spiker**](https://myanimelist.net/character.php?q=Atro%20Spiker&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
