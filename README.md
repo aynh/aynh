@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Seasons change just like the passing of time. We all have out destines and then we must move. That's they way it has always been."
+> "Weak in order to love, strong in order to protect, both in order to stay at your side."
 
-&mdash; [**Clow Reed**](https://myanimelist.net/character.php?q=Clow%20Reed&cat=character), [**Cardcaptor Sakura**](https://myanimelist.net/search/all?q=Cardcaptor%20Sakura&cat=all)
+&mdash; [**Elizabeth Midford**](https://myanimelist.net/character.php?q=Elizabeth%20Midford&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
