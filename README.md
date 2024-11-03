@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Weak in order to love, strong in order to protect, both in order to stay at your side."
+> "Even if armed with hundreds of weapons... there are times when you just can't beat a man with a spear of conviction in his gut."
 
-&mdash; [**Elizabeth Midford**](https://myanimelist.net/character.php?q=Elizabeth%20Midford&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
