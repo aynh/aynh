@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you love someone, sometimes your head hurts. And it's so agonizing that you want to burst into tears. But even the smallest thing can bring you happiness. It's complicated, but simple. Perhaps all these emotions are irreplaceable and precious."
+> "Seasons change just like the passing of time. We all have out destines and then we must move. That's they way it has always been."
 
-&mdash; [**Ageha Shiroi**](https://myanimelist.net/character.php?q=Ageha%20Shiroi&cat=character), [**Velvet Blue Rose**](https://myanimelist.net/search/all?q=Velvet%20Blue%20Rose&cat=all)
+&mdash; [**Clow Reed**](https://myanimelist.net/character.php?q=Clow%20Reed&cat=character), [**Cardcaptor Sakura**](https://myanimelist.net/search/all?q=Cardcaptor%20Sakura&cat=all)
