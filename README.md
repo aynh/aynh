@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It may seem like we're all playing the same game, but in our minds, it is totally different."
+> "This is DUUUMMMBBB!!!!!!"
 
-&mdash; [**Sonora Kashima**](https://myanimelist.net/character.php?q=Sonora%20Kashima&cat=character), [**Stella Jogakuin Koutou-ka C³-bu**](https://myanimelist.net/search/all?q=Stella%20Jogakuin%20Koutou-ka%20C%C2%B3-bu&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
