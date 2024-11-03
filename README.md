@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The things we can't obtain are the most beautiful ones."
+> "In our society, letting others find out that you're a nice person is a very risky move. It's extremely likely that someone would take advantage of that."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate Stay Night - Unlimited Blade Works**](https://myanimelist.net/search/all?q=Fate%20Stay%20Night%20-%20Unlimited%20Blade%20Works&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
