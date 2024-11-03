@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Donato has to keep proving himself. He wants to prove just how valuable he is. Isn't that the case with you as well? Because you are the same as Donato. All you're doing is indulging in this twisted self-value that you have to yourself. And if you don't, you won't last. Eventually, you will break and become useless. Once that happens, you'll break and become discarded."
+> "I was in the avatar state... But I was outside my body watching myself. It was scary. I was scary..."
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul:re**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%3Are&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
