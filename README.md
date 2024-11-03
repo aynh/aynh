@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I love flowers. They look so good... On me."
+> "So, you would question me, you filthy mongrel? Me, the one true king? If you cannot now discern my identity in the presence of my magnificent glory, then you’re ignorant blindness will serve to seal your doom!"
 
-&mdash; [**Evergreen**](https://myanimelist.net/character.php?q=Evergreen&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
