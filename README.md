@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So, you would question me, you filthy mongrel? Me, the one true king? If you cannot now discern my identity in the presence of my magnificent glory, then you’re ignorant blindness will serve to seal your doom!"
+> "I cried alone every single night. It felt like every day that passed here stole another piece of my real life away. After I cried, I'd go and fight as hard as I could. My only thought was winning, moving forward and getting stronger."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
