@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was in the avatar state... But I was outside my body watching myself. It was scary. I was scary..."
+> "The future is always blank. Only your willpower can leave footsteps there."
 
-&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Satoru Fujinuma**](https://myanimelist.net/character.php?q=Satoru%20Fujinuma&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
