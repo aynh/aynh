@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Messing around at night together... This calls for punishment."
+> "I love flowers. They look so good... On me."
 
-&mdash; [**Kanade Tachibana**](https://myanimelist.net/character.php?q=Kanade%20Tachibana&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Evergreen**](https://myanimelist.net/character.php?q=Evergreen&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
