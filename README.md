@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is DUUUMMMBBB!!!!!!"
+> "I envy you. You've been betrayed and hurt, yet you can still forgive each other. I envy you for having such a great friend."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kuroyukihime**](https://myanimelist.net/character.php?q=Kuroyukihime&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
