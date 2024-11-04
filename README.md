@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One who relies overly on a single skill will be brought low by that very same skill."
+> "Let me tell you something... Real sin is something you can never atone for."
 
-&mdash; [**Aikurō Mikisugi**](https://myanimelist.net/character.php?q=Aikur%C5%8D%20Mikisugi&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
+&mdash; [**Ban**](https://myanimelist.net/character.php?q=Ban&cat=character), [**The Seven Deadly Sins**](https://myanimelist.net/search/all?q=The%20Seven%20Deadly%20Sins&cat=all)
