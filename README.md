@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bonds that are too strong create flaws over time."
+> "I'll enjoy shaving you to death."
 
-&mdash; [**Road Kamelot**](https://myanimelist.net/character.php?q=Road%20Kamelot&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Kisame Hoshigaki**](https://myanimelist.net/character.php?q=Kisame%20Hoshigaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
