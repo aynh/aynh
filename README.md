@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I cried alone every single night. It felt like every day that passed here stole another piece of my real life away. After I cried, I'd go and fight as hard as I could. My only thought was winning, moving forward and getting stronger."
+> "Someone saying that they are happy doesn't necessarily mean that they are happy, right?"
 
-&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Tsubasa Hanekawa**](https://myanimelist.net/character.php?q=Tsubasa%20Hanekawa&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
