@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For the right price, you can buy not only treasures, but dreams, hearts and even people's lives!"
+> "Since childhood, my body was weak. There was a limit to what I could do. A weak body... A life which I don't know how long I would live for. Well, life has its limits. I felt like my limit was exceeding faster than others' limit."
 
-&mdash; [**Leorio Paladiknight**](https://myanimelist.net/character.php?q=Leorio%20Paladiknight&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Kanata Nanami**](https://myanimelist.net/character.php?q=Kanata%20Nanami&cat=character), [**Starry Sky**](https://myanimelist.net/search/all?q=Starry%20Sky&cat=all)
