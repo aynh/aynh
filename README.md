@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Skilled only at making excuses that justify nothing, he is someone whose life has no value. The same goes for me. I have the right to stop you because I'm just like you."
+> "It's because you're so fucking honest that you're so easy to fool."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
