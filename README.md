@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My goal is so far away that I'm not even on the starting line yet."
+> "In order to achieve something there are some things that you have to be unsatisfied with in the first place. Having a complex is the source to greatness."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Takane Saibara**](https://myanimelist.net/character.php?q=Takane%20Saibara&cat=character), [**Takane to Hana**](https://myanimelist.net/search/all?q=Takane%20to%20Hana&cat=all)
