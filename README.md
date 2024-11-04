@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[sarcastically, after Aang tells him about his flying bison] Right, and this is Katara, my flying sister."
+> "Everything you've been taught is based on theories and logic. Soon, you'll come to realize how pointless they are."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Tomomi Masaoka**](https://myanimelist.net/character.php?q=Tomomi%20Masaoka&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
