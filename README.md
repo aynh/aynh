@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In order to achieve something there are some things that you have to be unsatisfied with in the first place. Having a complex is the source to greatness."
+> "He is so twisted that if he sees someone wandering around lost, he's the kind of guy who will screw and toy around with the poor soul before he even bothers to help...IF he even bothers to help!"
 
-&mdash; [**Takane Saibara**](https://myanimelist.net/character.php?q=Takane%20Saibara&cat=character), [**Takane to Hana**](https://myanimelist.net/search/all?q=Takane%20to%20Hana&cat=all)
+&mdash; [**Misaki Takahashi**](https://myanimelist.net/character.php?q=Misaki%20Takahashi&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
