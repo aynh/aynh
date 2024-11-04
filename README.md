@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The Idealist says, everyone is born equal. We are all of equal worth. The sportsman screams, no effort goes unrewarded. Work hard for your dreams! It's about how you play the game. Obviously all untrue."
+> "One who relies overly on a single skill will be brought low by that very same skill."
 
-&mdash; [**Haruki Aritomi**](https://myanimelist.net/character.php?q=Haruki%20Aritomi&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Aikurō Mikisugi**](https://myanimelist.net/character.php?q=Aikur%C5%8D%20Mikisugi&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
