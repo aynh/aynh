@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He made three requests. That I protect him and never betray him until he obtains his revenge. That I obey his orders unconditionally. And that I would never lie... to him."
+> "It's amazing how much you kiss your own ass."
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
