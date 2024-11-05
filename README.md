@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to survive...And see her again. As a person, I'm really lower than shit...But she knows that, and she smiles kindly at me anyway."
+> "...There's nothing to feel sorry for on my behalf. I've been a very selfish girl. For the first time, I was able to see that. Thank you for worrying about me, mama. (to her mother)"
 
-&mdash; [**Ymir**](https://myanimelist.net/character.php?q=Ymir&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
