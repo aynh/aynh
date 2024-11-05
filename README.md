@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The true evil is becoming apathetic about other people."
+> "Discouraging, isn't it? It's always easier to tear down than to build... And much more difficult to tie than to untie."
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Ayasegawa Yumichika**](https://myanimelist.net/character.php?q=Ayasegawa%20Yumichika&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
