@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Discouraging, isn't it? It's always easier to tear down than to build... And much more difficult to tie than to untie."
+> "Our world is like a terminal cancer. Saying you’ll change things through individual will is the rambling of a peace-loving fool. Why don’t you understand it’s too late for humanity?!"
 
-&mdash; [**Ayasegawa Yumichika**](https://myanimelist.net/character.php?q=Ayasegawa%20Yumichika&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
