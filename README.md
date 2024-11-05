@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing good can come by rejecting yourself."
+> "It doesn't do any good to pretend you can't see what's going on."
 
-&mdash; [**Riki Naoe**](https://myanimelist.net/character.php?q=Riki%20Naoe&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Yuuya Mochizuki**](https://myanimelist.net/character.php?q=Yuuya%20Mochizuki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
