@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's amazing how much you kiss your own ass."
+> "In this country, we don't call someone who can stop a scooter with her bare hands a girl. We call her a mountain gorilla."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
