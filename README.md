@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's always a lot more easier to let something fall apart than it is to try to hold it together."
+> "Justice is not something that you can express in words."
 
-&mdash; [**Ayasegawa Yumichika**](https://myanimelist.net/character.php?q=Ayasegawa%20Yumichika&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
