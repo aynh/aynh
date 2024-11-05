@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Accident or amnesia, you can't rewind your life and start again. If you struggle, you'll just hurt yourself, and the people around you."
+> "The fear of interacting with people...even I understand that one."
 
-&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
