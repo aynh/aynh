@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're not a good-for-nothing person. I think that being able to try your hardest to be something is a talent by itself."
+> "It's always a lot more easier to let something fall apart than it is to try to hold it together."
 
-&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Ayasegawa Yumichika**](https://myanimelist.net/character.php?q=Ayasegawa%20Yumichika&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
