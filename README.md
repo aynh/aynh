@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All people have sanctuary which mustn't be touched. A scar of sadness which mustn't be entered. The living confront each other to achieve their ideals. In a quiet voice, the man in the white coat told me... that he had finally found me, that he wanted my life. That man smiled a smile deeper than darkness. Legato Bluesummers, a man fascinated by Death..."
+> "He made three requests. That I protect him and never betray him until he obtains his revenge. That I obey his orders unconditionally. And that I would never lie... to him."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
