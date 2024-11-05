@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this country, we don't call someone who can stop a scooter with her bare hands a girl. We call her a mountain gorilla."
+> "Nothing good can come by rejecting yourself."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Riki Naoe**](https://myanimelist.net/character.php?q=Riki%20Naoe&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
