@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't believe in the you that believes in me and don't believe in the me that believes in you. Believe in the you that believes in yourself."
+> "Yamcha, I was worried about you. For all I knew, you were dead in a ditch in a country you can’t pronounce. You’ll have to make this up to me. And you’re going to enjoy it."
 
-&mdash; [**Kamina**](https://myanimelist.net/character.php?q=Kamina&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
+&mdash; [**Bulma Briefs**](https://myanimelist.net/character.php?q=Bulma%20Briefs&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
