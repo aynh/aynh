@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only a fool refuses a woman who offers herself."
+> "Hurry up! You can make it! Oh, run to her and hug her tight!"
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
