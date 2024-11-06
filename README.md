@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[sarcastically] In my country, we exchange a pleasant 'hello' before asking questions."
+> "A dream? That's right. Because there was the past, there is now the present. And because there is the present, we can believe in tomorrow and pursue our dreams."
 
-&mdash; [**Azula**](https://myanimelist.net/character.php?q=Azula&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Rio Kazumiya**](https://myanimelist.net/character.php?q=Rio%20Kazumiya&cat=character), [**So Ra No Wo To**](https://myanimelist.net/search/all?q=So%20Ra%20No%20Wo%20To&cat=all)
