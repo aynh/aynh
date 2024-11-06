@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's all it is: information. Even a simulated experience or a dream; simultaneous reality and fantasy. Any way you look at it, all the information that a person accumulates in a lifetime is just a drop in the bucket."
+> "Assassination — It's the family trade. We all take it up. My folks see me as an exceptional prospect. But I don't see that I should have to live up to their expectations."
 
-&mdash; [**Batou**](https://myanimelist.net/character.php?q=Batou&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Killua Zoldyck**](https://myanimelist.net/character.php?q=Killua%20Zoldyck&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
