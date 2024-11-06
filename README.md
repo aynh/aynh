@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The reason we hurt others is because we don't understand their pain."
+> "You idiot. You'd gotten yourself up in a tizzy about romance, right? 'Love' you experience in that state is just self-delusion. There's no point in getting depressed over love like that."
 
-&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
+&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
