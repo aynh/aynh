@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(To Ichigo Kurosaki) You are a fool, Ichigo Kurosaki. You willingly seek to challenge an opponent so much more powerful than you that it strikes a primal fear into your being. Incomprehensible. If this is the work of the 'heart' that you people speak of, then it is because you possess this 'heart' that you humans bring hurt upon yourself, because you possess this 'heart' that you lose your lives"
+> "[sarcastically] In my country, we exchange a pleasant 'hello' before asking questions."
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Azula**](https://myanimelist.net/character.php?q=Azula&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
