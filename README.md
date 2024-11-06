@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hurry up! You can make it! Oh, run to her and hug her tight!"
+> "[to Momo on Aizen's final letter] As a vice-captain, I think it's a great honor to be the receiver of her captain's final words. Read it well."
 
-&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
