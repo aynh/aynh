@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have no enemies. No one...Has any enemies. There is no one...That you should hurt"
+> "But you're thinking on too large a scale there, kid... If we don't want to drive ourselves crazy, we can only deal with what's directly in front of us."
 
-&mdash; [**Thors**](https://myanimelist.net/character.php?q=Thors&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
