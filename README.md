@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Momo on Aizen's final letter] As a vice-captain, I think it's a great honor to be the receiver of her captain's final words. Read it well."
+> "Don't believe in the you that believes in me and don't believe in the me that believes in you. Believe in the you that believes in yourself."
 
-&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kamina**](https://myanimelist.net/character.php?q=Kamina&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
