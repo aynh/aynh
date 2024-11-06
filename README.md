@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yamcha, I was worried about you. For all I knew, you were dead in a ditch in a country you can’t pronounce. You’ll have to make this up to me. And you’re going to enjoy it."
+> "If you were to be troubled over something as trivial as losing face, then it's better to not have it at all."
 
-&mdash; [**Bulma Briefs**](https://myanimelist.net/character.php?q=Bulma%20Briefs&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Fujitora**](https://myanimelist.net/character.php?q=Fujitora&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
