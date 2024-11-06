@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you wanna climb a mountain, you obviously aim for the top, but you gotta enjoy the scenery too."
+> "Don't go thinking you're my rival, you circus freak!"
 
-&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
