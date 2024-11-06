@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you're ten, they call you a prodigy. When you're fifteen, they call you a genius. Once you hit twenty, you're just an ordinary person."
+> "The world you want can’t be built after destruction. We build it everyday -step by step!"
 
-&mdash; [**Haruka Nanase**](https://myanimelist.net/character.php?q=Haruka%20Nanase&cat=character), [**Free!**](https://myanimelist.net/search/all?q=Free!&cat=all)
+&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
