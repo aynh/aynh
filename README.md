@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't go thinking you're my rival, you circus freak!"
+> "You have no enemies. No one...Has any enemies. There is no one...That you should hurt"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Thors**](https://myanimelist.net/character.php?q=Thors&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
