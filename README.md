@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you were to be troubled over something as trivial as losing face, then it's better to not have it at all."
+> "The reason we hurt others is because we don't understand their pain."
 
-&mdash; [**Fujitora**](https://myanimelist.net/character.php?q=Fujitora&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
