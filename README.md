@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things you can only share with someone by fighting. For instance, how serious you are."
+> "All this time, I've lived in hope of telling you how sorry I am, I've fought armies, just to have this chance, but now, there's nothing I can say.. That's good enough."
 
-&mdash; [**Konno Yuuki**](https://myanimelist.net/character.php?q=Konno%20Yuuki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
+&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
