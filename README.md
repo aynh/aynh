@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think that education will prove the most powerful force in this world."
+> "Girls are so annoying. They’re always stubborn and full of jealousy, gossiping about who gets along with whom and who loves whom. Violent too."
 
-&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
+&mdash; [**Rentarou Kurahashi**](https://myanimelist.net/character.php?q=Rentarou%20Kurahashi&cat=character), [**Love Lab**](https://myanimelist.net/search/all?q=Love%20Lab&cat=all)
