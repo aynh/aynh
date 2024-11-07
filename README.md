@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Lend me 100 yen since I'm beautiful."
+> "If you're gonna kill me, then kill me. If you're gonna execute me, stop waiting. Until then, I live by my own rules!"
 
-&mdash; [**Aisa Himegami**](https://myanimelist.net/character.php?q=Aisa%20Himegami&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
