@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want... to run away by myself. Because no matter what, I'd rather be together with everyone..."
+> "There are things you can only share with someone by fighting. For instance, how serious you are."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Konno Yuuki**](https://myanimelist.net/character.php?q=Konno%20Yuuki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
