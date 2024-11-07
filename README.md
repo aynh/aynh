@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don’t waste your time following someone around unless you like him. Stalking is a sign of love."
+> "Lend me 100 yen since I'm beautiful."
 
-&mdash; [**Aoi Yamada**](https://myanimelist.net/character.php?q=Aoi%20Yamada&cat=character), [**Working!!**](https://myanimelist.net/search/all?q=Working!!&cat=all)
+&mdash; [**Aisa Himegami**](https://myanimelist.net/character.php?q=Aisa%20Himegami&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
