@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I got angry at every little thing, my body wouldn't be able to hold it all."
+> "I don't want... to run away by myself. Because no matter what, I'd rather be together with everyone..."
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
