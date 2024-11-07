@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sokka, you're supposed to put the tarp on top of the tent. You know, so we don't get rained on?"
+> "You're wrong. It's not the world that's messed up; it's those of us in it. Yes, some ghouls walk a path that leaves sorrow in their wake, but just like humans, we can choose a different path altogether. We have a lot to learn, both your kind and mine. We need to stop fighting, and start talking. Because when it comes to the state of the world, you can't point your finger at ghouls or humans. We're all to blame."
 
-&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
