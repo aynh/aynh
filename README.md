@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't know what you're trying to pull, but I'm not into this kinky stuff, and you're WAY too old!"
+> "Sokka, you're supposed to put the tarp on top of the tent. You know, so we don't get rained on?"
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
