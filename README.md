@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You idiot. You'd gotten yourself up in a tizzy about romance, right? 'Love' you experience in that state is just self-delusion. There's no point in getting depressed over love like that."
+> "Don't you faint on me, you stupid girl."
 
-&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
