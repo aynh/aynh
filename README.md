@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Girls are so annoying. They’re always stubborn and full of jealousy, gossiping about who gets along with whom and who loves whom. Violent too."
+> "So now we know her past. So what? It doesn't have anything to do with us. We have to be nice to her just because she's had a rough past? You've got to be kidding."
 
-&mdash; [**Rentarou Kurahashi**](https://myanimelist.net/character.php?q=Rentarou%20Kurahashi&cat=character), [**Love Lab**](https://myanimelist.net/search/all?q=Love%20Lab&cat=all)
+&mdash; [**Ranta**](https://myanimelist.net/character.php?q=Ranta&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
