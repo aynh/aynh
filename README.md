@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You ain't gonna know unless you climb up yerself. Ain't no way to look if you don't try."
+> "I must be a pretty pathetic owner for you to have bitten me, Akamaru...."
 
-&mdash; [**Kotoishi Naru**](https://myanimelist.net/character.php?q=Kotoishi%20Naru&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
+&mdash; [**Kiba Inuzuka**](https://myanimelist.net/character.php?q=Kiba%20Inuzuka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
