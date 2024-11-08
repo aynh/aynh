@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's absurd to think your life won't have a meaning unless you leave some work behind. Just living is enough."
+> "It isn't even interesting fighting against someone who doesn't have their own goals."
 
-&mdash; [**Shinobu Morita**](https://myanimelist.net/character.php?q=Shinobu%20Morita&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
