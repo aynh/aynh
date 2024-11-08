@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's quite easy for humans to become adults, but to always have a child-like heart that makes everything joyful isn't such an easy task."
+> "It will be alright, have faith in yourself. Crona, you will be a Kishin."
 
-&mdash; [**Hattori Zenzou**](https://myanimelist.net/character.php?q=Hattori%20Zenzou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
