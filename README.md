@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Change can only arise from fluctuations, right? That's why going back and forth between confidence and weakness, if you're shifting then you're changing, I think. Like that, little by little, everyone is changing probably."
+> "I knew that it was pointless to hope for anything. I was so apathetic because of this sort of upbringing."
 
-&mdash; [**Touma Kikuchi**](https://myanimelist.net/character.php?q=Touma%20Kikuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
