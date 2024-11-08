@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unfortunately, a psychotic virgin, starved for love and likely to fall for anyone who would be a little nice to her, has set eyes on you."
+> "It's absurd to think your life won't have a meaning unless you leave some work behind. Just living is enough."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Shinobu Morita**](https://myanimelist.net/character.php?q=Shinobu%20Morita&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
