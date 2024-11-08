@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It isn't even interesting fighting against someone who doesn't have their own goals."
+> "The government is the sails, the people the wind, and the time the sea. As long as there is people to repair the ship, it can be used forever."
 
-&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**France**](https://myanimelist.net/character.php?q=France&cat=character), [**Hetalia The Beautiful World**](https://myanimelist.net/search/all?q=Hetalia%20The%20Beautiful%20World&cat=all)
