@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A traveler does not leave regret behind in a village, but good memories."
+> "God doesn't give us trials we can't surmount. So someday all your wounds will heal and the day will come when you've surmounted all your pain."
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Mikage Celestine**](https://myanimelist.net/character.php?q=Mikage%20Celestine&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
