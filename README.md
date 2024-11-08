@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I must protect my fledging Utopia."
+> "But... When I lost the whole foundation of my happiness in one instant, I realized that I was the biggest coward in the world."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kaidou Haru**](https://myanimelist.net/character.php?q=Kaidou%20Haru&cat=character), [**Super Lovers**](https://myanimelist.net/search/all?q=Super%20Lovers&cat=all)
