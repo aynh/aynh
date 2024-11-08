@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The government is the sails, the people the wind, and the time the sea. As long as there is people to repair the ship, it can be used forever."
+> "Change can only arise from fluctuations, right? That's why going back and forth between confidence and weakness, if you're shifting then you're changing, I think. Like that, little by little, everyone is changing probably."
 
-&mdash; [**France**](https://myanimelist.net/character.php?q=France&cat=character), [**Hetalia The Beautiful World**](https://myanimelist.net/search/all?q=Hetalia%20The%20Beautiful%20World&cat=all)
+&mdash; [**Touma Kikuchi**](https://myanimelist.net/character.php?q=Touma%20Kikuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
