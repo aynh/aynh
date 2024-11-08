@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I knew that it was pointless to hope for anything. I was so apathetic because of this sort of upbringing."
+> "Pride is an eminent trait, but too much will cause arrogance. That is when it becomes disgusting."
 
-&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Duke Tōgō**](https://myanimelist.net/character.php?q=Duke%20T%C5%8Dg%C5%8D&cat=character), [**Golgo 13**](https://myanimelist.net/search/all?q=Golgo%2013&cat=all)
