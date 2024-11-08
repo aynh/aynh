@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It will be alright, have faith in yourself. Crona, you will be a Kishin."
+> "Listen carefully because I'm only gonna say this once, I love you."
 
-&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Motoharu Yano**](https://myanimelist.net/character.php?q=Motoharu%20Yano&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
