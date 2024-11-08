@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But... When I lost the whole foundation of my happiness in one instant, I realized that I was the biggest coward in the world."
+> "You ain't gonna know unless you climb up yerself. Ain't no way to look if you don't try."
 
-&mdash; [**Kaidou Haru**](https://myanimelist.net/character.php?q=Kaidou%20Haru&cat=character), [**Super Lovers**](https://myanimelist.net/search/all?q=Super%20Lovers&cat=all)
+&mdash; [**Kotoishi Naru**](https://myanimelist.net/character.php?q=Kotoishi%20Naru&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
