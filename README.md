@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love hurts. But it can hurt worse if you allow your eyes to wander."
+> "The more material you possess, the harder you'll feel the loss."
 
-&mdash; [**Kirishima Shouko**](https://myanimelist.net/character.php?q=Kirishima%20Shouko&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Arima Teppei**](https://myanimelist.net/character.php?q=Arima%20Teppei&cat=character), [**Princess Lover!**](https://myanimelist.net/search/all?q=Princess%20Lover!&cat=all)
