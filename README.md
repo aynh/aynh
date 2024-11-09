@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A localized, non-corrosive amalgamation of asynchronous space is independently occurring in restricted condition mode."
+> "The only way to truly escape the mundane is for you to constantly be evolving. Whether you choose to aim high, or aim low. Enjoy each day for what it is."
 
-&mdash; [**Yuki Nagato**](https://myanimelist.net/character.php?q=Yuki%20Nagato&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
