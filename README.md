@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'I'm different.', 'It has nothing to do with me.', 'It's all happening in a different world.' Turning away from reality like that is just a kind of inadvertent malice..."
+> "I hate, hate, hate everyone."
 
-&mdash; [**Tieria Erde**](https://myanimelist.net/character.php?q=Tieria%20Erde&cat=character), [**Mobile Suit Gundam 00 2nd.Season**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000%202nd.Season&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
