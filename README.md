@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't believe in destiny. I always thought that it was nothing more than an overlap of coincidences. But if a meeting changes from chance to inevitable, that's what we call destiny."
+> "Ninjas are revolting, they stole my idea. I'll have to kill them now."
 
-&mdash; [**You Miyagi**](https://myanimelist.net/character.php?q=You%20Miyagi&cat=character), [**Junjō Romantica**](https://myanimelist.net/search/all?q=Junj%C5%8D%20Romantica&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
