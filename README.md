@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think there are times people have to die... even if I don't like it."
+> "Even If evil makes you lose your way, you stay your ground and keep searching for the path of good. Is that search now what justice is? It is for that reason that gods gave mortals knowledge."
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Gowasu**](https://myanimelist.net/character.php?q=Gowasu&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
