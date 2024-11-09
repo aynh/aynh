@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Protecting someone means giving them a place to belong. Giving them a place where they can be happy."
+> "I don't believe in destiny. I always thought that it was nothing more than an overlap of coincidences. But if a meeting changes from chance to inevitable, that's what we call destiny."
 
-&mdash; [**Rayneshia El-Arte Corwen**](https://myanimelist.net/character.php?q=Rayneshia%20El-Arte%20Corwen&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**You Miyagi**](https://myanimelist.net/character.php?q=You%20Miyagi&cat=character), [**Junjō Romantica**](https://myanimelist.net/search/all?q=Junj%C5%8D%20Romantica&cat=all)
