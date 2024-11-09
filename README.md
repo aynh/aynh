@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe you have the potential to bloom into something even more beautiful than the cosmos."
+> "Real love... if such a thing existed, would not be something as stupid as a woman's looks or the size of her bust."
 
-&mdash; [**Ino Yamanaka**](https://myanimelist.net/character.php?q=Ino%20Yamanaka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ludwig Kakumei**](https://myanimelist.net/character.php?q=Ludwig%20Kakumei&cat=character), [**Ludwig Kakumei**](https://myanimelist.net/search/all?q=Ludwig%20Kakumei&cat=all)
