@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I tell you to leave, leave. In this world, winning is everything. Winners are affirmed completely, and losers are denied completely. I've never lost at anything before, and I never will. Because I always win, and I'm always right. I show no mercy to those who oppose me, not even my own parents."
+> "'I'm different.', 'It has nothing to do with me.', 'It's all happening in a different world.' Turning away from reality like that is just a kind of inadvertent malice..."
 
-&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Tieria Erde**](https://myanimelist.net/character.php?q=Tieria%20Erde&cat=character), [**Mobile Suit Gundam 00 2nd.Season**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000%202nd.Season&cat=all)
