@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life has no weight in itself; it’s a concept created by the observer that does not have a definite form. Essentially, life does not entail multiple instances but is just one massive wobbly lump. However, we tend to refer to the bodies that were formed out of that giant lump as “lives”. The essence of life is in all of us and can’t be “stolen” or “born.” As long as the essence of life exists, life does not decrease or increase, and it certainly won’t disappear."
+> "Love hurts. But it can hurt worse if you allow your eyes to wander."
 
-&mdash; [**Hoshino Kazuki**](https://myanimelist.net/character.php?q=Hoshino%20Kazuki&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Kirishima Shouko**](https://myanimelist.net/character.php?q=Kirishima%20Shouko&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
