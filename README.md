@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more material you possess, the harder you'll feel the loss."
+> "The moment you find the courage to give up your life for someone... Would be the moment you understand love."
 
-&mdash; [**Arima Teppei**](https://myanimelist.net/character.php?q=Arima%20Teppei&cat=character), [**Princess Lover!**](https://myanimelist.net/search/all?q=Princess%20Lover!&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
