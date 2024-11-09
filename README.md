@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe everything you wish for won't become stars, but if you have a dream to believe in, they'll be thousands of the most glittering jewels in the night sky."
+> "People aren't complicated. We work hard when we know that we'll get something in return, and we try to work even harder if that something is our own improvement."
 
-&mdash; [**Ichinose Hayato**](https://myanimelist.net/character.php?q=Ichinose%20Hayato&cat=character), [**Uta no Prince-sama**](https://myanimelist.net/search/all?q=Uta%20no%20Prince-sama&cat=all)
+&mdash; [**Kumiko Oumae**](https://myanimelist.net/character.php?q=Kumiko%20Oumae&cat=character), [**Hibike! Euphonium**](https://myanimelist.net/search/all?q=Hibike!%20Euphonium&cat=all)
