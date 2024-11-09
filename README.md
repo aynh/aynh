@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate, hate, hate everyone."
+> "If you get all worked up yourself, you’ll always get someone who’ll rebel. Being too eager brings negative results."
 
-&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Sagara Misae**](https://myanimelist.net/character.php?q=Sagara%20Misae&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
