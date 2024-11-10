@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Studying is important, but I think love is too. It's the last summer of high school. It's a precious time that won't come again."
+> "True kindness isn't something we're born with. It's something we had to work on... (to Tohru)"
 
-&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
