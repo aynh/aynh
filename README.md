@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what may happen... As long as you walk by my side... There shall be no enemy that can stand before us."
+> "Women tend to kill when it's not necessary. They kill for reasons of passion. For trivial reasons like love and hate."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Lieutenant Colonel Yuuki**](https://myanimelist.net/character.php?q=Lieutenant%20Colonel%20Yuuki&cat=character), [**Joker Game**](https://myanimelist.net/search/all?q=Joker%20Game&cat=all)
