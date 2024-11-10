@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm the one who selfishly decides who's my friend and who's not."
+> "You can't pick up water once it's spilled, so handle it carefully."
 
-&mdash; [**Yuyuka Nekota**](https://myanimelist.net/character.php?q=Yuyuka%20Nekota&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
