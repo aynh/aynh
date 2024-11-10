@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No, it can't be 7, say 8 damn it! 8 is better! It's physically impossible to cut the number 7 in half and make it symmetrical! It has to be 8 instead! 8 cut vertically or horizontally stays perfectly symmetrical! Take it back I beg of you! Please say 8, PLEASE!"
+> "Justice? Truth? More than anything else existing in this world, those things are a burden! The things that are needed are 'acting' to deceive people and 'power' to control others."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Natsu Tanimoto**](https://myanimelist.net/character.php?q=Natsu%20Tanimoto&cat=character), [**KenIchi the Mightiest Disciple**](https://myanimelist.net/search/all?q=KenIchi%20the%20Mightiest%20Disciple&cat=all)
