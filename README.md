@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Women tend to kill when it's not necessary. They kill for reasons of passion. For trivial reasons like love and hate."
+> "Happiness depends on each person. If you think you're happy, then you must be happy."
 
-&mdash; [**Lieutenant Colonel Yuuki**](https://myanimelist.net/character.php?q=Lieutenant%20Colonel%20Yuuki&cat=character), [**Joker Game**](https://myanimelist.net/search/all?q=Joker%20Game&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
