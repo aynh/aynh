@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's a bad habit of mine. When I concentrate on one thing, I forget other important things."
+> "I just really don't wanna meet a disappointing end, with someone burning my bones without even knowing who they belonged to."
 
-&mdash; [**Tsukushi Makino**](https://myanimelist.net/character.php?q=Tsukushi%20Makino&cat=character), [**Hana Yori Dango**](https://myanimelist.net/search/all?q=Hana%20Yori%20Dango&cat=all)
+&mdash; [**Jean Kirstein**](https://myanimelist.net/character.php?q=Jean%20Kirstein&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
