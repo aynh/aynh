@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I said she's not an Angel. She's a human, just like us. Didn't you notice?"
+> "Studying is important, but I think love is too. It's the last summer of high school. It's a precious time that won't come again."
 
-&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
