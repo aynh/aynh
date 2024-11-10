@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Happiness depends on each person. If you think you're happy, then you must be happy."
+> "I said she's not an Angel. She's a human, just like us. Didn't you notice?"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
