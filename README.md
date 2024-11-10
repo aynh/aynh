@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "An angel? So Whis is an angel? But he’s got no wings, and his butt’s not hanging out."
+> "If training hard can make you number one, then how many number one do you think this world will have!?"
 
-&mdash; [**Goku**](https://myanimelist.net/character.php?q=Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Kazuma Mikura**](https://myanimelist.net/character.php?q=Kazuma%20Mikura&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
