@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no reason to pretend to be cool. Let’s show our lame sides. That’s who we really are, after all."
+> "An angel? So Whis is an angel? But he’s got no wings, and his butt’s not hanging out."
 
-&mdash; [**Hidenori Tabata**](https://myanimelist.net/character.php?q=Hidenori%20Tabata&cat=character), [**Danshi Koukousei no Nichijou**](https://myanimelist.net/search/all?q=Danshi%20Koukousei%20no%20Nichijou&cat=all)
+&mdash; [**Goku**](https://myanimelist.net/character.php?q=Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
