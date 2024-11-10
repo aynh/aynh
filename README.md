@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even If evil makes you lose your way, you stay your ground and keep searching for the path of good. Is that search now what justice is? It is for that reason that gods gave mortals knowledge."
+> "Abandon your fear. Look forward. Move forward and never stop. You'll age if you pull back. You'll die if you hesitate."
 
-&mdash; [**Gowasu**](https://myanimelist.net/character.php?q=Gowasu&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Zangetsu**](https://myanimelist.net/character.php?q=Zangetsu&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
