@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't pick up water once it's spilled, so handle it carefully."
+> "No matter what may happen... As long as you walk by my side... There shall be no enemy that can stand before us."
 
-&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
