@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Some things can't be prevented. The last of which, is death. All we can do is live until the day we die. Control what we can... and fly free!"
+> "I'm the one who selfishly decides who's my friend and who's not."
 
-&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Yuyuka Nekota**](https://myanimelist.net/character.php?q=Yuyuka%20Nekota&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
