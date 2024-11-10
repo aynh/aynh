@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one knows what the right decision, to make in life, is, and that is not why I made this choice."
+> "It's a bad habit of mine. When I concentrate on one thing, I forget other important things."
 
-&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Tsukushi Makino**](https://myanimelist.net/character.php?q=Tsukushi%20Makino&cat=character), [**Hana Yori Dango**](https://myanimelist.net/search/all?q=Hana%20Yori%20Dango&cat=all)
