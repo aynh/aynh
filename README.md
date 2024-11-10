@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Real love... if such a thing existed, would not be something as stupid as a woman's looks or the size of her bust."
+> "Songs are great. They reach people no matter how far they are. Even to people dear to you, who are no longer here."
 
-&mdash; [**Ludwig Kakumei**](https://myanimelist.net/character.php?q=Ludwig%20Kakumei&cat=character), [**Ludwig Kakumei**](https://myanimelist.net/search/all?q=Ludwig%20Kakumei&cat=all)
+&mdash; [**Kamisama No Memochou**](https://myanimelist.net/character.php?q=Kamisama%20No%20Memochou&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
