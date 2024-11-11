@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no such thing as no such thing."
+> "If you don't get accepted by anyone, does that mean there's no significance for you to live on?"
 
-&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
