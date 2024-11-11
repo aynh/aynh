@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Y-you actually used your head??? You're going to get a fever!"
+> "It doesn’t matter how much we see each other, but how much we think of each other."
 
-&mdash; [**Tobio Kageyama**](https://myanimelist.net/character.php?q=Tobio%20Kageyama&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**Kingdom Hearts**](https://myanimelist.net/search/all?q=Kingdom%20Hearts&cat=all)
