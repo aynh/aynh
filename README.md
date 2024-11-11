@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A thief is a creative artist who takes his prey in style... But a detective is nothing more than a critic, who follows our footsteps."
+> "When you live, your life will end sooner or later. The body will return to the earth. Grass and flowers will grow on top of it. The soul will nourish the hearts... and it will live on in the hearts of other people. Everything in this world flows around and circulates. That goes for human lives too."
 
-&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Izumi Curtis**](https://myanimelist.net/character.php?q=Izumi%20Curtis&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
