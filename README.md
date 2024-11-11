@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But hating something you love is a painful feeling."
+> "Now it’s not just your heart, but also your breathing, your brain, your nervous system, and everything else… See, the human body is in some way always moving from the time they were in their mother’s womb until the last moments of their life. Even when someone is asleep, fainted, or unconscious, their body never stops. In other words, the concept of stopping is precisely how humans are able to perceive death."
 
-&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Crow**](https://myanimelist.net/character.php?q=Crow&cat=character), [**Sugar Dark**](https://myanimelist.net/search/all?q=Sugar%20Dark&cat=all)
