@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't get accepted by anyone, does that mean there's no significance for you to live on?"
+> "To become Hokage is my dream!"
 
-&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
