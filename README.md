@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We didn't even know each other then. And now, I can't imagine my life without you in it. You're the most loyal, brave and selfless person I've ever known."
+> "The city is changing. Our surroundings, and even ourselves. And then one day, just about everything will change…"
 
-&mdash; [**Mako**](https://myanimelist.net/character.php?q=Mako&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
+&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
