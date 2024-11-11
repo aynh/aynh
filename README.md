@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If training hard can make you number one, then how many number one do you think this world will have!?"
+> "Hope and passion slip through your fingers like sand."
 
-&mdash; [**Kazuma Mikura**](https://myanimelist.net/character.php?q=Kazuma%20Mikura&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Takada**](https://myanimelist.net/character.php?q=Takada&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
