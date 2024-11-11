@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe that people have the individual right to decide how they want to live. So whether you just listen to what others say, or get stuck a lot of times...and cause trouble to others, it ultimately comes back to yourself."
+> "If I have the power to make a difference, I should put it to good use."
 
-&mdash; [**Shirasagi Yuki**](https://myanimelist.net/character.php?q=Shirasagi%20Yuki&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
+&mdash; [**Kira Yamato**](https://myanimelist.net/character.php?q=Kira%20Yamato&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
