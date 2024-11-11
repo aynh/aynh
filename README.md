@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To become Hokage is my dream!"
+> "We didn't even know each other then. And now, I can't imagine my life without you in it. You're the most loyal, brave and selfless person I've ever known."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Mako**](https://myanimelist.net/character.php?q=Mako&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
