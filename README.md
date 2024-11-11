@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn’t matter how much we see each other, but how much we think of each other."
+> "A thief is a creative artist who takes his prey in style... But a detective is nothing more than a critic, who follows our footsteps."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**Kingdom Hearts**](https://myanimelist.net/search/all?q=Kingdom%20Hearts&cat=all)
+&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
