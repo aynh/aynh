@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Defying me till the very end, huh? But I'll forgive you. Some things are beautiful exactly because they are unobtainable."
+> "Well, there's this one hopeless idiot... who'll probably end up crying if I see you again."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Atsushi Otani**](https://myanimelist.net/character.php?q=Atsushi%20Otani&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
