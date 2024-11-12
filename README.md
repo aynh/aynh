@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no need to rush. Sometimes even pointless conversations can teach you a thing or two."
+> "Fail to strike the enemy once you know their location, and it'll be too late to even regret having missed the chance."
 
-&mdash; [**Ryou Haruna**](https://myanimelist.net/character.php?q=Ryou%20Haruna&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
