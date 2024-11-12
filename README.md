@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is more afraid of change than destruction."
+> "Defying me till the very end, huh? But I'll forgive you. Some things are beautiful exactly because they are unobtainable."
 
-&mdash; [**Akari Koumoto**](https://myanimelist.net/character.php?q=Akari%20Koumoto&cat=character), [**Jitsu wa Watashi wa**](https://myanimelist.net/search/all?q=Jitsu%20wa%20Watashi%20wa&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
