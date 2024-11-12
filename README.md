@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hmm... you can go anywhere you want? Cuz' I'll go... anywhere with you, y'know. (To Kureno)"
+> "There were sad days, and painful ones and there may be more. Even so they're treasured days that I'll never forget."
 
-&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
