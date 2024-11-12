@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'd been wondering all this time, whether there's any meaning to a failed love. Is it something that will disappear, the same as something that never existed. Now I know, there is meaning...there was a meaning...right here."
+> "[referring to Tohru] If anyone can find a way to choke on rice, it's her."
 
-&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
