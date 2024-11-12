@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Or, as they say in the Fire Nation, 'stay flamin'!'"
+> "There's no need to rush. Sometimes even pointless conversations can teach you a thing or two."
 
-&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Ryou Haruna**](https://myanimelist.net/character.php?q=Ryou%20Haruna&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
