@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There were sad days, and painful ones and there may be more. Even so they're treasured days that I'll never forget."
+> "Doctor Tenma, for you all lives are created equal, that's why I came back to life. But you've finally come to realize it now, haven't you? Only one thing is equal for all, and that is death."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
