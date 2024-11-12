@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The ones who suffer from the loss of the game, become stronger. They will challenge us by throwing away everything like their pride and past glories."
+> "How can you work so hard? There might be something really bad waiting for you ahead. How can you still make yourself move on despite that? The older we get...the number of annoying and troublesome things we have to face only increases- and wonderful things stop happening. In the days ahead of us... we have to bear each painful thing one at a time, conquering them...overcoming them...the power to do that just doesn't spring out of me. The power to move ahead."
 
-&mdash; [**Tezuka Kunimitsu**](https://myanimelist.net/character.php?q=Tezuka%20Kunimitsu&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Kai**](https://myanimelist.net/character.php?q=Kai&cat=character), [**Suicide Island**](https://myanimelist.net/search/all?q=Suicide%20Island&cat=all)
