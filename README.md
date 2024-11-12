@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How can you work so hard? There might be something really bad waiting for you ahead. How can you still make yourself move on despite that? The older we get...the number of annoying and troublesome things we have to face only increases- and wonderful things stop happening. In the days ahead of us... we have to bear each painful thing one at a time, conquering them...overcoming them...the power to do that just doesn't spring out of me. The power to move ahead."
+> "Just give up already. Or do you want my other knife to slice your throat?"
 
-&mdash; [**Kai**](https://myanimelist.net/character.php?q=Kai&cat=character), [**Suicide Island**](https://myanimelist.net/search/all?q=Suicide%20Island&cat=all)
+&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
