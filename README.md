@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fear. That is what we live with. And we live it everyday. Only in death are we free of it."
+> "Gin-san, aren't you gonna make fun of me? Are you just gonna ignore me?!"
 
-&mdash; [**Neji Hyuuga**](https://myanimelist.net/character.php?q=Neji%20Hyuuga&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sarutobi Ayame**](https://myanimelist.net/character.php?q=Sarutobi%20Ayame&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
