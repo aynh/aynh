@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*talking about King Bumi* This isn't about finding a teacher. This is about finding my friend."
+> "It works better if you don't try as hard, just like in real life."
 
-&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Nagisa Hazuki**](https://myanimelist.net/character.php?q=Nagisa%20Hazuki&cat=character), [**Free!**](https://myanimelist.net/search/all?q=Free!&cat=all)
