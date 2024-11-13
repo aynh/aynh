@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You may be unfortunate, but that doesn't mean you have to suffer. You may not be blessed, but that doesn't mean you have to throw a fit over it. Even if bad things happen to you, just be strong!"
+> "There's nothing that's entirely black or white."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Yoki**](https://myanimelist.net/character.php?q=Yoki&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
