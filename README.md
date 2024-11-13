@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are defeated yet you will not step back, why not?"
+> "You asked me if I was ready to carry on. In all honesty, I am not sure of myself. But there is something that must be done now. And I will do it."
 
-&mdash; [**Dracule Mihawk**](https://myanimelist.net/character.php?q=Dracule%20Mihawk&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Bishamonten**](https://myanimelist.net/character.php?q=Bishamonten&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
