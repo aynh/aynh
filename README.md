@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's nothing that's entirely black or white."
+> "To enjoy an ordinary life, you must constantly evolve."
 
-&mdash; [**Yoki**](https://myanimelist.net/character.php?q=Yoki&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!×2**](https://myanimelist.net/search/all?q=Durarara!!%C3%972&cat=all)
