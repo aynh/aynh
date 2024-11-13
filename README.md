@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think being able to openly take away the most important thing people have... 'life'... is the best thing that ever happened!"
+> "You may be unfortunate, but that doesn't mean you have to suffer. You may not be blessed, but that doesn't mean you have to throw a fit over it. Even if bad things happen to you, just be strong!"
 
-&mdash; [**Luciano Bradley**](https://myanimelist.net/character.php?q=Luciano%20Bradley&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
