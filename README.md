@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's ineffective to deal with many problems at once."
+> "It's quite easy for humans to become adults, but to always have a child-like heart that makes everything joyful isn't such an easy task."
 
-&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Hattori Zenzou**](https://myanimelist.net/character.php?q=Hattori%20Zenzou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
