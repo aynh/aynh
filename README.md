@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's quite easy for humans to become adults, but to always have a child-like heart that makes everything joyful isn't such an easy task."
+> "Fear. That is what we live with. And we live it everyday. Only in death are we free of it."
 
-&mdash; [**Hattori Zenzou**](https://myanimelist.net/character.php?q=Hattori%20Zenzou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Neji Hyuuga**](https://myanimelist.net/character.php?q=Neji%20Hyuuga&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
