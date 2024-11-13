@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Laws aren't perfect, because humans who created laws aren't perfect. It's impossible to be perfect. However, the laws are evidence of the human's struggle to be righteous."
+> "People...At least, all children are born into a world that seems unreasonable and crazy to them. No one is asked at birth if they agree to come into the world. Everyone is born that way."
 
-&mdash; [**Soichiro Yagami**](https://myanimelist.net/character.php?q=Soichiro%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Nyanta**](https://myanimelist.net/character.php?q=Nyanta&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
