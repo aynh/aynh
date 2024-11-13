@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To enjoy an ordinary life, you must constantly evolve."
+> "What defines humans... Defines us? Nobody will notice a change on the inside if you look the same on the outside."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!×2**](https://myanimelist.net/search/all?q=Durarara!!%C3%972&cat=all)
+&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
