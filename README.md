@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bonds that are too strong create flaws over time."
+> "Don't you think forcing people to help with something pointless is far more cruel?"
 
-&mdash; [**Road Kamelot**](https://myanimelist.net/character.php?q=Road%20Kamelot&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Fukase**](https://myanimelist.net/character.php?q=Fukase&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
