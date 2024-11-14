@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you wanna talk to me, do it while I cut you to pieces. But, I'm not gonna hold back one bit! Bankai!"
+> "What took a very long time to build up takes mere moments to destroy. But you can always start over. Next time around, you'll do a better job."
 
-&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kenji Makabe**](https://myanimelist.net/character.php?q=Kenji%20Makabe&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
