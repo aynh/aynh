@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tedium is such a crime. It takes the limited amount of time that is given to man, and rather than spending it in indolence or drowning it in pleasure it just sits there sucking, eating it up. I can't put up with that, tedium is a crime! Death to tedium! Die!"
+> "Relying on someone else without exerting any effort of your own is just not right. Because the one you rely on most, can disappear, at any time."
 
-&mdash; [**Graham Specter**](https://myanimelist.net/character.php?q=Graham%20Specter&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Jodie Starling**](https://myanimelist.net/character.php?q=Jodie%20Starling&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
