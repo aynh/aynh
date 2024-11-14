@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing good comes from digging up the past."
+> "There is nothing shameful about running away. Some things are just out of people's hands. If you think you're gonna die, just run."
 
-&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Broken Blade**](https://myanimelist.net/character.php?q=Broken%20Blade&cat=character), [**Broken Blade**](https://myanimelist.net/search/all?q=Broken%20Blade&cat=all)
