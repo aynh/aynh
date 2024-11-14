@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Goodbyes aren't a one-sided affair!"
+> "This is the end of my dream. My wings forgot how to fly, since I only kept pretending to flap them. Is there a meaning to wings that can't fly?"
 
-&mdash; [**Tetsudō Hisakawa**](https://myanimelist.net/character.php?q=Tetsud%C5%8D%20Hisakawa&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
+&mdash; [**Misuzu Kamio**](https://myanimelist.net/character.php?q=Misuzu%20Kamio&cat=character), [**Air**](https://myanimelist.net/search/all?q=Air&cat=all)
