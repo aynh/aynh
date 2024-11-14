@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I'm away from you, even though I can't be around crowds, I want to go see you."
+> "Goodbyes aren't a one-sided affair!"
 
-&mdash; [**Gin**](https://myanimelist.net/character.php?q=Gin&cat=character), [**Hotarubi no Mori e**](https://myanimelist.net/search/all?q=Hotarubi%20no%20Mori%20e&cat=all)
+&mdash; [**Tetsudō Hisakawa**](https://myanimelist.net/character.php?q=Tetsud%C5%8D%20Hisakawa&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
