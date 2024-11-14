@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A pistol’s job is what its handler chooses. If I don’t wanna shoot, then I won’t."
+> "*to Hige* Coming from you, that sounds kind of fishy."
 
-&mdash; [**Saya Minatsuki**](https://myanimelist.net/character.php?q=Saya%20Minatsuki&cat=character), [**Black Cat**](https://myanimelist.net/search/all?q=Black%20Cat&cat=all)
+&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
