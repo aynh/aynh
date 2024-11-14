@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Having happy and beautiful memories won't always bring you salvation. The more beautiful a memory is, the more painful it can become. It can even become terrifying. Both for the one who's leaving... And for the one left behind."
+> "That's right, I am Kira. And what can you do? Kill me right here?"
 
-&mdash; [**Isla**](https://myanimelist.net/character.php?q=Isla&cat=character), [**Plastic Memories**](https://myanimelist.net/search/all?q=Plastic%20Memories&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
