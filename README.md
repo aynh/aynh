@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Relying on someone else without exerting any effort of your own is just not right. Because the one you rely on most, can disappear, at any time."
+> "You came into my life as a story, you left as a legend."
 
-&mdash; [**Jodie Starling**](https://myanimelist.net/character.php?q=Jodie%20Starling&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Reborn**](https://myanimelist.net/character.php?q=Reborn&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
