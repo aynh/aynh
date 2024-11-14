@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What took a very long time to build up takes mere moments to destroy. But you can always start over. Next time around, you'll do a better job."
+> "Tedium is such a crime. It takes the limited amount of time that is given to man, and rather than spending it in indolence or drowning it in pleasure it just sits there sucking, eating it up. I can't put up with that, tedium is a crime! Death to tedium! Die!"
 
-&mdash; [**Kenji Makabe**](https://myanimelist.net/character.php?q=Kenji%20Makabe&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Graham Specter**](https://myanimelist.net/character.php?q=Graham%20Specter&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
