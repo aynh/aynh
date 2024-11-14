@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is the resulting amperage when applying 3.0V to a conductor with 20ohm resistance?"
+> "Be Yourself because an Original is worth more than a Copy"
 
-&mdash; [**Yuzuru Otonashi**](https://myanimelist.net/character.php?q=Yuzuru%20Otonashi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
