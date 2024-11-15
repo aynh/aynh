@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Rules exist to make the game more interesting. You, who don't know basic things like that, have no right to create the systems people play by."
+> "No choice, then. Before you become intoxicated by your own power, I shall show you a decisive power gap that you could not overcome in a millennium of struggle."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
