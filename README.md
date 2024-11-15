@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death is a privilege of the living. A destiny without reason, continually roving on, evermore. How fleeting a thing it is. One cannot live and forget about death. The despair that is me, forgotten by death, can at least embrace my yearning at twilight, and sleep."
+> "Destiny isn't something to make you as you're told. By overcoming difficulties, life and this whole world can advance forward. That's what destiny is for. A world that has lost the power to advance forward, will be destroyed."
 
-&mdash; [**William Macbeth**](https://myanimelist.net/character.php?q=William%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Aladdin**](https://myanimelist.net/character.php?q=Aladdin&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
