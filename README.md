@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You never thought to kill, or fight for revenge. Only to test your limits, and to push yourself beyond them, to become the strongest you could possibly be. How can a Saiyan fight like that, and at the same time be so gentle that he wouldn't hurt a fly? It makes me angry just thinking about it. But perhaps it is my anger that has made me blind to the truth for so long. I see it now. This day has made it all too clear. You're better than me, Kakarot. You are the best..."
+> "The Present is ending. Here, countless versions of our past selves are always crying, laughing, falling in love, getting hurt, joking around, feeling happy and suffering. These feelings are born all the time and in the next moment, they became the past and die. It's over now. This is the end, but the truth is everyone's time is like that. Right after it's born, every moment becomes the past and dies."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
