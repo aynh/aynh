@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't feel anything for me, just leave me alone. I don't want your tepid kindness."
+> "All problems come from the human mind. In the mind, one's consciousness is just the tip of the iceberg. What lies beneath the surface... the subconscious... is far more vast."
 
-&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Shun Aonuma**](https://myanimelist.net/character.php?q=Shun%20Aonuma&cat=character), [**Shinsekai Yori**](https://myanimelist.net/search/all?q=Shinsekai%20Yori&cat=all)
