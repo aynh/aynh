@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is man's heart which sets the world aflame."
+> "Death is a privilege of the living. A destiny without reason, continually roving on, evermore. How fleeting a thing it is. One cannot live and forget about death. The despair that is me, forgotten by death, can at least embrace my yearning at twilight, and sleep."
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**William Macbeth**](https://myanimelist.net/character.php?q=William%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
