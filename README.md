@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "By depending on others and letting them depend on you, people can exceed what they can do as individuals."
+> "You trusted me, so I'll trust you too. That's what being friends means, doesn't it?"
 
-&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
