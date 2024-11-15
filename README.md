@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well I do have abilities you haven't yet been given, just like not everyones has the strengths you do."
+> "In the long flow of time, living things know nothing of their ancestors, except for the genes they’ve inherited. Only mankind has history. Having a history differentiates mankind from all other living species. That’s why I wanted to be a historian."
 
-&mdash; [**Asano Gakuho**](https://myanimelist.net/character.php?q=Asano%20Gakuho&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
