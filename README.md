@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A heaven that only watches has no meaning."
+> "Well I do have abilities you haven't yet been given, just like not everyones has the strengths you do."
 
-&mdash; [**Su-won**](https://myanimelist.net/character.php?q=Su-won&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Asano Gakuho**](https://myanimelist.net/character.php?q=Asano%20Gakuho&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
