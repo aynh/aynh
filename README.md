@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All problems come from the human mind. In the mind, one's consciousness is just the tip of the iceberg. What lies beneath the surface... the subconscious... is far more vast."
+> "All right! Team Avatar is back! Air, water, earth, fire- (grabs a bunch of leaves) fan, and sword! (his leaf limps)"
 
-&mdash; [**Shun Aonuma**](https://myanimelist.net/character.php?q=Shun%20Aonuma&cat=character), [**Shinsekai Yori**](https://myanimelist.net/search/all?q=Shinsekai%20Yori&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
