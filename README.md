@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Destiny isn't something to make you as you're told. By overcoming difficulties, life and this whole world can advance forward. That's what destiny is for. A world that has lost the power to advance forward, will be destroyed."
+> "From the moment a magus is born, he is someone that has 'power'. And some day, he will achieve a 'greater power'. This responsibility was already flowing in his 'blood' before he realized this destiny. That is what it means to be born into this world as the child of a magus."
 
-&mdash; [**Aladdin**](https://myanimelist.net/character.php?q=Aladdin&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
+&mdash; [**Tohsaka Tokiomi**](https://myanimelist.net/character.php?q=Tohsaka%20Tokiomi&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
