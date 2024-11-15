@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The Present is ending. Here, countless versions of our past selves are always crying, laughing, falling in love, getting hurt, joking around, feeling happy and suffering. These feelings are born all the time and in the next moment, they became the past and die. It's over now. This is the end, but the truth is everyone's time is like that. Right after it's born, every moment becomes the past and dies."
+> "Listen up! Youth doesn't last all that long! These precious three years of your youth will zip by and you'll be left with nothing but regrets if you spend them running away in delusions and fantasies, so you have to make it clear whether you like someone or not!"
 
-&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Akira Fujieda**](https://myanimelist.net/character.php?q=Akira%20Fujieda&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
