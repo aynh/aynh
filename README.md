@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All right! Team Avatar is back! Air, water, earth, fire- (grabs a bunch of leaves) fan, and sword! (his leaf limps)"
+> "It is man's heart which sets the world aflame."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
