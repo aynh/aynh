@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What you see isn't necessarily reality. Everyone has secrets, things they feel that they can't tell anyone. There's no such thing as a normal person."
+> "Sincerity with respect to yourself! No matter what your objective... no matter who you are... if you are going to do something or not do something, that is a promise to yourself. And the one who keeps the promise, or breaks the promise, is you. No one else can be burdened with holding you to a promise that's made to yourself."
 
-&mdash; [**Celty Sturluson**](https://myanimelist.net/character.php?q=Celty%20Sturluson&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
