@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't want to be betrayed anymore, then start by doubting the person you want to doubt the least."
+> "No matter the era, whichever the society, people always gaze at the stars when young. Then they stretch out their hands and try to catch them. And then one day, they realize their arms are not long enough to catch the stars, and that's when they grow up."
 
-&mdash; [**Inspector Lunge**](https://myanimelist.net/character.php?q=Inspector%20Lunge&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Reinhard von Lohengramm**](https://myanimelist.net/character.php?q=Reinhard%20von%20Lohengramm&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
