@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You trusted me, so I'll trust you too. That's what being friends means, doesn't it?"
+> "You STILL don't get it? When you tossed all of that away, a few important things were discarded as well. You abandoned your friends? More like you were afraid of BEING abandoned. You fight by yourself? More like you hid yourself in solitude from the beginning. You abandoned yourself? No... You just couldn't bear the pain of having a heavy load place upon you, or being a heavy load, so you ran. Like the coward you are. If you want to live your life abandoning one thing after another, that's your choice. But to try to incite your student to join you because you can't handle being alone, makes you a fool."
 
-&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
