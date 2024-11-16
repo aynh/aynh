@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Cut off a wolf's head and it still has the power to bite."
+> "Why not just try hard again? Quit mopping around. Stop lying to yourself and try once more."
 
-&mdash; [**Lady Eboshi**](https://myanimelist.net/character.php?q=Lady%20Eboshi&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Kagaku no Railgun**](https://myanimelist.net/search/all?q=Toaru%20Kagaku%20no%20Railgun&cat=all)
