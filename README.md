@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sincerity with respect to yourself! No matter what your objective... no matter who you are... if you are going to do something or not do something, that is a promise to yourself. And the one who keeps the promise, or breaks the promise, is you. No one else can be burdened with holding you to a promise that's made to yourself."
+> "Don't put me on their level. I don't care about looking interesting. I'm just self-conscious."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
