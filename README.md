@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I should use a cheerful joke to lighten the mood. Would you like a snack? Or, maybe I should snack on you instead?"
+> "I might be the ugly duckling of the group, but I'll make sure that I'll protect all of you with all my might."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Zeno**](https://myanimelist.net/character.php?q=Zeno&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
