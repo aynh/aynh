@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I'm getting in trouble no matter what I do, I may as well make a grand frontal assault and fight to my last breath."
+> "Remember this. The only words that can keep you alive are 'I want to live.'"
 
-&mdash; [**Yuuko Aioi**](https://myanimelist.net/character.php?q=Yuuko%20Aioi&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
+&mdash; [**Hampnie Hambart**](https://myanimelist.net/character.php?q=Hampnie%20Hambart&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
