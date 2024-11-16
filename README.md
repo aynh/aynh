@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I might be the ugly duckling of the group, but I'll make sure that I'll protect all of you with all my might."
+> "Reaper Combat Art: Mortal Sin Stance."
 
-&mdash; [**Zeno**](https://myanimelist.net/character.php?q=Zeno&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
