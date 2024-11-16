@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A woman must always move with grace, whether you're wiping a table or drying sheets. Or in the fight for your life."
+> "Food tastes best when you don't have to work for it."
 
-&mdash; [**Ooe Kanade**](https://myanimelist.net/character.php?q=Ooe%20Kanade&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
