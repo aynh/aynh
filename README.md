@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Shinpachi* When your friend is crying, cry with him. When your friend is worried, you should worry with him. And when your friend has an awkward bowel movement, then you must have an awkward bowel movement too, Shin-chan. If you are a friend, you should be able to share the other's pain, no matter what. And Shin-chan, if your friend goes down the wrong path... Then, you must stop your friend, even if it ruins your friendship. That is true samurai friendship."
+> "You know, when I was in high school, I was a troublemaker. I hardly went to school. Before I knew it, I was expelled. When I couldn't go anymore, was when I first realized, that school was a great thing. There's a lot of friends and lots of fun things. When I got this old, I wanted even more to go to school. That's why I became a teacher. Because, if I become a teacher, I could stay in school until I die, right? That's why I'm really happy now. I want you to be like that too. I want you to like school. Once it's over, it's too late."
 
-&mdash; [**Shimura Tae**](https://myanimelist.net/character.php?q=Shimura%20Tae&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Eikichi Onizuka**](https://myanimelist.net/character.php?q=Eikichi%20Onizuka&cat=character), [**Great Teacher Onizuka**](https://myanimelist.net/search/all?q=Great%20Teacher%20Onizuka&cat=all)
