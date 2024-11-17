@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, I'd better get back to my seat. The unmarried woman with her unmarried face is about to come to start the unmarried homeroom."
+> "Fear is what creates order."
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
