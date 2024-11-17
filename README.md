@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is the second time today I hold your life in my hands. I somehow doubt that Sensui will be more merciful than I am."
+> "[to Kyo after they trip] What can I learn from a stupid cat like you? You didn't even know that Jason isn't really a bear! He's a character from a horror film!"
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
