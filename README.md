@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes life is like jazz, and goes in an unexpected direction..."
+> "A gatekeeper ain't supposed to open gates."
 
-&mdash; [**Kaoru Nishimi**](https://myanimelist.net/character.php?q=Kaoru%20Nishimi&cat=character), [**Kids on the Slope**](https://myanimelist.net/search/all?q=Kids%20on%20the%20Slope&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
