@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Kyo after they trip] What can I learn from a stupid cat like you? You didn't even know that Jason isn't really a bear! He's a character from a horror film!"
+> "What takes reason a hundred years to build a bridge to only takes the wings of faith a single night to reach."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
