@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't just think about the ones you have lost. You can't get back what you have lost. What is it that you still have ?"
+> "Evil is when you use the weak for your own gain and crush them under your foot."
 
-&mdash; [**Jinbei**](https://myanimelist.net/character.php?q=Jinbei&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Jotaro Kujo**](https://myanimelist.net/character.php?q=Jotaro%20Kujo&cat=character), [**JoJo's Bizarre Adventure: Stardust Crusaders**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Stardust%20Crusaders&cat=all)
