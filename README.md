@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What takes reason a hundred years to build a bridge to only takes the wings of faith a single night to reach."
+> "Well, I'd better get back to my seat. The unmarried woman with her unmarried face is about to come to start the unmarried homeroom."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
