@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A world where power is everything. A world where the weak are trampled on and crushed. That’s why I… prayed to get stronger. To be strong like him."
+> "Don't just think about the ones you have lost. You can't get back what you have lost. What is it that you still have ?"
 
-&mdash; [**Hidetora Toujo**](https://myanimelist.net/character.php?q=Hidetora%20Toujo&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
+&mdash; [**Jinbei**](https://myanimelist.net/character.php?q=Jinbei&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
