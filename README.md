@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fear is what creates order."
+> "Transfer students, no mater what world or time they're in - exist to be stared at."
 
-&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ohtorizawa Akatsuki**](https://myanimelist.net/character.php?q=Ohtorizawa%20Akatsuki&cat=character), [**Hagure Yuusha No Estetica**](https://myanimelist.net/search/all?q=Hagure%20Yuusha%20No%20Estetica&cat=all)
