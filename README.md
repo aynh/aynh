@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Transfer students, no mater what world or time they're in - exist to be stared at."
+> "Sometimes life is like jazz, and goes in an unexpected direction..."
 
-&mdash; [**Ohtorizawa Akatsuki**](https://myanimelist.net/character.php?q=Ohtorizawa%20Akatsuki&cat=character), [**Hagure Yuusha No Estetica**](https://myanimelist.net/search/all?q=Hagure%20Yuusha%20No%20Estetica&cat=all)
+&mdash; [**Kaoru Nishimi**](https://myanimelist.net/character.php?q=Kaoru%20Nishimi&cat=character), [**Kids on the Slope**](https://myanimelist.net/search/all?q=Kids%20on%20the%20Slope&cat=all)
