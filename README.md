@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Good and bad are human concepts, so something that is not human cannot be classified as neither good nor bad."
+> "I want to make his dreams come true..."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
