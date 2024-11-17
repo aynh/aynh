@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "While you're alive, you need a reason for your existence. Being unable to find one is the same as being dead."
+> "Whatever you do, enjoy it to the fullest. That is the secret of life."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
