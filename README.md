@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're happy enough, so don't take away the happiness of others. You should share it."
+> "This whole world is nothing but lies, lies! Lemme show you what I like to call the truth, the truth called despair!"
 
-&mdash; [**Simon Brezhnev**](https://myanimelist.net/character.php?q=Simon%20Brezhnev&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Hazama**](https://myanimelist.net/character.php?q=Hazama&cat=character), [**BlazBlue: Alter Memory**](https://myanimelist.net/search/all?q=BlazBlue%3A%20Alter%20Memory&cat=all)
