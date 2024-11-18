@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hahahahahahahah! Now we'll see who has the last quack!"
+> "Whatever you do or don't do, you're the one who always makes the decision."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Masafumi Takeuchi**](https://myanimelist.net/character.php?q=Masafumi%20Takeuchi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
