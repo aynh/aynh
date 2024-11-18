@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you like, you can stay over here tonight. If you're lucky, you may see some cannibalism and that's always fun..."
+> "I couldn't confess my feelings for you, so I watched you from afar, being happy with someone else."
 
-&mdash; [**Uta**](https://myanimelist.net/character.php?q=Uta&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
