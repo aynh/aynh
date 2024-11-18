@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's not love... A heroine's love is supposed to be sincere! If you can immediately move on and find someone new, it isn't love!"
+> "If you like, you can stay over here tonight. If you're lucky, you may see some cannibalism and that's always fun..."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Uta**](https://myanimelist.net/character.php?q=Uta&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
