@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've been around longer than you have, kid. And I've seen my share of troubles. You're not the only one who knows what it's like to lose somebody. It looks like neither of us has led a charming life, have we? Still, it's not that bad. At least you and I have been lucky enough to find new comrades to help fill the void."
+> "To have a name. To remove one layer of the unknown. To be painted in reality. If you have your feet firmly planted to the ground, you may have a chance to pull someone down."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Makoto Niwa**](https://myanimelist.net/character.php?q=Makoto%20Niwa&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
