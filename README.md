@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Damn. My eyes are naturally drawn in her direction. Is this the unibreastal law of gravitation? Leave it to Sir Isaac Newtit."
+> "Hahahahahahahah! Now we'll see who has the last quack!"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
