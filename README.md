@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Victory isn't determined solely by who has the superior physical abilities."
+> "You're all grown up, so you won't feel dirty looking at my body, right?"
 
-&mdash; [**Tsumugu Kinagase**](https://myanimelist.net/character.php?q=Tsumugu%20Kinagase&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
+&mdash; [**Nadeko Sengoku**](https://myanimelist.net/character.php?q=Nadeko%20Sengoku&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
