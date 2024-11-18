@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who aren't doing anything themselves, shouldn't be so quick to tell others what to do!"
+> "Wear the best shoes you can, because those shoes will take you to great places."
 
-&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Todo Shizuka**](https://myanimelist.net/character.php?q=Todo%20Shizuka&cat=character), [**Hana Yori Dango**](https://myanimelist.net/search/all?q=Hana%20Yori%20Dango&cat=all)
