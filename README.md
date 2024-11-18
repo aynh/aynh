@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Wear the best shoes you can, because those shoes will take you to great places."
+> "Peace cannot be kept by force. It can only be achieved by understanding."
 
-&mdash; [**Todo Shizuka**](https://myanimelist.net/character.php?q=Todo%20Shizuka&cat=character), [**Hana Yori Dango**](https://myanimelist.net/search/all?q=Hana%20Yori%20Dango&cat=all)
+&mdash; [**Setsuna F. Seiei**](https://myanimelist.net/character.php?q=Setsuna%20F.%20Seiei&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
