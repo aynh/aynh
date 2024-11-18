@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This may have been a useless time for you... but I really wanted to see you!"
+> "Victory isn't determined solely by who has the superior physical abilities."
 
-&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Tsumugu Kinagase**](https://myanimelist.net/character.php?q=Tsumugu%20Kinagase&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
