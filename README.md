@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I couldn't confess my feelings for you, so I watched you from afar, being happy with someone else."
+> "I never knew that spending an entire day doing nothing could be so terrifying. A plague of what-ifs assaults me, spinning and whirling, even though thinking about them makes no difference."
 
-&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Meiko Inoue**](https://myanimelist.net/character.php?q=Meiko%20Inoue&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
