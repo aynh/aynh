@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whatever you do or don't do, you're the one who always makes the decision."
+> "You're happy enough, so don't take away the happiness of others. You should share it."
 
-&mdash; [**Masafumi Takeuchi**](https://myanimelist.net/character.php?q=Masafumi%20Takeuchi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Simon Brezhnev**](https://myanimelist.net/character.php?q=Simon%20Brezhnev&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
