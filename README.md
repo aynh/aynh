@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*talking about King Bumi* This isn't about finding a teacher. This is about finding my friend."
+> "I've been around longer than you have, kid. And I've seen my share of troubles. You're not the only one who knows what it's like to lose somebody. It looks like neither of us has led a charming life, have we? Still, it's not that bad. At least you and I have been lucky enough to find new comrades to help fill the void."
 
-&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
