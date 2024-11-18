@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never knew that spending an entire day doing nothing could be so terrifying. A plague of what-ifs assaults me, spinning and whirling, even though thinking about them makes no difference."
+> "Damn. My eyes are naturally drawn in her direction. Is this the unibreastal law of gravitation? Leave it to Sir Isaac Newtit."
 
-&mdash; [**Meiko Inoue**](https://myanimelist.net/character.php?q=Meiko%20Inoue&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
