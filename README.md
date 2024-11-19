@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't think I'm cut out for manual labor. I need to get a more creative job, like saving the whales."
+> "Apples taste so much better indoors."
 
-&mdash; [**Tenma Tsukamoto**](https://myanimelist.net/character.php?q=Tenma%20Tsukamoto&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
