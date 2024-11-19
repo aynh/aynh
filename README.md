@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Apples taste so much better indoors."
+> "The weaker person is the more he gets hung up on other people's pain and then he self-destructs"
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
