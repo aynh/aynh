@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not going to protect you by being your shield or armor, but I'll be the dagger hidden below your pillow."
+> "I just told you what I think, now say something DAMMIT!"
 
-&mdash; [**Shuu Tsukiyama**](https://myanimelist.net/character.php?q=Shuu%20Tsukiyama&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
