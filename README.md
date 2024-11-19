@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The weaker person is the more he gets hung up on other people's pain and then he self-destructs"
+> "Showing your back in a battle? You've become a fool Yoruichi!"
 
-&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
