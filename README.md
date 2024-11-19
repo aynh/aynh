@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It won't work. You country-bumpkins will stand out a mile. [Eats food with her hands]"
+> "Nothing interesting ever happens. It's the same everyday."
 
-&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kei Takishima**](https://myanimelist.net/character.php?q=Kei%20Takishima&cat=character), [**Special A**](https://myanimelist.net/search/all?q=Special%20A&cat=all)
