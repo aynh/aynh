@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When people truly get serious about something, all you can do is stay quiet and watch."
+> "Everyone's birthplace and upbringing is different. It's obviously impossible for them to understand each other."
 
-&mdash; [**Ai Kotani**](https://myanimelist.net/character.php?q=Ai%20Kotani&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
