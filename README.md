@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing interesting ever happens. It's the same everyday."
+> "Never once did I say it.  But just as he knew my feelings and couldn't return them. She will probably realize his and probably his heart wouldn't have a chance either? When I think about things like that, my tears won't stop."
 
-&mdash; [**Kei Takishima**](https://myanimelist.net/character.php?q=Kei%20Takishima&cat=character), [**Special A**](https://myanimelist.net/search/all?q=Special%20A&cat=all)
+&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
