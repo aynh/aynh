@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Happiness isn't something you divide in halves."
+> "When people truly get serious about something, all you can do is stay quiet and watch."
 
-&mdash; [**L-elf**](https://myanimelist.net/character.php?q=L-elf&cat=character), [**Kakumeiki Valvrave**](https://myanimelist.net/search/all?q=Kakumeiki%20Valvrave&cat=all)
+&mdash; [**Ai Kotani**](https://myanimelist.net/character.php?q=Ai%20Kotani&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
