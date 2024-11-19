@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Showing your back in a battle? You've become a fool Yoruichi!"
+> "If you're at a loss for words, you don't have to force yourself. That in itself is a form of comfort."
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Shouta Kazehaya**](https://myanimelist.net/character.php?q=Shouta%20Kazehaya&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
