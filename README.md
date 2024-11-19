@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Zuko* You know, father blames uncle for the loss of north pole... and he considers YOU a miserable failure for not finding the avatar."
+> "Is that all your feelings have to offer? Go ahead. Try to wrench open my heart. That's the only way you'll get me."
 
-&mdash; [**Azula**](https://myanimelist.net/character.php?q=Azula&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
