@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Blood calls for blood, while hatred begets hatred, and the energy that comes forth begins to take root in this earth and engraves a crest of blood. They never learn, no matter how many times history is repeated. Humans are foolish, sorrowful creatures."
+> "Love always happens without warning. At that time, the gears of fate will start spinning. Just like the hands of a clock, two people’s hearts will separate and meet again. Eventually, they reunite."
 
-&mdash; [**Lust**](https://myanimelist.net/character.php?q=Lust&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Konjiki No Yami**](https://myanimelist.net/character.php?q=Konjiki%20No%20Yami&cat=character), [**To Love-Ru Darkness**](https://myanimelist.net/search/all?q=To%20Love-Ru%20Darkness&cat=all)
