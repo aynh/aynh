@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How do you know that the person you were one second ago, is the same person that you are right now?"
+> "Sometimes feelings get tangled together with deductions, forming a veil that hides the truth."
 
-&mdash; [**Eri Ochiai**](https://myanimelist.net/character.php?q=Eri%20Ochiai&cat=character), [**Perfect Blue**](https://myanimelist.net/search/all?q=Perfect%20Blue&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
