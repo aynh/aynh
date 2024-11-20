@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not the final judgement of 'good' and 'evil' that's important. What matters is that you come to that decision yourself. That you agonize over it and eventually accept it."
+> "People who can't throw something important away, can never hope to change anything."
 
-&mdash; [**Akane Tsunemori**](https://myanimelist.net/character.php?q=Akane%20Tsunemori&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
