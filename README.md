@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you have two of the exact same person, they could change enormously depending on their upbringing."
+> "So laugh... demon... Laugh that arrogant laugh of yours... And remember, I beat you to it..."
 
-&mdash; [**Ushiromiya Ange**](https://myanimelist.net/character.php?q=Ushiromiya%20Ange&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
