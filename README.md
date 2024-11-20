@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no sense in worrying about something you cannot control, so why bother?"
+> "Words are imperfect. Putting it in words will just create misunderstandings. Words are the root of misunderstandings."
 
-&mdash; [**Yoh Asakura**](https://myanimelist.net/character.php?q=Yoh%20Asakura&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Nagi Sanzenin**](https://myanimelist.net/character.php?q=Nagi%20Sanzenin&cat=character), [**Hayate no Gotoku!**](https://myanimelist.net/search/all?q=Hayate%20no%20Gotoku!&cat=all)
