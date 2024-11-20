@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Noblesse oblige. You have the power but not using that power is a sin."
+> "May those who accept their fate be granted Happiness, may those who defy their fate be granted Glory."
 
-&mdash; [**Nyx**](https://myanimelist.net/character.php?q=Nyx&cat=character), [**Neo Angelique Abyss**](https://myanimelist.net/search/all?q=Neo%20Angelique%20Abyss&cat=all)
+&mdash; [**Edel**](https://myanimelist.net/character.php?q=Edel&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
