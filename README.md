@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[about his Hollow group prior to them becoming Arancar as he eats pieces of them] You sicken me. You're all just a bunch of bloody cowards. Alright, I'll eat all of you. You'll see how it feels on the next level, as a part of my own flesh. I am... I am the king!"
+> "There is no sense in worrying about something you cannot control, so why bother?"
 
-&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yoh Asakura**](https://myanimelist.net/character.php?q=Yoh%20Asakura&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
