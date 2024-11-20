@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Words are imperfect. Putting it in words will just create misunderstandings. Words are the root of misunderstandings."
+> "Only once every hundred years can a Firebender experience this kind of power."
 
-&mdash; [**Nagi Sanzenin**](https://myanimelist.net/character.php?q=Nagi%20Sanzenin&cat=character), [**Hayate no Gotoku!**](https://myanimelist.net/search/all?q=Hayate%20no%20Gotoku!&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
