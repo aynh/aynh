@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Are you prepared to die?'. Most astronauts answer with a simple 'yes', but you can say anything. It's just a weak yes. You shouldn't be prepared to die. Instead, you should have the resolve to live until the very end! If there's someone who replies 'no', you can trust them."
+> "I was the only one who got an A ranking for the Public Safety Bureau. There were more than 500 students and I was the only one. So I thought that there must have been something that only I could do at the Bureau. If I went there, I thought I could find my purpose in life... I thought I'd be able to find out why I was born here and now!"
 
-&mdash; [**Brian Jay**](https://myanimelist.net/character.php?q=Brian%20Jay&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Akane Tsunemori**](https://myanimelist.net/character.php?q=Akane%20Tsunemori&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
