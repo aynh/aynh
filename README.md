@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So laugh... demon... Laugh that arrogant laugh of yours... And remember, I beat you to it..."
+> "All human beings can only perceive the world through the filter of their values. Mediocre values may be harmless, but they are also utterly worthless."
 
-&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
+&mdash; [**Moral**](https://myanimelist.net/character.php?q=Moral&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
