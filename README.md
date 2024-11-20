@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was the only one who got an A ranking for the Public Safety Bureau. There were more than 500 students and I was the only one. So I thought that there must have been something that only I could do at the Bureau. If I went there, I thought I could find my purpose in life... I thought I'd be able to find out why I was born here and now!"
+> "[about his Hollow group prior to them becoming Arancar as he eats pieces of them] You sicken me. You're all just a bunch of bloody cowards. Alright, I'll eat all of you. You'll see how it feels on the next level, as a part of my own flesh. I am... I am the king!"
 
-&mdash; [**Akane Tsunemori**](https://myanimelist.net/character.php?q=Akane%20Tsunemori&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
