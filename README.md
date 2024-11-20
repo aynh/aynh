@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your darkness and hopelessness are like vapor. They're nothing more than shadows that shall melt away and disappear under the moon's light"
+> "I’ll use my flames for a better purpose!"
 
-&mdash; [**Chikane Himemiya**](https://myanimelist.net/character.php?q=Chikane%20Himemiya&cat=character), [**Kannazuki no Miko**](https://myanimelist.net/search/all?q=Kannazuki%20no%20Miko&cat=all)
+&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
