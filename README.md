@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If your opponent is of choleric temper, seek to irritate."
+> "How do you know that the person you were one second ago, is the same person that you are right now?"
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Eri Ochiai**](https://myanimelist.net/character.php?q=Eri%20Ochiai&cat=character), [**Perfect Blue**](https://myanimelist.net/search/all?q=Perfect%20Blue&cat=all)
