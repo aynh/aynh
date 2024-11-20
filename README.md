@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All human beings can only perceive the world through the filter of their values. Mediocre values may be harmless, but they are also utterly worthless."
+> "It seems Saiyans have changed since the last time I saw them. They have become cowardly."
 
-&mdash; [**Moral**](https://myanimelist.net/character.php?q=Moral&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
+&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
