@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It seems Saiyans have changed since the last time I saw them. They have become cowardly."
+> "Noblesse oblige. You have the power but not using that power is a sin."
 
-&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Nyx**](https://myanimelist.net/character.php?q=Nyx&cat=character), [**Neo Angelique Abyss**](https://myanimelist.net/search/all?q=Neo%20Angelique%20Abyss&cat=all)
