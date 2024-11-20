@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes feelings get tangled together with deductions, forming a veil that hides the truth."
+> "Blood calls for blood, while hatred begets hatred, and the energy that comes forth begins to take root in this earth and engraves a crest of blood. They never learn, no matter how many times history is repeated. Humans are foolish, sorrowful creatures."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Lust**](https://myanimelist.net/character.php?q=Lust&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
