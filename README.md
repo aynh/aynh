@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Words are like swords. If you use them the wrong way, they can turn into ugly weapons."
+> "It's not anyone's fault that Masaki died. It's just that... the woman I fell in love with... was a woman who could die protecting her son. And don't forget. You are the guy... the woman I loved gave her life to protect."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
