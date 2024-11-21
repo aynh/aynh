@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trying to knock others down a peg just means lowering yourself. Don't go trampling all the hardwork and trust you've build up. It insults the effort you put in."
+> "The easiest way to test a person's real ability is under extreme conditions. Therefore, it's appropriate to choose the Shaman King through fighting."
 
-&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Yoh Asakura**](https://myanimelist.net/character.php?q=Yoh%20Asakura&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
