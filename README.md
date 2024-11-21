@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only someone that's prepared to devote oneself to others' happiness, without caring about his own, is allowed to become a king."
+> "Let's value our lives."
 
-&mdash; [**Oomine Daiya**](https://myanimelist.net/character.php?q=Oomine%20Daiya&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
