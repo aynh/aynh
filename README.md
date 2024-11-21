@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Phones, the internet - having the means alone doesn't lead to communication."
+> "Words are like swords. If you use them the wrong way, they can turn into ugly weapons."
 
-&mdash; [**Saitō-sensei**](https://myanimelist.net/character.php?q=Sait%C5%8D-sensei&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
