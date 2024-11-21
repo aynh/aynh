@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The easiest way to test a person's real ability is under extreme conditions. Therefore, it's appropriate to choose the Shaman King through fighting."
+> "What are humans’ desires? What I think the most troublesome desire is the desire for attention. It’s the source of jealousy and relationship problems, too."
 
-&mdash; [**Yoh Asakura**](https://myanimelist.net/character.php?q=Yoh%20Asakura&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
