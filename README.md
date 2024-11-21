@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They've been exposed to the outside world, up close and personal. They've had that fear planted in them. And they've endured it. Overcome it. Each has grown from that experience... and forgotten how to hesitate."
+> "In the end, L is indeed the greatest detective on earth..."
 
-&mdash; [**Eraserhead**](https://myanimelist.net/character.php?q=Eraserhead&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
