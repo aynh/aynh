@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans continue to live in a cycle of death and destruction. Guns can't change anything. It merely creates an infinite chain of hatred and retribution."
+> "Phones, the internet - having the means alone doesn't lead to communication."
 
-&mdash; [**TimeKeeper**](https://myanimelist.net/character.php?q=TimeKeeper&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
+&mdash; [**Saitō-sensei**](https://myanimelist.net/character.php?q=Sait%C5%8D-sensei&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
