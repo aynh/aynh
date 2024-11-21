@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether here or in the real world, you can cry when it hurts. There's no rule that you can't show feelings just because it's a game."
+> "Gohan, you showed me that power is nothing without being guided without love."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
