@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end, L is indeed the greatest detective on earth..."
+> "Trying to knock others down a peg just means lowering yourself. Don't go trampling all the hardwork and trust you've build up. It insults the effort you put in."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
