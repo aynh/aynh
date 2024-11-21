@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether I go or not, I'll die anyway. I have an organ more important than my heart. Although you can't see it, I feel it going through my head down to my feet, and I know it exists within me. It lets me stand on my feet, it lets me walk forward without trembling. If I stop here, I feel like it would break... My soul will break."
+> "Naruto... Just so you know, there will be a war to protect the Eight-Tails and Nine-Tails. In other words - you. For the sake of the ninja world and as the Kazekage, I will guard you with my life. If as a member of Akatsuki, Sasuke Uchiha stands in the way of the ninja coalition... I will show him no mercy."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
