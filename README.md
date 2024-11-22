@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not anyone's fault that Masaki died. It's just that... the woman I fell in love with... was a woman who could die protecting her son. And don't forget. You are the guy... the woman I loved gave her life to protect."
+> "Either way, the only ones who can die tomorrow are those who survive today."
 
-&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Dusty Attenborough**](https://myanimelist.net/character.php?q=Dusty%20Attenborough&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
