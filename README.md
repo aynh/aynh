@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what the world, the god of that world creates the rules. In truth, you have been defeated by the rules I created. And as punishment for defying the God of the new world, you will die..."
+> "Ice can even stop the time of life itself. So, you'll never be able to catch up, for eternity. You'll always be stuck there, staring at the fairy's tail."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
