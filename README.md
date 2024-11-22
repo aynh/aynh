@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We should be driven by things like our desires, instincts, and impulses. That's how it should be."
+> "I'm not stupid. I'm just too lazy to show how smart I am."
 
-&mdash; [**Ranta**](https://myanimelist.net/character.php?q=Ranta&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
