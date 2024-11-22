@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Azula] Please tell me you're here to kill me."
+> "But you're thinking on too large a scale there, kid... If we don't want to drive ourselves crazy, we can only deal with what's directly in front of us."
 
-&mdash; [**Mai**](https://myanimelist.net/character.php?q=Mai&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
