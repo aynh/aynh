@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Little man! Don't talk small , and say your goal is to become like me. You should become a master of your own game."
+> "No matter what the world, the god of that world creates the rules. In truth, you have been defeated by the rules I created. And as punishment for defying the God of the new world, you will die..."
 
-&mdash; [**Masahiro**](https://myanimelist.net/character.php?q=Masahiro&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
