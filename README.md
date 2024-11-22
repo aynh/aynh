@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What’s important is not losing sight of your path."
+> "[to Azula] Please tell me you're here to kill me."
 
-&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Mai**](https://myanimelist.net/character.php?q=Mai&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
