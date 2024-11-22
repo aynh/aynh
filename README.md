@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Total victory is scoring an easy win by doing what you always do."
+> "Little man! Don't talk small , and say your goal is to become like me. You should become a master of your own game."
 
-&mdash; [**Karma Akabane**](https://myanimelist.net/character.php?q=Karma%20Akabane&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Masahiro**](https://myanimelist.net/character.php?q=Masahiro&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
