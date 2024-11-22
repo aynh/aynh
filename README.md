@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love in real life isn’t as smooth as in manga..."
+> "Using a simple method to accomplish something impressive, far outshines using a complex method to achieve the same thing."
 
-&mdash; [**Shōta Kisa**](https://myanimelist.net/character.php?q=Sh%C5%8Dta%20Kisa&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
