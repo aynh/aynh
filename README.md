@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the dark sky is me, then the sparkling stars are Tsubaki."
+> "If the being casting judgment is perfect, then it has to judge itself as well."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Jouji Saiga**](https://myanimelist.net/character.php?q=Jouji%20Saiga&cat=character), [**Psycho-Pass 2**](https://myanimelist.net/search/all?q=Psycho-Pass%202&cat=all)
