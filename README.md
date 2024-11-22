@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Either way, the only ones who can die tomorrow are those who survive today."
+> "Love in real life isn’t as smooth as in manga..."
 
-&mdash; [**Dusty Attenborough**](https://myanimelist.net/character.php?q=Dusty%20Attenborough&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Shōta Kisa**](https://myanimelist.net/character.php?q=Sh%C5%8Dta%20Kisa&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
