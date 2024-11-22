@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm rather proud of my ability to tell lies. I can trick not only others, but even my own heart."
+> "Detective, don't waste your time trying to change their minds. Fight by their meaningless rules and you'll be pulled down with them. There's only one real law of the dark tournament: the strongest man prevails. I've retrieved enough energy to rip my way out, let's show this entire stadium a new definition for victory!"
 
-&mdash; [**Ludenberg Celestia**](https://myanimelist.net/character.php?q=Ludenberg%20Celestia&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
