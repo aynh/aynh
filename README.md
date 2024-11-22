@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the being casting judgment is perfect, then it has to judge itself as well."
+> "Our lives were real! Not a single moment of them were fake! Everyone lived the best they could! We carved those memories into ourselves! Memories of living as hard as we could! No matter what kind they were, they're the life we led! Erasing them in the blink of an eye like that... Wasn't your life also real to you?!"
 
-&mdash; [**Jouji Saiga**](https://myanimelist.net/character.php?q=Jouji%20Saiga&cat=character), [**Psycho-Pass 2**](https://myanimelist.net/search/all?q=Psycho-Pass%202&cat=all)
+&mdash; [**Yuzuru Otonashi**](https://myanimelist.net/character.php?q=Yuzuru%20Otonashi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
