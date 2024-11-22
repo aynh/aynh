@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Finishing Strike! Black Star Big Wave!"
+> "Run? Is that how you speak to a hero? How little you understand. Allow me to educate you. If a hero were to run from battle... the children could no longer call him a hero."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Don Kanonji**](https://myanimelist.net/character.php?q=Don%20Kanonji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
