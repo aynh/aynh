@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our lives were real! Not a single moment of them were fake! Everyone lived the best they could! We carved those memories into ourselves! Memories of living as hard as we could! No matter what kind they were, they're the life we led! Erasing them in the blink of an eye like that... Wasn't your life also real to you?!"
+> "Why don't you understand? Nunnally was blinded! My own sister was crippled! She knew... she knew that there were things in this world that she will never be able to do by herself! So her smile... Nunnally's smile... was her way of expressing gratitude!"
 
-&mdash; [**Yuzuru Otonashi**](https://myanimelist.net/character.php?q=Yuzuru%20Otonashi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
