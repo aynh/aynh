@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why don't you understand? Nunnally was blinded! My own sister was crippled! She knew... she knew that there were things in this world that she will never be able to do by herself! So her smile... Nunnally's smile... was her way of expressing gratitude!"
+> "We should be driven by things like our desires, instincts, and impulses. That's how it should be."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Ranta**](https://myanimelist.net/character.php?q=Ranta&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
