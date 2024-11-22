@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are pitiful beings, walking forward their backs to the future gazing at the past. This is why they fail to notice the simplest pitfalls and stumble tragically and comically."
+> "There are two ways to escape: escape without a purpose, and escape with a purpose. I call the former 'floating', and the latter 'flight'. You are the only one that decides which of the two your view of the world from on high was. But you don't choose these paths because of the weight on your soul. We don't choose the path we take because of the sins we carry. But we carry our sins on the path we choose."
 
-&mdash; [**Frederica Bernkastel**](https://myanimelist.net/character.php?q=Frederica%20Bernkastel&cat=character), [**Umineko no Naku Koro ni Chiru Episode 8: Twilight of the...**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni%20Chiru%20Episode%208%3A%20Twilight%20of%20the...&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
