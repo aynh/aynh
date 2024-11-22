@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Detective, don't waste your time trying to change their minds. Fight by their meaningless rules and you'll be pulled down with them. There's only one real law of the dark tournament: the strongest man prevails. I've retrieved enough energy to rip my way out, let's show this entire stadium a new definition for victory!"
+> "Total victory is scoring an easy win by doing what you always do."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Karma Akabane**](https://myanimelist.net/character.php?q=Karma%20Akabane&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
