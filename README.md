@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To be sure, love can kill, but always remember, hate can never save. Never!"
+> "Even if everyone in the whole world dies, I won't care, as long as my beloved survives."
 
-&mdash; [**Odette Bouquet**](https://myanimelist.net/character.php?q=Odette%20Bouquet&cat=character), [**Noir**](https://myanimelist.net/search/all?q=Noir&cat=all)
+&mdash; [**Shinra Kishitani**](https://myanimelist.net/character.php?q=Shinra%20Kishitani&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
