@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's exactly the way it should be. Doing only unexpected things, otherwise, I'll lose my reputation as a perverted outer-space human."
+> "Sake sure is nice. You can forget your troubles if only for a moment. You'll have to remember them tomorrow though, and they'll be even more painful than they were the night before. You can't run away from things like this. Especially from things you really want to forget."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
