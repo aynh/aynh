@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ice can even stop the time of life itself. So, you'll never be able to catch up, for eternity. You'll always be stuck there, staring at the fairy's tail."
+> "A true hero is a sage with a clean heart, a fake hero is a fool with an ignoble heart. The sage will be saved and the fool will be punished."
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Blue Owl**](https://myanimelist.net/character.php?q=Blue%20Owl&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
