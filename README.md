@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't hate the darkness. It was IN the darkness that I was raised."
+> "My goal isn't your death. I will just torture you, make you awaken and then make you my friends!"
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
