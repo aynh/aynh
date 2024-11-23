@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hidden in truths lie lies, hidden in lies hides the truth."
+> "[after kissing Okabe] There was a scientific rationale for that! Because... important memories, including, but not limited to, one's first kiss, are stored in the hippocampus, which makes them harder to forget. So I figured..."
 
-&mdash; [**Rokudou Mukuro**](https://myanimelist.net/character.php?q=Rokudou%20Mukuro&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
