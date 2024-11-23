@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you cling to life, you live in fear of death. And that fear will cloud your judgment."
+> "In the end, there is no greater motivation than revenge."
 
-&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
+&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
