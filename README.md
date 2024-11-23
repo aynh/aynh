@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A true hero is a sage with a clean heart, a fake hero is a fool with an ignoble heart. The sage will be saved and the fool will be punished."
+> "Our mom put us in one of those *points to dresses* when we were little. We still get called 'her darling little girls' at our family reunions."
 
-&mdash; [**Blue Owl**](https://myanimelist.net/character.php?q=Blue%20Owl&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
+&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
