@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is... care and devotion you feel for the precious ones around you."
+> "Your own path is for you to find out on your own."
 
-&mdash; [**Yashamaru**](https://myanimelist.net/character.php?q=Yashamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Subaru**](https://myanimelist.net/character.php?q=Subaru&cat=character), [**.hack//SIGN**](https://myanimelist.net/search/all?q=.hack%2F%2FSIGN&cat=all)
