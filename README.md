@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even the strongest of opponents always has a weakness."
+> "To be sure, love can kill, but always remember, hate can never save. Never!"
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Odette Bouquet**](https://myanimelist.net/character.php?q=Odette%20Bouquet&cat=character), [**Noir**](https://myanimelist.net/search/all?q=Noir&cat=all)
