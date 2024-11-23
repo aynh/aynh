@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end, there is no greater motivation than revenge."
+> "This world is far more complicated, rich and full of mystery, than people think."
 
-&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Jirou Hatori**](https://myanimelist.net/character.php?q=Jirou%20Hatori&cat=character), [**Zettai Shonen**](https://myanimelist.net/search/all?q=Zettai%20Shonen&cat=all)
