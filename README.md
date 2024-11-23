@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our mom put us in one of those *points to dresses* when we were little. We still get called 'her darling little girls' at our family reunions."
+> "If I ignore a friend I have the ability to help, wouldn't I be betraying him?"
 
-&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Killua Zoldyck**](https://myanimelist.net/character.php?q=Killua%20Zoldyck&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
