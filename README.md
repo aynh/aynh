@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My goal isn't your death. I will just torture you, make you awaken and then make you my friends!"
+> "Love is... care and devotion you feel for the precious ones around you."
 
-&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Yashamaru**](https://myanimelist.net/character.php?q=Yashamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
