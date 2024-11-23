@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This world is far more complicated, rich and full of mystery, than people think."
+> "Songs are good. Singing brings us joy. It is the highest point in the culture that Lilims have created."
 
-&mdash; [**Jirou Hatori**](https://myanimelist.net/character.php?q=Jirou%20Hatori&cat=character), [**Zettai Shonen**](https://myanimelist.net/search/all?q=Zettai%20Shonen&cat=all)
+&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
