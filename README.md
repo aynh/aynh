@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Hisagi after stabbing him] I am afraid. Then and now, my fear has always been that I would die a shinigami like you."
+> "Regardless of our limitations, we can always be of some use. Our power may seem insignificant... but it may just prove to be useful in the grand scheme of things. Stay focused. Never avert your eyes, because if an opening arises, even our insignificant power may be enough to determine the fate of the world. Which is why everyone must stay alert and ready to strike at any moment!"
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
