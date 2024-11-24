@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one can predict the future, so it's pointless to fear the unknown."
+> "[to Hisagi after stabbing him] I am afraid. Then and now, my fear has always been that I would die a shinigami like you."
 
-&mdash; [**Yoh Asakura**](https://myanimelist.net/character.php?q=Yoh%20Asakura&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
