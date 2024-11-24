@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it's this world behind the eyelids, anybody can become the person I imagine them to be."
+> "Even if you're weak, there are miracles you can seize with your hands if you fight on to the very end."
 
-&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
+&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
