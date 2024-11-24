@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who say they don't know their own feelings are deluding themselves. It's because you refuse to accept what you're thinking deep down in your heart, you think you don't understand."
+> "No matter how important a person is, some day you will lose them. No matter how much you desire it, eternity is one thing you will never possess. It’s the time you do spend with that person that’s important, so that you can meet your parting without regret."
 
-&mdash; [**Kenji Yamaguchi**](https://myanimelist.net/character.php?q=Kenji%20Yamaguchi&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Amamiya Yuuko**](https://myanimelist.net/character.php?q=Amamiya%20Yuuko&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
