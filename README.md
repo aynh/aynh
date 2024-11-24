@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(to Kagura) Sorry that's your cue to say 'Shigure you perv' and roll your eyes, slap me, whatever."
+> "You brake the law and I'll punish you, there is no room for discussion."
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
