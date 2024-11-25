@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just because it's illogical, that doesn't make it wrong."
+> "When you fall in love with someone, you want everything from them. Its only natural to feel that way... but real love can only happen when you want what's best for the other person and never ask for anything in return."
 
-&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Nobuo Terashima**](https://myanimelist.net/character.php?q=Nobuo%20Terashima&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
