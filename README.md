@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Peace cannot be kept by force. It can only be achieved by understanding."
+> "That’s important, isn’t it? Whether you look good or pathetic in your own eyes."
 
-&mdash; [**Setsuna F. Seiei**](https://myanimelist.net/character.php?q=Setsuna%20F.%20Seiei&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Reiko Mikami**](https://myanimelist.net/character.php?q=Reiko%20Mikami&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
