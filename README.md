@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Lets see, how should I kill you?"
+> "A pig who doesn't fly is just an ordinary pig."
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Porco Rosso**](https://myanimelist.net/character.php?q=Porco%20Rosso&cat=character), [**Porco Rosso**](https://myanimelist.net/search/all?q=Porco%20Rosso&cat=all)
