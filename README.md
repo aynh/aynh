@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is fine to assume that the Master's role is to support the battle from the back. But there are always exceptions. There are Masters who can only fight head on."
+> "Lets see, how should I kill you?"
 
-&mdash; [**Souichirou Kuzuki**](https://myanimelist.net/character.php?q=Souichirou%20Kuzuki&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
