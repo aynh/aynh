@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Immortality is wasted on the young."
+> "Unfortunately, in reality there is no situation where one can win merely by following the rules. There will be knights that break the rules, and even chess pieces that betray him."
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
