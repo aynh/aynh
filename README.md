@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Try relying on others once in a while. No one asks what's wrong without wanting to hear the answer."
+> "I've liked him for so long. So long. But Mayama likes someone else. But I wanna hear his voice. I want to hold his hand. I feel like this."
 
-&mdash; [**Kai Takemura**](https://myanimelist.net/character.php?q=Kai%20Takemura&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
+&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
