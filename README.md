@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if it is shameless and vulgar, somewhere I seek some sort of connection with people."
+> "Unfortunately, the real world isn't the same as a fairy tale."
 
-&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
+&mdash; [**Blake Belladonna**](https://myanimelist.net/character.php?q=Blake%20Belladonna&cat=character), [**RWBY**](https://myanimelist.net/search/all?q=RWBY&cat=all)
