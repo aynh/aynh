@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you're weak, there are miracles you can seize with your hands if you fight on to the very end."
+> "I don’t like someone who makes a fool out of earnest people."
 
-&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Noriko Paku**](https://myanimelist.net/character.php?q=Noriko%20Paku&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
