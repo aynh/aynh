@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One more word Shigure and the entire publishing industry will know every embarrassing thing you've done since you were four."
+> "Everyone's gonna die. It's a natural part of life. But if life has no purpose, you're dead already."
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
