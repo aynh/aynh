@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you cut a thread, and then tie it, the thickness will be different where you originally cut it, right? In that sense, it means irreversible change."
+> "I'm begging you, don't make me a killer!"
 
-&mdash; [**Kaminski Natalia**](https://myanimelist.net/character.php?q=Kaminski%20Natalia&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
