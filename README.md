@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That’s important, isn’t it? Whether you look good or pathetic in your own eyes."
+> "Just because it's illogical, that doesn't make it wrong."
 
-&mdash; [**Reiko Mikami**](https://myanimelist.net/character.php?q=Reiko%20Mikami&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
+&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
