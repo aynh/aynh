@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unfortunately, the real world isn't the same as a fairy tale."
+> "Try relying on others once in a while. No one asks what's wrong without wanting to hear the answer."
 
-&mdash; [**Blake Belladonna**](https://myanimelist.net/character.php?q=Blake%20Belladonna&cat=character), [**RWBY**](https://myanimelist.net/search/all?q=RWBY&cat=all)
+&mdash; [**Kai Takemura**](https://myanimelist.net/character.php?q=Kai%20Takemura&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
