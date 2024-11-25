@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don’t like someone who makes a fool out of earnest people."
+> "Immortality is wasted on the young."
 
-&mdash; [**Noriko Paku**](https://myanimelist.net/character.php?q=Noriko%20Paku&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
