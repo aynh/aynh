@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone's gonna die. It's a natural part of life. But if life has no purpose, you're dead already."
+> "If I wasn't prepared to be flexible as the situations demands, I wouldn't have become a teacher."
 
-&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
