@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There isn't just one truth out there, everyone carries their own form of it"
+> "It is fine to assume that the Master's role is to support the battle from the back. But there are always exceptions. There are Masters who can only fight head on."
 
-&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Souichirou Kuzuki**](https://myanimelist.net/character.php?q=Souichirou%20Kuzuki&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
