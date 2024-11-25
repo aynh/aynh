@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone lives with the sins they've committed."
+> "There isn't just one truth out there, everyone carries their own form of it"
 
-&mdash; [**Chiyuki**](https://myanimelist.net/character.php?q=Chiyuki&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
