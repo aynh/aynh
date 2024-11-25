@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hatred is born when people gather together."
+> "If you cut a thread, and then tie it, the thickness will be different where you originally cut it, right? In that sense, it means irreversible change."
 
-&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Kaminski Natalia**](https://myanimelist.net/character.php?q=Kaminski%20Natalia&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
