@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's wrong with wanting to keep the man you love out of harm's way?"
+> "Lots of things change with the flow of time. But there are things that never change. Things that are precious because they change, and things that are precious because they don’t change… Both are precious. Don’t you feel the same?"
 
-&mdash; [**Hakaze Kusaribe**](https://myanimelist.net/character.php?q=Hakaze%20Kusaribe&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Akari Mizunashi**](https://myanimelist.net/character.php?q=Akari%20Mizunashi&cat=character), [**Aria the Animation**](https://myanimelist.net/search/all?q=Aria%20the%20Animation&cat=all)
