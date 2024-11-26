@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Have a dream that you can achieve within your lifetime!"
+> "You try to sound like you think things through, when in fact, you're not thinking at all."
 
-&mdash; [**Ryou**](https://myanimelist.net/character.php?q=Ryou&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
