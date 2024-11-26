@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Lots of things change with the flow of time. But there are things that never change. Things that are precious because they change, and things that are precious because they don’t change… Both are precious. Don’t you feel the same?"
+> "Laugh at love and love will make you cry."
 
-&mdash; [**Akari Mizunashi**](https://myanimelist.net/character.php?q=Akari%20Mizunashi&cat=character), [**Aria the Animation**](https://myanimelist.net/search/all?q=Aria%20the%20Animation&cat=all)
+&mdash; [**Yasushi Takagi**](https://myanimelist.net/character.php?q=Yasushi%20Takagi&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
