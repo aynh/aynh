@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why? Why do humans always look to the sky? Why do you try so hard to fly when you don't have any wings? We'll run on our own legs."
+> "If one side was just, it would be called a defense or a suppression. But this is war. And wars happen because both sides are just."
 
-&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Kajoumaru Hidetomo**](https://myanimelist.net/character.php?q=Kajoumaru%20Hidetomo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
