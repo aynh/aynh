@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Religion, ideology, resources, land, spite, love or just because. No matter how pathetic the reason, it's enough to start a war."
+> "What are people? What is the 'self'? So long as you look like someone else, no one can't tell who's really on the inside."
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
