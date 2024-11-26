@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The disturbance in the stitch, is a disturbance in the heart."
+> "No matter what, I’ll be always be your friend. No matter how far you go, I’ll be thinking about you everyday."
 
-&mdash; [**Anissina von Karbelnikoff**](https://myanimelist.net/character.php?q=Anissina%20von%20Karbelnikoff&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
+&mdash; [**Kamikita Komari**](https://myanimelist.net/character.php?q=Kamikita%20Komari&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
