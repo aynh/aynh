@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What are people? What is the 'self'? So long as you look like someone else, no one can't tell who's really on the inside."
+> "I want you to please understand the scales of my heart will always be swaying back and forth. But there is something you should know. I will never lean to one side or the other due to the weight of gold coins."
 
-&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
