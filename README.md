@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want you to please understand the scales of my heart will always be swaying back and forth. But there is something you should know. I will never lean to one side or the other due to the weight of gold coins."
+> "What's wrong with wanting to keep the man you love out of harm's way?"
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Hakaze Kusaribe**](https://myanimelist.net/character.php?q=Hakaze%20Kusaribe&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
