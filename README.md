@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are so many weapons scattered across my path that it makes me wonder if this world is made of little more than lead and gunpowder."
+> "Have a dream that you can achieve within your lifetime!"
 
-&mdash; [**Jonathan Mar**](https://myanimelist.net/character.php?q=Jonathan%20Mar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Ryou**](https://myanimelist.net/character.php?q=Ryou&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
