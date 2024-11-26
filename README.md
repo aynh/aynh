@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People are beings where a love of what's right goes hand in hand with a desire to do all manner of evil acts."
+> "Killing's easier than you think; you just have to forget how sweet the sugar is."
 
-&mdash; [**Yuuki Shinjuurou**](https://myanimelist.net/character.php?q=Yuuki%20Shinjuurou&cat=character), [**Un-Go**](https://myanimelist.net/search/all?q=Un-Go&cat=all)
+&mdash; [**Rosso**](https://myanimelist.net/character.php?q=Rosso&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
