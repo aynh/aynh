@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what, I’ll be always be your friend. No matter how far you go, I’ll be thinking about you everyday."
+> "Religion, ideology, resources, land, spite, love or just because. No matter how pathetic the reason, it's enough to start a war."
 
-&mdash; [**Kamikita Komari**](https://myanimelist.net/character.php?q=Kamikita%20Komari&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
