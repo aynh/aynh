@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as I'm with you, I get fed and nobody picks on me! I like being here!"
+> "The world will always be filled with injustice. If you have time to give up or hold a grudge against that injustice, then use that time to enjoy battling those injustices instead."
 
-&mdash; [**South Italy**](https://myanimelist.net/character.php?q=South%20Italy&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
