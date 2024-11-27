@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have a dream at last. The butterfly trapped in spiderweb has no wings. That butterfly is... me."
+> "Remember that a sword held by someone who is about to die… will never be able to protect anything."
 
-&mdash; [**Alois Trancy**](https://myanimelist.net/character.php?q=Alois%20Trancy&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
