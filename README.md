@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...And the unbreaking bonds will... The bonds will... Ah, what was it? Ah, well. There was a bunch of stuff about the unbreakable bonds that you'll have to deal with while your guts overflow! Show the results of your everyday training and guts! Show off that splendor and guts to those weaklings without it! To make this tournament the best memory ever! By overcoming all sorts obstacles through trial and hardship and getting up everytime we fall down! OVERCOME EVERYTHING WITH GUTS!!"
+> "The flash of light I felt when I was stabbed in the heart. The overwhelming torrent of death and the beat of life. I always thought I had nothing, but there is still that simple thing left in me. This fear that sends a chill down my spine. I have to feel the most death I can to feel the happiness of life. For everything in my life I have ignored until now. But it probably would be impossible to die like I did that night. I probably cannot hope for such a striking end. That death pierced me like lightning, like a needle, like a sword. That's why I will try to come as close to that as possible. I don't have any idea right now but I still have a few days to think about it. And I've already decided on the method. I don't think I even need to say this, but I think my end should be a long fall from a place overlooking the world."
 
-&mdash; [**Sogiita Gunha**](https://myanimelist.net/character.php?q=Sogiita%20Gunha&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Fujou Kirie**](https://myanimelist.net/character.php?q=Fujou%20Kirie&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
