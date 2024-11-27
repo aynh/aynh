@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think... memories never disappear. Just like the paint I use. Even if I mix it with a new color. The old one still remains. Forever."
+> "A man, slave to gold, holds a whip...And beats the slave he bought with that gold as if to claim HE is the master. He just doesn't see it for himself. Every living human being is a slave to something"
 
-&mdash; [**Ana Gram**](https://myanimelist.net/character.php?q=Ana%20Gram&cat=character), [**Phi Brain: Kami No Puzzle**](https://myanimelist.net/search/all?q=Phi%20Brain%3A%20Kami%20No%20Puzzle&cat=all)
+&mdash; [**Askeladd**](https://myanimelist.net/character.php?q=Askeladd&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
