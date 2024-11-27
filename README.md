@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you hurt someone, you must be prepared to receive the same amount in return."
+> "There can be no going back once you come to love someone."
 
-&mdash; [**Mana Ouma**](https://myanimelist.net/character.php?q=Mana%20Ouma&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Miyagi**](https://myanimelist.net/character.php?q=Miyagi&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
