@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sins you've committed cling to your soul and then continue to haunt you forever.The sins that have gone unpunished don't get forgiven until you die."
+> "Is it wrong to do stuff by yourself? If someone worked hard on their own until now, why do they have to face rejection here?"
 
-&mdash; [**Koichiro Marito**](https://myanimelist.net/character.php?q=Koichiro%20Marito&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
