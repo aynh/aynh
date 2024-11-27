@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Killing's easier than you think; you just have to forget how sweet the sugar is."
+> "All the while we've been thinking you were a brilliant strategist when really, you're just a lucky fool."
 
-&mdash; [**Rosso**](https://myanimelist.net/character.php?q=Rosso&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
