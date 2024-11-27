@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We all live under the same sky. If each of us learns to shine, it won't matter how far apart we are. We'll be able to see each other."
+> "Trusting someone not to hurt you... how idiotic is that?"
 
-&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
