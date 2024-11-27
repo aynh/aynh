@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Canaan. You're a victim whose past was taken away by war. And she's a defeated person who lost her past in a power struggle. Soldiers who are born within destruction, take hatred as their weapon. Even though you and her became soldiers for the same reason, you both live differently. Listen Canaan, you cannot counter hatred with hatred... ever."
+> "[To Orihime] Your heart? You humans say that word so lightly. As if it were something one can hold in the palm of one's hand. But my eye sees everything -- Nothing can escape it. What it doesn't see doesn't exist. That's how I've always fought. That's how I've always lived."
 
-&mdash; [**Siam**](https://myanimelist.net/character.php?q=Siam&cat=character), [**CANAAN**](https://myanimelist.net/search/all?q=CANAAN&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
