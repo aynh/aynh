@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All the while we've been thinking you were a brilliant strategist when really, you're just a lucky fool."
+> "From a different perspective, an imposing wall is just a large door."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
