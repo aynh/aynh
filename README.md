@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A man, slave to gold, holds a whip...And beats the slave he bought with that gold as if to claim HE is the master. He just doesn't see it for himself. Every living human being is a slave to something"
+> "I have a dream at last. The butterfly trapped in spiderweb has no wings. That butterfly is... me."
 
-&mdash; [**Askeladd**](https://myanimelist.net/character.php?q=Askeladd&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Alois Trancy**](https://myanimelist.net/character.php?q=Alois%20Trancy&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
