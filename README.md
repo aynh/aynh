@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anime - it's not something that can be thought of in a hall for conferences. It is made out of strange juices current from the brain of animators."
+> "For all our sake I will sing and pee my heart out in the name of spirit!"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Yui**](https://myanimelist.net/character.php?q=Yui&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
