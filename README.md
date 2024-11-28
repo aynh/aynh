@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When a man bleeds freely for the sake of other people, it's only proper to pretend that you never saw it."
+> "The strong one doesn't win. The one who wins is strong."
 
-&mdash; [**Gen Takekura**](https://myanimelist.net/character.php?q=Gen%20Takekura&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
