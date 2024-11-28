@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He who lies to make things beautiful is probably someone who admires pure feelings much more than anybody else."
+> "Even if things are painful and tough, people should appreciate what it means to be alive."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
