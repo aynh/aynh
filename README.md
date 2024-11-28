@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The strong one doesn't win. The one who wins is strong."
+> "You don't have to worry about being special or normal compared to everyone else! It doesn't matter who it is. So as long as they think you're special, then you're special."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
