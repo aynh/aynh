@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if things are painful and tough, people should appreciate what it means to be alive."
+> "Wouldn't it be nice to have a strong mind, one that can get rid of the fear you feel?"
 
-&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Little Demon**](https://myanimelist.net/character.php?q=Little%20Demon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
