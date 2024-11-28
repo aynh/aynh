@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am not a friend of justice. I am an enemy of evil."
+> "Anime - it's not something that can be thought of in a hall for conferences. It is made out of strange juices current from the brain of animators."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
