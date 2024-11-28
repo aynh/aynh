@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They weren't my friends, they were my possessions! Money, women, henchmen... they're all possessions! So killing my henchmen is the same as stealing from me, and I don't let people take what's mine!"
+> "Once you look up to someone, you can't overtake them."
 
-&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kise Ryouta**](https://myanimelist.net/character.php?q=Kise%20Ryouta&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
