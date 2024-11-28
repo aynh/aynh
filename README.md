@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let's eat fast so we can eat again!"
+> "Justice without a great cause begets nothing more than slaughter. That same slaughter in a great cause...Is Justice."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
