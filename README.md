@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Without what you call absolute power, we'll be able to live free and strong... That's why I have to end this. Humans often betray, fight and do terrible things to each other, but if I can feel this heat and this pain in my heart, a future where everyone will be kind to each other will definitely come some day. I can believe in it now!"
+> "Love is all about who lands the first punch!"
 
-&mdash; [**Ame**](https://myanimelist.net/character.php?q=Ame&cat=character), [**Neppu Kairiku Bushi Road**](https://myanimelist.net/search/all?q=Neppu%20Kairiku%20Bushi%20Road&cat=all)
+&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
