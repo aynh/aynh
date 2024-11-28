@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are far, far, very, very far apart... but it might be that thoughts can overcome time and distance."
+> "Blah, blah, blah, blah… quit your blabbering. Look at this. [holds up an empty glass] Thanks to you assholes, my chocolate parfait [hits one of the amanto with his bokuto] fell to the ground!"
 
-&mdash; [**Mikako Nagamine**](https://myanimelist.net/character.php?q=Mikako%20Nagamine&cat=character), [**Voices of a Distant Star**](https://myanimelist.net/search/all?q=Voices%20of%20a%20Distant%20Star&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
