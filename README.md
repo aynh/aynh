@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There can be no going back once you come to love someone."
+> "If a sorry could resolve everything, why would there be a need for hell in this world?"
 
-&mdash; [**Miyagi**](https://myanimelist.net/character.php?q=Miyagi&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
+&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
