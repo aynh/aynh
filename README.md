@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You should treat me with awe and wonder!"
+> "Death on the battlefield comes regardless of class, royal or common. The loser must die!"
 
-&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
