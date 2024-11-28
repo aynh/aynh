@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Justice without a great cause begets nothing more than slaughter. That same slaughter in a great cause...Is Justice."
+> "You should treat me with awe and wonder!"
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
