@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For all our sake I will sing and pee my heart out in the name of spirit!"
+> "Without what you call absolute power, we'll be able to live free and strong... That's why I have to end this. Humans often betray, fight and do terrible things to each other, but if I can feel this heat and this pain in my heart, a future where everyone will be kind to each other will definitely come some day. I can believe in it now!"
 
-&mdash; [**Yui**](https://myanimelist.net/character.php?q=Yui&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Ame**](https://myanimelist.net/character.php?q=Ame&cat=character), [**Neppu Kairiku Bushi Road**](https://myanimelist.net/search/all?q=Neppu%20Kairiku%20Bushi%20Road&cat=all)
