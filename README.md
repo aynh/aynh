@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Blah, blah, blah, blah… quit your blabbering. Look at this. [holds up an empty glass] Thanks to you assholes, my chocolate parfait [hits one of the amanto with his bokuto] fell to the ground!"
+> "He who lies to make things beautiful is probably someone who admires pure feelings much more than anybody else."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
