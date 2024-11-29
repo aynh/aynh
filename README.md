@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do what you can until you learn what you need. If you're going to try something, you may as well aim for the top."
+> "You don't call someone a friend when they just remember you. You're friends because you like each other."
 
-&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Kazumi Schlierenzauer**](https://myanimelist.net/character.php?q=Kazumi%20Schlierenzauer&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
