@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm going to become the best manga editor anyone's ever seen! And then you can kiss your job goodbye!"
+> "Whenever I see tulips, I'm always reminded of when we learned that these precious little flowers, have the strength to endure harsh winters."
 
-&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Asaba Yuta**](https://myanimelist.net/character.php?q=Asaba%20Yuta&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
