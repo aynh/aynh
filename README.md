@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are two kinds of girls in this world. Lovely girls who can get along with me. And all the bitches who can't"
+> "I've no interest in a 'Reality'."
 
-&mdash; [**Sena Kashiwazaki**](https://myanimelist.net/character.php?q=Sena%20Kashiwazaki&cat=character), [**Boku wa Tomodachi ga Sukunai NEXT**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai%20NEXT&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
