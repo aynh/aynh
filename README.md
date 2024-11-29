@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even though there is life, no one here is living it. Life is overflowing and they are merely drinking their fill. But Dio and all the people I've met on my journey aren't like that... they're.. they're more... they were blazing with fire. They were torches burning with life."
+> "In the end, the best way to live down here is to be smart. You've got to be clever to survive."
 
-&mdash; [**Casshern**](https://myanimelist.net/character.php?q=Casshern&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
+&mdash; [**Mikaela Hyakuya**](https://myanimelist.net/character.php?q=Mikaela%20Hyakuya&cat=character), [**Owari no Seraph**](https://myanimelist.net/search/all?q=Owari%20no%20Seraph&cat=all)
