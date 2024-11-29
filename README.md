@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People's feelings sometimes go astray and lead to irreversible consequences."
+> "Sakura-chan, you sure do love Sasuke, don't you?"
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
