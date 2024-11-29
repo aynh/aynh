@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't call someone a friend when they just remember you. You're friends because you like each other."
+> "Uhh.. Syaoran.. it's okay if you don't have any more feelings for me, that doesn't matter to me at all. But I'm in love with you and I just wanted you to know, that's all."
 
-&mdash; [**Kazumi Schlierenzauer**](https://myanimelist.net/character.php?q=Kazumi%20Schlierenzauer&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Sakura Kinomoto**](https://myanimelist.net/character.php?q=Sakura%20Kinomoto&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
