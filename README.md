@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Uhh.. Syaoran.. it's okay if you don't have any more feelings for me, that doesn't matter to me at all. But I'm in love with you and I just wanted you to know, that's all."
+> "A heaven that only watches has no meaning."
 
-&mdash; [**Sakura Kinomoto**](https://myanimelist.net/character.php?q=Sakura%20Kinomoto&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Su-won**](https://myanimelist.net/character.php?q=Su-won&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
