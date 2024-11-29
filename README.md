@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just like humans, approve killing animals in society, we, approve the killing of humans."
+> "Living your life to the fullest 'til the moment of your death, this is the rule to live by in any world."
 
-&mdash; [**Mutou Tohru**](https://myanimelist.net/character.php?q=Mutou%20Tohru&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Crusty**](https://myanimelist.net/character.php?q=Crusty&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
