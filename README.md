@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A heaven that only watches has no meaning."
+> "The one hundred years we were apart were meant to bring me power and make you weak! Yoruichi!"
 
-&mdash; [**Su-won**](https://myanimelist.net/character.php?q=Su-won&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
