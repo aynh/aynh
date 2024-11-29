@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whenever I see tulips, I'm always reminded of when we learned that these precious little flowers, have the strength to endure harsh winters."
+> "You know... You like me more than you think you do."
 
-&mdash; [**Asaba Yuta**](https://myanimelist.net/character.php?q=Asaba%20Yuta&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
+&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
