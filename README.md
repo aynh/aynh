@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sakura-chan, you sure do love Sasuke, don't you?"
+> "Do what you can until you learn what you need. If you're going to try something, you may as well aim for the top."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
