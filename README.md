@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The one hundred years we were apart were meant to bring me power and make you weak! Yoruichi!"
+> "Bye-Bye now."
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
