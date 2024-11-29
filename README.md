@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Wouldn't it be nice to have a strong mind, one that can get rid of the fear you feel?"
+> "There are two kinds of girls in this world. Lovely girls who can get along with me. And all the bitches who can't"
 
-&mdash; [**Little Demon**](https://myanimelist.net/character.php?q=Little%20Demon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Sena Kashiwazaki**](https://myanimelist.net/character.php?q=Sena%20Kashiwazaki&cat=character), [**Boku wa Tomodachi ga Sukunai NEXT**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai%20NEXT&cat=all)
