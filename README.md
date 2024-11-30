@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world might seem boring. But, if you just look, you'll find all kinds of crazy stuff. The world is the best form of entertainment. Something like this couldn't just have happened by chance. There must be a writer writing the stories of more than five-billion people. And the only thing we could possibly call this person is God."
+> "*referring to Haruhi* It would appear that she views guys on the same level as potatoes."
 
-&mdash; [**Ryuunosuke Uryuu**](https://myanimelist.net/character.php?q=Ryuunosuke%20Uryuu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
