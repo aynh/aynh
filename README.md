@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's a programmer's job to make the most of limited resources to turn an impractical idea into reality."
+> "Even if I know you'll reject me, even if I'm afraid you won't accept me, even if I know it will really hurt if you dump me - I still have to tell you how I feel!"
 
-&mdash; [**Akasaka Ryuunosuke**](https://myanimelist.net/character.php?q=Akasaka%20Ryuunosuke&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Kousaka Kyousuke**](https://myanimelist.net/character.php?q=Kousaka%20Kyousuke&cat=character), [**Ore No Imouto Ga Konna Ni Kawaii Wake Ga Nai**](https://myanimelist.net/search/all?q=Ore%20No%20Imouto%20Ga%20Konna%20Ni%20Kawaii%20Wake%20Ga%20Nai&cat=all)
