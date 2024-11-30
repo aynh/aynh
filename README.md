@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only those who do their jobs on the battlefield get the rewards they desire. That's the life of a warrior."
+> "Stop pitying yourself. Pity yourself, and life becomes an endless nightmare."
 
-&mdash; [**Askeladd**](https://myanimelist.net/character.php?q=Askeladd&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
