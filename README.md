@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you think unconditional kindness is good, and any sort of kindness that comes with conditions is hypocrisy, you should reconsider. People can only achieve as much as the situation allows."
+> "It's a programmer's job to make the most of limited resources to turn an impractical idea into reality."
 
-&mdash; [**Ikta Solork**](https://myanimelist.net/character.php?q=Ikta%20Solork&cat=character), [**Alderamin on the Sky**](https://myanimelist.net/search/all?q=Alderamin%20on%20the%20Sky&cat=all)
+&mdash; [**Akasaka Ryuunosuke**](https://myanimelist.net/character.php?q=Akasaka%20Ryuunosuke&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
