@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop pitying yourself. Pity yourself, and life becomes an endless nightmare."
+> "Right now, I'm going to fight the person who freed me from being Reversed and saved the world. The strongest fighter... My best friend."
 
-&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
+&mdash; [**Toshiki Kai**](https://myanimelist.net/character.php?q=Toshiki%20Kai&cat=character), [**Cardfight!! Vanguard: Link Joker Hen**](https://myanimelist.net/search/all?q=Cardfight!!%20Vanguard%3A%20Link%20Joker%20Hen&cat=all)
