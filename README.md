@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've been under too much stress lately. Killing you should be a good remedy."
+> "Our contribution will never come into light, but the failure will be noticed immediately."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Hidemi Hondou**](https://myanimelist.net/character.php?q=Hidemi%20Hondou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
