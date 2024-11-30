@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After all this time, after being by your side and always looking after you I failed to make a place for myself deep within your heart."
+> "Only those who do their jobs on the battlefield get the rewards they desire. That's the life of a warrior."
 
-&mdash; [**Masafumi Takeuchi**](https://myanimelist.net/character.php?q=Masafumi%20Takeuchi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Askeladd**](https://myanimelist.net/character.php?q=Askeladd&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
