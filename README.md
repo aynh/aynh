@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Right now, I'm going to fight the person who freed me from being Reversed and saved the world. The strongest fighter... My best friend."
+> "If you don't get accepted by anyone, does that mean there's no significance for you to live on?"
 
-&mdash; [**Toshiki Kai**](https://myanimelist.net/character.php?q=Toshiki%20Kai&cat=character), [**Cardfight!! Vanguard: Link Joker Hen**](https://myanimelist.net/search/all?q=Cardfight!!%20Vanguard%3A%20Link%20Joker%20Hen&cat=all)
+&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
