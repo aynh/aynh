@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The truth has power because it's the truth. And because it is the truth, that makes it just. It's persuasive, isn't it? Don't you want truth like that?"
+> "Taking responsibility for yourself is the first condition for humanity. One who cannot do even that is less than human. Just a dog, Kariya."
 
-&mdash; [**Taro**](https://myanimelist.net/character.php?q=Taro&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
+&mdash; [**Tohsaka Tokiomi**](https://myanimelist.net/character.php?q=Tohsaka%20Tokiomi&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
