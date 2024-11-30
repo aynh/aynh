@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans tend to think logically, but their actions are driven by emotions..."
+> "No I can't go on like this! I should die! How could this happen? Did I really forget to fold the tip of the toilet paper into a triangle?"
 
-&mdash; [**Sumire Muroto**](https://myanimelist.net/character.php?q=Sumire%20Muroto&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
