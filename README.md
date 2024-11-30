@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No I can't go on like this! I should die! How could this happen? Did I really forget to fold the tip of the toilet paper into a triangle?"
+> "Without strength, you won't be able to save anyone."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kizaru**](https://myanimelist.net/character.php?q=Kizaru&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
