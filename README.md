@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't exactly fight a war with a big smile on my face."
+> "The world might seem boring. But, if you just look, you'll find all kinds of crazy stuff. The world is the best form of entertainment. Something like this couldn't just have happened by chance. There must be a writer writing the stories of more than five-billion people. And the only thing we could possibly call this person is God."
 
-&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Ryuunosuke Uryuu**](https://myanimelist.net/character.php?q=Ryuunosuke%20Uryuu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
