@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You were always smiling, real friendly like, but the way you smiled was so empty it hurt to watch you."
+> "I wanted to see your homework from the other day. And I got to see your face while you were sleeping... so don't sweat it."
 
-&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Konata Izumi**](https://myanimelist.net/character.php?q=Konata%20Izumi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
