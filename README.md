@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It won't work. You country-bumpkins will stand out a mile. [Eats food with her hands]"
+> "Neither one nor the other, not a demon, but not a human either, no place no belong… I thought the only way was to carve out your own place, by force; that’s how I survived. And by the time I knew what was happening, I was all alone…"
 
-&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
