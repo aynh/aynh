@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You may be able to save us. If you stay and protect us. But what's good is that everyone else dies! Please go!! Captain Komamura!!!"
+> "A smile is a seed of happiness. Anything can be made with it."
 
-&mdash; [**Kira Izuru**](https://myanimelist.net/character.php?q=Kira%20Izuru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kai**](https://myanimelist.net/character.php?q=Kai&cat=character), [**Neo Angelique Abyss**](https://myanimelist.net/search/all?q=Neo%20Angelique%20Abyss&cat=all)
