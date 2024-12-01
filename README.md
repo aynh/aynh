@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A sound soul dwells within a sound mind and a sound body."
+> "Forget all that formal crap 'bout comin' at me one at a time. I'll take all you bitches on!"
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
