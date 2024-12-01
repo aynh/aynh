@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People aren't as complex as you think they are. They're simple, and they get sad or angry over simple things. That's how they are. They're quickly affected by the littlest things, and live without knowing where they're going to fall down. That's who people are!"
+> "The tattoo is a symbol of my family, the Star Clan. They were a clan of assassins. Everybody knew they would do anything for money. After a while killing people wasn't enough, they were hungry for even more power so they began hunting human souls. But now it's just me, I'm the last member of the Star Clan. 13 years ago their souls were taken by Lord Death and the Meisters from the Academy. At the time I was still a baby, so they didn't take my soul. That's when the school took me in. That's it. The end."
 
-&mdash; [**Chiyuki**](https://myanimelist.net/character.php?q=Chiyuki&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
