@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just realized I love learning things that I don't know anything about. It sort of feels like I'm one step closer to my dream."
+> "If my own happiness will lead the misfortune of others then being unhappy is probably the wisest choice."
 
-&mdash; [**Midori Imai**](https://myanimelist.net/character.php?q=Midori%20Imai&cat=character), [**Shirobako**](https://myanimelist.net/search/all?q=Shirobako&cat=all)
+&mdash; [**Rea Sanka**](https://myanimelist.net/character.php?q=Rea%20Sanka&cat=character), [**Sankarea**](https://myanimelist.net/search/all?q=Sankarea&cat=all)
