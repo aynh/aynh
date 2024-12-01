@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't intentionally ignore anyone. Their words simply don't resonate with me."
+> "Nothing good can come by rejecting yourself."
 
-&mdash; [**Asaba Yuki**](https://myanimelist.net/character.php?q=Asaba%20Yuki&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
+&mdash; [**Riki Naoe**](https://myanimelist.net/character.php?q=Riki%20Naoe&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
