@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People like you will never understand... Although it is true that many humans are stupid, immature, and high school drop outs... But! Humans possess the power of possibilities!"
+> "I just realized I love learning things that I don't know anything about. It sort of feels like I'm one step closer to my dream."
 
-&mdash; [**Inferno Cop**](https://myanimelist.net/character.php?q=Inferno%20Cop&cat=character), [**Inferno Cop**](https://myanimelist.net/search/all?q=Inferno%20Cop&cat=all)
+&mdash; [**Midori Imai**](https://myanimelist.net/character.php?q=Midori%20Imai&cat=character), [**Shirobako**](https://myanimelist.net/search/all?q=Shirobako&cat=all)
