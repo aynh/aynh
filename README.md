@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You came without fear. Don't have any regrets, no matter what happens. This is the duel you wanted."
+> "Maybe humans are capable of committing far more shameless acts than they imagine they are. If they hadn’t faced adversity, they might have gone without discovering such ugly facets of themselves."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Hildegard von Mariendorf**](https://myanimelist.net/character.php?q=Hildegard%20von%20Mariendorf&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
