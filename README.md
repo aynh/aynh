@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Neither one nor the other, not a demon, but not a human either, no place no belong… I thought the only way was to carve out your own place, by force; that’s how I survived. And by the time I knew what was happening, I was all alone…"
+> "A sound soul dwells within a sound mind and a sound body."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
