@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe humans are capable of committing far more shameless acts than they imagine they are. If they hadn’t faced adversity, they might have gone without discovering such ugly facets of themselves."
+> "If my own happiness will lead the misfortune of others then being unhappy is probably the wisest choice."
 
-&mdash; [**Hildegard von Mariendorf**](https://myanimelist.net/character.php?q=Hildegard%20von%20Mariendorf&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Rea Sanka**](https://myanimelist.net/character.php?q=Rea%20Sanka&cat=character), [**Sankarea**](https://myanimelist.net/search/all?q=Sankarea&cat=all)
