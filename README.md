@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If my own happiness will lead the misfortune of others then being unhappy is probably the wisest choice."
+> "Sorry. Our world isn't as nice a place as yours. When it comes to war and killing, we have far more expertise than you do."
 
-&mdash; [**Rea Sanka**](https://myanimelist.net/character.php?q=Rea%20Sanka&cat=character), [**Sankarea**](https://myanimelist.net/search/all?q=Sankarea&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
