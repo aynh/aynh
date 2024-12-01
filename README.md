@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone Makes Mistakes. But people's feelings can manifest through the most subtle of expressions."
+> "People like you will never understand... Although it is true that many humans are stupid, immature, and high school drop outs... But! Humans possess the power of possibilities!"
 
-&mdash; [**Nona**](https://myanimelist.net/character.php?q=Nona&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Inferno Cop**](https://myanimelist.net/character.php?q=Inferno%20Cop&cat=character), [**Inferno Cop**](https://myanimelist.net/search/all?q=Inferno%20Cop&cat=all)
