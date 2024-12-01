@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing good can come by rejecting yourself."
+> "You were always smiling, real friendly like, but the way you smiled was so empty it hurt to watch you."
 
-&mdash; [**Riki Naoe**](https://myanimelist.net/character.php?q=Riki%20Naoe&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
