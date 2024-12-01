@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "With kindness comes naivete. Courage becomes foolhardiness. And dedication has no reward. If you can't accept any of that, you are not fit to be a magical girl."
+> "If you ask what life is to me, I'd answer endless days of homework and pain. Why you ask? The amount of homework, it's too much."
 
-&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Han Jee-Han**](https://myanimelist.net/character.php?q=Han%20Jee-Han&cat=character), [**The Gamer**](https://myanimelist.net/search/all?q=The%20Gamer&cat=all)
