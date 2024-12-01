@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry. Our world isn't as nice a place as yours. When it comes to war and killing, we have far more expertise than you do."
+> "Water, 35 litres. Carbon, 20 kg. Ammonia, 4 litres. Lime, 1.5 kg. Phosphorus, 800 g. Salt, 250 g. Niter, 100 g. Sulphur, 80 g. Fluoride, 7.5 g. Iron, 5 g. Silicon, 3g. And fifteen other elements. Those are the elements to make an average adult human body. You can buy these elemental ingredients at the market with the pocket money of a child. Humans are made so cheaply."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
