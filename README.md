@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe that hope exists in the despair of certain death. Like a speck of gold dust buried in a gray gravel."
+> "“Expectations” are what you have when you have given up. Expectations are born from a despairingly large difference in skill."
 
-&mdash; [**Seiken Tsukai no World Break**](https://myanimelist.net/character.php?q=Seiken%20Tsukai%20no%20World%20Break&cat=character), [**Seiken Tsukai no World Break**](https://myanimelist.net/search/all?q=Seiken%20Tsukai%20no%20World%20Break&cat=all)
+&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
