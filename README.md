@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no point in dwelling on the past, so I'm trying to think of the future instead."
+> "In manga, there's always a character who gets a sudden boost of power, right? Usually, it's when they're driven into a corner. Readers actually call it a 'convenient power up', but it actually does happen in the real world as well. We humans only truly show our mettle when we're pushed into a corner."
 
-&mdash; [**Sorata Kanda**](https://myanimelist.net/character.php?q=Sorata%20Kanda&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Shinobu Takamiya**](https://myanimelist.net/character.php?q=Shinobu%20Takamiya&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
