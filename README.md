@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As time passes, the day will come when everything will fade to memories. But, those miraculous days, when you and I along with everyone else, searched together for just one thing... will continue revolving forever. Somewhere deep in my heart as my bittersweet memory."
+> "Little Hellsing chicky, I'm coming to find you. Come out and play, little Hellsing. It's going to be a lot of fun. We just want to torture you, kill you, maybe skullfuck your corpse a couple of times, burn your house to the ground, go home, and masturbate, okay?"
 
-&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Jan Valentine**](https://myanimelist.net/character.php?q=Jan%20Valentine&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
