@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The bully always says it's a joke. But to the one being bullied, it's dead serious!"
+> "Courage must know fear and make fear its own! Fear upsets breathing! Conquer fear and your breath will never fail you! Hamon breathing comes from courage! A good human is a brave human! Courage is a marvel of humanity!"
 
-&mdash; [**Fujisaki Yusuke**](https://myanimelist.net/character.php?q=Fujisaki%20Yusuke&cat=character), [**Sket Dance**](https://myanimelist.net/search/all?q=Sket%20Dance&cat=all)
+&mdash; [**William A. Zeppeli**](https://myanimelist.net/character.php?q=William%20A.%20Zeppeli&cat=character), [**JoJo's Bizarre Adventure: Phantom Blood**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Phantom%20Blood&cat=all)
