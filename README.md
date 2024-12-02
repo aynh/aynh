@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You really don't know what happened, do you? It doesn't matter. By all means, stay in this cozy coffin of yours and continue to play prince. But I have to go now. She's not gone at all, she merely vanished form your world. Farewell."
+> "If you keep lying like that, no one, not even yourself, will believe you anymore."
 
-&mdash; [**Anthy Himemiya**](https://myanimelist.net/character.php?q=Anthy%20Himemiya&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
+&mdash; [**Aladdin**](https://myanimelist.net/character.php?q=Aladdin&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
