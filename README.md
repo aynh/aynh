@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Courage must know fear and make fear its own! Fear upsets breathing! Conquer fear and your breath will never fail you! Hamon breathing comes from courage! A good human is a brave human! Courage is a marvel of humanity!"
+> "Listen. Right now, you're trying to shoulder someone else's life. That might be the right thing to do, but that act requires a lot of resolve. It'll become a thorn that can't be removed, and it'll continue to hurt you forever. The briar will continue to grow, but it'll never flower. It'll only hurt, it'll only cause you pain."
 
-&mdash; [**William A. Zeppeli**](https://myanimelist.net/character.php?q=William%20A.%20Zeppeli&cat=character), [**JoJo's Bizarre Adventure: Phantom Blood**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Phantom%20Blood&cat=all)
+&mdash; [**Isozaki Itsuki**](https://myanimelist.net/character.php?q=Isozaki%20Itsuki&cat=character), [**Sakurako-san no Ashioto ni wa Shitai ga Umatteiru**](https://myanimelist.net/search/all?q=Sakurako-san%20no%20Ashioto%20ni%20wa%20Shitai%20ga%20Umatteiru&cat=all)
