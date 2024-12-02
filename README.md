@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We simply cannot see the world as it is. The world people see is nothing more than how our brains translate it. In other words, it's subjective."
+> "On the day we left, we burned down the family home and all the familiar things inside. Because some memories aren't meant to leave traces."
 
-&mdash; [**Alis Color**](https://myanimelist.net/character.php?q=Alis%20Color&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
