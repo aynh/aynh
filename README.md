@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're right, we are mortal and fragile. But even if we are tortured or wounded, we'll fight to survive. You should feel the pain we feel and understand. I am the messenger that will deliver you to that pain and understanding."
+> "There's no point in dwelling on the past, so I'm trying to think of the future instead."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Sorata Kanda**](https://myanimelist.net/character.php?q=Sorata%20Kanda&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
