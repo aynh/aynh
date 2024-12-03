@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You said I should have forgotten everything and lived as a human, but... there's no way I could do that. At that time, Teresa was everything to me. Everything I lost... my life, my voice, even my joy in living... Teresa gave those back to me. Teresa gave me everything. So I had no choice but to move forward. I wasn't strong enough to forget all that and continue living."
+> "I want to survive...And see her again. As a person, I'm really lower than shit...But she knows that, and she smiles kindly at me anyway."
 
-&mdash; [**Clare**](https://myanimelist.net/character.php?q=Clare&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Ymir**](https://myanimelist.net/character.php?q=Ymir&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
