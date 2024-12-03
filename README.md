@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm pathetic. I was observing the world from a safe distance. I was just scared of being hurt. I was lonely."
+> "You said I should have forgotten everything and lived as a human, but... there's no way I could do that. At that time, Teresa was everything to me. Everything I lost... my life, my voice, even my joy in living... Teresa gave those back to me. Teresa gave me everything. So I had no choice but to move forward. I wasn't strong enough to forget all that and continue living."
 
-&mdash; [**Amano Yukiteru**](https://myanimelist.net/character.php?q=Amano%20Yukiteru&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Clare**](https://myanimelist.net/character.php?q=Clare&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
