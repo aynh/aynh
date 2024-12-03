@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I laugh at gravity all the time. Hahaha, gravity..."
+> "You want to walk into a Fire Nation town when they're all fired up with their, you know, fire?"
 
-&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
