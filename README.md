@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'd had fifteen years to think about him. And I realized that it wasn't a matter of the life or death of flesh. What's important to a warrior is the soul...And where it lies."
+> "A warrior would rather die, than survive defeat."
 
-&mdash; [**Thorkell**](https://myanimelist.net/character.php?q=Thorkell&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Assassin**](https://myanimelist.net/character.php?q=Assassin&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
