@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In every world, once you die, you're gone."
+> "I'd had fifteen years to think about him. And I realized that it wasn't a matter of the life or death of flesh. What's important to a warrior is the soul...And where it lies."
 
-&mdash; [**Akihiko Kayaba**](https://myanimelist.net/character.php?q=Akihiko%20Kayaba&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Thorkell**](https://myanimelist.net/character.php?q=Thorkell&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
