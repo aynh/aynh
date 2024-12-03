@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you just submit yourself to fate, then that's the end of it."
+> "If the being casting judgment is perfect, then it has to judge itself as well."
 
-&mdash; [**Maebara Keiichi**](https://myanimelist.net/character.php?q=Maebara%20Keiichi&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
+&mdash; [**Jouji Saiga**](https://myanimelist.net/character.php?q=Jouji%20Saiga&cat=character), [**Psycho-Pass 2**](https://myanimelist.net/search/all?q=Psycho-Pass%202&cat=all)
