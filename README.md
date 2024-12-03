@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The skull is one of the most eloquent bones in existence. If you just ask, it will tell you many things."
+> "Walking along the path that she chose, without being affected by others... in this sense, white is her color...in another sense, it also makes me want to put more colors on her."
 
-&mdash; [**Sakurako Kujō**](https://myanimelist.net/character.php?q=Sakurako%20Kuj%C5%8D&cat=character), [**Sakurako-san no Ashioto ni wa Shitai ga Umatteiru**](https://myanimelist.net/search/all?q=Sakurako-san%20no%20Ashioto%20ni%20wa%20Shitai%20ga%20Umatteiru&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
