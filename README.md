@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Loathe me, o fierce deity. Accept and awaken to your maelstrom of hate...god of calamity, Yato!"
+> "I'm pathetic. I was observing the world from a safe distance. I was just scared of being hurt. I was lonely."
 
-&mdash; [**Rabō**](https://myanimelist.net/character.php?q=Rab%C5%8D&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Amano Yukiteru**](https://myanimelist.net/character.php?q=Amano%20Yukiteru&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
