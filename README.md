@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A warrior would rather die, than survive defeat."
+> "The only people who say that money doesn't matter in this world are the ones with lots of it."
 
-&mdash; [**Assassin**](https://myanimelist.net/character.php?q=Assassin&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Takasugi Shinsuke**](https://myanimelist.net/character.php?q=Takasugi%20Shinsuke&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
