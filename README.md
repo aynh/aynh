@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The only people who say that money doesn't matter in this world are the ones with lots of it."
+> "Being the best decoy ever is as cool as being the ace."
 
-&mdash; [**Takasugi Shinsuke**](https://myanimelist.net/character.php?q=Takasugi%20Shinsuke&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Tobio Kageyama**](https://myanimelist.net/character.php?q=Tobio%20Kageyama&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
