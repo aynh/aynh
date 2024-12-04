@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kira is childish and he hates losing... I'm also childish and hate to lose. That's how I know."
+> "Destiny. Fate. Dreams. These unstoppable ideas are held deep in the heart of man. As long as there people who seek freedom in this life, These things shall not vanish from the Earth."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Gol D. Roger**](https://myanimelist.net/character.php?q=Gol%20D.%20Roger&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
