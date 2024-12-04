@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe that 'I could have done something' is the most frustrating regret of them all."
+> "You can't change anything unless you can discard part of yourself too. To surpass monsters, you must be willing to abandon your humanity."
 
-&mdash; [**Kazuki Kazami**](https://myanimelist.net/character.php?q=Kazuki%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
