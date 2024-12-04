@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everything doesn't have to be decided by life and death. Just think about the future."
+> "If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don't need them and their selfish ideas."
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Alibaba Saluja**](https://myanimelist.net/character.php?q=Alibaba%20Saluja&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
