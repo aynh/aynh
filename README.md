@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are Partners. If you are a Witch, then I am a Warlock."
+> "Really! How marvellous! You two are simply marvellous. Which one of you should I kill? Which one of you would be more fun to watch as you wail in agony?"
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
