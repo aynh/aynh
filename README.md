@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I am to carry all the evils of this world, it won't matter. If that can save the world, then I'd gladly accept it."
+> "We are Partners. If you are a Witch, then I am a Warlock."
 
-&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
