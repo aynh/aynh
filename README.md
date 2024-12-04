@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just really don't wanna meet a disappointing end, with someone burning my bones without even knowing who they belonged to."
+> "What do I have to live for now that I know Cain won't come back? You tell me that, Ed!"
 
-&mdash; [**Jean Kirstein**](https://myanimelist.net/character.php?q=Jean%20Kirstein&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Winry Rockbell**](https://myanimelist.net/character.php?q=Winry%20Rockbell&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
