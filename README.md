@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You appearing before me was the best thing that’s ever happened in my life. The worst was when you left my sight. …And depending on your reply now, I might have a new best or worst."
+> "Kira is childish and he hates losing... I'm also childish and hate to lose. That's how I know."
 
-&mdash; [**Kusonoki**](https://myanimelist.net/character.php?q=Kusonoki&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
