@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't change anything unless you can discard part of yourself too. To surpass monsters, you must be willing to abandon your humanity."
+> "[to Momo on Aizen's final letter] As a vice-captain, I think it's a great honor to be the receiver of her captain's final words. Read it well."
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
