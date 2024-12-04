@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ask of me, and I shall give thee the heathen for thine inheritance, and for thy possession, the ends of the earth. Thou shalt break them with a rod of iron. Thou shalt dash them in pieces, like a potters vessel. Be wise now, therefore ye kings. Be admonished ye judges of the earth. Serve the lord with fear, and rejoice with trembling. Kiss the son lest he be angry, and ye perish in the way, though his wrath be kindled but a little."
+> "Girls who push their kindness onto others. I hate them to death. 'I have a really beautiful heart, so please fall in love with me!' I'm only surrounded by these types of girls and they piss me off. But it's not that simple. In the end, they are just making a fool of themselves. But you... You're different from the other girls. You don't have ulterior motives or anything to gain. You've always been easygoing. That's why to you, I thought It'd be okay to at least say thank you."
 
-&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
