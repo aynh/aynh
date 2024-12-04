@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you feel yourself hitting up against your limit remember for what cause you clench your fists... remember why you started down this path, and let that memory carry you beyond your limit."
+> "Cut off a wolf's head and it still has the power to bite."
 
-&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
+&mdash; [**Lady Eboshi**](https://myanimelist.net/character.php?q=Lady%20Eboshi&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
