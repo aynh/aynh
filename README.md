@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Really! How marvellous! You two are simply marvellous. Which one of you should I kill? Which one of you would be more fun to watch as you wail in agony?"
+> "Our relationship has already been formed. No matter how trivial a meeting and the incidents that follow may seem, a relationship is made. Even if it is just for a short amount of time, a knot that has been tied does not unravel. It means that during your lifetime, every incident that passes has meaning. The meeting between you and I also has meaning, so remember it."
 
-&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
