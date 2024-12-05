@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The scenery is so peaceful, you'd never think that wars were happening and people were dying around the world. If only this scenery could continue forever. But even if a time should come when I can no longer enjoy this scenery, as long as everyone is with me, I'll be fine. That's what I think today."
+> "You're Puss in Boots, the one who tricks the prince. He hides who he really is and pretends to be someone else forever. So in time he becomes that person, so his lie becomes the truth, see? He transcends the mask. Don't you get it? That's how he finds happiness. That's pretty good, right?"
 
-&mdash; [**Meiko Inoue**](https://myanimelist.net/character.php?q=Meiko%20Inoue&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Eri Ninamori**](https://myanimelist.net/character.php?q=Eri%20Ninamori&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
