@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes you have to fight for the things that are worth fighting for."
+> "Even though I'm expressionless, being told that I'm annoying still hurts."
 
-&mdash; [**Arrietty**](https://myanimelist.net/character.php?q=Arrietty&cat=character), [**Karigurashi no Arrietty**](https://myanimelist.net/search/all?q=Karigurashi%20no%20Arrietty&cat=all)
+&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
