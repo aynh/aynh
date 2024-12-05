@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My grandfather's deck has no pathetic cards, Kaiba. But it does contain... the unstoppable Exodia!"
+> "A terrible premonition can bring about a terrible reality."
 
-&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Ryougi Shiki**](https://myanimelist.net/character.php?q=Ryougi%20Shiki&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
