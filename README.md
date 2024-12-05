@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What the hell can you hope to protect when your feelings are the only weapons you've got?"
+> "So, what are you saying? You mean if your wife wasn't controlling you, you wouldn't be a villain? You mean you've never thought it's just because you're incompetent? And what's that supposed to mean anyway? (To the story, 'Mogeta')"
 
-&mdash; [**Kira Yamato**](https://myanimelist.net/character.php?q=Kira%20Yamato&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
