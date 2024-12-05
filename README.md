@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sad memories are a part of what makes me who I am."
+> "My grandfather's deck has no pathetic cards, Kaiba. But it does contain... the unstoppable Exodia!"
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
