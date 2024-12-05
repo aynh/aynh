@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was wrong. I wasn't eating ghouls. I'm the one who was being eaten."
+> "Death on the battlefield comes regardless of class, royal or common. The loser must die!"
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
