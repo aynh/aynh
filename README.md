@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things that take a long time to acquire. Friends. Love. Really, nothing has been a waste."
+> "I was wrong. I wasn't eating ghouls. I'm the one who was being eaten."
 
-&mdash; [**Megumi Hanajima**](https://myanimelist.net/character.php?q=Megumi%20Hanajima&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
