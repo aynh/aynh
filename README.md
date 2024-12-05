@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So, what are you saying? You mean if your wife wasn't controlling you, you wouldn't be a villain? You mean you've never thought it's just because you're incompetent? And what's that supposed to mean anyway? (To the story, 'Mogeta')"
+> "The difference between the novice and the master is that the master has failed more times than the novice has tried."
 
-&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
