@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Have a dream that you can achieve within your lifetime!"
+> "Sometimes you have to fight for the things that are worth fighting for."
 
-&mdash; [**Ryou**](https://myanimelist.net/character.php?q=Ryou&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
+&mdash; [**Arrietty**](https://myanimelist.net/character.php?q=Arrietty&cat=character), [**Karigurashi no Arrietty**](https://myanimelist.net/search/all?q=Karigurashi%20no%20Arrietty&cat=all)
