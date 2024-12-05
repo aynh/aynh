@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not very good at sensing people's boundaries. Without knowing how far is too far, I gradually get closer and closer. It's terrifying. Being unable to sense that is terrifying."
+> "The scenery is so peaceful, you'd never think that wars were happening and people were dying around the world. If only this scenery could continue forever. But even if a time should come when I can no longer enjoy this scenery, as long as everyone is with me, I'll be fine. That's what I think today."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Meiko Inoue**](https://myanimelist.net/character.php?q=Meiko%20Inoue&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
