@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When the world is filled with red lights signaling danger, the world is safer than usual. But when it's filled with green lights signaling safety, it creates a place more dangerous than anywhere."
+> "You can't get hurt without also hurting others."
 
-&mdash; [**Ougi Oshino**](https://myanimelist.net/character.php?q=Ougi%20Oshino&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Mato Kuroi**](https://myanimelist.net/character.php?q=Mato%20Kuroi&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
