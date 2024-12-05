@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The melody of logic always plays the notes of truth."
+> "Everyone has an equal right to live. If you have more than others, you should share with those who have less. If you feel happier than others, help those in need. That is the duty of those who are given so much."
 
-&mdash; [**Ayumi Narumi**](https://myanimelist.net/character.php?q=Ayumi%20Narumi&cat=character), [**Spiral**](https://myanimelist.net/search/all?q=Spiral&cat=all)
+&mdash; [**Galilei Donna**](https://myanimelist.net/character.php?q=Galilei%20Donna&cat=character), [**Galilei Donna**](https://myanimelist.net/search/all?q=Galilei%20Donna&cat=all)
