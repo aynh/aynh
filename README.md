@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're Puss in Boots, the one who tricks the prince. He hides who he really is and pretends to be someone else forever. So in time he becomes that person, so his lie becomes the truth, see? He transcends the mask. Don't you get it? That's how he finds happiness. That's pretty good, right?"
+> "Have a dream that you can achieve within your lifetime!"
 
-&mdash; [**Eri Ninamori**](https://myanimelist.net/character.php?q=Eri%20Ninamori&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Ryou**](https://myanimelist.net/character.php?q=Ryou&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
