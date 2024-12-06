@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's enough, Soifon. You remind me of myself. I even think of you sometimes as my little sister."
+> "If you lose something, just build it again. And this time, with a greater care."
 
-&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
