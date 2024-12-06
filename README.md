@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no such thing as useless effort."
+> "The past is not what needs to be rectified. We learn from the past to rectify the future."
 
-&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Goyle**](https://myanimelist.net/character.php?q=Goyle&cat=character), [**Blood Lad**](https://myanimelist.net/search/all?q=Blood%20Lad&cat=all)
