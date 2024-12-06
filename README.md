@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Admirals without soldiers are equivalent to fixed stars without planets. Their lights will only illuminate the darkness without any effect."
+> "I don't think ignorance is necessarily a bad thing. The more you know, the more problems you have."
 
-&mdash; [**Dietrich Saucken**](https://myanimelist.net/character.php?q=Dietrich%20Saucken&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
