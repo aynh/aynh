@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What use is strength in modern society? You have to be smart."
+> "They'll use you as much as they want; then once they're done with you, they'll all disappear."
 
-&mdash; [**Han Jee-Han**](https://myanimelist.net/character.php?q=Han%20Jee-Han&cat=character), [**The Gamer**](https://myanimelist.net/search/all?q=The%20Gamer&cat=all)
+&mdash; [**Mei Tachibana**](https://myanimelist.net/character.php?q=Mei%20Tachibana&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
