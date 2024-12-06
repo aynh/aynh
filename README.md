@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The future has shown us with its glorious brilliance the time to seize our destiny and conquer all our fear is now! In ancient times, man rubbed sticks together and created fire, then they slaughtered the whales and battled one another for oil. After that, came the atomic age. In every chapter of our history, we've danced with danger. But now, for the first time in existence, we will be delivered from fear. Finally, we will escape the prison of our illusions and the beautiful night will embrace us all. It's already too late! I will live by this and I will die by this!"
+> "I don’t like hurting others. But that doesn't mean I won’t bear arms to protect places and people dear to me."
 
-&mdash; [**Dr. Franken Von Vogler**](https://myanimelist.net/character.php?q=Dr.%20Franken%20Von%20Vogler&cat=character), [**Giant Robo**](https://myanimelist.net/search/all?q=Giant%20Robo&cat=all)
+&mdash; [**Kiriha Kurano**](https://myanimelist.net/character.php?q=Kiriha%20Kurano&cat=character), [**Rokujouma no Shinryakusha!?**](https://myanimelist.net/search/all?q=Rokujouma%20no%20Shinryakusha!%3F&cat=all)
