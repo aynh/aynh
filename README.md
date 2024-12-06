@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past is not what needs to be rectified. We learn from the past to rectify the future."
+> "*referring to Azula* She can shoot all the lightning she wants at me, I'm not going into that wall sludge juice. [shudders]"
 
-&mdash; [**Goyle**](https://myanimelist.net/character.php?q=Goyle&cat=character), [**Blood Lad**](https://myanimelist.net/search/all?q=Blood%20Lad&cat=all)
+&mdash; [**Mai**](https://myanimelist.net/character.php?q=Mai&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
