@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Getting dumped always makes a man stronger. But then again, men aren't meant to pursue happiness."
+> "Being alone is more painful than getting hurt."
 
-&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
