@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you keep lying like that, no one, not even yourself, will believe you anymore."
+> "Courage is a word of justice. It means the quality of mind that enables one to face apprehension with confidence and resolution. It is not right to use it as an excuse to kill someone."
 
-&mdash; [**Aladdin**](https://myanimelist.net/character.php?q=Aladdin&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
+&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
