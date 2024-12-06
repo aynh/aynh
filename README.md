@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don’t like hurting others. But that doesn't mean I won’t bear arms to protect places and people dear to me."
+> "People struggle to find an answer even in things like math where there is clearly only one answer. So there's no shame in struggling through something that has no right answer."
 
-&mdash; [**Kiriha Kurano**](https://myanimelist.net/character.php?q=Kiriha%20Kurano&cat=character), [**Rokujouma no Shinryakusha!?**](https://myanimelist.net/search/all?q=Rokujouma%20no%20Shinryakusha!%3F&cat=all)
+&mdash; [**Momoka Hanai**](https://myanimelist.net/character.php?q=Momoka%20Hanai&cat=character), [**Koi Dano Ai Dano**](https://myanimelist.net/search/all?q=Koi%20Dano%20Ai%20Dano&cat=all)
