@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People struggle to find an answer even in things like math where there is clearly only one answer. So there's no shame in struggling through something that has no right answer."
+> "Admirals without soldiers are equivalent to fixed stars without planets. Their lights will only illuminate the darkness without any effect."
 
-&mdash; [**Momoka Hanai**](https://myanimelist.net/character.php?q=Momoka%20Hanai&cat=character), [**Koi Dano Ai Dano**](https://myanimelist.net/search/all?q=Koi%20Dano%20Ai%20Dano&cat=all)
+&mdash; [**Dietrich Saucken**](https://myanimelist.net/character.php?q=Dietrich%20Saucken&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
