@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People don't fall in love based on looks. And that's a scientific fact."
+> "I'm sure there's a reason that, even after I stopped being lost, I stayed here. I won't leave until I know what that reason is."
 
-&mdash; [**Ichijou Kagetsu**](https://myanimelist.net/character.php?q=Ichijou%20Kagetsu&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
+&mdash; [**Mayoi Hachikuji**](https://myanimelist.net/character.php?q=Mayoi%20Hachikuji&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
