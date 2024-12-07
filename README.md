@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The day when you'll finally understand me... will never come."
+> "Opportunities wait for no one! If you let an opportunity slip through your fingers with an excuse like, “I wasn't prepared.” You'll never get another opportunity like that again! But it is your life. Live it the way you want."
 
-&mdash; [**Saruhiko Fushimi**](https://myanimelist.net/character.php?q=Saruhiko%20Fushimi&cat=character), [**K**](https://myanimelist.net/search/all?q=K&cat=all)
+&mdash; [**Sorata Kanda**](https://myanimelist.net/character.php?q=Sorata%20Kanda&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
