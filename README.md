@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you come to hate something you liked it is incredibly painful."
+> "By abandoning offense, even without winning, the result will be effectively victory."
 
-&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Togame**](https://myanimelist.net/character.php?q=Togame&cat=character), [**Katanagatari**](https://myanimelist.net/search/all?q=Katanagatari&cat=all)
