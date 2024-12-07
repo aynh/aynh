@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life sometimes deals you a bad hand and you make a lot of mistakes along the way, but as long as you believe in yourself and walk along your chosen path with a smile, everything will be alright."
+> "There are two kinds of fights. As long as we place ourselves in battle, we must always know the difference, a fight to defend life or a fight to defend pride."
 
-&mdash; [**Narumi Anjo**](https://myanimelist.net/character.php?q=Narumi%20Anjo&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
+&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
