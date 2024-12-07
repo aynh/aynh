@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When the world is filled with red lights signaling danger, the world is safer than usual. But when it's filled with green lights signaling safety, it creates a place more dangerous than anywhere."
+> "[to Luppi] Hyourinmaru is the strongest of all ice-type Zanpakutoes. Your weapon may have eight arms, but mine is all the water in the atmosphere! Sennen Hyourou!! [causes several pillars of ice to form, before using them to crush Luppi] Sorry. Eight wasn't enough."
 
-&mdash; [**Ougi Oshino**](https://myanimelist.net/character.php?q=Ougi%20Oshino&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
