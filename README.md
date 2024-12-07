@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're going to selfishly admire someone only to be disillusioned later, then maybe you shouldn't try to get to know them better at all."
+> "The day when you'll finally understand me... will never come."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Saruhiko Fushimi**](https://myanimelist.net/character.php?q=Saruhiko%20Fushimi&cat=character), [**K**](https://myanimelist.net/search/all?q=K&cat=all)
