@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "By abandoning offense, even without winning, the result will be effectively victory."
+> "[to Zuko] You know what the worst part of being born over a hundred years ago is? I miss all the friends I used to hang out with. Before the war started, I used to always visit my friend Kuzon. The two of us, we'd get in and out of so much trouble together. He was one of the best friends I ever had, and he was from the Fire Nation just like you. If we knew each other back then, do you think we could have been friends too?"
 
-&mdash; [**Togame**](https://myanimelist.net/character.php?q=Togame&cat=character), [**Katanagatari**](https://myanimelist.net/search/all?q=Katanagatari&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
