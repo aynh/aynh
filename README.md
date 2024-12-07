@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're gonna kill me, then kill me. If you're gonna execute me, stop waiting. Until then, I live by my own rules!"
+> "When you come to hate something you liked it is incredibly painful."
 
-&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
