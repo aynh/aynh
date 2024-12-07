@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You see everyone wants everything, that's the way the world is. But I just might actually get it."
+> "If you're going to selfishly admire someone only to be disillusioned later, then maybe you shouldn't try to get to know them better at all."
 
-&mdash; [**Jigo**](https://myanimelist.net/character.php?q=Jigo&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
