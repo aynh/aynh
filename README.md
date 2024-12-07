@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Opportunities wait for no one! If you let an opportunity slip through your fingers with an excuse like, “I wasn't prepared.” You'll never get another opportunity like that again! But it is your life. Live it the way you want."
+> "You're proud of your white clothes?.. It sounds like a laundry detergent commercial."
 
-&mdash; [**Sorata Kanda**](https://myanimelist.net/character.php?q=Sorata%20Kanda&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Pesche Guatiche**](https://myanimelist.net/character.php?q=Pesche%20Guatiche&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
