@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're proud of your white clothes?.. It sounds like a laundry detergent commercial."
+> "Where is your tail? (Searching for tail in Bulma's butt)"
 
-&mdash; [**Pesche Guatiche**](https://myanimelist.net/character.php?q=Pesche%20Guatiche&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
