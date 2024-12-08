@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times when all we can do is stand aside and watch."
+> "Is that all your feelings have to offer? Go ahead. Try to wrench open my heart. That's the only way you'll get me."
 
-&mdash; [**Cordelia**](https://myanimelist.net/character.php?q=Cordelia&cat=character), [**Romeo x Juliet**](https://myanimelist.net/search/all?q=Romeo%20x%20Juliet&cat=all)
+&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
