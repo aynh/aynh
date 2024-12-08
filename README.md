@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no right answer for getting along. Different people require different answers."
+> "It's not about being right or being wrong. There are more important things than that. That's why apologies and forgiveness become necessary."
 
-&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
