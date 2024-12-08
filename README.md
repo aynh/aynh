@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone wants to think like this: 'It can't be helped if I lose against someone with talent'. Like that, be it consciously or unconsciously... People put a lid on their hearts. They want to protect their pride, self-esteem... or whatever."
+> "What is the resulting amperage when applying 3.0V to a conductor with 20ohm resistance?"
 
-&mdash; [**Jōichirō Yukihira**](https://myanimelist.net/character.php?q=J%C5%8Dichir%C5%8D%20Yukihira&cat=character), [**Shokugeki no Sōma**](https://myanimelist.net/search/all?q=Shokugeki%20no%20S%C5%8Dma&cat=all)
+&mdash; [**Yuzuru Otonashi**](https://myanimelist.net/character.php?q=Yuzuru%20Otonashi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
