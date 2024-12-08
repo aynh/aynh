@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[sarcastically] In my country, we exchange a pleasant 'hello' before asking questions."
+> "Everyone wants to think like this: 'It can't be helped if I lose against someone with talent'. Like that, be it consciously or unconsciously... People put a lid on their hearts. They want to protect their pride, self-esteem... or whatever."
 
-&mdash; [**Azula**](https://myanimelist.net/character.php?q=Azula&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Jōichirō Yukihira**](https://myanimelist.net/character.php?q=J%C5%8Dichir%C5%8D%20Yukihira&cat=character), [**Shokugeki no Sōma**](https://myanimelist.net/search/all?q=Shokugeki%20no%20S%C5%8Dma&cat=all)
