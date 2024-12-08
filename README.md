@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You probably weren't wrong, but you went about it the wrong way."
+> "There are times when all we can do is stand aside and watch."
 
-&mdash; [**Akatsuki Kojou**](https://myanimelist.net/character.php?q=Akatsuki%20Kojou&cat=character), [**Strike the Blood**](https://myanimelist.net/search/all?q=Strike%20the%20Blood&cat=all)
+&mdash; [**Cordelia**](https://myanimelist.net/character.php?q=Cordelia&cat=character), [**Romeo x Juliet**](https://myanimelist.net/search/all?q=Romeo%20x%20Juliet&cat=all)
