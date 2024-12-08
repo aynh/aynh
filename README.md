@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He who lies to make things beautiful is probably someone who admires pure feelings much more than anybody else."
+> "You probably weren't wrong, but you went about it the wrong way."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Akatsuki Kojou**](https://myanimelist.net/character.php?q=Akatsuki%20Kojou&cat=character), [**Strike the Blood**](https://myanimelist.net/search/all?q=Strike%20the%20Blood&cat=all)
