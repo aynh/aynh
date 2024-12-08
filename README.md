@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter the reason, I don't think anyone who loses consciousness in the battlefield has any right to survive!"
+> "[sarcastically] In my country, we exchange a pleasant 'hello' before asking questions."
 
-&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
+&mdash; [**Azula**](https://myanimelist.net/character.php?q=Azula&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
