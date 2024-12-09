@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oddities are the world itself. They're linked to the world, unlike living beings. Science alone cannot shed light upon them, as there will always be people who'll be afraid of vampires. Although all forms of darkness could be lit up, darkness will never cease to exist."
+> "For everything you wish, you have to pay an equal price in return. You can't get more or give more. You can't get less or give less. It must be in balance, or else there will be chaos."
 
-&mdash; [**Bakemonogatari**](https://myanimelist.net/character.php?q=Bakemonogatari&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
