@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When a human is victorious is when they're most vulnerable."
+> "[to Ichigo] Try to stay alive, okay? That way, you and Kenny can play again some day!"
 
-&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
+&mdash; [**Kusajishi Yachiru**](https://myanimelist.net/character.php?q=Kusajishi%20Yachiru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
