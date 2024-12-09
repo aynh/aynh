@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not just grief. There are as many emotions as there are people. The fragility of someone who lets their anger get the best of them... The strength to overcome fear because of love... You can't comprehend anything about them."
+> "While it may be that ignorance is a sin, it's impossible to know everything."
 
-&mdash; [**Chiyuki**](https://myanimelist.net/character.php?q=Chiyuki&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
