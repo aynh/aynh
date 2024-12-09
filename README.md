@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "While it may be that ignorance is a sin, it's impossible to know everything."
+> "If you think about it, death really isn't so frightening. Who knows, you might actually enjoy it."
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Karasu**](https://myanimelist.net/character.php?q=Karasu&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
