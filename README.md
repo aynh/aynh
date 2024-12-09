@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's wrong isn't me, what's wrong is the world!"
+> "If I'm bad at doubting others, I'd rather believe in them! If I get tricked, I'll think about what to do when it happens! Things are simpler that way!"
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Shirota Mahiru**](https://myanimelist.net/character.php?q=Shirota%20Mahiru&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
