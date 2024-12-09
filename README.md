@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As a rule, they say humans haunted by a shinigami have nothing but misfortune."
+> "Honestly, there isn't much meaning to the splendid names given to you by your parents. What does have meaning, is what the person behind that name does during their actual lifetime. The name doesn't make the person. The name simply remains gently within the footprint left on the path a person walks."
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
