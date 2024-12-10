@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans always pursue things they can’t reach. Doesn’t it single-heartedly symbolize such yearnings?"
+> "Memories... of the people we were. They're subtle, but they're real. It took me a lot of time to understand what I saw. Books say we shouldn't have memories. Or at least that they're only the memories and emotions of the alchemists who made us. But they are wrong. Those memories are mine."
 
-&mdash; [**Legend of the Galactic Heroes**](https://myanimelist.net/character.php?q=Legend%20of%20the%20Galactic%20Heroes&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Lust**](https://myanimelist.net/character.php?q=Lust&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
