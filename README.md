@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...but as they say, it ain't over till the fat lady sings. I don't know which fat lady is doing the singing or where she's planning on doing her singing. But if I find out where she is, I'd like to put her out of commission for a year!"
+> "Whoever invented stew is brilliant! It has milk in it and it still tastes good."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
