@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Memories... of the people we were. They're subtle, but they're real. It took me a lot of time to understand what I saw. Books say we shouldn't have memories. Or at least that they're only the memories and emotions of the alchemists who made us. But they are wrong. Those memories are mine."
+> "They say the temperature of tea and a women's heart are difficult in any age."
 
-&mdash; [**Lust**](https://myanimelist.net/character.php?q=Lust&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Ronove**](https://myanimelist.net/character.php?q=Ronove&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
