@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whoever invented stew is brilliant! It has milk in it and it still tastes good."
+> "Humans always pursue things they can’t reach. Doesn’t it single-heartedly symbolize such yearnings?"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Legend of the Galactic Heroes**](https://myanimelist.net/character.php?q=Legend%20of%20the%20Galactic%20Heroes&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
