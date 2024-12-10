@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'd rather give up my eye, than give up his sword. Maybe I'm not so worthless after all."
+> "Keep fighting on, even if it ain't worth much."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
