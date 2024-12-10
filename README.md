@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even since the industrial revolution, humanity has used its technological knowledge for conflict and repeatedly risked its own extinction. Though great leaders appeared at times, they’d reach the end of their lives in a few decades... and the world would return to a state of chaos."
+> "This is the first time in my life that I've been provoked to hit a woman."
 
-&mdash; [**Ribbons Almark**](https://myanimelist.net/character.php?q=Ribbons%20Almark&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
