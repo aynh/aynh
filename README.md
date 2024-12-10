@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want that kind of twisted love."
+> "Even since the industrial revolution, humanity has used its technological knowledge for conflict and repeatedly risked its own extinction. Though great leaders appeared at times, they’d reach the end of their lives in a few decades... and the world would return to a state of chaos."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Ribbons Almark**](https://myanimelist.net/character.php?q=Ribbons%20Almark&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
