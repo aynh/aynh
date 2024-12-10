@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Aang, this is my friend Foo-Foo Cuddly Poofs, Foo-Foo Cuddly Poofs, Aang."
+> "*to Aang* You need to find someone who WAITS and LISTENS before striking."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**King Bumi**](https://myanimelist.net/character.php?q=King%20Bumi&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
