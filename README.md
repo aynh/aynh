@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't go believing everyone with glasses is smart!"
+> "Strength isn't just about winning. Even if my attempts are pathetic and comical, and even if I'm covered in the mud of my defeat, if I can keep fighting and look up at the sky as I lie on the ground, that alone is proof of true strength!"
 
-&mdash; [**Hyuuga Junpei**](https://myanimelist.net/character.php?q=Hyuuga%20Junpei&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Haruyuki Arita**](https://myanimelist.net/character.php?q=Haruyuki%20Arita&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
