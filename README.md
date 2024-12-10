@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm going to keep fighting until this world is the way it should be. Until the world is balanced."
+> "What is really wicked... is judging people without even trying to get to know them!"
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ada Vessalius**](https://myanimelist.net/character.php?q=Ada%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
