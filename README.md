@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is really wicked... is judging people without even trying to get to know them!"
+> "Don't go believing everyone with glasses is smart!"
 
-&mdash; [**Ada Vessalius**](https://myanimelist.net/character.php?q=Ada%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Hyuuga Junpei**](https://myanimelist.net/character.php?q=Hyuuga%20Junpei&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
