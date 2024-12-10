@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Aang* You need to find someone who WAITS and LISTENS before striking."
+> "Is it really worth saving this sad and ugly world, when there is nothing left after it is saved? With all this death, cruelty and sadness, do you still want to become a hero?"
 
-&mdash; [**King Bumi**](https://myanimelist.net/character.php?q=King%20Bumi&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
