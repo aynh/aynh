@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't care anything and do not do anything that's a waste of energy."
+> "I'm going to keep fighting until this world is the way it should be. Until the world is balanced."
 
-&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
