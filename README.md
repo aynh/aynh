@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I tell you to leave, leave. In this world, winning is everything. Winners are affirmed completely, and losers are denied completely. I've never lost at anything before, and I never will. Because I always win, and I'm always right. I show no mercy to those who oppose me, not even my own parents."
+> "Hey Kaiba, maybe we should duel sometimes."
 
-&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Joey Wheeler**](https://myanimelist.net/character.php?q=Joey%20Wheeler&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
