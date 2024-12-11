@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You were always there for me, and that’s all I needed. Just you. For some reason, I didn't feel sad or broken up, it just didn't seem real. But slowly I realized it was real – that you were gone. And little by little, I slowly felt something inside me go numb."
+> "I don't want... to run away by myself. Because no matter what, I'd rather be together with everyone..."
 
-&mdash; [**Jet Black**](https://myanimelist.net/character.php?q=Jet%20Black&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
