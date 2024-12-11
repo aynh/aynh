@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whoever invented stew is brilliant! It has milk in it and it still tastes good."
+> "If you stick to a 'lie', it'll eventually become the 'truth'."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
