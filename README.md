@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Modern-day saints carry assault rifles, and spread the word of God with their bullets."
+> "Look, all it means is that when I lose it, it's cause things make no sense.  If there was any logic to it, then I wouldn't get pissed even if I got shot or stabbed."
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Shizuo Heiwajima**](https://myanimelist.net/character.php?q=Shizuo%20Heiwajima&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
