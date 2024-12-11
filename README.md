@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When we first met, you set my heart ablaze. When I see you, all I can do is gaze. Gaze at the beauty and wonder that is you. The constellation Gemini will make me think of me and you. You are my Yami and I am your Hikari. I love you, my Yami. Now and forever."
+> "Do not lose to the obstacles that you will meet in the future. I have my own set of goals but do not pursue them because of my laziness."
 
-&mdash; [**Yūgi Mutō**](https://myanimelist.net/character.php?q=Y%C5%ABgi%20Mut%C5%8D&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
