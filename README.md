@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Family is the society that you came into contact with first; The people who influence you first. But if that first society banishes you, there will be another society that accepts you."
+> "I always say what exactly what I'm feeling, and if they don't like me, that's fine! It doesn't change the fact that I was close to their hearts."
 
-&mdash; [**Reisi Munakata**](https://myanimelist.net/character.php?q=Reisi%20Munakata&cat=character), [**Project K: Days Of Blue**](https://myanimelist.net/search/all?q=Project%20K%3A%20Days%20Of%20Blue&cat=all)
+&mdash; [**Konno Yuuki**](https://myanimelist.net/character.php?q=Konno%20Yuuki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
