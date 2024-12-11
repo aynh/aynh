@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans must think about living on. And, must also understand death. Most important, we must learn to understand the truth."
+> "I didn't say get naked, stupid. I just can't stand seeing you in those clothes."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
