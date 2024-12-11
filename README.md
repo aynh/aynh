@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*referring to Ichigo* I see. So I still haven't reached you..."
+> "Humans must think about living on. And, must also understand death. Most important, we must learn to understand the truth."
 
-&mdash; [**Zangetsu**](https://myanimelist.net/character.php?q=Zangetsu&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
