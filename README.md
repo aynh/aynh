@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life's a bitch, so if it's easy, you're doing it wrong."
+> "Modern-day saints carry assault rifles, and spread the word of God with their bullets."
 
-&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
