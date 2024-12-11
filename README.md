@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Cry when you’re sad. Laugh when you’re happy. Get angry when you don’t like something. Depend on someone when you’re depressed. Care for yourself before you care for others. Don’t hate anyone. Be proud of yourself. Stay loyal when you fall in love."
+> "I want out of this damn moat!"
 
-&mdash; [**Otonashi Maria**](https://myanimelist.net/character.php?q=Otonashi%20Maria&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
