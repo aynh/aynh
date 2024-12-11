@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look, all it means is that when I lose it, it's cause things make no sense.  If there was any logic to it, then I wouldn't get pissed even if I got shot or stabbed."
+> "When I tell you to leave, leave. In this world, winning is everything. Winners are affirmed completely, and losers are denied completely. I've never lost at anything before, and I never will. Because I always win, and I'm always right. I show no mercy to those who oppose me, not even my own parents."
 
-&mdash; [**Shizuo Heiwajima**](https://myanimelist.net/character.php?q=Shizuo%20Heiwajima&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
