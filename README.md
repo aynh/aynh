@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was afraid of the me that didn't know what he wanted to do. And the days just keep on moving. But even then If I keep on going like this, will I be able to see it? Maybe someday."
+> "Strength always comes with responsibilities."
 
-&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Izumo Kusanagi**](https://myanimelist.net/character.php?q=Izumo%20Kusanagi&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
