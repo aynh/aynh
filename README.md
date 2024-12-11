@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Strength always comes with responsibilities."
+> "Urushibara Ruka. The mannerisms and voice of a woman... No. More feminine than ANY woman. But he's a guy. Taller than Mayuri, but so very thin... But he's a guy. Looks great in a miko outfit... But he's a guy. It's already twilight and yet, it's so hot. The cicadas are crying. But... He's a guy."
 
-&mdash; [**Izumo Kusanagi**](https://myanimelist.net/character.php?q=Izumo%20Kusanagi&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
+&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
