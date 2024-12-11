@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you stick to a 'lie', it'll eventually become the 'truth'."
+> "Life's a bitch, so if it's easy, you're doing it wrong."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
