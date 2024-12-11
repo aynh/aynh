@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want... to run away by myself. Because no matter what, I'd rather be together with everyone..."
+> "Cry when you’re sad. Laugh when you’re happy. Get angry when you don’t like something. Depend on someone when you’re depressed. Care for yourself before you care for others. Don’t hate anyone. Be proud of yourself. Stay loyal when you fall in love."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Otonashi Maria**](https://myanimelist.net/character.php?q=Otonashi%20Maria&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
