@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The inexperienced draw attention by acting differently."
+> "When you build something, you must be ready to spend time and money on failure. The best materials won't always yield the best results. However, if you build something by improving on failure, you'll end up with good results."
 
-&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Mutta Namba**](https://myanimelist.net/character.php?q=Mutta%20Namba&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
