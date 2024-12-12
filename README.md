@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The legendary super-skill of the Scythe-Meister! Witch Hunter!"
+> "Our fates... can be changed. All we have to do is try."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Renya Kagurazaka**](https://myanimelist.net/character.php?q=Renya%20Kagurazaka&cat=character), [**Kamisama To Unmei Kakumei No Paradox**](https://myanimelist.net/search/all?q=Kamisama%20To%20Unmei%20Kakumei%20No%20Paradox&cat=all)
