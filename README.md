@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If someone here were hurt or lost their life because of me, I think I would also be in pain much like Loke. But, it’ll be all right. If everyone works together and unites in power, we can overcome any pinch ahead, right?"
+> "If you dislike the situation, use your strength to change it."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Hoshimura Junichirou**](https://myanimelist.net/character.php?q=Hoshimura%20Junichirou&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
