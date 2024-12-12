@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Urushibara Ruka, delicate as an orchid, fair as a cherry blossom, the personification of feminine grace and also... a dude. Tall as a willow, slender as a reed, a dude. Radiant in shrine vestments, dude. The sun dips low in a rosy sky, secateurs buzz, Ruka is a dude."
+> "I think that in the end, I just care a lot about myself. I was the only one that I loved and respected. That's why I was scared to know what the others thought about me. I was afraid to get hurt, so I ran away and locked myself into my shell."
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Kirara**](https://myanimelist.net/character.php?q=Kirara&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
