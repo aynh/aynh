@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't ever win if you're always on the defensive. To win, you have to attack!"
+> "I yearn for true gender equality. I have no patience for one who talks about female privilege when it suits them, and then complains about someone 'not being a man' when it's convenient."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kazuma Satou**](https://myanimelist.net/character.php?q=Kazuma%20Satou&cat=character), [**Kono Subarashii Sekai ni Shukufuku wo!**](https://myanimelist.net/search/all?q=Kono%20Subarashii%20Sekai%20ni%20Shukufuku%20wo!&cat=all)
