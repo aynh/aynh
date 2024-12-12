@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you let yourself get depressed, you'd be making light of the people who trust and follow you."
+> "The legendary super-skill of the Scythe-Meister! Witch Hunter!"
 
-&mdash; [**Ogami Rei**](https://myanimelist.net/character.php?q=Ogami%20Rei&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
