@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One must take time to think! Rushing forward without considering things beforehand is the hight of foolishness. Ahh yes, that reminds me of another time when I had to consider things, that case was long ago but I remember it still. It was back when I still hung my hat on Bakers St. and called it home."
+> "A Coma doesn't exist, it is a preparatory research for the next life."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Fuura Kafuka**](https://myanimelist.net/character.php?q=Fuura%20Kafuka&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
