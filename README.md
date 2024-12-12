@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you dislike the situation, use your strength to change it."
+> "There’s only one difference between heroes and mad men. It’s whether they win or lose."
 
-&mdash; [**Hoshimura Junichirou**](https://myanimelist.net/character.php?q=Hoshimura%20Junichirou&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Lambdadelta**](https://myanimelist.net/character.php?q=Lambdadelta&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
