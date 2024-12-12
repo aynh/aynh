@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our fates... can be changed. All we have to do is try."
+> "The strong don't win. The winners are the strong ones."
 
-&mdash; [**Renya Kagurazaka**](https://myanimelist.net/character.php?q=Renya%20Kagurazaka&cat=character), [**Kamisama To Unmei Kakumei No Paradox**](https://myanimelist.net/search/all?q=Kamisama%20To%20Unmei%20Kakumei%20No%20Paradox&cat=all)
+&mdash; [**Tsutomu Iwamura**](https://myanimelist.net/character.php?q=Tsutomu%20Iwamura&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
