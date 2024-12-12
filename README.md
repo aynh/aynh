@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s only one difference between heroes and mad men. It’s whether they win or lose."
+> "One must take time to think! Rushing forward without considering things beforehand is the hight of foolishness. Ahh yes, that reminds me of another time when I had to consider things, that case was long ago but I remember it still. It was back when I still hung my hat on Bakers St. and called it home."
 
-&mdash; [**Lambdadelta**](https://myanimelist.net/character.php?q=Lambdadelta&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
