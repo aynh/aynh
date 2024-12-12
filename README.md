@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't think much of you for sending a girl your age to the place where a wierd man lives."
+> "We should be driven by things like our desires, instincts, and impulses. That's how it should be."
 
-&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Ranta**](https://myanimelist.net/character.php?q=Ranta&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
