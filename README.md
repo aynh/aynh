@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I always say what exactly what I'm feeling, and if they don't like me, that's fine! It doesn't change the fact that I was close to their hearts."
+> "The inexperienced draw attention by acting differently."
 
-&mdash; [**Konno Yuuki**](https://myanimelist.net/character.php?q=Konno%20Yuuki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
