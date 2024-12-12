@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My abusive language is alchemized through 40 kg copper, 25 kg of zinc, 15 kg of nickel, 5 kg of ice that keeps my cool, and 97 kg of spite."
+> "I don't think much of you for sending a girl your age to the place where a wierd man lives."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
