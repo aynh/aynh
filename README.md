@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If reality is nothing more than what is in our mind, then what is the difference between this world and a dream?"
+> "You can't ever win if you're always on the defensive. To win, you have to attack!"
 
-&mdash; [**Yuca Collabell**](https://myanimelist.net/character.php?q=Yuca%20Collabell&cat=character), [**Immortal Rain**](https://myanimelist.net/search/all?q=Immortal%20Rain&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
