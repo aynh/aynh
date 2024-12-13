@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are stars and planets floating around me. I don't think I could handle astronomy right now."
+> "If I hadn't met you, I never would have realized what kind of person I am. I would have grown into an apathetic, clueless, obedient adult. However, after spending time with you, in tears, laughter, and anger, I now know that I have all these emotions inside me, too. And that makes me proud. I'm glad to have known you."
 
-&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Sion**](https://myanimelist.net/character.php?q=Sion&cat=character), [**No.6**](https://myanimelist.net/search/all?q=No.6&cat=all)
