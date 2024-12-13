@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The human heart will always sway. And only then do we know that it is truly a human heart."
+> "Once I'm dead, I won't even be able to remember you. So I'll win, no matter what. I'll live, no matter what!"
 
-&mdash; [**Sister Libelle**](https://myanimelist.net/character.php?q=Sister%20Libelle&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
