@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We've just witnessed a classic example of what I like to call 'misdirected rage'. Though I believe the technical term is being an ass."
+> "The human heart will always sway. And only then do we know that it is truly a human heart."
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Sister Libelle**](https://myanimelist.net/character.php?q=Sister%20Libelle&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
