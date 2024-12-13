@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why is it that making our dreams come true, and being truly happy are often two separate things?.. I still haven't figured that one out."
+> "That's what you think, Captain Cocky!"
 
-&mdash; [**Nana Komatsu**](https://myanimelist.net/character.php?q=Nana%20Komatsu&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
