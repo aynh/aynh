@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I hadn't met you, I never would have realized what kind of person I am. I would have grown into an apathetic, clueless, obedient adult. However, after spending time with you, in tears, laughter, and anger, I now know that I have all these emotions inside me, too. And that makes me proud. I'm glad to have known you."
+> "Sorry. Our world isn't as nice a place as yours. When it comes to war and killing, we have far more expertise than you do."
 
-&mdash; [**Sion**](https://myanimelist.net/character.php?q=Sion&cat=character), [**No.6**](https://myanimelist.net/search/all?q=No.6&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
