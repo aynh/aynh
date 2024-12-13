@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can lose the match and the game, but if you don't lose to yourself, it isn't a loss."
+> "The longer the days go by without them, the worse the sadness from losing someone gets..."
 
-&mdash; [**Karen Araragi**](https://myanimelist.net/character.php?q=Karen%20Araragi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Ushiromiya Battler**](https://myanimelist.net/character.php?q=Ushiromiya%20Battler&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
