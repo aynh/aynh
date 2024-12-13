@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dammit, is that how you greet your son who went out of his way to help a ghost on the way home?!"
+> "Crazy baby."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
