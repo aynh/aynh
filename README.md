@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once I'm dead, I won't even be able to remember you. So I'll win, no matter what. I'll live, no matter what!"
+> "Even if people refuse to accept you, it doesn't change the fact that I accept you and don't want you to leave."
 
-&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Shido Itsuka**](https://myanimelist.net/character.php?q=Shido%20Itsuka&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
