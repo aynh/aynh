@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if people refuse to accept you, it doesn't change the fact that I accept you and don't want you to leave."
+> "If it's going to be a relationship of hardship and mental agony, you should put an end to it."
 
-&mdash; [**Shido Itsuka**](https://myanimelist.net/character.php?q=Shido%20Itsuka&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
+&mdash; [**Masafumi Takeuchi**](https://myanimelist.net/character.php?q=Masafumi%20Takeuchi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
