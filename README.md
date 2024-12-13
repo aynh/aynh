@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Protecting the powerless is simply a soldier's duty!"
+> "Why is it that making our dreams come true, and being truly happy are often two separate things?.. I still haven't figured that one out."
 
-&mdash; [**Wave**](https://myanimelist.net/character.php?q=Wave&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Nana Komatsu**](https://myanimelist.net/character.php?q=Nana%20Komatsu&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
