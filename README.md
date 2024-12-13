@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey, all it did was go around in a full circle."
+> "You can lose the match and the game, but if you don't lose to yourself, it isn't a loss."
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Karen Araragi**](https://myanimelist.net/character.php?q=Karen%20Araragi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
