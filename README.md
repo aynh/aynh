@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This guy's a special kind of stupid."
+> "There are stars and planets floating around me. I don't think I could handle astronomy right now."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
