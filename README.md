@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "An earnest failure has meaning."
+> "I read in some book that sad and painful things are the spices of an enjoyable life... But I seem to get nothing but spices!"
 
-&mdash; [**Mutta Namba**](https://myanimelist.net/character.php?q=Mutta%20Namba&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Tomoko Kuroki**](https://myanimelist.net/character.php?q=Tomoko%20Kuroki&cat=character), [**WATAMOTE**](https://myanimelist.net/search/all?q=WATAMOTE&cat=all)
