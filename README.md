@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My, my! Do I really need to spell it out for you? There is nothing that you can acquire without making a move on your own. It's the same with romance - your only hope is to be more aggressive."
+> "You can certainly fulfill your wish to 'save someone'. But a wish for you to save yourself, does not exist. You will embrace a borrowed ideal that is not yours, and you will probably pursue it until you die."
 
-&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
