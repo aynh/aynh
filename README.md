@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One's true worth shows as hardship increases."
+> "Happiness is hot chocolate on a cold day."
 
-&mdash; [**Kotomine Risei**](https://myanimelist.net/character.php?q=Kotomine%20Risei&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
