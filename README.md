@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Each one of them has something to improve. Victory doesn't come from technique or power alone. In the end, what's needed is a heart that won't give up. The only question is -- Do they have what it takes to push beyond their limits?"
+> "Even I... know what it's like to be jealous."
 
-&mdash; [**Soujuu Matsushita**](https://myanimelist.net/character.php?q=Soujuu%20Matsushita&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
