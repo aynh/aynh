@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even I... know what it's like to be jealous."
+> "I don't understand the feelings of the weak. The law of the world is survival at its fittest. Its how the weak are weeded out. It just means those people that died were too weak. Its only natural for the weak to perish."
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Esdeath**](https://myanimelist.net/character.php?q=Esdeath&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
