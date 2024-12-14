@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are coming with me, we are going to hell."
+> "Each one of them has something to improve. Victory doesn't come from technique or power alone. In the end, what's needed is a heart that won't give up. The only question is -- Do they have what it takes to push beyond their limits?"
 
-&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
+&mdash; [**Soujuu Matsushita**](https://myanimelist.net/character.php?q=Soujuu%20Matsushita&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
