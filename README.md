@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Curiosity is like a cockroach. It likes to stumble upon secrets that are supposed to stay hidden."
+> "Afterall, the fate of the world rests on my pitching. The world sure isn't worth much these days."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
