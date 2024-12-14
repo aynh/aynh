@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Smile. Even if you're facing an enemy, people can't attack others with a smile."
+> "There are things that you can only learn by facing the unknown, be it a different species, different values, or upbringing."
 
-&mdash; [**Rurumu**](https://myanimelist.net/character.php?q=Rurumu&cat=character), [**Adventures of Sinbad**](https://myanimelist.net/search/all?q=Adventures%20of%20Sinbad&cat=all)
+&mdash; [**Yoshiyuki Nakajima**](https://myanimelist.net/character.php?q=Yoshiyuki%20Nakajima&cat=character), [**Silver Spoon**](https://myanimelist.net/search/all?q=Silver%20Spoon&cat=all)
