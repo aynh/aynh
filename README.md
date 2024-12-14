@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things that you can only learn by facing the unknown, be it a different species, different values, or upbringing."
+> "You are coming with me, we are going to hell."
 
-&mdash; [**Yoshiyuki Nakajima**](https://myanimelist.net/character.php?q=Yoshiyuki%20Nakajima&cat=character), [**Silver Spoon**](https://myanimelist.net/search/all?q=Silver%20Spoon&cat=all)
+&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
