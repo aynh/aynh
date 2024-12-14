@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Afterall, the fate of the world rests on my pitching. The world sure isn't worth much these days."
+> "One's true worth shows as hardship increases."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Kotomine Risei**](https://myanimelist.net/character.php?q=Kotomine%20Risei&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
