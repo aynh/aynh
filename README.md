@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say that in hard times, you'll never in your life forget the person who gave you a cup of water."
+> "If failure is the hallmark of being young, like they say. then someone who has failed to make friends must be at the peak of his youth, right? However, I'm sure they will disagree. All of this is just their double standards at play and nothing else. Here's the bottom line: Fools that enjoy their youth should go kill themselves."
 
-&mdash; [**Yumiko Sakaki**](https://myanimelist.net/character.php?q=Yumiko%20Sakaki&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
