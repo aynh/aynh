@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's what you think, Captain Cocky!"
+> "This world that we live in is gentle yet sad, fun yet sorrowful, strong yet ephemeral... ...but as long as you're alive, something good is bound to happen. I'm sure of it."
 
-&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Subarashii Sekai**](https://myanimelist.net/character.php?q=Subarashii%20Sekai&cat=character), [**Subarashii Sekai**](https://myanimelist.net/search/all?q=Subarashii%20Sekai&cat=all)
