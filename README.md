@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sasuke, I always knew you were alone. In the beginning I was glad because I thought you were like me - I wanted to talk to you! But you... didn't speak. You always had everyone watching you. You could do everything and we were too different. So I decided that you would become my rival. I didn't want to lose because I was called a loser all the time. Even when we became Team 7, I still thought this way. I always tried to lie but... but the truth is... I always wanted to be like you. I aspired to be like you. Because of that... I was glad that you wanted to fight me."
+> "As time goes by without anyone eating it, it starts getting dry and looking anything but appetizing, and no one's willing to make a move, but when the busboy takes it you go 'wait, we're not done with that yet.' kinda on reflex. But then you end up leaving without eating it."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Konata Izumi**](https://myanimelist.net/character.php?q=Konata%20Izumi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
