@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm a devilish and talented butler."
+> "He, who knows how to do something, is the servant of he, who knows why that thing must be done."
 
-&mdash; [**Gian Carlo**](https://myanimelist.net/character.php?q=Gian%20Carlo&cat=character), [**Lucky Dog**](https://myanimelist.net/search/all?q=Lucky%20Dog&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
