@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At what speed must I live...to be able to see you again..?"
+> "The mistakes people make are eventually labeled as experience. But with a true mistake, there will be no experience to be gained. Because the mistake you made taking me as your opponent will leave you with no future."
 
-&mdash; [**Takaki Toono**](https://myanimelist.net/character.php?q=Takaki%20Toono&cat=character), [**5 Centimeters per Second**](https://myanimelist.net/search/all?q=5%20Centimeters%20per%20Second&cat=all)
+&mdash; [**Hades**](https://myanimelist.net/character.php?q=Hades&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
