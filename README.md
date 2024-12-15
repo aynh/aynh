@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've told you before, he's not one to trust, Otae-san. No trustworthy man has eyes that look like a dead fish's eyes."
+> "'Never trust anyone too much... Remember the devil was once an angel...'"
 
-&mdash; [**Isao Kondō**](https://myanimelist.net/character.php?q=Isao%20Kond%C5%8D&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul √A**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%20%E2%88%9AA&cat=all)
