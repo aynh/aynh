@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People can't live without their memories. But hey can't live on their memories alone either. They have to wake up from their dreams. Those dreams will become sadness if they don't. Even if you wake up from your dream, your memories will still be there. So please smile. I want our memories to be happy to the very end. I wish everyone would keep smiling so that everyone could be happy and everybody could be warmer."
+> "I've told you before, he's not one to trust, Otae-san. No trustworthy man has eyes that look like a dead fish's eyes."
 
-&mdash; [**Minagi Tohno**](https://myanimelist.net/character.php?q=Minagi%20Tohno&cat=character), [**Air**](https://myanimelist.net/search/all?q=Air&cat=all)
+&mdash; [**Isao Kondō**](https://myanimelist.net/character.php?q=Isao%20Kond%C5%8D&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
