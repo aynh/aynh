@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Never trust anyone too much... Remember the devil was once an angel...'"
+> "You shouldn't judge people by how they look."
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul √A**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%20%E2%88%9AA&cat=all)
+&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
