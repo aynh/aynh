@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Of my five older siblings, two died on the first mission, then two more on the second. Then on the sixth mission, the last one... Died as well. I felt sad, somewhat, but more than that, I felt ashamed of their incompetence."
+> "He told me...that which is incomplete seeks completion... yet...that which is incomplete is no better than that which is complete. Do you understand?"
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Argentine**](https://myanimelist.net/character.php?q=Argentine&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
