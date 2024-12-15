@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Reim* It means that you have no affinity for chains with fighting skills. You try to avoid violence even when you fight. That's a very good thing."
+> "Of my five older siblings, two died on the first mission, then two more on the second. Then on the sixth mission, the last one... Died as well. I felt sad, somewhat, but more than that, I felt ashamed of their incompetence."
 
-&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
