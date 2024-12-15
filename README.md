@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We aren't flying away from everyone to leave them, but rather so we might see them again someday."
+> "*to Reim* It means that you have no affinity for chains with fighting skills. You try to avoid violence even when you fight. That's a very good thing."
 
-&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
