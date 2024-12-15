@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He, who knows how to do something, is the servant of he, who knows why that thing must be done."
+> "They'll learn that a man without reason is no different from an animal who defecates wherever it pleases."
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Marlowe Sand**](https://myanimelist.net/character.php?q=Marlowe%20Sand&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
