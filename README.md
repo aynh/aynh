@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We're basically developing at this point, and we don't know the limits of our potential. Even if we felt those limits we would still keep aiming higher."
+> "I'm a devilish and talented butler."
 
-&mdash; [**Daichi Sawamura**](https://myanimelist.net/character.php?q=Daichi%20Sawamura&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Gian Carlo**](https://myanimelist.net/character.php?q=Gian%20Carlo&cat=character), [**Lucky Dog**](https://myanimelist.net/search/all?q=Lucky%20Dog&cat=all)
