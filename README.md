@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You shouldn't judge people by how they look."
+> "Well, life is like the weather. It can be sunny or cloudy. Sometimes it rains, and sometimes it storms."
 
-&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
