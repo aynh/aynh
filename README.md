@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He told me...that which is incomplete seeks completion... yet...that which is incomplete is no better than that which is complete. Do you understand?"
+> "We're basically developing at this point, and we don't know the limits of our potential. Even if we felt those limits we would still keep aiming higher."
 
-&mdash; [**Argentine**](https://myanimelist.net/character.php?q=Argentine&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Daichi Sawamura**](https://myanimelist.net/character.php?q=Daichi%20Sawamura&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
