@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The mistakes people make are eventually labeled as experience. But with a true mistake, there will be no experience to be gained. Because the mistake you made taking me as your opponent will leave you with no future."
+> "I'm not short! I'm fun-sized!"
 
-&mdash; [**Hades**](https://myanimelist.net/character.php?q=Hades&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
