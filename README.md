@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yuri, I finally understand why you and I were the only ones left in this world. You and I were already lost children, but most children in the world are the same as us. That's why, even once was enough: We both needed someone to tell us 'I love you'."
+> "The only atonement you will ever realize will be that of you're own death. You will be justly and severely punished, before you ever find the peace you seek Kenshin. That is the meaning of 'Jinchū'. Those who live must act in the place of those who have died. YOU ARE A CRIMINAL SO DIE LIKE ONE! I will make you suffer and scream, you took my sister... You destroyed her happiness... SUFFER KENSHIN, DIE! YOU MISERABLE DOG!!"
 
-&mdash; [**Keiju Tabuki**](https://myanimelist.net/character.php?q=Keiju%20Tabuki&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Enishi Yukishiro**](https://myanimelist.net/character.php?q=Enishi%20Yukishiro&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
