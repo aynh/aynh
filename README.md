@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh? I thought I severed your body from the waist-down, but...It seems the cut was too shallow."
+> "Well, everyone's unsure of their fighting abilities. When that happens, just train more! When you're afraid, just train! When something doesn't feel right, just train! When you don't believe in yourself anymore, just train! The only thing that won't betray you is your training."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Shio Sakaki**](https://myanimelist.net/character.php?q=Shio%20Sakaki&cat=character), [**KenIchi the Mightiest Disciple**](https://myanimelist.net/search/all?q=KenIchi%20the%20Mightiest%20Disciple&cat=all)
