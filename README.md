@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I sit like a normal person my investigative abilities are only working at 50% efficiency."
+> "I could kill you, but I wont become like you, who uses power for his own egoism."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Toki Fujiwara**](https://myanimelist.net/character.php?q=Toki%20Fujiwara&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
