@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They'll learn that a man without reason is no different from an animal who defecates wherever it pleases."
+> "You shouldn't talk to yourself. People will wonder."
 
-&mdash; [**Marlowe Sand**](https://myanimelist.net/character.php?q=Marlowe%20Sand&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
