@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The only atonement you will ever realize will be that of you're own death. You will be justly and severely punished, before you ever find the peace you seek Kenshin. That is the meaning of 'Jinchū'. Those who live must act in the place of those who have died. YOU ARE A CRIMINAL SO DIE LIKE ONE! I will make you suffer and scream, you took my sister... You destroyed her happiness... SUFFER KENSHIN, DIE! YOU MISERABLE DOG!!"
+> "Who'd want to date girls that talk smack about your friends?"
 
-&mdash; [**Enishi Yukishiro**](https://myanimelist.net/character.php?q=Enishi%20Yukishiro&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Makoto Sunakawa**](https://myanimelist.net/character.php?q=Makoto%20Sunakawa&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
