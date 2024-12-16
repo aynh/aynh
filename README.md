@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...Who decided a student can't win against a teacher?!"
+> "Heaven is a six-tatami, one room, second floor apartment on Earth. Being a NEET is the best."
 
-&mdash; [**Kouta Tsuchiya**](https://myanimelist.net/character.php?q=Kouta%20Tsuchiya&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Urushihara Hanzou**](https://myanimelist.net/character.php?q=Urushihara%20Hanzou&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
