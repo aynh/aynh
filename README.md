@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fright is about the feeling that you will die. The true meaning of terror doesn't lie in a static condition, but in a change."
+> "...Who decided a student can't win against a teacher?!"
 
-&mdash; [**Caster**](https://myanimelist.net/character.php?q=Caster&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Kouta Tsuchiya**](https://myanimelist.net/character.php?q=Kouta%20Tsuchiya&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
