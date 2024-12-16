@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I guess I'm a girl who lacks self-awareness as one, or just too manly, eh?"
+> "The same melody repeats itself as the song grows richer and more beautiful. Wouldn't it be wonderful if we could live seemingly constant lives while experiencing changes bit by bit?"
 
-&mdash; [**Misaki Ayuzawa**](https://myanimelist.net/character.php?q=Misaki%20Ayuzawa&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Sayuri Kurata**](https://myanimelist.net/character.php?q=Sayuri%20Kurata&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
