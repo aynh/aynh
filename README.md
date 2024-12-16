@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Never once did I say it.  But just as he knew my feelings and couldn't return them. She will probably realize his and probably his heart wouldn't have a chance either? When I think about things like that, my tears won't stop."
+> "To climb a hill on a difficult road, you need to be walking steadily."
 
-&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
