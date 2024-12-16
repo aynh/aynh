@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who'd want to date girls that talk smack about your friends?"
+> "Fright is about the feeling that you will die. The true meaning of terror doesn't lie in a static condition, but in a change."
 
-&mdash; [**Makoto Sunakawa**](https://myanimelist.net/character.php?q=Makoto%20Sunakawa&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
+&mdash; [**Caster**](https://myanimelist.net/character.php?q=Caster&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
