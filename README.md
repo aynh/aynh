@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Can I shoot them now?"
+> "If you think too hard when you don't have a brain, you're going to hurt your head."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Tooru Oikawa**](https://myanimelist.net/character.php?q=Tooru%20Oikawa&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
