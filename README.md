@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The same melody repeats itself as the song grows richer and more beautiful. Wouldn't it be wonderful if we could live seemingly constant lives while experiencing changes bit by bit?"
+> "Oh? I thought I severed your body from the waist-down, but...It seems the cut was too shallow."
 
-&mdash; [**Sayuri Kurata**](https://myanimelist.net/character.php?q=Sayuri%20Kurata&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
