@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The real evil is the power to kill people. Someone who finds himself with that power is cursed. No matter how you use it, anything obtained by killing people can never bring true happiness."
+> "[About Omashu] There really is no fathoming the depths of my hatred for this place."
 
-&mdash; [**Soichiro Yagami**](https://myanimelist.net/character.php?q=Soichiro%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Mai**](https://myanimelist.net/character.php?q=Mai&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
