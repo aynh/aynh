@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A wedding is a man's grave."
+> "When cats are near death, they leave their owner's side, right? I'm sure that's exactly how I feel. I want to disappear while they can think, 'What a noisy, stupid girl she was, I wonder if she's doing okay.'"
 
-&mdash; [**Kouta Tsuchiya**](https://myanimelist.net/character.php?q=Kouta%20Tsuchiya&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Makina Irisu**](https://myanimelist.net/character.php?q=Makina%20Irisu&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
