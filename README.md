@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, a lot of people make excuses when they lose."
+> "No matter what we learn, no matter what we obtain, nothing ever changes! People are amazing that way! They become envious, hate each other, and destroy each other! If that's what they truly desire, why don't they simply exterminate each other!?"
 
-&mdash; [**Ryoma Echizen**](https://myanimelist.net/character.php?q=Ryoma%20Echizen&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
