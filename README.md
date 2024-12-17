@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Denying possibility is denying thought."
+> "Fine. I'll correct myself. I have no experience. I'm a virgin. More to the point, the only kind of girl who'd talk to an unappealing virgin like you are late-bloomer virgins like me!"
 
-&mdash; [**Alcor**](https://myanimelist.net/character.php?q=Alcor&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
