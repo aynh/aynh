@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what we learn, no matter what we obtain, nothing ever changes! People are amazing that way! They become envious, hate each other, and destroy each other! If that's what they truly desire, why don't they simply exterminate each other!?"
+> "In this crazy-ass world, there's no point in playing the blame game."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
