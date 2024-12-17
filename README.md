@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When cats are near death, they leave their owner's side, right? I'm sure that's exactly how I feel. I want to disappear while they can think, 'What a noisy, stupid girl she was, I wonder if she's doing okay.'"
+> "A perfect plan doesn't mean having everything go within expectations. A perfect plan is achieved when it has the plasticity needed to flexibly deal with troubles."
 
-&mdash; [**Makina Irisu**](https://myanimelist.net/character.php?q=Makina%20Irisu&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
