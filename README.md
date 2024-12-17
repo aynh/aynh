@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No... this is wrong! Didn't I fall into hell? This can't be hell! Surrendering my body to the devil, I should have become a wrinkled hag! My hair should be full of hateful snakes, my skin should be the color of a vile frog's! And my blood should be burning with the jet black flames of my grudge..! A lie. This form, it's a lie! I've been tricked! I wanted to become a terrifying woman, one that just a look from, would send anyone running. I have to be such a woman! I don't want to forget my anger and hate!"
+> "Canaan is still alive. Her existence is shining so brightly. Too bright for the naked eyes to look at directly... I'm a bit scared, but I want to touch it. I want to touch her radiance."
 
-&mdash; [**Jeanne**](https://myanimelist.net/character.php?q=Jeanne&cat=character), [**Kanashimi no Belladonna**](https://myanimelist.net/search/all?q=Kanashimi%20no%20Belladonna&cat=all)
+&mdash; [**Maria Oosawa**](https://myanimelist.net/character.php?q=Maria%20Oosawa&cat=character), [**CANAAN**](https://myanimelist.net/search/all?q=CANAAN&cat=all)
