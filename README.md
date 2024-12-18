@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I fail to make my every-minute reports, a gang of 5,000 brutes will attack your whole family."
+> "I'm the afro-hair guy."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
