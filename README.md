@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The easiest way to test a person's real ability is under extreme conditions. Therefore, it's appropriate to choose the Shaman King through fighting."
+> "Hope and passion slip through your fingers like sand."
 
-&mdash; [**Yoh Asakura**](https://myanimelist.net/character.php?q=Yoh%20Asakura&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Takada**](https://myanimelist.net/character.php?q=Takada&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
