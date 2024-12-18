@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You people, are you satisfied with this kind of world? I'm not."
+> "What does it take to end a war? Well, if both sides wish for peace and set aside their hatred... No. Warfare is nothing but a means of negotiation between states. Wars break out even when there is no hatred. Territory, resources, or interests that you are determined to own. Ideology, religion, pride. Wars are fought over those objectives all the time. Meaning that when those objectives are met, the war will end. That, or the war will end when the human cost outweighs the gains. Anger and hatred are only tools to tilt a war in your favor. I'm not interested in those emotions. So I wouldn't hate anyone just because they're Martian."
 
-&mdash; [**Lockon Stratos**](https://myanimelist.net/character.php?q=Lockon%20Stratos&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Inaho Kaizuka**](https://myanimelist.net/character.php?q=Inaho%20Kaizuka&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
