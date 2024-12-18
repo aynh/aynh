@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There stood a high school boy, who for selfish reasons had twice beaten an elementary school girl unconscious, and had gotten all nihistically worked up about it. Actually, that's still me."
+> "People can really change. When they're far away from each other, their hearts will change. It's so cruel that the only thing I can do is wait."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
