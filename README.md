@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hope and passion slip through your fingers like sand."
+> "There stood a high school boy, who for selfish reasons had twice beaten an elementary school girl unconscious, and had gotten all nihistically worked up about it. Actually, that's still me."
 
-&mdash; [**Takada**](https://myanimelist.net/character.php?q=Takada&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
