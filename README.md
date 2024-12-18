@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People can really change. When they're far away from each other, their hearts will change. It's so cruel that the only thing I can do is wait."
+> "'Slacking off' sounds bad. However, enjoying more of your day with the time you saved by doing your job in a clever way is definitely not a bad thing. Times like that are what makes a human's life rich. If you exaggerate, it could be called laziness, surely. However, people only become mature when they are able to balance work with enjoyment. In short, if all you care about is your job, you're not fully mature."
 
-&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Gaap**](https://myanimelist.net/character.php?q=Gaap&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
