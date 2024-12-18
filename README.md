@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past is the past and the future is the future. A man is a man and a woman is a woman. The present is the present. I am who I am and you are who you are. That's all there is to it. Does it really matter? Or do we just think it does?"
+> "Being lucky seems to be your greatest tactic."
 
-&mdash; [**Faye Valentine**](https://myanimelist.net/character.php?q=Faye%20Valentine&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
