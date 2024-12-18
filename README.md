@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing worse than being strong, but not strong enough."
+> "The easiest way to test a person's real ability is under extreme conditions. Therefore, it's appropriate to choose the Shaman King through fighting."
 
-&mdash; [**Shinobu Sensui**](https://myanimelist.net/character.php?q=Shinobu%20Sensui&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Yoh Asakura**](https://myanimelist.net/character.php?q=Yoh%20Asakura&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
