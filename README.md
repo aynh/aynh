@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hamlets mistake is that he believed in something like a ghost, that doesn't exist. The second he believed in something irrational, he was doomed. Those are just delusions imagined by the living. Once you're dead, that's it. The dead don't return, nor do they hear our wishes. It's all an illusion. Things you forgot to say, things you couldn't say... they want ghosts to hear them, so they dream one up. It's also possible that people imagine their desire as ghosts."
+> "Love always happens without warning. At that time, the gears of fate will start spinning. Just like the hands of a clock, two people’s hearts will separate and meet again. Eventually, they reunite."
 
-&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Konjiki No Yami**](https://myanimelist.net/character.php?q=Konjiki%20No%20Yami&cat=character), [**To Love-Ru Darkness**](https://myanimelist.net/search/all?q=To%20Love-Ru%20Darkness&cat=all)
