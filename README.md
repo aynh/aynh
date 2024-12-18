@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love always happens without warning. At that time, the gears of fate will start spinning. Just like the hands of a clock, two people’s hearts will separate and meet again. Eventually, they reunite."
+> "The hungrier one is, the more satisfying one's dinner."
 
-&mdash; [**Konjiki No Yami**](https://myanimelist.net/character.php?q=Konjiki%20No%20Yami&cat=character), [**To Love-Ru Darkness**](https://myanimelist.net/search/all?q=To%20Love-Ru%20Darkness&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Black Butler: Book of Circus**](https://myanimelist.net/search/all?q=Black%20Butler%3A%20Book%20of%20Circus&cat=all)
