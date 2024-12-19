@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The hungrier one is, the more satisfying one's dinner."
+> "What is education? Isn't education meant to create a person that conforms to society? What kind of education must be administrated to create a human being that meets the society's demands? Education is an experiment."
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Black Butler: Book of Circus**](https://myanimelist.net/search/all?q=Black%20Butler%3A%20Book%20of%20Circus&cat=all)
+&mdash; [**Mikhail Petrov**](https://myanimelist.net/character.php?q=Mikhail%20Petrov&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
