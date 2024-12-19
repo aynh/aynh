@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Get over here, Zuko. Being part of the group also means being part of group hugs."
+> "Even if I can't see you... No matter how far away you may be... I will always be watching you."
 
-&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
