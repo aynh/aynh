@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How many people you killed, or how many you let live, it doesn't matter to me. You people incurred my wrath... That's reason enough, for you to meet your demise."
+> "Don't worry. When people break their old selves they embark a journey to find their new selves."
 
-&mdash; [**Tatsuya Shiba**](https://myanimelist.net/character.php?q=Tatsuya%20Shiba&cat=character), [**Mahouka Koukou no Rettousei**](https://myanimelist.net/search/all?q=Mahouka%20Koukou%20no%20Rettousei&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
