@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how many more points you have at the end of the game, if you're not happy, that's not a victory."
+> "Get over here, Zuko. Being part of the group also means being part of group hugs."
 
-&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
