@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is education? Isn't education meant to create a person that conforms to society? What kind of education must be administrated to create a human being that meets the society's demands? Education is an experiment."
+> "The world is very boring. Everyone tries to live like a normal person without a second thought."
 
-&mdash; [**Mikhail Petrov**](https://myanimelist.net/character.php?q=Mikhail%20Petrov&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Dongtae**](https://myanimelist.net/character.php?q=Dongtae&cat=character), [**Dice: The Cube That Changes Everything**](https://myanimelist.net/search/all?q=Dice%3A%20The%20Cube%20That%20Changes%20Everything&cat=all)
