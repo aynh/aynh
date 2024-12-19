@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you have the will to follow through with your beliefs, the results will follow naturally."
+> "Did you know? The world is full of hate and there isn't any reason for it?"
 
-&mdash; [**Kuroko Shirai**](https://myanimelist.net/character.php?q=Kuroko%20Shirai&cat=character), [**A Certain Scientific Railgun**](https://myanimelist.net/search/all?q=A%20Certain%20Scientific%20Railgun&cat=all)
+&mdash; [**Anemone**](https://myanimelist.net/character.php?q=Anemone&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
