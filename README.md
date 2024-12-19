@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is very boring. Everyone tries to live like a normal person without a second thought."
+> "Inside my memories lies sad thoughts and it's hard to forget, but I try everyday to keep moving forward in life, so why can't you, living in saddness isn't living at all."
 
-&mdash; [**Dongtae**](https://myanimelist.net/character.php?q=Dongtae&cat=character), [**Dice: The Cube That Changes Everything**](https://myanimelist.net/search/all?q=Dice%3A%20The%20Cube%20That%20Changes%20Everything&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
