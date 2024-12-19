@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Did you know? The world is full of hate and there isn't any reason for it?"
+> "Was he the kind of master who would leave you behind? If you decided in your hearts to serve him, then believe in your master."
 
-&mdash; [**Anemone**](https://myanimelist.net/character.php?q=Anemone&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Hiiragi**](https://myanimelist.net/character.php?q=Hiiragi&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
