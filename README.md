@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate Shinigami."
+> "Life is built upon the taking of another life. If you have the resolve to kill, then you have the obligation to eat."
 
-&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Usagi Yuzuha**](https://myanimelist.net/character.php?q=Usagi%20Yuzuha&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
