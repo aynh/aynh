@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Was he the kind of master who would leave you behind? If you decided in your hearts to serve him, then believe in your master."
+> "If fate is a millstone, then we are the grist. There is nothing we can do. So I wish for strength. If I cannot protect them from the wheel, then give me a strong blade, and enough strength... to shatter fate."
 
-&mdash; [**Hiiragi**](https://myanimelist.net/character.php?q=Hiiragi&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
