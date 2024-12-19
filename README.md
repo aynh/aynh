@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is built upon the taking of another life. If you have the resolve to kill, then you have the obligation to eat."
+> "If you have the will to follow through with your beliefs, the results will follow naturally."
 
-&mdash; [**Usagi Yuzuha**](https://myanimelist.net/character.php?q=Usagi%20Yuzuha&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
+&mdash; [**Kuroko Shirai**](https://myanimelist.net/character.php?q=Kuroko%20Shirai&cat=character), [**A Certain Scientific Railgun**](https://myanimelist.net/search/all?q=A%20Certain%20Scientific%20Railgun&cat=all)
