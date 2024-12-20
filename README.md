@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't protect that child, I will never forgive you! (referring to Tohru as she was talking to Kyo on the day of the accident)"
+> "Raise your head, Wabisuke."
 
-&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kira Izuru**](https://myanimelist.net/character.php?q=Kira%20Izuru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
