@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As a cool guy, I'm used to seeing naked women."
+> "Keep reinventing and polishing yourself, and who you want to be can be reborn over and over."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Su**](https://myanimelist.net/character.php?q=Su&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
