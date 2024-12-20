@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe it would be just like in the mangas. I'd tell him I love him and then we cut to the happy ending."
+> "Do you remember the first time you walked? No. So you weren't conscious of it. Then why did you walk? Everyone was born knowing how to walk. It's called instinct. That's what this boy reminds me of. He knows he can achieve bankai, so he continues."
 
-&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
