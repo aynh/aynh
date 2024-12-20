@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've been looking out at the world through windows I've opened across the net. It's an extremely close-minded and twisted world."
+> "He, who knows how to do something, is the servant of he, who knows why that thing must be done."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
