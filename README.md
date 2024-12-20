@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who hate themselves, cannot love or trust others."
+> "Isn’t there something strange in becoming friends because you’re asked? Friends aren’t given; you’re supposed to make them."
 
-&mdash; [**Rei Ayanami**](https://myanimelist.net/character.php?q=Rei%20Ayanami&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Fujibayashi Kyou**](https://myanimelist.net/character.php?q=Fujibayashi%20Kyou&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
