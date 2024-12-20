@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He, who knows how to do something, is the servant of he, who knows why that thing must be done."
+> "Those who hate themselves, cannot love or trust others."
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Rei Ayanami**](https://myanimelist.net/character.php?q=Rei%20Ayanami&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
