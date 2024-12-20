@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen to yourself whining and complaining like some sorry little victim! You can whimper all day for all I care, you're nothing but a coward!"
+> "Someday, I promise you, they will all watch as I change the world."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Monkey D. Dragon**](https://myanimelist.net/character.php?q=Monkey%20D.%20Dragon&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
