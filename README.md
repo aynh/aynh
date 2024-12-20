@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you remember the first time you walked? No. So you weren't conscious of it. Then why did you walk? Everyone was born knowing how to walk. It's called instinct. That's what this boy reminds me of. He knows he can achieve bankai, so he continues."
+> "As a cool guy, I'm used to seeing naked women."
 
-&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
