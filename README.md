@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you claim to love humans, that should include their lies and betrayals, their sins and ugliness, their jealousy and immaturity, their hatred and conflicts."
+> "I've been looking out at the world through windows I've opened across the net. It's an extremely close-minded and twisted world."
 
-&mdash; [**Myouri Unzen**](https://myanimelist.net/character.php?q=Myouri%20Unzen&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
