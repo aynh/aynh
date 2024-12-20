@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someday, I promise you, they will all watch as I change the world."
+> "Everyone is alone. Everyone is empty. People no longer have need of others. You can always find a spare for any replacement. Any relationship can be replaced."
 
-&mdash; [**Monkey D. Dragon**](https://myanimelist.net/character.php?q=Monkey%20D.%20Dragon&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
