@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Isn’t there something strange in becoming friends because you’re asked? Friends aren’t given; you’re supposed to make them."
+> "Listen to yourself whining and complaining like some sorry little victim! You can whimper all day for all I care, you're nothing but a coward!"
 
-&mdash; [**Fujibayashi Kyou**](https://myanimelist.net/character.php?q=Fujibayashi%20Kyou&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
