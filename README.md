@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone is alone. Everyone is empty. People no longer have need of others. You can always find a spare for any replacement. Any relationship can be replaced."
+> "If you want to stand with your own will, you don't have any other choice than to let the illusions you have lost remain in the ideals you were following in the past."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Kouen Ren**](https://myanimelist.net/character.php?q=Kouen%20Ren&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
