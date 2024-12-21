@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Then you swear that, once I defeat an enemy, you will buy me pants?"
+> "If you really want to be strong... Stop caring about what your surrounding thinks of you!"
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
