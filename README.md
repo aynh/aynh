@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The words of your past are fundamentally unrelated to who you are now."
+> "If you throw your life away, you won't even have the capacity to feel regret."
 
-&mdash; [**Ryuunosuke Akutagawa**](https://myanimelist.net/character.php?q=Ryuunosuke%20Akutagawa&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
+&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi Zoku Shou**](https://myanimelist.net/search/all?q=Mushishi%20Zoku%20Shou&cat=all)
