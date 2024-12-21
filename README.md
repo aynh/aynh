@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*yelling at Fai* You, shut up!! If you want to die that much, I'll kill you myself! But until that day, you're going to live!"
+> "Victory and Glory!"
 
-&mdash; [**Kurogane**](https://myanimelist.net/character.php?q=Kurogane&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
