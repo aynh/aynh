@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Abuelo... That means grandpa."
+> "*yelling at Fai* You, shut up!! If you want to die that much, I'll kill you myself! But until that day, you're going to live!"
 
-&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kurogane**](https://myanimelist.net/character.php?q=Kurogane&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
