@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you throw your life away, you won't even have the capacity to feel regret."
+> "I... don't know why I'm alive. I have no reason to live. I have no interest in others. Living without concern for others... That's the way to live. Working a job that earns me just enough to eat... A life like that was enough..."
 
-&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi Zoku Shou**](https://myanimelist.net/search/all?q=Mushishi%20Zoku%20Shou&cat=all)
+&mdash; [**Yuzuru Otonashi**](https://myanimelist.net/character.php?q=Yuzuru%20Otonashi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
