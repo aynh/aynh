@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you really want to be strong... Stop caring about what your surrounding thinks of you!"
+> "Unwavering Faith and Resilient Bonds will bring even miracles to your side."
 
-&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
