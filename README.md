@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bonds are what they are because they can be cut."
+> "Don't you know that fans only make flames stronger?"
 
-&mdash; [**Miyaichi Rio**](https://myanimelist.net/character.php?q=Miyaichi%20Rio&cat=character), [**Ana Satsujin**](https://myanimelist.net/search/all?q=Ana%20Satsujin&cat=all)
+&mdash; [**Azula**](https://myanimelist.net/character.php?q=Azula&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
