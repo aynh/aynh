@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Thanks a lot, dream wrecker."
+> "An angel? So Whis is an angel? But he’s got no wings, and his butt’s not hanging out."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Goku**](https://myanimelist.net/character.php?q=Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
