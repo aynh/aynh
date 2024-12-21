@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Exams are an opportunity to teach correctly the meaning of winning and losing, of strong and weak. Students soak up heaping helpings of successes and setbacks! Take in now what it means to win, what it means to lose!"
+> "You look like a guy anyway!"
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
