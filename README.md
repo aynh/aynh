@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Surviving means continuing to shoulder one's burden. When you can't handle that strain, then you'll be the one to die next."
+> "Life is an incessant series of problems... all difficult, with brutally limited choices... and a time limit."
 
-&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Chapel the Evergreen**](https://myanimelist.net/character.php?q=Chapel%20the%20Evergreen&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
