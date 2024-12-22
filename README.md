@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey, if you take a step over that line, your territorial law won't mean shit!"
+> "Maybe worrying about the future partings so much that you miss out on happiness in the present is a waste."
 
-&mdash; [**Isao Kondō**](https://myanimelist.net/character.php?q=Isao%20Kond%C5%8D&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
