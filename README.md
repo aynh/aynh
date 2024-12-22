@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You shouldn't judge a person based on circumstantial evidence."
+> "Fools who don't respect the past are likely to repeat it."
 
-&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Nico Robin**](https://myanimelist.net/character.php?q=Nico%20Robin&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
