@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fools who don't respect the past are likely to repeat it."
+> "About Usui, I really don't know anything at all. It's mortifying... Yet I already don't want him to turn away."
 
-&mdash; [**Nico Robin**](https://myanimelist.net/character.php?q=Nico%20Robin&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Misaki Ayuzawa**](https://myanimelist.net/character.php?q=Misaki%20Ayuzawa&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
