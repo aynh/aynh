@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ever since I was little, I've always been curious. Why doesn't the witch, who can use her magic to transform a shabby girl into someone lovely, cast a spell on herself? If she used her magic on herself, she could become lovely too. The witch does not use her magic on herself because she knows the emptiness that follows when the spell breaks."
+> "If miracles only happen once, what are they called the second time?"
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
