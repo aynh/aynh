@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is indeed full of malice, but there are some pitfalls one can avoid as long as one knows of them- ignorance is a sin, after all."
+> "Surviving means continuing to shoulder one's burden. When you can't handle that strain, then you'll be the one to die next."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
