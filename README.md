@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But I want to play around before some noisy people come!"
+> "Hey, if you take a step over that line, your territorial law won't mean shit!"
 
-&mdash; [**Kankuro**](https://myanimelist.net/character.php?q=Kankuro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Isao Kondō**](https://myanimelist.net/character.php?q=Isao%20Kond%C5%8D&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
