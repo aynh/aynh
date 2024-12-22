@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't enter a mans bath like that!!!"
+> "You shouldn't judge a person based on circumstantial evidence."
 
-&mdash; [**Manta Oyamada**](https://myanimelist.net/character.php?q=Manta%20Oyamada&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
