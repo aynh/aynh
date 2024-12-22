@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't go thinking that there's a world where it's natural to be happy! Even if you start complaining, nothing will change! You need to make things fun by yourself!"
+> "You can only become friends by talking to people and finding out whether you get along."
 
-&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Shougo Kiryuu**](https://myanimelist.net/character.php?q=Shougo%20Kiryuu&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
