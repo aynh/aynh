@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe worrying about the future partings so much that you miss out on happiness in the present is a waste."
+> "Ever since I was little, I've always been curious. Why doesn't the witch, who can use her magic to transform a shabby girl into someone lovely, cast a spell on herself? If she used her magic on herself, she could become lovely too. The witch does not use her magic on herself because she knows the emptiness that follows when the spell breaks."
 
-&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
