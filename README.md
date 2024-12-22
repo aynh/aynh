@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is only a fine line separating art from madness."
+> "In the world of sports, quickness doesn't necessarily mean having the fastest time. It could also mean the acceleration from zero to maximum speed or the deceleration from maximum speed to zero. This is known as agility."
 
-&mdash; [**Nathan Mahler**](https://myanimelist.net/character.php?q=Nathan%20Mahler&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
+&mdash; [**Midorima Shintarou**](https://myanimelist.net/character.php?q=Midorima%20Shintarou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
