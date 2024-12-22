@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is an incessant series of problems... all difficult, with brutally limited choices... and a time limit."
+> "Before creation… must come destruction!"
 
-&mdash; [**Chapel the Evergreen**](https://myanimelist.net/character.php?q=Chapel%20the%20Evergreen&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
