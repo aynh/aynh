@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But the big difference is who I work for. I'd rather die than be a yes-man to someone I don't even like."
+> "Fear is 'evil', it tells your weakness. If you can know your weakness, people become strong and gentle."
 
-&mdash; [**Shalnark**](https://myanimelist.net/character.php?q=Shalnark&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Gildarts Clive**](https://myanimelist.net/character.php?q=Gildarts%20Clive&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
