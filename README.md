@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the world of sports, quickness doesn't necessarily mean having the fastest time. It could also mean the acceleration from zero to maximum speed or the deceleration from maximum speed to zero. This is known as agility."
+> "But the big difference is who I work for. I'd rather die than be a yes-man to someone I don't even like."
 
-&mdash; [**Midorima Shintarou**](https://myanimelist.net/character.php?q=Midorima%20Shintarou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Shalnark**](https://myanimelist.net/character.php?q=Shalnark&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
