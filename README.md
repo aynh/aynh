@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you let yourself get depressed, you'd be making light of the people who trust and follow you."
+> "Those who rely on 'someday' will only grow weaker and lowlier."
 
-&mdash; [**Ogami Rei**](https://myanimelist.net/character.php?q=Ogami%20Rei&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
+&mdash; [**Shana**](https://myanimelist.net/character.php?q=Shana&cat=character), [**Shakugan no Shana**](https://myanimelist.net/search/all?q=Shakugan%20no%20Shana&cat=all)
