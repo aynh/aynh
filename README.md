@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The avatar state is a defense mechanism - designed to empower you with all the skills and knowledge of the past avatars. The glow is the combination of all your past lives. Focusing their energy to your body."
+> "L, do you know gods of death love apples?"
 
-&mdash; [**Roku**](https://myanimelist.net/character.php?q=Roku&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
