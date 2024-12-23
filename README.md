@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fear is 'evil', it tells your weakness. If you can know your weakness, people become strong and gentle."
+> "True freedom can't lean on anything. It's transient, lonely, and arduous."
 
-&mdash; [**Gildarts Clive**](https://myanimelist.net/character.php?q=Gildarts%20Clive&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Yoshii Kazuho**](https://myanimelist.net/character.php?q=Yoshii%20Kazuho&cat=character), [**Texhnolyze**](https://myanimelist.net/search/all?q=Texhnolyze&cat=all)
