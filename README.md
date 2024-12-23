@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm neither a soldier, nor a brave man. Not to mention that running away isn't the same thing as losing. You only truly lose by dying. So as long you're alive, you win!"
+> "I CAN DO THAT TOO!' *He takes out a banana and squishes it, giggling evilly*"
 
-&mdash; [**Senator Figaro**](https://myanimelist.net/character.php?q=Senator%20Figaro&cat=character), [**Kakumeiki Valvrave**](https://myanimelist.net/search/all?q=Kakumeiki%20Valvrave&cat=all)
+&mdash; [**Imadori Kyousuke**](https://myanimelist.net/character.php?q=Imadori%20Kyousuke&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
