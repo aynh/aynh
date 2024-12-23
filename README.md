@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I CAN DO THAT TOO!' *He takes out a banana and squishes it, giggling evilly*"
+> "A beast in human's clothing understands better than anyone how people want to be treated."
 
-&mdash; [**Imadori Kyousuke**](https://myanimelist.net/character.php?q=Imadori%20Kyousuke&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
+&mdash; [**Kurapika**](https://myanimelist.net/character.php?q=Kurapika&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
