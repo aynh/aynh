@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A beast in human's clothing understands better than anyone how people want to be treated."
+> "It's not whether it's feasible or not – it's what I'm doing."
 
-&mdash; [**Kurapika**](https://myanimelist.net/character.php?q=Kurapika&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
