@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're young. Time is on your side. You'll grow up and I'll grow old. Someday you'll likely beat me. It's only natural. Even the strongest man must die."
+> "You should know better than to corner an animal like a fox... We have a tendency to show our teeth."
 
-&mdash; [**Askeladd**](https://myanimelist.net/character.php?q=Askeladd&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
