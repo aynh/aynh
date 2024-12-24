@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're disgustingly hideous! What the hell kind of thing are you? I've never seen anything more messed up in my life! Do you know nothing about symmetry? Whoever made you should be dug up from his grave, shot and reburied! You make me violently ill."
+> "The hole in one's heart gets filled by others around you. Friends won't flock to someone who abandons the memory of his friends and gives up on the world just because things don't go the way he wants them to. That won't help fill the hole in your heart. And people won't help those who run away and do nothing. As long as you don't give up, there will always be salvation."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
