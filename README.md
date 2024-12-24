@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You should know better than to corner an animal like a fox... We have a tendency to show our teeth."
+> "If fate were real, then I would say meeting someone new would constitute such a thing."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Takahiro Mizuno**](https://myanimelist.net/character.php?q=Takahiro%20Mizuno&cat=character), [**Walkure Romanze**](https://myanimelist.net/search/all?q=Walkure%20Romanze&cat=all)
