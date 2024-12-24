@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If fate were real, then I would say meeting someone new would constitute such a thing."
+> "There is great value in the time spent in ones own company, but a life time of total isolation is a fate no one should endure."
 
-&mdash; [**Takahiro Mizuno**](https://myanimelist.net/character.php?q=Takahiro%20Mizuno&cat=character), [**Walkure Romanze**](https://myanimelist.net/search/all?q=Walkure%20Romanze&cat=all)
+&mdash; [**Makarov**](https://myanimelist.net/character.php?q=Makarov&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
