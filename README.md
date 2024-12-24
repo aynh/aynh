@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The worst kind of pain is when you're smiling just to stop the tears from falling."
+> "I knew it. You can't even ask your own zanpakutō its name."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
