@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's been a while... Byakuya-bo."
+> "There are liars who only lie when there's a reason to, and there are liars who also lie without a reason."
 
-&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Biscuit Krueger**](https://myanimelist.net/character.php?q=Biscuit%20Krueger&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
