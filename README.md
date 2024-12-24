@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is great value in the time spent in ones own company, but a life time of total isolation is a fate no one should endure."
+> "You shouldn't mouth off when you don't know shit."
 
-&mdash; [**Makarov**](https://myanimelist.net/character.php?q=Makarov&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Shinichi Izumi**](https://myanimelist.net/character.php?q=Shinichi%20Izumi&cat=character), [**Parasyte -the maxim-**](https://myanimelist.net/search/all?q=Parasyte%20-the%20maxim-&cat=all)
