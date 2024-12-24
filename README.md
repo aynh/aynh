@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you've recognized your mistakes, it's easy enough to correct them."
+> "I don't know everything. I just know what I know."
 
-&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Tsubasa Hanekawa**](https://myanimelist.net/character.php?q=Tsubasa%20Hanekawa&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
