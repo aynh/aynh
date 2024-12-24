@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ah, my most ugly heart. I hate, hate, hate it, so I can’t help but sneer all the time."
+> "Well, hurting girls isn't one of my hobbies. That's why I'll make it my hobby to stomp on their cell phones. Hahahahahaha! I'm so bored of it now... it's no longer my hobby to stomp on cell phones."
 
-&mdash; [**Kano Shuuya**](https://myanimelist.net/character.php?q=Kano%20Shuuya&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
