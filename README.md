@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it's fear that you speak of, then I'll stand and face it. I'll never give up. The only time I lose is when I die!"
+> "Ah, my most ugly heart. I hate, hate, hate it, so I can’t help but sneer all the time."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kano Shuuya**](https://myanimelist.net/character.php?q=Kano%20Shuuya&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
