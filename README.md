@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If people could become friends simply by sharing bread and salt, life would be simpler."
+> "You couldn't save your mom because you... weren't strong enough. I didn't face the Titan... because I wasn't brave enough."
 
-&mdash; [**Peppo**](https://myanimelist.net/character.php?q=Peppo&cat=character), [**Gankutsuou**](https://myanimelist.net/search/all?q=Gankutsuou&cat=all)
+&mdash; [**Hannes**](https://myanimelist.net/character.php?q=Hannes&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
