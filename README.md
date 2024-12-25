@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I love fighting, but even more than that, I hate losing! I only fight to win!!"
+> "Did you not understand? All dreams eventually disappear when the dreamers wake."
 
-&mdash; [**Thorkell**](https://myanimelist.net/character.php?q=Thorkell&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
