@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll get what I want... even if I have to steal it."
+> "But its power goes beyond what is necessary... Does one really need the power to destroy everything?"
 
-&mdash; [**Rue Kuroha**](https://myanimelist.net/character.php?q=Rue%20Kuroha&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
+&mdash; [**Fei Fong Wong**](https://myanimelist.net/character.php?q=Fei%20Fong%20Wong&cat=character), [**Xenogears**](https://myanimelist.net/search/all?q=Xenogears&cat=all)
