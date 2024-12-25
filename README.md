@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let me tell you something about dying. It hurts like hell."
+> "As of this moment, you're my official assistant. Your arms, your legs, your eyes, your ears, your throat, your nails, your teeth, and your tongue. Even the last drop of your blood. They all belong to me now."
 
-&mdash; [**Heero Yuy**](https://myanimelist.net/character.php?q=Heero%20Yuy&cat=character), [**Mobile Suit Gundam Wing**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Wing&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
