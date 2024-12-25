@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As of this moment, you're my official assistant. Your arms, your legs, your eyes, your ears, your throat, your nails, your teeth, and your tongue. Even the last drop of your blood. They all belong to me now."
+> "I love fighting, but even more than that, I hate losing! I only fight to win!!"
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Thorkell**](https://myanimelist.net/character.php?q=Thorkell&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
