@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But its power goes beyond what is necessary... Does one really need the power to destroy everything?"
+> "I'm not against socializing, so long as it's not tiring."
 
-&mdash; [**Fei Fong Wong**](https://myanimelist.net/character.php?q=Fei%20Fong%20Wong&cat=character), [**Xenogears**](https://myanimelist.net/search/all?q=Xenogears&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
