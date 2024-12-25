@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Did you not understand? All dreams eventually disappear when the dreamers wake."
+> "You men. All of you, you're horrible. Cheating on every woman. But you, you I actually decided to trust. I put my faith in you. I can't believe this. I wish that all of you would just die!"
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
