@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trunks, Bulma, I’m doing this for you. And yes, even for you, Kakarot."
+> "If people could become friends simply by sharing bread and salt, life would be simpler."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Peppo**](https://myanimelist.net/character.php?q=Peppo&cat=character), [**Gankutsuou**](https://myanimelist.net/search/all?q=Gankutsuou&cat=all)
