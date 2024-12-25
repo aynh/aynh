@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you follow the rules, there's no way you can outdo them."
+> "They say that fools learn from their experiences, while the wise learn from history. I hope you're not a fool."
 
-&mdash; [**Motoharu Tsuchimikado**](https://myanimelist.net/character.php?q=Motoharu%20Tsuchimikado&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
