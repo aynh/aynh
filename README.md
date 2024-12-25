@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After spending most of my life trying to live as someone else wanted, I’d apparently forgotten who I was."
+> "Ash will never really be alone cause he's got... me."
 
-&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
