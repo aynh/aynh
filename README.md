@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The hole in one's heart gets filled by others around you. Friends won't flock to someone who abandons the memory of his friends and gives up on the world just because things don't go the way he wants them to. That won't help fill the hole in your heart. And people won't help those who run away and do nothing. As long as you don't give up, there will always be salvation."
+> "Courage is being scared to death, but doing it anyways."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Muguruma Kensei**](https://myanimelist.net/character.php?q=Muguruma%20Kensei&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
