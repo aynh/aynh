@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Duke Nightray* You've let your own son die for the honor of your household and other such rubbish. You've lost almost all of your family, and yet all you can think of is your own interests."
+> "Let me tell you something about dying. It hurts like hell."
 
-&mdash; [**Vincent Nightray**](https://myanimelist.net/character.php?q=Vincent%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Heero Yuy**](https://myanimelist.net/character.php?q=Heero%20Yuy&cat=character), [**Mobile Suit Gundam Wing**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Wing&cat=all)
