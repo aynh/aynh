@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My goal isn't your death. I will just torture you, make you awaken and then make you my friends!"
+> "A great enough sorrow can stop time, but someday, time will start moving again. No matter how many years may pass."
 
-&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Grandmother Sawatari**](https://myanimelist.net/character.php?q=Grandmother%20Sawatari&cat=character), [**Tamayura**](https://myanimelist.net/search/all?q=Tamayura&cat=all)
