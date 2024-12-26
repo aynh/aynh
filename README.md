@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The real world is scary. It’s pain to deal with other people."
+> "I... don't know why I'm alive. I have no reason to live. I have no interest in others. Living without concern for others... That's the way to live. Working a job that earns me just enough to eat... A life like that was enough..."
 
-&mdash; [**Shiori Shiomiya**](https://myanimelist.net/character.php?q=Shiori%20Shiomiya&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Yuzuru Otonashi**](https://myanimelist.net/character.php?q=Yuzuru%20Otonashi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
