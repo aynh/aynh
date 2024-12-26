@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A band isn't so simple... that you can just mess around and keep it going."
+> "You will never be able to love anybody else until you love your self..."
 
-&mdash; [**Jirō Yamada**](https://myanimelist.net/character.php?q=Jir%C5%8D%20Yamada&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
