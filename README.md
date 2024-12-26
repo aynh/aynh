@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know about it, don't you, Witch Medusa? About the Kishin beneath the DWMA."
+> "My goal isn't your death. I will just torture you, make you awaken and then make you my friends!"
 
-&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
