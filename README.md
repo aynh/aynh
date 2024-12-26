@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I might be the ugly duckling of the group, but I'll make sure that I'll protect all of you with all my might."
+> "Nothing's perfect, the world's not perfect, but it's there for us, trying the best it can. That's what makes it so damn beautiful."
 
-&mdash; [**Zeno**](https://myanimelist.net/character.php?q=Zeno&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
