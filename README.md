@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love provides the worth of everything in the world. Without love...gold, silver, horses, and women...all are worthless."
+> "The real world is scary. It’s pain to deal with other people."
 
-&mdash; [**Father Willibald**](https://myanimelist.net/character.php?q=Father%20Willibald&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Shiori Shiomiya**](https://myanimelist.net/character.php?q=Shiori%20Shiomiya&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
