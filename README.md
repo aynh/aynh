@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's more to a real man than just his good looks!"
+> "There are two things that collectors always want. The first is any item of extreme rarity. The second is colleagues to whom they can brag about their collection."
 
-&mdash; [**Uno**](https://myanimelist.net/character.php?q=Uno&cat=character), [**Nanbaka**](https://myanimelist.net/search/all?q=Nanbaka&cat=all)
+&mdash; [**Kurapika**](https://myanimelist.net/character.php?q=Kurapika&cat=character), [**Hunter x Hunter 2011**](https://myanimelist.net/search/all?q=Hunter%20x%20Hunter%202011&cat=all)
