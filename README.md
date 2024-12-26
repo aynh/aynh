@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how deep the night, it always turns to day, eventually."
+> "The world is not beautiful; and that, in a way, lends it a sort of beauty."
 
-&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
