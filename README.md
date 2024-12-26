@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A light comes out of the darkness. A heart that makes a flower bloom in the wilderness journeys through the sky. Music changes the world."
+> "Love provides the worth of everything in the world. Without love...gold, silver, horses, and women...all are worthless."
 
-&mdash; [**Haruka Nanami**](https://myanimelist.net/character.php?q=Haruka%20Nanami&cat=character), [**Uta no Prince-sama**](https://myanimelist.net/search/all?q=Uta%20no%20Prince-sama&cat=all)
+&mdash; [**Father Willibald**](https://myanimelist.net/character.php?q=Father%20Willibald&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
