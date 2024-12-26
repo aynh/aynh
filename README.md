@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I... don't know why I'm alive. I have no reason to live. I have no interest in others. Living without concern for others... That's the way to live. Working a job that earns me just enough to eat... A life like that was enough..."
+> "I might be the ugly duckling of the group, but I'll make sure that I'll protect all of you with all my might."
 
-&mdash; [**Yuzuru Otonashi**](https://myanimelist.net/character.php?q=Yuzuru%20Otonashi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Zeno**](https://myanimelist.net/character.php?q=Zeno&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
