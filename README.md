@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A great enough sorrow can stop time, but someday, time will start moving again. No matter how many years may pass."
+> "There's more to a real man than just his good looks!"
 
-&mdash; [**Grandmother Sawatari**](https://myanimelist.net/character.php?q=Grandmother%20Sawatari&cat=character), [**Tamayura**](https://myanimelist.net/search/all?q=Tamayura&cat=all)
+&mdash; [**Uno**](https://myanimelist.net/character.php?q=Uno&cat=character), [**Nanbaka**](https://myanimelist.net/search/all?q=Nanbaka&cat=all)
