@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kakarot… please… destroy Frieza… He made me what I am. Don’t… let him… do it… to anyone else. Whatever it take… Stop him… Please."
+> "What a punchline, no... that was just a punch."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Arisawa Tatsuki**](https://myanimelist.net/character.php?q=Arisawa%20Tatsuki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
