@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "La lang natamad na ako."
+> "We will have lost only the moment humans give up and stop fighting. As long as they keep on fighting, our defeat is not certain."
 
-&mdash; [**Gian Carlo**](https://myanimelist.net/character.php?q=Gian%20Carlo&cat=character), [**Lucky Dog**](https://myanimelist.net/search/all?q=Lucky%20Dog&cat=all)
+&mdash; [**Mike Zacharias**](https://myanimelist.net/character.php?q=Mike%20Zacharias&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
