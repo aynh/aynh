@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't keep something without fighting for it."
+> "You can take control of my mind and my body, but there is one thing a Saiyan always keep… his PRIDE!"
 
-&mdash; [**Hajime Kanzaki**](https://myanimelist.net/character.php?q=Hajime%20Kanzaki&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
