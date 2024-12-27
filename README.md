@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't like to be treated like a kid, then why don't you try showing how much you have grown up."
+> "You're so silly. Even adults cry from a broken heart. It's okay to cry."
 
-&mdash; [**Fujimoto Shirou**](https://myanimelist.net/character.php?q=Fujimoto%20Shirou&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Sana Hidaka**](https://myanimelist.net/character.php?q=Sana%20Hidaka&cat=character), [**Myself ; Yourself**](https://myanimelist.net/search/all?q=Myself%20%3B%20Yourself&cat=all)
