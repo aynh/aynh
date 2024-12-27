@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kurama, there is no person who does not carry scars upon their heart, and if there were such a man, they would be a shallow soul."
+> "If you don't like to be treated like a kid, then why don't you try showing how much you have grown up."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Fujimoto Shirou**](https://myanimelist.net/character.php?q=Fujimoto%20Shirou&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
