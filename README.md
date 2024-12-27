@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How can androids have babies?"
+> "[when Rukia asks why she is in the Gotei 13] What the hell?! That's so obvious! To 'fight' and to 'protect'!"
 
-&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
