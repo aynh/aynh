@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We have a proud tradition of failure to uphold!"
+> "[in reply to Shunsui Kyōraku] It's true, I know nothing about her (Rukia). It might not be quite enough for me to risk my own life over. But...Ichigo wants to save her. That reason is enough for me."
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
