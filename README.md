@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To kill is an action which overflows in everyday life. In actuality the more you try to be accepted, the more you kill your unrestrained self."
+> "We have a proud tradition of failure to uphold!"
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
