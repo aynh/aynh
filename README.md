@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Treasure the experience. Dreams fade away after you wake up."
+> "Kakarot… please… destroy Frieza… He made me what I am. Don’t… let him… do it… to anyone else. Whatever it take… Stop him… Please."
 
-&mdash; [**Hitoha Miyamizu**](https://myanimelist.net/character.php?q=Hitoha%20Miyamizu&cat=character), [**Kimi no Na wa**](https://myanimelist.net/search/all?q=Kimi%20no%20Na%20wa&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
