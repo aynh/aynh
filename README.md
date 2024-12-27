@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We will have lost only the moment humans give up and stop fighting. As long as they keep on fighting, our defeat is not certain."
+> "No matter what you do, no matter where you go, you can't get away from your nature."
 
-&mdash; [**Mike Zacharias**](https://myanimelist.net/character.php?q=Mike%20Zacharias&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Oomine Daiya**](https://myanimelist.net/character.php?q=Oomine%20Daiya&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
