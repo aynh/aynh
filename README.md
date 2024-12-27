@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what you do, no matter where you go, you can't get away from your nature."
+> "Careful what you do, cuz 'God' is watching your every move. Hold my hand in the dark street, for if you do I know that I'll.. be safe. Even if I'm far away and alone, I can be sure that you'll find me there, this I know. You told me close for a while, so quite. You tell me everything. If I forget what to say then you'll come to me and tell me again, yes you'd tell me once again. But what happens when I know it all and what should I do, after that, what then?"
 
-&mdash; [**Oomine Daiya**](https://myanimelist.net/character.php?q=Oomine%20Daiya&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Misa Amane**](https://myanimelist.net/character.php?q=Misa%20Amane&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
