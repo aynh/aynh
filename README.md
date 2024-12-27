@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What a punchline, no... that was just a punch."
+> "Kurama, there is no person who does not carry scars upon their heart, and if there were such a man, they would be a shallow soul."
 
-&mdash; [**Arisawa Tatsuki**](https://myanimelist.net/character.php?q=Arisawa%20Tatsuki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
