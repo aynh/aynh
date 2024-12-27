@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The right thing is… to have faith in life, until you’re sure of death. That’s what makes a great detective."
+> "Stealing someone's name is never all right. It means you're unwilling to recognize them as human."
 
-&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Shiroe**](https://myanimelist.net/character.php?q=Shiroe&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
