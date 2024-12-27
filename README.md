@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're so silly. Even adults cry from a broken heart. It's okay to cry."
+> "When you are feeling sad... smile, even if you have to force yourself... If you cry when it gets painful... it will only get more painful."
 
-&mdash; [**Sana Hidaka**](https://myanimelist.net/character.php?q=Sana%20Hidaka&cat=character), [**Myself ; Yourself**](https://myanimelist.net/search/all?q=Myself%20%3B%20Yourself&cat=all)
+&mdash; [**Chie**](https://myanimelist.net/character.php?q=Chie&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
