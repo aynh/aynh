@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is suffering. It is hard. The world is cursed. But still you find reasons to keep living."
+> "It isn't even interesting fighting against someone who doesn't have their own goals."
 
-&mdash; [**Lady Eboshi**](https://myanimelist.net/character.php?q=Lady%20Eboshi&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
