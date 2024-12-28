@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's when I realized! That I had become a child who would be found. So I broke into tears of happiness. No matter how far we're separated, you two would definitely find me. It's nice knowing someone will find you."
+> "The world is just another word for the things you value around you, right? That's something I've had since I was born. If you tell me to rule such a world, I already rule it."
 
-&mdash; [**Himari Takakura**](https://myanimelist.net/character.php?q=Himari%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Tohsaka Rin**](https://myanimelist.net/character.php?q=Tohsaka%20Rin&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
