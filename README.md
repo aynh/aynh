@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop pouting! You learned something valuable. Remember the lesson, not the disappointment."
+> "How could I let this happen to my son? He has sacrificed everything for me! And I have done nothing but ignore him!"
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
