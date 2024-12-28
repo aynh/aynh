@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everybody's weak. That's why we rely on others. We live by helping one another. We can say, we need one another. I've been able to survive because I have you and the others."
+> "Life is suffering. It is hard. The world is cursed. But still you find reasons to keep living."
 
-&mdash; [**Hibiki Kuze**](https://myanimelist.net/character.php?q=Hibiki%20Kuze&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Lady Eboshi**](https://myanimelist.net/character.php?q=Lady%20Eboshi&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
