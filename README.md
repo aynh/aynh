@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It isn't even interesting fighting against someone who doesn't have their own goals."
+> "As long as one person still lives...it shall be proof eternal that mankind ever existed."
 
-&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yui Ikari**](https://myanimelist.net/character.php?q=Yui%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
