@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone makes mistakes. What's important is how to make up for it."
+> "If we were all the way up there, no one here'd look any bigger than a grain of sand."
 
-&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
