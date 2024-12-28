@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My mom always says, strangers are just friends you haven't met yet."
+> "When people get close to death they change."
 
-&mdash; [**Jaune Arc**](https://myanimelist.net/character.php?q=Jaune%20Arc&cat=character), [**RWBY**](https://myanimelist.net/search/all?q=RWBY&cat=all)
+&mdash; [**Jin-Ie Kwon**](https://myanimelist.net/character.php?q=Jin-Ie%20Kwon&cat=character), [**The Breaker**](https://myanimelist.net/search/all?q=The%20Breaker&cat=all)
