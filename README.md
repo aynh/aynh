@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How could I let this happen to my son? He has sacrificed everything for me! And I have done nothing but ignore him!"
+> "The stars sure are beautiful tonight. [angrily] Too bad you can't see them, Toph!"
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
