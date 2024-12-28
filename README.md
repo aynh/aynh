@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To live is to die, to die is to live. Pure is unpure, unpure is pure."
+> "If you believe in your dreams, I will prove to you, that you can achieve your dreams just by working hard."
 
-&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Rock Lee**](https://myanimelist.net/character.php?q=Rock%20Lee&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
