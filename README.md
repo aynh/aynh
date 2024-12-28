@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you believe in your dreams, I will prove to you, that you can achieve your dreams just by working hard."
+> "I don't know which is more pathetic; the fool, or those who follow him."
 
-&mdash; [**Rock Lee**](https://myanimelist.net/character.php?q=Rock%20Lee&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Jirobou**](https://myanimelist.net/character.php?q=Jirobou&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
