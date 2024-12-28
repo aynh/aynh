@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we were all the way up there, no one here'd look any bigger than a grain of sand."
+> "That's when I realized! That I had become a child who would be found. So I broke into tears of happiness. No matter how far we're separated, you two would definitely find me. It's nice knowing someone will find you."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Himari Takakura**](https://myanimelist.net/character.php?q=Himari%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
