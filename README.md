@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sounds like a lot of work, I think I'll pass. I'd rather play and I'll ask for help when I get stuck."
+> "You don't need a reason to love someone."
 
-&mdash; [**Konata Izumi**](https://myanimelist.net/character.php?q=Konata%20Izumi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
+&mdash; [**Makoto Isshiki**](https://myanimelist.net/character.php?q=Makoto%20Isshiki&cat=character), [**Chuunibyo Demo Koi ga Shitai!**](https://myanimelist.net/search/all?q=Chuunibyo%20Demo%20Koi%20ga%20Shitai!&cat=all)
