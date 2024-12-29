@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Music is freedom."
+> "Manga that's born from people taking responsibility for their own work, banging their head in frustration, feeling cornered, and like they want to escape, and then using that extreme situation, mental ability, stamina, and panic to create... would never lose to some soul-less manga that's just made up of other people's ideas without any kind of resolve!"
 
-&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
