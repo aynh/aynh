@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Gin Ichimaru] If you make Hinamori shed even one drop of blood, I'll kill you."
+> "It is absurd to divide people into good and bad. People are either charming or tedious."
 
-&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
