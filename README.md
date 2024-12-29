@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone lives with the sins they've committed."
+> "All this time, I've lived in hope of telling you how sorry I am, I've fought armies, just to have this chance, but now, there's nothing I can say.. That's good enough."
 
-&mdash; [**Chiyuki**](https://myanimelist.net/character.php?q=Chiyuki&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
