@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are who you are. You have to do what you can."
+> "Um, if we encounter the Angel here, I'm going to pee buckets on the spot!"
 
-&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Yui**](https://myanimelist.net/character.php?q=Yui&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
