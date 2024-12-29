@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Um, if we encounter the Angel here, I'm going to pee buckets on the spot!"
+> "Perhaps in this universe, there exists a solitary, absolute truth. Perhaps it clarifies every question. But that’s beyond the reach of these short hands."
 
-&mdash; [**Yui**](https://myanimelist.net/character.php?q=Yui&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
