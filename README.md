@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Manga that's born from people taking responsibility for their own work, banging their head in frustration, feeling cornered, and like they want to escape, and then using that extreme situation, mental ability, stamina, and panic to create... would never lose to some soul-less manga that's just made up of other people's ideas without any kind of resolve!"
+> "So, what are you saying? You mean if your wife wasn't controlling you, you wouldn't be a villain? You mean you've never thought it's just because you're incompetent? And what's that supposed to mean anyway? (To the story, 'Mogeta')"
 
-&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
