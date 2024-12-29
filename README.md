@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After all, lying for someone's sake doesn't make it a lie."
+> "Everything you've been taught is based on theories and logic. Soon you will likely come to realize how pointless they are in the world we live in."
 
-&mdash; [**Mizuki Hayama**](https://myanimelist.net/character.php?q=Mizuki%20Hayama&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Tomomi Masaoka**](https://myanimelist.net/character.php?q=Tomomi%20Masaoka&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
