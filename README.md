@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Perhaps in this universe, there exists a solitary, absolute truth. Perhaps it clarifies every question. But that’s beyond the reach of these short hands."
+> "[to Gin Ichimaru] If you make Hinamori shed even one drop of blood, I'll kill you."
 
-&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
