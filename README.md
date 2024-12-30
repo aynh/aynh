@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's amazing no one's locked you up yet (to Shigure)"
+> "DEATH is so unfair. It comes to those who don't need it. But not the people who are asking for it."
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Yuu Otosaka**](https://myanimelist.net/character.php?q=Yuu%20Otosaka&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
