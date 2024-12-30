@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sincerity with respect to yourself! No matter what your objective... no matter who you are... if you are going to do something or not do something, that is a promise to yourself. And the one who keeps the promise, or breaks the promise, is you. No one else can be burdened with holding you to a promise that's made to yourself."
+> "Why am I always the one handing out apologies?"
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
