@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans all behave the same way, like idiots. They all forget that someday, they're gonna die, so the moment they come face to face with death, they cling to life."
+> "It's a waste of time to bother with anything uncertain."
 
-&mdash; [**Ginti**](https://myanimelist.net/character.php?q=Ginti&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
