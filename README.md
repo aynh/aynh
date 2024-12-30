@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "DEATH is so unfair. It comes to those who don't need it. But not the people who are asking for it."
+> "In a business like this, there are times when you need to change as the situation demands. I switch my personality depending on how I view things."
 
-&mdash; [**Yuu Otosaka**](https://myanimelist.net/character.php?q=Yuu%20Otosaka&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
