@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Miwako, George is Bi. He is gender blind."
+> "Power rules the Heavens just as Power rules in the Lower world."
 
-&mdash; [**Daisuke Yamamoto**](https://myanimelist.net/character.php?q=Daisuke%20Yamamoto&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
+&mdash; [**Homura**](https://myanimelist.net/character.php?q=Homura&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
