@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Power rules the Heavens just as Power rules in the Lower world."
+> "No one knows what the future holds in life.  We must take that endless bit of darkness and turn it to our advantage."
 
-&mdash; [**Homura**](https://myanimelist.net/character.php?q=Homura&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Higuchi Seitarou**](https://myanimelist.net/character.php?q=Higuchi%20Seitarou&cat=character), [**Yojouhan Shinwa Taikei**](https://myanimelist.net/search/all?q=Yojouhan%20Shinwa%20Taikei&cat=all)
