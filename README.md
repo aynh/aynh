@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's a waste of time to bother with anything uncertain."
+> "You're right, we are mortal and fragile. But even if we are tortured or wounded, we'll fight to survive. You should feel the pain we feel and understand. I am the messenger that will deliver you to that pain and understanding."
 
-&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
