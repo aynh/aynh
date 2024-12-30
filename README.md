@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're right, we are mortal and fragile. But even if we are tortured or wounded, we'll fight to survive. You should feel the pain we feel and understand. I am the messenger that will deliver you to that pain and understanding."
+> "The scariest and the most painful thing is to be hated by someone you truly love."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
