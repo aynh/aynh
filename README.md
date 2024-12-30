@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "From a different perspective, an imposing wall is just a large door."
+> "Miwako, George is Bi. He is gender blind."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Daisuke Yamamoto**](https://myanimelist.net/character.php?q=Daisuke%20Yamamoto&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
