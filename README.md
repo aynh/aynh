@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In a business like this, there are times when you need to change as the situation demands. I switch my personality depending on how I view things."
+> "Without love, people could exist without knowing truth and falsehood. By knowing it, they cry and grief and get lost. I was the same back then."
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Furudo Erika**](https://myanimelist.net/character.php?q=Furudo%20Erika&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
