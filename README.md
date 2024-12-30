@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Without love, people could exist without knowing truth and falsehood. By knowing it, they cry and grief and get lost. I was the same back then."
+> "Blue sky is in the distance. It feels so close. Yet, I cannot grab it even if I reach out with my hands. I looked up at the stars before. The stars that I cannot reach and the wishes that will not be granted. There is nothing we have been able to leave behind for each other. Therefore, traces and memories will disappear someday. But still... Even if it will not reach her, there should be something that will remain in our hearts. There is nothing that remains in our hands, but we lived the same time and looked up at the same things. If I can remember that. I can believe that we can be together even if we are far apart."
 
-&mdash; [**Furudo Erika**](https://myanimelist.net/character.php?q=Furudo%20Erika&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
