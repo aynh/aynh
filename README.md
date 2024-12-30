@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone is sacrificing something precious to them in order to save something else. Is that the reason for human action?"
+> "I realized why I was lost. It's not because I didn't have a map... It was because I didn't have a destination."
 
-&mdash; [**Shijima Kurookano**](https://myanimelist.net/character.php?q=Shijima%20Kurookano&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
