@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Memories of someone who’s passed away remains beautiful forever and a person’s heart will linger over them, they say."
+> "From a different perspective, an imposing wall is just a large door."
 
-&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
