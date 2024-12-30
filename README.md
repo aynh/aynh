@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tell you what… I’ll carve you up until you find yourselves cursing the fact that you have such resilient bodies."
+> "Say your prayers, wretches. Filth like you is even lower than Yoma. I'm going to kill... every last one of you."
 
-&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
