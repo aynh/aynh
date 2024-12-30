@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why am I always the one handing out apologies?"
+> "Tell you what… I’ll carve you up until you find yourselves cursing the fact that you have such resilient bodies."
 
-&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
