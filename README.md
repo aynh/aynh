@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there is a pure wish in this world, it must be the desire to be born."
+> "I still can't control my wish to see her. I never thought of how important she was to me. (about Rin)"
 
-&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
