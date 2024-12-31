@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The weakness that had accepted death now became the strength of wanting to live."
+> "Humans are weak... but we want to live. Even if we're wounded... or tortured... we feel the pain."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
