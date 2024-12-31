@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Before creation… must come destruction!"
+> "[to Momo on Aizen's final letter] As a vice-captain, I think it's a great honor to be the receiver of her captain's final words. Read it well."
 
-&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
