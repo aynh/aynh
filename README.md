@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just because you die... doesn't mean that the people you killed will come back to life... instead using this sword to save just one more soul is repentance in true sense."
+> "Hey! Don't you know the rules!? When heroes transform, ride in their machine, or stand in their main pose, no one should attack them!"
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Da Cider**](https://myanimelist.net/character.php?q=Da%20Cider&cat=character), [**NG Knight Ramune & 40**](https://myanimelist.net/search/all?q=NG%20Knight%20Ramune%20%26%2040&cat=all)
