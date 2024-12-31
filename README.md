@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who forgive themselves, and are able to accept their true nature... They are the strong ones!"
+> "The weakness that had accepted death now became the strength of wanting to live."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
