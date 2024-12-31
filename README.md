@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm prepared for it all. Even if my chest hurts, even if I'm ripped apart, I won't let myself taste any regret."
+> "I believe that hope exists in the despair of certain death. Like a speck of gold dust buried in a gray gravel."
 
-&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
+&mdash; [**Seiken Tsukai no World Break**](https://myanimelist.net/character.php?q=Seiken%20Tsukai%20no%20World%20Break&cat=character), [**Seiken Tsukai no World Break**](https://myanimelist.net/search/all?q=Seiken%20Tsukai%20no%20World%20Break&cat=all)
