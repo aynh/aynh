@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being rivals does not mean being an enemy."
+> "I'm prepared for it all. Even if my chest hurts, even if I'm ripped apart, I won't let myself taste any regret."
 
-&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
