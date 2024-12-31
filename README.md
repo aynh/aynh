@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe that hope exists in the despair of certain death. Like a speck of gold dust buried in a gray gravel."
+> "Anything can be a sword if you polish it enough."
 
-&mdash; [**Seiken Tsukai no World Break**](https://myanimelist.net/character.php?q=Seiken%20Tsukai%20no%20World%20Break&cat=character), [**Seiken Tsukai no World Break**](https://myanimelist.net/search/all?q=Seiken%20Tsukai%20no%20World%20Break&cat=all)
+&mdash; [**Nagisa Shiota**](https://myanimelist.net/character.php?q=Nagisa%20Shiota&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
