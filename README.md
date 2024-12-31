@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether we live or die isn't a big issue. If you focus on being alive, you develop fear. Your eyes get clouded. But if you have no such feelings... you are capable of fighting right to the end of the world."
+> "If you don't want to die - think."
 
-&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
+&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
