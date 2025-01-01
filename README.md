@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everything in this world is just a game and we are merely the pawns."
+> "As long as she's alive and well, that's all I hope for. I can't bear to see another woman die."
 
-&mdash; [**Gasai Yuno**](https://myanimelist.net/character.php?q=Gasai%20Yuno&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
