@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I thought clowns made everyone else laugh."
+> "*To Herself* Hah. You know you're happy about it. Is she worried about me... because of the new virus going around? I figured she only ever had games and anime on her mind. I'm a little touched."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kagami Hiiragi**](https://myanimelist.net/character.php?q=Kagami%20Hiiragi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
