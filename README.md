@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death comes at the very end, doesn't it? Until that time comes, do your best at living!"
+> "There are no regrets. If one can be proud of one's life, one should not wish for another chance."
 
-&mdash; [**Louise Françoise Le Blanc de La Vallière**](https://myanimelist.net/character.php?q=Louise%20Fran%C3%A7oise%20Le%20Blanc%20de%20La%20Valli%C3%A8re&cat=character), [**Zero no Tsukaima: Futatsuki no Kishi**](https://myanimelist.net/search/all?q=Zero%20no%20Tsukaima%3A%20Futatsuki%20no%20Kishi&cat=all)
+&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
