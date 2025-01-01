@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how crazy it may be, or how dangerous it may be, even if it's something personal, it doesn't matter! Anything that you're worried about, I'll worry right along with you and think of a solution! Just like you did for me all those times!"
+> "This world is full of secrets meant never to be disturbed."
 
-&mdash; [**Alibaba Saluja**](https://myanimelist.net/character.php?q=Alibaba%20Saluja&cat=character), [**Magi - The Kingdom of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Kingdom%20of%20Magic&cat=all)
+&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
