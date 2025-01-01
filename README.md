@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All the while we've been thinking you were a brilliant strategist when really, you're just a lucky fool."
+> "I can't surpress my feeling anymore. When she gets confused, I will still her back. Yes I know I am selfish, I don't care."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
