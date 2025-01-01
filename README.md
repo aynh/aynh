@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as she's alive and well, that's all I hope for. I can't bear to see another woman die."
+> "We can no longer go back though, I’m totally different from that person in the past, you too. That was just a brief reminiscing of our past, that’s all."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
