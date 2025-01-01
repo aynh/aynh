@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wanted to hurt you, make you suffer, and make sure that you'd never forget me."
+> "Everything in this world is just a game and we are merely the pawns."
 
-&mdash; [**Miu Asakura**](https://myanimelist.net/character.php?q=Miu%20Asakura&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
+&mdash; [**Gasai Yuno**](https://myanimelist.net/character.php?q=Gasai%20Yuno&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
