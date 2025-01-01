@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Herself* Hah. You know you're happy about it. Is she worried about me... because of the new virus going around? I figured she only ever had games and anime on her mind. I'm a little touched."
+> "Lately, I've been looking at these two guys only. As expected, I see flowers when there are women in the workplace... the atmosphere!"
 
-&mdash; [**Kagami Hiiragi**](https://myanimelist.net/character.php?q=Kagami%20Hiiragi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
