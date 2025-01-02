@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans... Do humans have a purpose when they are born? I have been wondering recently. Because they are born, do they have an important duty? The meaning of being born... For humans to find that answer... It is the one freedom God gave them."
+> "*To Haruhi Fujioka about him helping her search for her wallet in water* A little water never hurt anyone. Besides, people are always telling me that I'm dripping with good looks."
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
