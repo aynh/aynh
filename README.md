@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our differences are what let us understand each other. We've worked together to come this far, there are no doubts or regret anymore. I'll overcome this fight and prove that even we can come to an understanding."
+> "People in reality spout off all in unison about love and friendship but in fact it's a dirty little world full of lies and desires, isn't it?"
 
-&mdash; [**Tsukune Aono**](https://myanimelist.net/character.php?q=Tsukune%20Aono&cat=character), [**Rosario Vampire**](https://myanimelist.net/search/all?q=Rosario%20Vampire&cat=all)
+&mdash; [**Satou Tatsuhiro**](https://myanimelist.net/character.php?q=Satou%20Tatsuhiro&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
