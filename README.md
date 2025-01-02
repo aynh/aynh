@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No, order exists to protect the people. We must not aim our guns at the wrong people. What we should eliminate are our doubting hearts and minds."
+> "This is the impenetrable wall of Jericho third child. Take one step over this wall, and you will be a dead man."
 
-&mdash; [**Yomogawa Ayame**](https://myanimelist.net/character.php?q=Yomogawa%20Ayame&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
+&mdash; [**Souryuu Asuka Langley**](https://myanimelist.net/character.php?q=Souryuu%20Asuka%20Langley&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
