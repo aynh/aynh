@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once in a while when I wake up, I find myself crying. The dream I must’ve had, I can never seem to recall...But the sensation that I’ve lost something lingers for a long time after I wake up."
+> "Love requires no reason. That is what makes it love!"
 
-&mdash; [**Taki Tachibana**](https://myanimelist.net/character.php?q=Taki%20Tachibana&cat=character), [**Kimi no Na wa**](https://myanimelist.net/search/all?q=Kimi%20no%20Na%20wa&cat=all)
+&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
