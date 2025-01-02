@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is the impenetrable wall of Jericho third child. Take one step over this wall, and you will be a dead man."
+> "From this day on, I don't need freedom. As we struggle using our strength to grasp what's above us. We will eventually reach something, that is the meaning of the word freedom."
 
-&mdash; [**Souryuu Asuka Langley**](https://myanimelist.net/character.php?q=Souryuu%20Asuka%20Langley&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Ringo Noyamano**](https://myanimelist.net/character.php?q=Ringo%20Noyamano&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
