@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more you rush, the less careful you become. Even a cautious rat will show its tail."
+> "Huh? DO whatever you want without DICE? As if someone like you could understand. What's so bad about wanting to reach higher than yourself? After all, you're already up there. The place where I've always longed to be. If anything, isn't this world at fault? There's plenty of proof this world was created unfairly. The Crime rate's higher than ever. Wealth is the determining factor in life, and so when the most prestigious universities held an experiment, 'Does appearance affect the outcome in a trail?' When comparing the results of the beautiful and the plain, the beautiful ones were declared innocent more often. Looks decide your worth. LOOKS, SEX, AGE, ETHNICITY, EDUCATION, JOB, once you realize that there will always be a 'High' and 'Low', the goal is clear. Higher... and Higher! I'm sure that looking down from the highest place will be beautiful sight, so I must reach higher!"
 
-&mdash; [**Henrietta de Tristain**](https://myanimelist.net/character.php?q=Henrietta%20de%20Tristain&cat=character), [**Zero no Tsukaima: Futatsuki no Kishi**](https://myanimelist.net/search/all?q=Zero%20no%20Tsukaima%3A%20Futatsuki%20no%20Kishi&cat=all)
+&mdash; [**Miju**](https://myanimelist.net/character.php?q=Miju&cat=character), [**Dice: The Cube That Changes Everything**](https://myanimelist.net/search/all?q=Dice%3A%20The%20Cube%20That%20Changes%20Everything&cat=all)
