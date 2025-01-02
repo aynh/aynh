@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life itself is a frightening image for every human being... being strong in life isn't easy."
+> "He won't play up to anyone. He won't be led astray by anything. He simply places himself in a clear space."
 
-&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Yu Kanda**](https://myanimelist.net/character.php?q=Yu%20Kanda&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
