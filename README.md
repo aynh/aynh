@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "From this day on, I don't need freedom. As we struggle using our strength to grasp what's above us. We will eventually reach something, that is the meaning of the word freedom."
+> "Life itself is a frightening image for every human being... being strong in life isn't easy."
 
-&mdash; [**Ringo Noyamano**](https://myanimelist.net/character.php?q=Ringo%20Noyamano&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
