@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He won't play up to anyone. He won't be led astray by anything. He simply places himself in a clear space."
+> "It's interesting, isn't it? The way that when someone expresses something, someone else always shows up to interpret it."
 
-&mdash; [**Yu Kanda**](https://myanimelist.net/character.php?q=Yu%20Kanda&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
