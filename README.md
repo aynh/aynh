@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You were like a bomb, one wrong move and I might have lost you again."
+> "The more inexperienced you are, the more you want to show off."
 
-&mdash; [**Hayashida Nana**](https://myanimelist.net/character.php?q=Hayashida%20Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
