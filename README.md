@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "ADW is a severe, incurable ailment that makes the patient Able to Do only what he Wants to do."
+> "To me, the world is not only the shape on the map. On the battle field, all I see are the faces of the order and my friends... I am an awful person aren't I? Instead of the real world, all I care about is my friends. That's because they are my whole world... Even if just one of my friends dies, to me, it's the same thing as part of the world being destroyed."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Lenalee Lee**](https://myanimelist.net/character.php?q=Lenalee%20Lee&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
