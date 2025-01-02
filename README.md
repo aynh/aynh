@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To me, the world is not only the shape on the map. On the battle field, all I see are the faces of the order and my friends... I am an awful person aren't I? Instead of the real world, all I care about is my friends. That's because they are my whole world... Even if just one of my friends dies, to me, it's the same thing as part of the world being destroyed."
+> "Once in a while when I wake up, I find myself crying. The dream I must’ve had, I can never seem to recall...But the sensation that I’ve lost something lingers for a long time after I wake up."
 
-&mdash; [**Lenalee Lee**](https://myanimelist.net/character.php?q=Lenalee%20Lee&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Taki Tachibana**](https://myanimelist.net/character.php?q=Taki%20Tachibana&cat=character), [**Kimi no Na wa**](https://myanimelist.net/search/all?q=Kimi%20no%20Na%20wa&cat=all)
