@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...and even if you were to hate yourself as much as you want, you have no choice but to live with yourself forever. Other people just go by. Eventually what's left to you at the end is only yourself. Even if you can't seem to like yourself, shouldn't you at least compromise?"
+> "It's always like this. The only things I can ever do for Naruto are the little things anyone could do..."
 
-&mdash; [**Choi Yool**](https://myanimelist.net/character.php?q=Choi%20Yool&cat=character), [**Gaussian Blur**](https://myanimelist.net/search/all?q=Gaussian%20Blur&cat=all)
+&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
