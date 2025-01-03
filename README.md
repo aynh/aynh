@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This has nothing to do with will. There is neither an egg that refuses to hatch nor a seed that evades it's eventual sprouting."
+> "At first, people only play as dots. But when lines of trust and friendship connect those dots, the lines become a circle and that circle is teamwork. As long as you keep playing as a dot, the others won't trust you either."
 
-&mdash; [**Scythe Master**](https://myanimelist.net/character.php?q=Scythe%20Master&cat=character), [**Phantom: Requiem For The Phantom**](https://myanimelist.net/search/all?q=Phantom%3A%20Requiem%20For%20The%20Phantom&cat=all)
+&mdash; [**Major**](https://myanimelist.net/character.php?q=Major&cat=character), [**Major**](https://myanimelist.net/search/all?q=Major&cat=all)
