@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How I envy the feeble and frail... If I were inept, I could simply blend in, not stand out, and get lost in the crowd. I yearned to be just another sheep... And if that was asking too much I'd settle for... walking among the lions."
+> "I just really don't wanna meet a disappointing end, with someone burning my bones without even knowing who they belonged to."
 
-&mdash; [**Starrk**](https://myanimelist.net/character.php?q=Starrk&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Jean Kirstein**](https://myanimelist.net/character.php?q=Jean%20Kirstein&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
