@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Farewell, warrior of the sky. I pray... you don't forgive me."
+> "This has nothing to do with will. There is neither an egg that refuses to hatch nor a seed that evades it's eventual sprouting."
 
-&mdash; [**Kira Izuru**](https://myanimelist.net/character.php?q=Kira%20Izuru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Scythe Master**](https://myanimelist.net/character.php?q=Scythe%20Master&cat=character), [**Phantom: Requiem For The Phantom**](https://myanimelist.net/search/all?q=Phantom%3A%20Requiem%20For%20The%20Phantom&cat=all)
