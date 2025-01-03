@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What are you, some tantrum throwing brat who forgot to buy his Jump? Having no money is like having a sinus infection. You just have to ignore it and not pick at it, and it'll go away."
+> "You need to learn how to make mistakes before you grow up. When you are young, you can recover quickly when hurt. When you get older it's harder to make mistakes. The more responsibilities, the less mistakes you are allowed to make."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Junko Kaname**](https://myanimelist.net/character.php?q=Junko%20Kaname&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
