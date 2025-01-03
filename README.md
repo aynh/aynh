@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You need to accept the fact that you're not the best and have all the will to strive to be better than anyone you face."
+> "A good book is always good, no matter how many times you’ve already read it."
 
-&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
