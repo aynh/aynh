@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just really don't wanna meet a disappointing end, with someone burning my bones without even knowing who they belonged to."
+> "You can certainly fulfill your wish to 'save someone'. But a wish for you to save yourself, does not exist. You will embrace a borrowed ideal that is not yours, and you will probably pursue it until you die."
 
-&mdash; [**Jean Kirstein**](https://myanimelist.net/character.php?q=Jean%20Kirstein&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
