@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They want to believe that's true and when someone wants to believe something is true, they usually will."
+> "We believe that God exists. And he exists because we exist."
 
-&mdash; [**Henrietta**](https://myanimelist.net/character.php?q=Henrietta&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Itsuki Koizumi**](https://myanimelist.net/character.php?q=Itsuki%20Koizumi&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
