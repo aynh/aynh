@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A good book is always good, no matter how many times you’ve already read it."
+> "They want to believe that's true and when someone wants to believe something is true, they usually will."
 
-&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
+&mdash; [**Henrietta**](https://myanimelist.net/character.php?q=Henrietta&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
