@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At first, people only play as dots. But when lines of trust and friendship connect those dots, the lines become a circle and that circle is teamwork. As long as you keep playing as a dot, the others won't trust you either."
+> "Isn't using the net just like using knives for cooking or using paper to write things down? It has nothing to do with good or bad. It's like, it's there, so we accept and use it."
 
-&mdash; [**Major**](https://myanimelist.net/character.php?q=Major&cat=character), [**Major**](https://myanimelist.net/search/all?q=Major&cat=all)
+&mdash; [**Akane Tsunemori**](https://myanimelist.net/character.php?q=Akane%20Tsunemori&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
