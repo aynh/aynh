@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is really wicked... is judging people without even trying to get to know them!"
+> "...and even if you were to hate yourself as much as you want, you have no choice but to live with yourself forever. Other people just go by. Eventually what's left to you at the end is only yourself. Even if you can't seem to like yourself, shouldn't you at least compromise?"
 
-&mdash; [**Ada Vessalius**](https://myanimelist.net/character.php?q=Ada%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Choi Yool**](https://myanimelist.net/character.php?q=Choi%20Yool&cat=character), [**Gaussian Blur**](https://myanimelist.net/search/all?q=Gaussian%20Blur&cat=all)
