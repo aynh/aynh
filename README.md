@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm always just waiting. Waiting for someone to reach out to me. But at the same time, I'm really self-conscious and a coward."
+> "Anything I would never want to lose is always lost. It is a given that everything that is worth wanting will be lost the moment I obtain it. There's nothing worth pursuing at the cost of prolonging a life of suffering."
 
-&mdash; [**Chizuru Ooshima**](https://myanimelist.net/character.php?q=Chizuru%20Ooshima&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
