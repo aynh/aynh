@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This has got to be a joke! I'm being sucked into a black hole inside a toilet! Either that or there's one gigantic vacuum cleaner down here."
+> "I'm always just waiting. Waiting for someone to reach out to me. But at the same time, I'm really self-conscious and a coward."
 
-&mdash; [**Yuri Shibuya**](https://myanimelist.net/character.php?q=Yuri%20Shibuya&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
+&mdash; [**Chizuru Ooshima**](https://myanimelist.net/character.php?q=Chizuru%20Ooshima&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
