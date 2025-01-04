@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no way of telling what people will do when their entire world gets turned upside down. There are people who selfishly take advantage  of the chaos and nice people who try to help others before even worrying about themselves."
+> "Whether a fish lives in a clear stream or a water ditch, so long as it continues swimming forward, it will grow up beautifully."
 
-&mdash; [**Rika Suzuki**](https://myanimelist.net/character.php?q=Rika%20Suzuki&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
