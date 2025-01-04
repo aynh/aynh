@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whatever you lose, you'll find it again, but what you throw away you'll never get it back."
+> "The more you rush, the less careful you become. Even a cautious rat will show its tail."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Henrietta de Tristain**](https://myanimelist.net/character.php?q=Henrietta%20de%20Tristain&cat=character), [**Zero no Tsukaima: Futatsuki no Kishi**](https://myanimelist.net/search/all?q=Zero%20no%20Tsukaima%3A%20Futatsuki%20no%20Kishi&cat=all)
