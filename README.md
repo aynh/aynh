@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are some people who don't want a solution. Some want things to stay the way they are. There's no way to make things convenient for everyone. So the only option is to find a compromise."
+> "If your face gets any closer, someone who isn't supposed to be in this scene is going to come over there and kick your ass!"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
