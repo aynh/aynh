@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I too used to believe that the world would be a better place if I hadn’t been born. I was hated merely for the fact that I existed, and I died for the happiness of many people. But there was one thing I wished for with all my heart... If I’m ever given a second chance in life, I want to live for only myself. That is my sincere wish."
+> "There's no way of telling what people will do when their entire world gets turned upside down. There are people who selfishly take advantage  of the chaos and nice people who try to help others before even worrying about themselves."
 
-&mdash; [**Ymir**](https://myanimelist.net/character.php?q=Ymir&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Rika Suzuki**](https://myanimelist.net/character.php?q=Rika%20Suzuki&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
