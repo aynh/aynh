@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after finding his stolen boomerang] Boomerang! You do always come back!"
+> "There are people out there who would say there's nothing more important than love. But is love really that great? There are women, who because of love, get chased around by men. And there are men, who because of love, get killed by women. To put it down, for love to be so great, there's gotta be something else behind it that's even greater."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Dante**](https://myanimelist.net/character.php?q=Dante&cat=character), [**Devil May Cry**](https://myanimelist.net/search/all?q=Devil%20May%20Cry&cat=all)
