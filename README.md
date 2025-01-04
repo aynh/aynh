@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People cannot show each other their true feelings. Fear, suspicion, and resentment never subside."
+> "I too used to believe that the world would be a better place if I hadn’t been born. I was hated merely for the fact that I existed, and I died for the happiness of many people. But there was one thing I wished for with all my heart... If I’m ever given a second chance in life, I want to live for only myself. That is my sincere wish."
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
+&mdash; [**Ymir**](https://myanimelist.net/character.php?q=Ymir&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
