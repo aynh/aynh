@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We evolve beyond the person we were a minute before. Little by little, we advance a bit further with each turn."
+> "When you are experienced you can become overly confident and such confidence can prove fatal."
 
-&mdash; [**Simon**](https://myanimelist.net/character.php?q=Simon&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
