@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someone who can be deceived by others will be deceived again and again."
+> "This has got to be a joke! I'm being sucked into a black hole inside a toilet! Either that or there's one gigantic vacuum cleaner down here."
 
-&mdash; [**Lelei la Lelena**](https://myanimelist.net/character.php?q=Lelei%20la%20Lelena&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Yuri Shibuya**](https://myanimelist.net/character.php?q=Yuri%20Shibuya&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
