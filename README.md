@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you are experienced you can become overly confident and such confidence can prove fatal."
+> "People cannot show each other their true feelings. Fear, suspicion, and resentment never subside."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
