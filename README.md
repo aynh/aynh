@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If your face gets any closer, someone who isn't supposed to be in this scene is going to come over there and kick your ass!"
+> "We evolve beyond the person we were a minute before. Little by little, we advance a bit further with each turn."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Simon**](https://myanimelist.net/character.php?q=Simon&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
