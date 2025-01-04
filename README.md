@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes you have days like this. Days where the most trivial little thing... Ends up getting you wrapped up in some big, annoying trouble."
+> "I have a lot of different words desperately trying to get my message across. However, you, were able to pass on what you wanted to say with just a few of them."
 
-&mdash; [**Annie Leonhardt**](https://myanimelist.net/character.php?q=Annie%20Leonhardt&cat=character), [**Shingeki no Kyojin: Lost Girls**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Lost%20Girls&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
