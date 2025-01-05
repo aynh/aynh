@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once the thread of fate is tangled, it cannot be undone."
+> "If... If you have such good deductive skills, you should have been able to see through my sister's disguise easily... But... but... WHY...!!!"
 
-&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
