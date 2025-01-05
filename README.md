@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is suffering, pain, and misery."
+> "Wake up princess, I'm tired of your useless ideals. It's gotten pathetic. What good are your happy ideals if you can't do anything to make them a reality? They're nothing but dreams, and your dreams don't stand a chance."
 
-&mdash; [**Nana**](https://myanimelist.net/character.php?q=Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Crocodile**](https://myanimelist.net/character.php?q=Crocodile&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
