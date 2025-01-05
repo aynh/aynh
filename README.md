@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fine! You heard fox boy, there's nothing we can do for the old hag if she's already limp. Just gotta keep on truckin, yes sir! I'm gonna go outside and make myself a nice, big, shiny first-place medal, sit in the sun, and have a stupendous friggin day, dammit!"
+> "If you're scared, you might as well just cling to my arm. Creates more of an atmosphere."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
