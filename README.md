@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A comedienne is no match for an ex girlfriend."
+> "Heh, I guess somehow without me knowing, it just feels so natural now, to have Kagome by my side."
 
-&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
