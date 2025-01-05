@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're so silly. Even adults cry from a broken heart. It's okay to cry."
+> "The time when you're happy is also the time when you're afraid that the happiness will end."
 
-&mdash; [**Sana Hidaka**](https://myanimelist.net/character.php?q=Sana%20Hidaka&cat=character), [**Myself ; Yourself**](https://myanimelist.net/search/all?q=Myself%20%3B%20Yourself&cat=all)
+&mdash; [**Subarashii Sekai**](https://myanimelist.net/character.php?q=Subarashii%20Sekai&cat=character), [**Subarashii Sekai**](https://myanimelist.net/search/all?q=Subarashii%20Sekai&cat=all)
