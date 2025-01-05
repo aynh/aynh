@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Yuzu] Ah! It's okay, Yuzu, don't cry! Daddy will show you something really hilarious!"
+> "You're so silly. Even adults cry from a broken heart. It's okay to cry."
 
-&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sana Hidaka**](https://myanimelist.net/character.php?q=Sana%20Hidaka&cat=character), [**Myself ; Yourself**](https://myanimelist.net/search/all?q=Myself%20%3B%20Yourself&cat=all)
