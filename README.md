@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're scared, you might as well just cling to my arm. Creates more of an atmosphere."
+> "He's swinging his sword with the grace of a flyswatter. That's no way to survive."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
