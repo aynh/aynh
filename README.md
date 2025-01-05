@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How can you not see the beauty of our evil?!"
+> "You're stubborn and reckless, all you like to do for fun is read, so you're boring, and you have fat ankles."
 
-&mdash; [**Rocket Grunt**](https://myanimelist.net/character.php?q=Rocket%20Grunt&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
