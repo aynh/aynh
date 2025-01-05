@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You will not go in there with hopes of winning the tournament the first time you compete. To do so would be arrogant! And arrogance is for fools, not warriors! So you will enter the tournament with the sole purpose of improving your fighting skills."
+> "Life is suffering, pain, and misery."
 
-&mdash; [**Master Roshi**](https://myanimelist.net/character.php?q=Master%20Roshi&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Nana**](https://myanimelist.net/character.php?q=Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
