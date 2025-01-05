@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have a lot of different words desperately trying to get my message across. However, you, were able to pass on what you wanted to say with just a few of them."
+> "The day when you'll finally understand me... will never come."
 
-&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Saruhiko Fushimi**](https://myanimelist.net/character.php?q=Saruhiko%20Fushimi&cat=character), [**K**](https://myanimelist.net/search/all?q=K&cat=all)
