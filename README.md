@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Without you, all my plans are suddenly possible. I have a vision for the future, Roku."
+> "[to Yuzu] Ah! It's okay, Yuzu, don't cry! Daddy will show you something really hilarious!"
 
-&mdash; [**Sozin**](https://myanimelist.net/character.php?q=Sozin&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
