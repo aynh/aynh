@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The time when you're happy is also the time when you're afraid that the happiness will end."
+> "We are all different from each other and that's what makes us all special."
 
-&mdash; [**Subarashii Sekai**](https://myanimelist.net/character.php?q=Subarashii%20Sekai&cat=character), [**Subarashii Sekai**](https://myanimelist.net/search/all?q=Subarashii%20Sekai&cat=all)
+&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
