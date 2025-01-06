@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey hun! I've got a great idea, let's trade! Yo take my spot and I'll fight Hercule!"
+> "I was going to let you go. After all, there aren't many of us out there, but you're just such a pain in the ass."
 
-&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
