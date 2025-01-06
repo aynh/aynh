@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For the right price, you can buy not only treasures, but dreams, hearts and even people's lives!"
+> "Don't act because something is interesting, but act because you want to find something more interesting! In this world, there are so much interesting things. Do something that you don't want to do, you don't have even a second for it."
 
-&mdash; [**Leorio Paladiknight**](https://myanimelist.net/character.php?q=Leorio%20Paladiknight&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
