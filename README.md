@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times where we cannot stand without the support of others."
+> "Sincere feelings transcend time and connect hearts."
 
-&mdash; [**Kirijou Mitsuru**](https://myanimelist.net/character.php?q=Kirijou%20Mitsuru&cat=character), [**Persona 3**](https://myanimelist.net/search/all?q=Persona%203&cat=all)
+&mdash; [**Fairy Tail**](https://myanimelist.net/character.php?q=Fairy%20Tail&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
