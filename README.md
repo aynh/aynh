@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The idea that you can't die yet because you still have something to protect... that is the foolish illusion of the weak."
+> "There isn't anyone who doesn't feel regret or sadness."
 
-&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Lavi**](https://myanimelist.net/character.php?q=Lavi&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
