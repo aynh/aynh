@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every brilliant day should be lived for those who passed away."
+> "You can't change anything unless you can discard part of yourself too. To surpass monsters, you must be willing to abandon your humanity."
 
-&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
