@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't change anything unless you can discard part of yourself too. To surpass monsters, you must be willing to abandon your humanity."
+> "Tests are a good thing. The knowledge gained from a night of cramming will be all but forgotten once you hit adulthood. And that's fine. The experience you gain through competition, having sharpened your skills and broadened your minds all under the same set of rules? That's the real treasure."
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
