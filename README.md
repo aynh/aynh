@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you get a piece of Ryu you get the whole pie!"
+> "For the right price, you can buy not only treasures, but dreams, hearts and even people's lives!"
 
-&mdash; [**RYU**](https://myanimelist.net/character.php?q=RYU&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Leorio Paladiknight**](https://myanimelist.net/character.php?q=Leorio%20Paladiknight&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
