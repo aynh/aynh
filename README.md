@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what the world, the god of that world creates the rules. In truth, you have been defeated by the rules I created. And as punishment for defying the God of the new world, you will die..."
+> "People usually don't look back to see how far they've come while they're still walking. Of course, when they come to a standstill, the more progress they've made, the more betrayed they feel by their expectations."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Shizuka Hiratsuka**](https://myanimelist.net/character.php?q=Shizuka%20Hiratsuka&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
