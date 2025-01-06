@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ever since I joined the survey corps, I've had people dying on me everyday. But... you understand, don't you? One day or another, everyone you care about eventually dies. It's something we simply can't accept. It's a realization that could drive you insane... It's painful... so painful... I get it. And still... we must keep moving forward."
+> "The idea that you can't die yet because you still have something to protect... that is the foolish illusion of the weak."
 
-&mdash; [**Hange Zoe**](https://myanimelist.net/character.php?q=Hange%20Zoe&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
