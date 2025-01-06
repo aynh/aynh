@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There isn't anyone who doesn't feel regret or sadness."
+> "When you get a piece of Ryu you get the whole pie!"
 
-&mdash; [**Lavi**](https://myanimelist.net/character.php?q=Lavi&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**RYU**](https://myanimelist.net/character.php?q=RYU&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
