@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sincere feelings transcend time and connect hearts."
+> "Athrun! Show us that same spirit that made you defy orders!"
 
-&mdash; [**Fairy Tail**](https://myanimelist.net/character.php?q=Fairy%20Tail&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Miguel Aiman**](https://myanimelist.net/character.php?q=Miguel%20Aiman&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
