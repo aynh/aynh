@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A person can only murder another once. The act of murder is giving up the humanity that is within oneself. What is left is just emptiness. You can not lose humanity if it is already lost. The act of murder turns into the act of slaughter. They are two different things."
+> "I don't want to get so caught up in searching for what I can't see, that I lose sight of what I can."
 
-&mdash; [**Ryougi Shiki**](https://myanimelist.net/character.php?q=Ryougi%20Shiki&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
