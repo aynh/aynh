@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People usually don't look back to see how far they've come while they're still walking. Of course, when they come to a standstill, the more progress they've made, the more betrayed they feel by their expectations."
+> "I'm not fighting because I want to win. I'm fighting because I have to win."
 
-&mdash; [**Shizuka Hiratsuka**](https://myanimelist.net/character.php?q=Shizuka%20Hiratsuka&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
