@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't act because something is interesting, but act because you want to find something more interesting! In this world, there are so much interesting things. Do something that you don't want to do, you don't have even a second for it."
+> "There are times where we cannot stand without the support of others."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Kirijou Mitsuru**](https://myanimelist.net/character.php?q=Kirijou%20Mitsuru&cat=character), [**Persona 3**](https://myanimelist.net/search/all?q=Persona%203&cat=all)
