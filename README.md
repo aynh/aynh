@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someday, my memories of her will fade. Her voice, her actions – I might forget them as well. But even then, I will always remember that I loved her."
+> "A lie yields hope when you realize it's a lie. On the other hand, when you feel that a cruel fact is reality, you fall into despair all the more."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Miyazaki Ryuu**](https://myanimelist.net/character.php?q=Miyazaki%20Ryuu&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
