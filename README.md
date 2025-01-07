@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He turned a room full of strangers into a room full of enemies with just one sentence."
+> "A man's come all the way out to the end of the North to ask for my help. Wouldn't it be rude to wait to hear what he wanted?"
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**William Massachusetts**](https://myanimelist.net/character.php?q=William%20Massachusetts&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
