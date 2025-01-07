@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the first place, the logic that says 'those who play games are kids' is itself an allusion, therefore one might say that shoehorning reality into your stubborn dualism is already a criticism of the self. In short, humans can only recognize reality through the filter called 'me' and so they are unable to escape the constraints of their uncanny existence."
+> "The first one to panic is the first one to lose. No matter if they're the hunter or the hunted."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Zarik Kajiwara**](https://myanimelist.net/character.php?q=Zarik%20Kajiwara&cat=character), [**Rakuen Tsuihō - Expelled from Paradise**](https://myanimelist.net/search/all?q=Rakuen%20Tsuih%C5%8D%20-%20Expelled%20from%20Paradise&cat=all)
