@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you scared? I understand. The first time I saw my reflection in the mirror, even I was frightened by how BIG my reflection was."
+> "If it's fear that you speak of, then I'll stand and face it. I'll never give up. The only time I lose is when I die!"
 
 &mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
