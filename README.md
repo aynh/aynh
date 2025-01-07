@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A man's come all the way out to the end of the North to ask for my help. Wouldn't it be rude to wait to hear what he wanted?"
+> "Even in the depths of Hell... blooms a beautiful flower of friendship... leaving its petals as mementos... bobbing back and forth on the waves... may it one day bloom once more...the Okama Way."
 
-&mdash; [**William Massachusetts**](https://myanimelist.net/character.php?q=William%20Massachusetts&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Mr. 2 Bon Clay**](https://myanimelist.net/character.php?q=Mr.%202%20Bon%20Clay&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
