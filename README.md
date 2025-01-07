@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not that I missed. I missed on purpose."
+> "*thinking* Every day, I hang out with an alien, a time traveler, and a Esper...and I'm still as sane and objective as ever. Hmm...I wonder if that makes me special or something."
 
-&mdash; [**Kouta Hirano**](https://myanimelist.net/character.php?q=Kouta%20Hirano&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
