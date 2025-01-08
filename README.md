@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When people realize just how lonely they are on their own, they will become kind."
+> "Men select women based on emotion. Even if there's a reason, it's only secondary. However, women select men based on reason. Either by something like his class ranking or his standing in society."
 
-&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Makina**](https://myanimelist.net/character.php?q=Makina&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
