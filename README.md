@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't care if no one likes me. I wasn't created in this world to entertain everyone."
+> "The day when you'll understand me... will never come..."
 
-&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Saruhiko Fushimi**](https://myanimelist.net/character.php?q=Saruhiko%20Fushimi&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
