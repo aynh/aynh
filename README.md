@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every girl is born a princess, some of them just forget is all."
+> "I don't care if no one likes me. I wasn't created in this world to entertain everyone."
 
-&mdash; [**Kuranosuke Koibuchi**](https://myanimelist.net/character.php?q=Kuranosuke%20Koibuchi&cat=character), [**Kuragehime**](https://myanimelist.net/search/all?q=Kuragehime&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
