@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People... are not born equal. That's the hard truth I learned at age four. But that... was my first and last setback."
+> "You don't have to worry about being special or normal compared to everyone else! It doesn't matter who it is. So as long as they think you're special, then you're special."
 
-&mdash; [**Midoriya Izuku**](https://myanimelist.net/character.php?q=Midoriya%20Izuku&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
+&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
