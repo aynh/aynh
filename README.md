@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are the sum of our memories. Erasing the memories edged in oneself is the same as loosing oneself."
+> "You can't extract a god out of a human. However, by kowtowing to the thing that is considered to be a god, it is possible to create a god and shove it down the throats of people."
 
-&mdash; [**Ergo Proxy**](https://myanimelist.net/character.php?q=Ergo%20Proxy&cat=character), [**Ergo Proxy**](https://myanimelist.net/search/all?q=Ergo%20Proxy&cat=all)
+&mdash; [**Kaishou Rinroku**](https://myanimelist.net/character.php?q=Kaishou%20Rinroku&cat=character), [**Un-Go**](https://myanimelist.net/search/all?q=Un-Go&cat=all)
