@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The weight of my sword is the weight of my pride. The wound from my battle with you is an honor, not a fetter."
+> "People... are not born equal. That's the hard truth I learned at age four. But that... was my first and last setback."
 
-&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Midoriya Izuku**](https://myanimelist.net/character.php?q=Midoriya%20Izuku&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
