@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't extract a god out of a human. However, by kowtowing to the thing that is considered to be a god, it is possible to create a god and shove it down the throats of people."
+> "In their own way, fights are also a valid form of communication."
 
-&mdash; [**Kaishou Rinroku**](https://myanimelist.net/character.php?q=Kaishou%20Rinroku&cat=character), [**Un-Go**](https://myanimelist.net/search/all?q=Un-Go&cat=all)
+&mdash; [**Tsukihi Araragi**](https://myanimelist.net/character.php?q=Tsukihi%20Araragi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
