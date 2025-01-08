@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In their own way, fights are also a valid form of communication."
+> "The point of life isn't to be perfect. It's to do what you want to do. To be who you want to be."
 
-&mdash; [**Tsukihi Araragi**](https://myanimelist.net/character.php?q=Tsukihi%20Araragi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
