@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moon pierced down on the diseased world. There is no cure for the disease. An entire race falls mindlessly into destruction. Not even a man of colossal power may be able to prevent the inevitable. Death no longer terrifies men. The smell of blood is as common as the smell of white plums, so he creates slavery and savagery which surpasses the horrors of dying. These can only be fought with more bloodshed and the cycle never ends. My sword is guided by the reasoning of Hiten Mitsurugi, but when all is said, a sword is a tool for destruction not salvation. The only way I can retain my humanity is to bury its victims."
+> "When I was little, I was teased because of my weight. I tried dieting, but diets always failed. Little by little I started feeling gloomy. I got to the point where I couldn't make friends, and I started hating myself more and more. I became completely unable to smile. I thought, no one in the world would ever like me the way I am now. But at the same time I also thought, if that's the way it is, then I should at least like myself."
 
-&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Samurai X: Trust & Betrayal**](https://myanimelist.net/search/all?q=Samurai%20X%3A%20Trust%20%26%20Betrayal&cat=all)
+&mdash; [**Tsumugi Motohashi**](https://myanimelist.net/character.php?q=Tsumugi%20Motohashi&cat=character), [**Pochama ni**](https://myanimelist.net/search/all?q=Pochama%20ni&cat=all)
