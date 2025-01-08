@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trust? I hate that word, but coming from you it sounds different."
+> "Moping around with sadness and sorrow... what will come of it? Even dead people can do that. However, I'll live and stand on my own two legs. If we are going to die one day, wouldn't it be better to have no regrets?"
 
-&mdash; [**Porco Rosso**](https://myanimelist.net/character.php?q=Porco%20Rosso&cat=character), [**Porco Rosso**](https://myanimelist.net/search/all?q=Porco%20Rosso&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
