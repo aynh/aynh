@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My motto is to be stronger than yesterday, if I have to I'll be stronger than half a day ago, even a minute ago!"
+> "Regardless of the color of eyes or skin, the color of blood is the same for everyone, isn’t it?"
 
-&mdash; [**Rock Lee**](https://myanimelist.net/character.php?q=Rock%20Lee&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Oskar von Reuenthal**](https://myanimelist.net/character.php?q=Oskar%20von%20Reuenthal&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
