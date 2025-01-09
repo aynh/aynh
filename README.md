@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A way for the weak to stay weak, but still defeat the strong. A way to stay who you are but surpass your limits. To soar through the sky, even if you can't fly. He's always found a way, inside despair, suffering and darkness."
+> "Forget about me, and starting tomorrow live your own life. Don't keep dragging the dead into your life, otherwise your life would get screwed up and you won't be happy in the future, okay?"
 
-&mdash; [**Kurami Zell**](https://myanimelist.net/character.php?q=Kurami%20Zell&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Misa Kurobane**](https://myanimelist.net/character.php?q=Misa%20Kurobane&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
