@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The day before yesterday, I saw a rabbit. Yesterday, it was a deer. And today, it’s you."
+> "I'm not short, I just live in a big world."
 
-&mdash; [**Ichinose Kotomi**](https://myanimelist.net/character.php?q=Ichinose%20Kotomi&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
