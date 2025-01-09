@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Quotes were invented in Korea, you know!"
+> "You'll never be able to go anywhere unless you learn how to let go."
 
-&mdash; [**South Korea**](https://myanimelist.net/character.php?q=South%20Korea&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Mishakuji Yukari**](https://myanimelist.net/character.php?q=Mishakuji%20Yukari&cat=character), [**K: Missing Kings**](https://myanimelist.net/search/all?q=K%3A%20Missing%20Kings&cat=all)
