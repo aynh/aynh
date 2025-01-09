@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The right to choose life or death lies with the victor. And the victor of this battle is me."
+> "I am the God placed here to save the weak and create a perfect world."
 
-&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
