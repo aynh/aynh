@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It was the only way the world had to be fixed! A purpose, given to me!"
+> "The right to choose life or death lies with the victor. And the victor of this battle is me."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
