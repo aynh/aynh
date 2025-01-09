@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regardless of the color of eyes or skin, the color of blood is the same for everyone, isn’t it?"
+> "It was the only way the world had to be fixed! A purpose, given to me!"
 
-&mdash; [**Oskar von Reuenthal**](https://myanimelist.net/character.php?q=Oskar%20von%20Reuenthal&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
