@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am the God placed here to save the weak and create a perfect world."
+> "If you lose credibility by just admitting fault, then you didn't have any in the first place."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Fujitora**](https://myanimelist.net/character.php?q=Fujitora&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
