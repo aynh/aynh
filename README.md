@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you lose credibility by just admitting fault, then you didn't have any in the first place."
+> "Why are you punching? What are you chasing? You should already know the answer to that. To become strong."
 
-&mdash; [**Fujitora**](https://myanimelist.net/character.php?q=Fujitora&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Coach Kamogawa**](https://myanimelist.net/character.php?q=Coach%20Kamogawa&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
