@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You'll never be able to go anywhere unless you learn how to let go."
+> "Sometimes the blood rushes to my head and I feel like, if I run I'll lose something important."
 
-&mdash; [**Mishakuji Yukari**](https://myanimelist.net/character.php?q=Mishakuji%20Yukari&cat=character), [**K: Missing Kings**](https://myanimelist.net/search/all?q=K%3A%20Missing%20Kings&cat=all)
+&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
