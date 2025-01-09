@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There isn’t just one truth. That truth only exists because a few people saw it. If you don’t believe what the books say, then you should go see the world for yourself."
+> "How about I gently shove my foot down your throat?"
 
-&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
