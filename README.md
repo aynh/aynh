@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "About the 1,000 provisions that you are required to observe. Now I would like for you to participate in the most important provision. Number 452 the 5 hour story telling party."
+> "But what's important isn't the Magic, it's the heart of the wielder who uses it."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
