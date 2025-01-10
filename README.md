@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The spring of my heart surges upon the sight of your fresh smile, my love."
+> "I'm not rude... I just wasn't taught to politely pretend to be nice to people I can't stand."
 
-&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
