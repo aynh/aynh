@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can go anywhere you want in this world with a single blade. This may be a virtual world, but I feel more alive here than in the real world."
+> "It's just that... It's just that not being able to fight with everyone makes me feel lonely...!! But what would make me feel worse than being lonely is getting in everyone's way... that would make me feel worse!! If it means getting in the way of Kurosaki-kun and everyone... then I would rather be lonely, very lonely."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
