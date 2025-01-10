@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never feel more human than when I'm fighting real monsters."
+> "I make my own decisions, and see them to the very end. I had to find my resolve, so I could remain true to myself."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Saya Kisaragi**](https://myanimelist.net/character.php?q=Saya%20Kisaragi&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
