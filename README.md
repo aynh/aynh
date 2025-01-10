@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In that case, you have nothing to fear. Mistakes aren’t made by locking your feelings away and holding back… They’re made while wearing your heart on your sleeve."
+> "Sasuke! Sasuke! Sasuke! What does he have that I don't have?!"
 
-&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
