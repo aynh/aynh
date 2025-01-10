@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not rude... I just wasn't taught to politely pretend to be nice to people I can't stand."
+> "You ain't gonna know unless you climb up yerself. Ain't no way to look if you don't try."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Kotoishi Naru**](https://myanimelist.net/character.php?q=Kotoishi%20Naru&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
