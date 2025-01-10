@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "However, even if it is reckless... I don't think someone who is making their best effort to try and break through the current situation is foolish."
+> "Trust? I hate that word, but coming from you it sounds different."
 
-&mdash; [**Su-won**](https://myanimelist.net/character.php?q=Su-won&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Porco Rosso**](https://myanimelist.net/character.php?q=Porco%20Rosso&cat=character), [**Porco Rosso**](https://myanimelist.net/search/all?q=Porco%20Rosso&cat=all)
