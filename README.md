@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sasuke! Sasuke! Sasuke! What does he have that I don't have?!"
+> "Drat, we wasted this episode cheering the good guys!"
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
