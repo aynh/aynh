@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's just that... It's just that not being able to fight with everyone makes me feel lonely...!! But what would make me feel worse than being lonely is getting in everyone's way... that would make me feel worse!! If it means getting in the way of Kurosaki-kun and everyone... then I would rather be lonely, very lonely."
+> "I never feel more human than when I'm fighting real monsters."
 
-&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
