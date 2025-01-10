@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trust? I hate that word, but coming from you it sounds different."
+> "In that case, you have nothing to fear. Mistakes aren’t made by locking your feelings away and holding back… They’re made while wearing your heart on your sleeve."
 
-&mdash; [**Porco Rosso**](https://myanimelist.net/character.php?q=Porco%20Rosso&cat=character), [**Porco Rosso**](https://myanimelist.net/search/all?q=Porco%20Rosso&cat=all)
+&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
