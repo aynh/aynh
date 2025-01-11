@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans aren't made perfectly. Everyone lies. Even so... I've been careful not to tell lies that hurt others."
+> "I refuse to stand by and watch you give up. I won't lose you, I can't. We'll walk away from this battle together."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
