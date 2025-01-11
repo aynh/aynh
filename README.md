@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I consider everything that happened to be precious moments of my life. The pain. The suffering. The fun… And I am here right now, because everyone was there for me. I couldn't have accomplished anything by standing still, without anybody's help. I treasure every moment I have spent here. Unlucky? I feel pretty lucky. This is my resolve."
+> "There has never been a report about a stomach ache or any other related medical trauma from swallowing your pride."
 
-&mdash; [**Tsunayoshi Sawada**](https://myanimelist.net/character.php?q=Tsunayoshi%20Sawada&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Daisuke Aramaki**](https://myanimelist.net/character.php?q=Daisuke%20Aramaki&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
