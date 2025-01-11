@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder if our hearts really do determine our feelings. Or are they just some sort of aroma in the air?"
+> "[to Toboe] I wanted to take you to paradise."
 
-&mdash; [**Jinno Yuu**](https://myanimelist.net/character.php?q=Jinno%20Yuu&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
+&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
