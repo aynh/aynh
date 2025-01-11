@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You'll never be able to go anywhere unless you learn how to let go."
+> "Illegal contractees kill people to be able to change the past."
 
-&mdash; [**Mishakuji Yukari**](https://myanimelist.net/character.php?q=Mishakuji%20Yukari&cat=character), [**K: Missing Kings**](https://myanimelist.net/search/all?q=K%3A%20Missing%20Kings&cat=all)
+&mdash; [**Gilbert Nightray**](https://myanimelist.net/character.php?q=Gilbert%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
