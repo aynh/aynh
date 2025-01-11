@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Glad you're okay *wink* I kinda like you."
+> "You can run from your past all you want, but it will always follow you. Forever and ever and ever and ever."
 
-&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
