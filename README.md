@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There has never been a report about a stomach ache or any other related medical trauma from swallowing your pride."
+> "You'll never be able to go anywhere unless you learn how to let go."
 
-&mdash; [**Daisuke Aramaki**](https://myanimelist.net/character.php?q=Daisuke%20Aramaki&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Mishakuji Yukari**](https://myanimelist.net/character.php?q=Mishakuji%20Yukari&cat=character), [**K: Missing Kings**](https://myanimelist.net/search/all?q=K%3A%20Missing%20Kings&cat=all)
