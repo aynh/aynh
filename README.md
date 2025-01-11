@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you have love in your life, you must keep living."
+> "Where is your tail? (Searching for tail in Bulma's butt)"
 
-&mdash; [**Juvia Loxar**](https://myanimelist.net/character.php?q=Juvia%20Loxar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
