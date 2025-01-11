@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Where is your tail? (Searching for tail in Bulma's butt)"
+> "People's feelings sometimes go astray and lead to irreversible consequences."
 
-&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
