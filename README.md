@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Please... even if I die surrounded by snow that never melts... please let her be happy."
+> "Humans aren't made perfectly. Everyone lies. Even so... I've been careful not to tell lies that hurt others."
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
