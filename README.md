@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Aang, this is my friend Foo-Foo Cuddly Poofs, Foo-Foo Cuddly Poofs, Aang."
+> "Glad you're okay *wink* I kinda like you."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
