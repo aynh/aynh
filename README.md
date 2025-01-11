@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Without love, people could exist without knowing truth and falsehood. By knowing it, they cry and grief and get lost. I was the same back then."
+> "Please... even if I die surrounded by snow that never melts... please let her be happy."
 
-&mdash; [**Furudo Erika**](https://myanimelist.net/character.php?q=Furudo%20Erika&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
