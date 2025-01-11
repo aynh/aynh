@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I refuse to stand by and watch you give up. I won't lose you, I can't. We'll walk away from this battle together."
+> "Good women flow like water."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Sakurai Tomozo**](https://myanimelist.net/character.php?q=Sakurai%20Tomozo&cat=character), [**Sora no Otoshimono: Forte**](https://myanimelist.net/search/all?q=Sora%20no%20Otoshimono%3A%20Forte&cat=all)
