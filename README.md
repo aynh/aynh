@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Misfortune… that is my symbol. Unluckiness… that is my identity. I am a woman who looks best dressed in solitude and misfortune. That is who I am."
+> "People do peculiar things when it comes to love... Our own safety doesn't seem so important."
 
-&mdash; [**Hong Lihua**](https://myanimelist.net/character.php?q=Hong%20Lihua&cat=character), [**Sousei no Aquarion**](https://myanimelist.net/search/all?q=Sousei%20no%20Aquarion&cat=all)
+&mdash; [**Fay D. Flourite**](https://myanimelist.net/character.php?q=Fay%20D.%20Flourite&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
