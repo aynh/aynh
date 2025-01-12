@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's nothing that's entirely black or white."
+> "My smile is nothing more than a pose, I can give it to anyone, anytime, anywhere..."
 
-&mdash; [**Yoki**](https://myanimelist.net/character.php?q=Yoki&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Kojima Mizuiro**](https://myanimelist.net/character.php?q=Kojima%20Mizuiro&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
