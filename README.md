@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To everything that comes near you, I am jealous."
+> "Even at a time like this there's not a single word of rescue from the one you worship. You see? That is the truth of this world. He doesn't watch anything and doesn't save anyone."
 
-&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Aion**](https://myanimelist.net/character.php?q=Aion&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
