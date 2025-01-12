@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One thing I'm especially good at is finding Yano, whenever or wherever he may be. Because he's the one I love."
+> "Don't tell me what to do, you seaweed head."
 
-&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
