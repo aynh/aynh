@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My smile is nothing more than a pose, I can give it to anyone, anytime, anywhere..."
+> "*referring to Jun* Look at her! Because she hasn't got any boyfriends around she fawns all over her guardian ghost."
 
-&mdash; [**Kojima Mizuiro**](https://myanimelist.net/character.php?q=Kojima%20Mizuiro&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tao Len**](https://myanimelist.net/character.php?q=Tao%20Len&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
