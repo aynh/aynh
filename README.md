@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I placed this blade of grass in my mouth thinking I'd look cool. But it must be poison 'cause ith makinth ma mouth numb."
+> "To everything that comes near you, I am jealous."
 
-&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
