@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not killing people is really hard. Clean living is tough."
+> "Everything you've been taught is based on theories and logic. Soon, you'll come to realize how pointless they are."
 
-&mdash; [**Killua Zoldyck**](https://myanimelist.net/character.php?q=Killua%20Zoldyck&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Tomomi Masaoka**](https://myanimelist.net/character.php?q=Tomomi%20Masaoka&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
