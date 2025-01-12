@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Flowers are fragile and ephemeral... Even if you meant to protect them with a surrounding fence from wind and rain, they would die without sunlight...and a spindly fence has no power against a strong wind. Are you fully aware of that, Kudo-kun?.."
+> "Not killing people is really hard. Clean living is tough."
 
-&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Killua Zoldyck**](https://myanimelist.net/character.php?q=Killua%20Zoldyck&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
