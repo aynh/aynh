@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I understand now. Even if I must take the devil's fruit, I must gain power. I am an avenger."
+> "One thing I'm especially good at is finding Yano, whenever or wherever he may be. Because he's the one I love."
 
-&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
