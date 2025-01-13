@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm prepared for anything! Up until now, I have been running away from every fight, afraid of losing. But running away is even worse than losing. Unless one continues to fight, without succumbing to the pain of defeat, it is impossible to achieve victory. That is what people I love taught me."
+> "Either way, the only ones who can die tomorrow are those who survive today."
 
-&mdash; [**Hanyuu**](https://myanimelist.net/character.php?q=Hanyuu&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
+&mdash; [**Dusty Attenborough**](https://myanimelist.net/character.php?q=Dusty%20Attenborough&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
