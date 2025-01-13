@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Aang, who is playing around] Stop! Stop it right now! What's wrong with you? We don't have time for fun and games with the war going on."
+> "As long as one person still lives...it shall be proof eternal that mankind ever existed."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Yui Ikari**](https://myanimelist.net/character.php?q=Yui%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
