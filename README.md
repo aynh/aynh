@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People are weak. Because of their weakness, they sometimes behave in ways devoid of self-respect. But then, so what if they do, my old friend? Even if I am struck with a thousand setbacks... it does not serve as a reason to alter the way I live... my life!"
+> "But your kindess doesn't come from being a Coordinator... it's because of who you are Mr. Yamato"
 
-&mdash; [**Klaus von Reinherz**](https://myanimelist.net/character.php?q=Klaus%20von%20Reinherz&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
