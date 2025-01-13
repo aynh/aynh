@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll take fragments from the chaos of this world... and using the fountain of wisdom inside me, will reconstruct them into truth."
+> "Any kind of life can go wrong, or sicken or suffer. Lives get old, decay, and finally die. Disliking that fact because it hurts, isn't any different than disliking life itself."
 
-&mdash; [**Victorique de Blois**](https://myanimelist.net/character.php?q=Victorique%20de%20Blois&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
+&mdash; [**Nyanta**](https://myanimelist.net/character.php?q=Nyanta&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
