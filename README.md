@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Okita* I don't care about that gap you created on your own. I'll jump across it as many times as it takes, and punch some sense into you."
+> "Right now, I'm going to fight the person who freed me from being Reversed and saved the world. The strongest fighter... My best friend."
 
-&mdash; [**Isao Kondō**](https://myanimelist.net/character.php?q=Isao%20Kond%C5%8D&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Toshiki Kai**](https://myanimelist.net/character.php?q=Toshiki%20Kai&cat=character), [**Cardfight!! Vanguard: Link Joker Hen**](https://myanimelist.net/search/all?q=Cardfight!!%20Vanguard%3A%20Link%20Joker%20Hen&cat=all)
