@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can stand not eating or sleeping, but I absolutely would not be able to live without my computer."
+> "Adventurers are free. They are more free than we are. It's true that we may be weaker than they are. But that doesn't mean that, in our weakness, we can become aggressive. We don't have the right to take advantage of our weakness and use them as tools!"
 
-&mdash; [**Kisaragi Shintaro**](https://myanimelist.net/character.php?q=Kisaragi%20Shintaro&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
+&mdash; [**Rayneshia El-Arte Corwen**](https://myanimelist.net/character.php?q=Rayneshia%20El-Arte%20Corwen&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
