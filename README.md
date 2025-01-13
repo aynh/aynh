@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Any kind of life can go wrong, or sicken or suffer. Lives get old, decay, and finally die. Disliking that fact because it hurts, isn't any different than disliking life itself."
+> "One human only has the power to do so much. That's why I'm going to protect...even if it's just a handful of them...the ones most important to me."
 
-&mdash; [**Nyanta**](https://myanimelist.net/character.php?q=Nyanta&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
