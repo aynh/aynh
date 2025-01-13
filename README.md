@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Adventurers are free. They are more free than we are. It's true that we may be weaker than they are. But that doesn't mean that, in our weakness, we can become aggressive. We don't have the right to take advantage of our weakness and use them as tools!"
+> "It's okay to feel depressed. It takes time to overcome things. And then, by taking that time, you just start moving forward again. That's just what humans do."
 
-&mdash; [**Rayneshia El-Arte Corwen**](https://myanimelist.net/character.php?q=Rayneshia%20El-Arte%20Corwen&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Mondo Oowada**](https://myanimelist.net/character.php?q=Mondo%20Oowada&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
