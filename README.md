@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't you ever talk about Miss Honda that way again, you low life."
+> "We fail. We make mistakes. But each time we do, I think we become stronger."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kyouka Katagiri**](https://myanimelist.net/character.php?q=Kyouka%20Katagiri&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
