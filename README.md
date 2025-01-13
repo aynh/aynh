@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yusuke Urameshi, age 14. Survived by his mom and everybody. After going through a big ordeal to get his life back, Yusuke had a brief second chance until he was eaten by a fish! That's right! No heroic death! No fighting evil villans! Fish food!"
+> "(after Master Roshi tells him they have to dig in a farm) First we're the milkmen, and now we're stinkin' farmers. We never did this in Orin Temple."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
