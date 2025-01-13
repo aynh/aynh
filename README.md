@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as one person still lives...it shall be proof eternal that mankind ever existed."
+> "*to Okita* I don't care about that gap you created on your own. I'll jump across it as many times as it takes, and punch some sense into you."
 
-&mdash; [**Yui Ikari**](https://myanimelist.net/character.php?q=Yui%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Isao Kondō**](https://myanimelist.net/character.php?q=Isao%20Kond%C5%8D&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
