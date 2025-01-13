@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Right now, I'm going to fight the person who freed me from being Reversed and saved the world. The strongest fighter... My best friend."
+> "I'm prepared for anything! Up until now, I have been running away from every fight, afraid of losing. But running away is even worse than losing. Unless one continues to fight, without succumbing to the pain of defeat, it is impossible to achieve victory. That is what people I love taught me."
 
-&mdash; [**Toshiki Kai**](https://myanimelist.net/character.php?q=Toshiki%20Kai&cat=character), [**Cardfight!! Vanguard: Link Joker Hen**](https://myanimelist.net/search/all?q=Cardfight!!%20Vanguard%3A%20Link%20Joker%20Hen&cat=all)
+&mdash; [**Hanyuu**](https://myanimelist.net/character.php?q=Hanyuu&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
