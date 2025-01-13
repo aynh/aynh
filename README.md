@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who seek out the truth must not be arrogant. You must not laugh at miracles just because they cannot be explained scientifically. You must not turn away from the beauty of this world."
+> "I hate waiting, but if waiting means being able to be with you I'll wait for as long as forever."
 
-&mdash; [**Ichinose Kotomi**](https://myanimelist.net/character.php?q=Ichinose%20Kotomi&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
