@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One human only has the power to do so much. That's why I'm going to protect...even if it's just a handful of them...the ones most important to me."
+> "One more word Shigure and the entire publishing industry will know every embarrassing thing you've done since you were four."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
