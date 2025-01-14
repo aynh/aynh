@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No person exists that is just virtuous, and kindness is only something piled on the outside. There are no humans with just virtue and fairness. Rather, they try to be that and just build up stress."
+> "Anime - it's not something that can be thought of in a hall for conferences. It is made out of strange juices current from the brain of animators."
 
-&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
