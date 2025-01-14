@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Clouds... come here. Drops... fall here. Drive out the flames... tell him... that despite all of this... the world is still beautiful."
+> "The most inflated egos are often the most fragile."
 
-&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
