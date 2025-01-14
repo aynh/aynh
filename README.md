@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I didn't come here to fight! I came here to hack at you violently!"
+> "That's all I wanted to say. There is nothing at the end of helping people. It is a false life that can save neither yourself nor others."
 
-&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
