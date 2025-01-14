@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mu, I'd actually be pleased if you'd vanish right about now!"
+> "I don't know what you're trying to pull, but I'm not into this kinky stuff, and you're WAY too old!"
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
