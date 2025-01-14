@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s only one difference between heroes and mad men. It’s whether they win or lose."
+> "People who are confident in themselves never talk about expectations. 'Expectation' is a word rooted in giving up. It leaves you with no other choice. It makes it obvious that you're powerless."
 
-&mdash; [**Lambdadelta**](https://myanimelist.net/character.php?q=Lambdadelta&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
