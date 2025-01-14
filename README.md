@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's all I wanted to say. There is nothing at the end of helping people. It is a false life that can save neither yourself nor others."
+> "We have to find a way to face this scar."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
