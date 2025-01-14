@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you aren't remembered, then you never existed."
+> "You only need a strong will and a clear purpose."
 
-&mdash; [**Arisu Mizuki**](https://myanimelist.net/character.php?q=Arisu%20Mizuki&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
+&mdash; [**Kureo Mado**](https://myanimelist.net/character.php?q=Kureo%20Mado&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
