@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dreams. Each man longs to pursue his dream. Each man is tortured by this dream, but the dream gives meaning to his life. Even if the dream ruins his life, man cannot allow himself to leave it behind. In this world, is man ever able to possess anything more solid, than a dream?"
+> "Clouds... come here. Drops... fall here. Drive out the flames... tell him... that despite all of this... the world is still beautiful."
 
-&mdash; [**Berserk**](https://myanimelist.net/character.php?q=Berserk&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
