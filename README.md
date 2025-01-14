@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's true that you're lacking in ability. That's because you don't work at it. However, you have a natural potential. That's why I chose you."
+> "I’m afraid of myself, because... I'm a monster."
 
-&mdash; [**Koichiro Oota**](https://myanimelist.net/character.php?q=Koichiro%20Oota&cat=character), [**Gunbuster**](https://myanimelist.net/search/all?q=Gunbuster&cat=all)
+&mdash; [**Inori Yuzuriha**](https://myanimelist.net/character.php?q=Inori%20Yuzuriha&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
