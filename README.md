@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The most inflated egos are often the most fragile."
+> "Love is never without trials and tribulations--precisely because of that, there's bitterness. What do you think? The feelings from liking someone... cannot be satisfied by your own efforts alone. It's not the same as simple anger or sadness. One-sidedly declaring your feelings... this doesn't bring satisfaction. Only when the other person feels the same way... Only when two hearts love each other is fulfillment achieved."
 
-&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
+&mdash; [**Kamiya Kyousuke**](https://myanimelist.net/character.php?q=Kamiya%20Kyousuke&cat=character), [**Psycho Love Comedy**](https://myanimelist.net/search/all?q=Psycho%20Love%20Comedy&cat=all)
