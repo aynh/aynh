@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you could see everything but couldn't change any of it, or if you could live in freedom in darkness... Which do you think is more fortunate? I think it might not be that bad living in the dark, remembering the light."
+> "No person can become a replacement for another. Not even the past version of themselves."
 
-&mdash; [**Amane**](https://myanimelist.net/character.php?q=Amane&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Ushiromiya Ange**](https://myanimelist.net/character.php?q=Ushiromiya%20Ange&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
