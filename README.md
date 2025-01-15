@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That kid's good point is that he feels he doesn't have much skill. It's this kind of person that will keep on improving."
+> "She was stolen away before I even realized I liked her."
 
-&mdash; [**Mizuno Tatsuya**](https://myanimelist.net/character.php?q=Mizuno%20Tatsuya&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
+&mdash; [**Kento Miura**](https://myanimelist.net/character.php?q=Kento%20Miura&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
