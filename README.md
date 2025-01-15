@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "‎[to Takumi Myama] Why are you blocking us when you have someone else that you like? We can easily see her feelings towards you so there's no way you haven't realized what's there. Yet you just leave the situation half-finished. Aren't you just saving her for when things don't work out with your favorite?"
+> "YAAAAAAHHHHHHHOOOOOOOOOOOOOOOO!"
 
-&mdash; [**Takumi Nomiya**](https://myanimelist.net/character.php?q=Takumi%20Nomiya&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
