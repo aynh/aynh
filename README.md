@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "She was stolen away before I even realized I liked her."
+> "It's probably a lie. The reason why I only stay for three days in any country. I'm afraid I'll settle down, if I stay too long. Because if I settled down, I would cease to be a traveler."
 
-&mdash; [**Kento Miura**](https://myanimelist.net/character.php?q=Kento%20Miura&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
