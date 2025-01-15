@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No person can become a replacement for another. Not even the past version of themselves."
+> "It isn't like I understand what you want. You want to change the world, huh? I understand, everyone feels that way... But it doesn't give you the right to treat other's lifes like toys. You can't just destroy what you want!"
 
-&mdash; [**Ushiromiya Ange**](https://myanimelist.net/character.php?q=Ushiromiya%20Ange&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Lubbock**](https://myanimelist.net/character.php?q=Lubbock&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
