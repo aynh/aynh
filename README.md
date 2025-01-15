@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People do not cease to exist immediately after dying, as long as there are people who remember them."
+> "‎[to Takumi Myama] Why are you blocking us when you have someone else that you like? We can easily see her feelings towards you so there's no way you haven't realized what's there. Yet you just leave the situation half-finished. Aren't you just saving her for when things don't work out with your favorite?"
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Takumi Nomiya**](https://myanimelist.net/character.php?q=Takumi%20Nomiya&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
