@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I only joined this war to avoid spilling rivers of blood. Fight for the Holy Grail, no meaningless bloodshed, minimize sacrifices, one person taking up the mission of fate instead of armies of men and competing here! This is what we Servants should do."
+> "How can he hope to stand back up, when he is still in the process of falling? Let him fall, all the way to the very bottom, before telling him to stand up again."
 
-&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Gen Fudou**](https://myanimelist.net/character.php?q=Gen%20Fudou&cat=character), [**Sousei no Aquarion**](https://myanimelist.net/search/all?q=Sousei%20no%20Aquarion&cat=all)
