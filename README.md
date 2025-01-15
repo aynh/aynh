@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am the only one who's earned that right in the entire universe! I alone have the right to judge all of humanity!"
+> "I wonder how you're suppose to give up... Do I just decide to give up and act accordingly? And move further and further away from what my heart really wants? Then will I forget everything one day?.. Everything including the pain in my heart? Everything? Without a trace as if nothing was there to begin with?"
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
