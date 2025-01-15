@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "An angel? So Whis is an angel? But he’s got no wings, and his butt’s not hanging out."
+> "We are far, far, very, very far apart... but it might be that thoughts can overcome time and distance."
 
-&mdash; [**Goku**](https://myanimelist.net/character.php?q=Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Mikako Nagamine**](https://myanimelist.net/character.php?q=Mikako%20Nagamine&cat=character), [**Voices of a Distant Star**](https://myanimelist.net/search/all?q=Voices%20of%20a%20Distant%20Star&cat=all)
