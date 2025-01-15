@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's probably a lie. The reason why I only stay for three days in any country. I'm afraid I'll settle down, if I stay too long. Because if I settled down, I would cease to be a traveler."
+> "People do not cease to exist immediately after dying, as long as there are people who remember them."
 
-&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
