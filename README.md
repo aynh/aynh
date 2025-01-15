@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "YAAAAAAHHHHHHHOOOOOOOOOOOOOOOO!"
+> "You're lucky Al. Since your body's huge."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
