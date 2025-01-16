@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think that what people who've committed crimes need isn't punishment, but rather the knowledge of the pain of being forgiven."
+> "But if that’s what you want to do, you might as well try. It’s just pathetic to give up on something before you even give it a shot."
 
-&mdash; [**Isogi Toshio**](https://myanimelist.net/character.php?q=Isogi%20Toshio&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Reiko Mikami**](https://myanimelist.net/character.php?q=Reiko%20Mikami&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
