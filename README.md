@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am not a person who only wants to receive things from him, I want to be the person who can give things to him."
+> "For there to be pain, there has to be kindness. For darkness to stand out, there has to be the sun."
 
-&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
