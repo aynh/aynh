@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At what speed must I live...to be able to see you again..?"
+> "Aki, you can't lie when you confess to someone. I'm trying to comfort you know, but if I just wanted to comfort you, I won't confess to you. I confessed to you like this because I really like you. But I do find it a little annoying how you fidget around like this, and I really hate you for blaming yourself and regretting your actions. -- and I really hate you when you said that a girl, who summoned all her courage to confess to you, is lying."
 
-&mdash; [**Takaki Toono**](https://myanimelist.net/character.php?q=Takaki%20Toono&cat=character), [**5 Centimeters per Second**](https://myanimelist.net/search/all?q=5%20Centimeters%20per%20Second&cat=all)
+&mdash; [**Shimada Minami**](https://myanimelist.net/character.php?q=Shimada%20Minami&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
