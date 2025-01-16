@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But if that’s what you want to do, you might as well try. It’s just pathetic to give up on something before you even give it a shot."
+> "The vampires don't really care about humanity in general. It's only specific humans like you that concern them... The kind of humans who will stop at nothing to acquire more power."
 
-&mdash; [**Reiko Mikami**](https://myanimelist.net/character.php?q=Reiko%20Mikami&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
+&mdash; [**Mikaela Hyakuya**](https://myanimelist.net/character.php?q=Mikaela%20Hyakuya&cat=character), [**Owari no Seraph**](https://myanimelist.net/search/all?q=Owari%20no%20Seraph&cat=all)
