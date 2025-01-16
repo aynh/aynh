@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dying means to be gone. And what goes, is not your pain, but your existence itself. But in your mind, you think that you’d have a sense of “nothing” after you die. How can you call that “nothing”? In other words, you don't even have an idea of what death is really like."
+> "I think that what people who've committed crimes need isn't punishment, but rather the knowledge of the pain of being forgiven."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Isogi Toshio**](https://myanimelist.net/character.php?q=Isogi%20Toshio&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
