@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only underlings get caught up in the matter of style and lose the battle. A captain can't afford such indulgences. Don't try to be a good kid. Whether you own somebody or they own you. The moment you start a fight, you are wrong in either way."
+> "I devour the five lands and drain the three seas, yet only the sky is impossible to reach. With this body lacking wings, hands, or legs. I am the World Serpent. My name is Jormungand."
 
-&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Jormungand**](https://myanimelist.net/character.php?q=Jormungand&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
