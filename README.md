@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are some people who don't want a solution. Some want things to stay the way they are. There's no way to make things convenient for everyone. So the only option is to find a compromise."
+> "No matter what kind of past you had, don't lose sight of yourself."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Ayato Naoi**](https://myanimelist.net/character.php?q=Ayato%20Naoi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
