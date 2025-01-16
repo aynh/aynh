@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are only two professions in the whole world that give meaning to those who have died and what have been lost... They're writers and detectives. Writers are the only ones able to revive what was lost through their visions. Detectives are the only ones able to dig up the grave and bring back lost information. But the information us detectives dig up is nothing more than the truth as recorded in Heaven's Memo Pad."
+> "If the father's responsibility is to protect the child... then my responsibility is to exceed the father."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
