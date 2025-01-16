@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I devour the five lands and drain the three seas, yet only the sky is impossible to reach. With this body lacking wings, hands, or legs. I am the World Serpent. My name is Jormungand."
+> "Dying means to be gone. And what goes, is not your pain, but your existence itself. But in your mind, you think that you’d have a sense of “nothing” after you die. How can you call that “nothing”? In other words, you don't even have an idea of what death is really like."
 
-&mdash; [**Jormungand**](https://myanimelist.net/character.php?q=Jormungand&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
