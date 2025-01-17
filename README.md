@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll never dream about things that I know won't come true."
+> "I don't care if you're the son of the president or what. That just shows the success of your father. It doesn't mean you are excellent too."
 
-&mdash; [**Chiriko Tsurumi**](https://myanimelist.net/character.php?q=Chiriko%20Tsurumi&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
+&mdash; [**Mikoto Kujou**](https://myanimelist.net/character.php?q=Mikoto%20Kujou&cat=character), [**Last Game**](https://myanimelist.net/search/all?q=Last%20Game&cat=all)
