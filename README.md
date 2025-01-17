@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The  pain on these wounds will last only a second. The pain of your death would last a lifetime."
+> "This is all that remains of the world. Though we knew it was coming, it’s pretty shocking, huh? The disappearance not of matter but of awareness, of ideals. Not death. Something even more pure. The fact that we life-forms ever existed…… Our past, present and future, it will all disappear."
 
-&mdash; [**Kenshiro**](https://myanimelist.net/character.php?q=Kenshiro&cat=character), [**Fist of the North Star**](https://myanimelist.net/search/all?q=Fist%20of%20the%20North%20Star&cat=all)
+&mdash; [**Fumi Kanno**](https://myanimelist.net/character.php?q=Fumi%20Kanno&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
