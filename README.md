@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are a hateful woman. You oppose me to the very end. But I shall forgive you."
+> "Whenever people see birds flying through the sky, it's said that they get the urge to go on a journey."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
