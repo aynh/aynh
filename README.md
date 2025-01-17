@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll leave tomorrow's problems to tomorrow's me."
+> "You are a hateful woman. You oppose me to the very end. But I shall forgive you."
 
-&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
