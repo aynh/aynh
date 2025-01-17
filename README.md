@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if the world doesn't accept you, I'll always be right by your side!"
+> "If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud!"
 
-&mdash; [**Tendou Kisara**](https://myanimelist.net/character.php?q=Tendou%20Kisara&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
+&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
