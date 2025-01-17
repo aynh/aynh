@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being thrown away by humans, devoted to them even though you aren't one of them... and once they are finished with you, they have you end your life yourself... and not even an ounce of gratitude for all that. On the contrary: for your whole life you are hated and reviled. It really is idiotic. We are a different species after all. Once you start seeing things that way, it all becomes very easy to accept. Do humans shed tears for the birds, pigs, cows and sheep that become their food? Of course they don't. They are a different species after all. That is nature. That is the truth. That is Providence. Your way of thinking up to now was the warped one."
+> "You're wrong. It's not the world that's messed up; it's those of us in it. Yes, some ghouls walk a path that leaves sorrow in their wake, but just like humans, we can choose a different path altogether. We have a lot to learn, both your kind and mine. We need to stop fighting, and start talking. Because when it comes to the state of the world, you can't point your finger at ghouls or humans. We're all to blame."
 
-&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
