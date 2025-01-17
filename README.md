@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Remembering something that no one else can is a painful thing. You can't talk to anyone about it. No one will understand you. You'll be alone."
+> "Quotes were invented in Korea, you know!"
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**South Korea**](https://myanimelist.net/character.php?q=South%20Korea&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
