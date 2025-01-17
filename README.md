@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Re-explaining my memories through words made good memories easier to savor, and bad memories easier to accept."
+> "How will you live if every little thing from your memories always hurts you easily?"
 
-&mdash; [**Kusonoki**](https://myanimelist.net/character.php?q=Kusonoki&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
+&mdash; [**Daiki Mamura**](https://myanimelist.net/character.php?q=Daiki%20Mamura&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
