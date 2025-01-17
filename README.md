@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We could drive them off the entire earth if we had your strength, Gintoki!"
+> "Tell me, what do you think is the ultimate fear? I really thought I'd already reached the darkest of the dark, but then, ahead of me, I beheld a darkness even greater still."
 
-&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
