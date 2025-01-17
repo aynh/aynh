@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's right, I am Kira. And what can you do? Kill me right here?"
+> "Re-explaining my memories through words made good memories easier to savor, and bad memories easier to accept."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kusonoki**](https://myanimelist.net/character.php?q=Kusonoki&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
