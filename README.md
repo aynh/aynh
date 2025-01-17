@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whenever people see birds flying through the sky, it's said that they get the urge to go on a journey."
+> "Even if the world doesn't accept you, I'll always be right by your side!"
 
-&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
+&mdash; [**Tendou Kisara**](https://myanimelist.net/character.php?q=Tendou%20Kisara&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
