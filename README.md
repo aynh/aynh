@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you save Kaien, then what becomes of his pride? If you go to his aid now, his life will be saved. But... at the same time, it would end up killing his pride for all eternity."
+> "There's no match you can't win, and there's no match that you'll win for sure."
 
-&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ikkei Ukai**](https://myanimelist.net/character.php?q=Ikkei%20Ukai&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
