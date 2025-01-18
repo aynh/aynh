@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've wanted to make him taste his own pathetic failure with all my heart."
+> "If you were to write a story with me in the lead role, it would certainly be... a tragedy."
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
