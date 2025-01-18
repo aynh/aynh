@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Games aren't meant for competition. They're things to master."
+> "You can take a picture of something and it never does it justice... I think about that sometimes when I see a picture of you."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Mikako Nagamine**](https://myanimelist.net/character.php?q=Mikako%20Nagamine&cat=character), [**Voices of a Distant Star**](https://myanimelist.net/search/all?q=Voices%20of%20a%20Distant%20Star&cat=all)
