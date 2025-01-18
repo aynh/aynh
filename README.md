@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe, just maybe, there is no purpose in life... but if you linger a while longer in this world, you might discover something of value in it."
+> "No matter what happens, you are still you...our family."
 
-&mdash; [**Orochimaru**](https://myanimelist.net/character.php?q=Orochimaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kai Miyagusuku**](https://myanimelist.net/character.php?q=Kai%20Miyagusuku&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
