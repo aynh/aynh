@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can take a picture of something and it never does it justice... I think about that sometimes when I see a picture of you."
+> "Admiration is the furthest thing from understanding."
 
-&mdash; [**Mikako Nagamine**](https://myanimelist.net/character.php?q=Mikako%20Nagamine&cat=character), [**Voices of a Distant Star**](https://myanimelist.net/search/all?q=Voices%20of%20a%20Distant%20Star&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
