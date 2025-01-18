@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*commenting on Haruhi's naming of the SOS brigade* Haruhi's incomprehensible words settled the matter. Oh, joy. Just do whatever you want."
+> "Games aren't meant for competition. They're things to master."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
