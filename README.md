@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The Idealist says, everyone is born equal. We are all of equal worth. The sportsman screams, no effort goes unrewarded. Work hard for your dreams! It's about how you play the game. Obviously all untrue."
+> "So what if the government collapses or the country is ruined? I'm not civic-minded! All I want to do is stand tall and live on until the day I collapse and die!"
 
-&mdash; [**Haruki Aritomi**](https://myanimelist.net/character.php?q=Haruki%20Aritomi&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
