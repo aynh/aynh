@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life and death are the very basis of all things. They intensify every emotion. Or, to put it in a rather different way, there is nothing quite so dull as 'life'."
+> "You hit me with everything you had, so I decided I could trust you with everything I had."
 
-&mdash; [**Jellal Fernandes**](https://myanimelist.net/character.php?q=Jellal%20Fernandes&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Konno Yuuki**](https://myanimelist.net/character.php?q=Konno%20Yuuki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
