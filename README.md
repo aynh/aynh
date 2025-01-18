@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our lives were real! Not a single moment of them were fake! Everyone lived the best they could! We carved those memories into ourselves! Memories of living as hard as we could! No matter what kind they were, they're the life we led! Erasing them in the blink of an eye like that... Wasn't your life also real to you?!"
+> "I'm not against socializing, so long as it's not tiring."
 
-&mdash; [**Yuzuru Otonashi**](https://myanimelist.net/character.php?q=Yuzuru%20Otonashi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
