@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "By the way, Araragi-kun... I've never broken up with a man before. Hence, I won't be breaking up with you either."
+> "I've wanted to make him taste his own pathetic failure with all my heart."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
