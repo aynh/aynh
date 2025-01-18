@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe it would be just like in the mangas. I'd tell him I love him and then we cut to the happy ending."
+> "Maybe, just maybe, there is no purpose in life... but if you linger a while longer in this world, you might discover something of value in it."
 
-&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Orochimaru**](https://myanimelist.net/character.php?q=Orochimaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
