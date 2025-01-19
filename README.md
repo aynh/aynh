@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don’t like hurting others. But that doesn't mean I won’t bear arms to protect places and people dear to me."
+> "And I thought you were going to buy a stone to evolve yourself."
 
-&mdash; [**Kiriha Kurano**](https://myanimelist.net/character.php?q=Kiriha%20Kurano&cat=character), [**Rokujouma no Shinryakusha!?**](https://myanimelist.net/search/all?q=Rokujouma%20no%20Shinryakusha!%3F&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
