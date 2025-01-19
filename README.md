@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Running away isn’t the same thing as losing. You only truly lose by dying. So as long you’re alive, you win."
+> "I don’t like hurting others. But that doesn't mean I won’t bear arms to protect places and people dear to me."
 
-&mdash; [**Senator Figaro**](https://myanimelist.net/character.php?q=Senator%20Figaro&cat=character), [**Valvrave the Liberator**](https://myanimelist.net/search/all?q=Valvrave%20the%20Liberator&cat=all)
+&mdash; [**Kiriha Kurano**](https://myanimelist.net/character.php?q=Kiriha%20Kurano&cat=character), [**Rokujouma no Shinryakusha!?**](https://myanimelist.net/search/all?q=Rokujouma%20no%20Shinryakusha!%3F&cat=all)
