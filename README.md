@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the drive behind one's actions is the thought for another, then it is never meaningless."
+> "When people immerse themselves in their own world and other people around them start doing something, they can’t help but feel very lonely."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Enomoto Takane**](https://myanimelist.net/character.php?q=Enomoto%20Takane&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
