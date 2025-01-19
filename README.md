@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's only the end if you give up!"
+> "Between dreams and reality is the vault of your soul. No one could see the “Dream World” without this path."
 
-&mdash; [**Elfman Strauss**](https://myanimelist.net/character.php?q=Elfman%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
