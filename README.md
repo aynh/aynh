@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't concern yourself with what those tasteless idiots say."
+> "A fight isn't won once a victor is decided, it's won when someone loses."
 
-&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Izayoi Sakamaki**](https://myanimelist.net/character.php?q=Izayoi%20Sakamaki&cat=character), [**Mondaiji-tachi Ga Isekai Kara Kuru Sou Desu Yo?**](https://myanimelist.net/search/all?q=Mondaiji-tachi%20Ga%20Isekai%20Kara%20Kuru%20Sou%20Desu%20Yo%3F&cat=all)
