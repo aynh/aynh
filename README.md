@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Between dreams and reality is the vault of your soul. No one could see the “Dream World” without this path."
+> "Stories aren't always guaranteed a happily ever after."
 
-&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Drosselmeyer**](https://myanimelist.net/character.php?q=Drosselmeyer&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
