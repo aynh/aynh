@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stories aren't always guaranteed a happily ever after."
+> "Is there a limit to how much you can love somebody? No matter how much I hurt him or get hurt by him, I find myself far from hating him, actually hoping that those wounds will scar, like burns...because then you can never forget me."
 
-&mdash; [**Drosselmeyer**](https://myanimelist.net/character.php?q=Drosselmeyer&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
+&mdash; [**Hiroki Kamijou**](https://myanimelist.net/character.php?q=Hiroki%20Kamijou&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
