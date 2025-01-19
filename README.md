@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You appearing before me was the best thing that’s ever happened in my life. The worst was when you left my sight. …And depending on your reply now, I might have a new best or worst."
+> "It's only the end if you give up!"
 
-&mdash; [**Kusonoki**](https://myanimelist.net/character.php?q=Kusonoki&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
+&mdash; [**Elfman Strauss**](https://myanimelist.net/character.php?q=Elfman%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
