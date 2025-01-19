@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we have time to get upset, we should have used that time to move on… Even if just one step forward!"
+> "You appearing before me was the best thing that’s ever happened in my life. The worst was when you left my sight. …And depending on your reply now, I might have a new best or worst."
 
-&mdash; [**Kise Ryouta**](https://myanimelist.net/character.php?q=Kise%20Ryouta&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Kusonoki**](https://myanimelist.net/character.php?q=Kusonoki&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
