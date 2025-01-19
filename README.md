@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And I thought you were going to buy a stone to evolve yourself."
+> "[To Barragan, before he was recruited by Aizen] Isn't it ironic, king of Hueco Mundo? Dressed in black and poised to attack, you look just like a shinigami."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
