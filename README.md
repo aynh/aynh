@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm in the mood for loooooove! *Hot nurse walks in.* I'm in the mood for seeeeeeeeex!"
+> "For the right price, you can buy not only treasures, but dreams, hearts and even people's lives!"
 
-&mdash; [**Carrot Glace**](https://myanimelist.net/character.php?q=Carrot%20Glace&cat=character), [**Bakuretsu Hunters**](https://myanimelist.net/search/all?q=Bakuretsu%20Hunters&cat=all)
+&mdash; [**Leorio Paladiknight**](https://myanimelist.net/character.php?q=Leorio%20Paladiknight&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
