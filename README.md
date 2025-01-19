@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is there a limit to how much you can love somebody? No matter how much I hurt him or get hurt by him, I find myself far from hating him, actually hoping that those wounds will scar, like burns...because then you can never forget me."
+> "No one's gonna save me. People just accept help selfishly, for their own sake."
 
-&mdash; [**Hiroki Kamijou**](https://myanimelist.net/character.php?q=Hiroki%20Kamijou&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
