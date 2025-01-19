@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let’s say I posed this question to you: “Can all human souls be bought with money or not?” Now remember, the keyword here is “all”. The answer is “There are times when you can buy them, and other times, not,” right? The human being… sometimes he’ll uphold his pride and conscience even if he’s offered ten billion yen, and other times he’ll murder someone over one yen."
+> "There is no telling what kind of pain will come  after me, but... if I stop believing because of that, if the hero should change, it'll turn into another story from the one my master left behind. Then it wont be Naruto! I can't write novels like my master did. That's why the sequel has to come from the life I live no matter how great the pain, I'll continue walking because that's who Naruto is!"
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!×2 Shou**](https://myanimelist.net/search/all?q=Durarara!!%C3%972%20Shou&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
