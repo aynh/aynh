@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When people immerse themselves in their own world and other people around them start doing something, they can’t help but feel very lonely."
+> "If we have time to get upset, we should have used that time to move on… Even if just one step forward!"
 
-&mdash; [**Enomoto Takane**](https://myanimelist.net/character.php?q=Enomoto%20Takane&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
+&mdash; [**Kise Ryouta**](https://myanimelist.net/character.php?q=Kise%20Ryouta&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
