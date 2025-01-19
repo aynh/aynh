@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one's gonna save me. People just accept help selfishly, for their own sake."
+> "What must be done... Must be done. No matter what. Complete your mission. You were born into this world so that you could complete your mission."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Annie Leonhardt**](https://myanimelist.net/character.php?q=Annie%20Leonhardt&cat=character), [**Shingeki no Kyojin: Lost Girls**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Lost%20Girls&cat=all)
