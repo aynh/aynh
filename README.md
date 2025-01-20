@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The beginning of a story is a sudden event; the start, a happy accident, the end, the fate for which it's meant. A story that never ends is a sad fate."
+> "In this world, there's no such thing as 'failure' in the first place. The one who knows the 'ways to win' more than anyone is also the one who's experienced the most 'mistakes'. In other words... You could say 'failure' is equal to 'success'... Couldn't you?"
 
-&mdash; [**Edel**](https://myanimelist.net/character.php?q=Edel&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
+&mdash; [**Toriko**](https://myanimelist.net/character.php?q=Toriko&cat=character), [**Toriko**](https://myanimelist.net/search/all?q=Toriko&cat=all)
