@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tell me, are all you Saiyans so full of yourselves? Is this how you hide your incompetence? We androids will always be superior to your kind."
+> "If I wouldn't have tripped, you wouldn't have stopped, now would you?"
 
-&mdash; [**Android 17**](https://myanimelist.net/character.php?q=Android%2017&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
