@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop trying to change things that can't be changed. The past is the past and you have to let it go and embrace the future."
+> "Sometimes all people need is a good listener."
 
-&mdash; [**Jack Atlas**](https://myanimelist.net/character.php?q=Jack%20Atlas&cat=character), [**Yu-Gi-Oh! 5D's**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%205D's&cat=all)
+&mdash; [**Shiki Misaki**](https://myanimelist.net/character.php?q=Shiki%20Misaki&cat=character), [**Subarashiki Kono Sekai**](https://myanimelist.net/search/all?q=Subarashiki%20Kono%20Sekai&cat=all)
