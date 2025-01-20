@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That’s just the way it is. Change is inevitable. Instead of resisting it, you’re better served simple going with the flow."
+> "To ask is a moment's shame. Not to, lifelong."
 
-&mdash; [**Kyouraku Shunsui**](https://myanimelist.net/character.php?q=Kyouraku%20Shunsui&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yotsugi Ononoki**](https://myanimelist.net/character.php?q=Yotsugi%20Ononoki&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
