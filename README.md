@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, guns are always within arm's reach, and sadly they are more trustworthy than kindness."
+> "Tell me, are all you Saiyans so full of yourselves? Is this how you hide your incompetence? We androids will always be superior to your kind."
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Android 17**](https://myanimelist.net/character.php?q=Android%2017&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
