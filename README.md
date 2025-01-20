@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every dream has an end...No matter how nice the dream might be, or how scary it is. Under your warm blanket, the dream comes to an abrupt end, when mother shakes you awake. Forever and ever, the morning scene remains the same. But now I... I wonder... when the dreams began to never end."
+> "If this is the path you choose to walk... I will not interfere. But if you turn the people against you... Will you be able to function as a hero? This worries me. But if you ever get in a tight spot... I will be there."
 
-&mdash; [**Aizawa Yuuichi**](https://myanimelist.net/character.php?q=Aizawa%20Yuuichi&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
+&mdash; [**Genos**](https://myanimelist.net/character.php?q=Genos&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
