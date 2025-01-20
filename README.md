@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A fight isn't won once a victor is decided, it's won when someone loses."
+> "In this world, guns are always within arm's reach, and sadly they are more trustworthy than kindness."
 
-&mdash; [**Izayoi Sakamaki**](https://myanimelist.net/character.php?q=Izayoi%20Sakamaki&cat=character), [**Mondaiji-tachi Ga Isekai Kara Kuru Sou Desu Yo?**](https://myanimelist.net/search/all?q=Mondaiji-tachi%20Ga%20Isekai%20Kara%20Kuru%20Sou%20Desu%20Yo%3F&cat=all)
+&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
