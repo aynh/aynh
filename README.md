@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Please don’t apologize. If you did, and I forgave you, then it’d be like it was all a lie. I want to hold those memories we had dear. The fun times… The painful times… All of it. So please, don’t apologize."
+> "The beginning of a story is a sudden event; the start, a happy accident, the end, the fate for which it's meant. A story that never ends is a sad fate."
 
-&mdash; [**Fujibayashi Ryou**](https://myanimelist.net/character.php?q=Fujibayashi%20Ryou&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Edel**](https://myanimelist.net/character.php?q=Edel&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
