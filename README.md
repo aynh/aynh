@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, there's no such thing as 'failure' in the first place. The one who knows the 'ways to win' more than anyone is also the one who's experienced the most 'mistakes'. In other words... You could say 'failure' is equal to 'success'... Couldn't you?"
+> "There are times when people who are different cannot understand each other. Even if you think you understand the other person, you really don't. And what awaits in the end, usually, is despair."
 
-&mdash; [**Toriko**](https://myanimelist.net/character.php?q=Toriko&cat=character), [**Toriko**](https://myanimelist.net/search/all?q=Toriko&cat=all)
+&mdash; [**Corticarte Apa Lagranges**](https://myanimelist.net/character.php?q=Corticarte%20Apa%20Lagranges&cat=character), [**Shinkyoku Soukai Polyphonica**](https://myanimelist.net/search/all?q=Shinkyoku%20Soukai%20Polyphonica&cat=all)
