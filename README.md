@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You should enjoy the little detours. To the fullest. Because that's where you'll find the things more important than what you want."
+> "That’s just the way it is. Change is inevitable. Instead of resisting it, you’re better served simple going with the flow."
 
-&mdash; [**Ging Freecss**](https://myanimelist.net/character.php?q=Ging%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Kyouraku Shunsui**](https://myanimelist.net/character.php?q=Kyouraku%20Shunsui&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
