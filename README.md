@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I wouldn't have tripped, you wouldn't have stopped, now would you?"
+> "[a giant satellite bomb is headed towards the city] If that thing hits, do you think we'll have school tomorrow?"
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Mamimi Samejima**](https://myanimelist.net/character.php?q=Mamimi%20Samejima&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
