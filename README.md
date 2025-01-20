@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If this is the path you choose to walk... I will not interfere. But if you turn the people against you... Will you be able to function as a hero? This worries me. But if you ever get in a tight spot... I will be there."
+> "For all my life... I've wanted strength. I didn't want those things precious to me to be taken away from me anymore. But, to have strength means to invite disaster to come to you. And strength alone can't really protect you."
 
-&mdash; [**Genos**](https://myanimelist.net/character.php?q=Genos&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Kurogane**](https://myanimelist.net/character.php?q=Kurogane&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
