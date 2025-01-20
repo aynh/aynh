@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you expect something in return, your good deed is no longer just a good deed."
+> "It's not like I'm desperate to have friends, anyway. I just don't like being looked down on as that sad person with no friends."
 
-&mdash; [**Kayo Senju**](https://myanimelist.net/character.php?q=Kayo%20Senju&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
+&mdash; [**Yozora Mikazuki**](https://myanimelist.net/character.php?q=Yozora%20Mikazuki&cat=character), [**Boku wa Tomodachi ga Sukunai**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai&cat=all)
