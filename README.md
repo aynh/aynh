@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[a giant satellite bomb is headed towards the city] If that thing hits, do you think we'll have school tomorrow?"
+> "Please don’t apologize. If you did, and I forgave you, then it’d be like it was all a lie. I want to hold those memories we had dear. The fun times… The painful times… All of it. So please, don’t apologize."
 
-&mdash; [**Mamimi Samejima**](https://myanimelist.net/character.php?q=Mamimi%20Samejima&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Fujibayashi Ryou**](https://myanimelist.net/character.php?q=Fujibayashi%20Ryou&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
