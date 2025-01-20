@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes all people need is a good listener."
+> "Justice. I can't think of another word more loved by the people. It does have a nice ring to it. However, without ever exercising your own strength, you seek the death of others at the hands of someone else. Well, the justice you refer to smells pretty rotten to me."
 
-&mdash; [**Shiki Misaki**](https://myanimelist.net/character.php?q=Shiki%20Misaki&cat=character), [**Subarashiki Kono Sekai**](https://myanimelist.net/search/all?q=Subarashiki%20Kono%20Sekai&cat=all)
+&mdash; [**Balalaika**](https://myanimelist.net/character.php?q=Balalaika&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
