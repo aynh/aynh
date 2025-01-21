@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not the face that makes someone a monster, it's the choices they make with their lives."
+> "Just 'cause you're a girl, it doesn't mean you have to wait for a prince to come along on a white horse. You can go out and find Prince Charming yourself. It is up to you to find the right boy."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sailor Chibi Moon**](https://myanimelist.net/character.php?q=Sailor%20Chibi%20Moon&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
