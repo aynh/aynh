@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no law that says you can't go after someone just because he's already in love with someone else."
+> "I'm not short, I just live in a big world."
 
-&mdash; [**Ruri Miyamoto**](https://myanimelist.net/character.php?q=Ruri%20Miyamoto&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
