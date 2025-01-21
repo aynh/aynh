@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time gives us happiness, but it can also take everything away from us."
+> "In every world, once you die, you're gone."
 
-&mdash; [**Conrad Weller**](https://myanimelist.net/character.php?q=Conrad%20Weller&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
+&mdash; [**Akihiko Kayaba**](https://myanimelist.net/character.php?q=Akihiko%20Kayaba&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
