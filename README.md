@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you keep your vision clear you will see the future. What happens in our future is our own responsibility."
+> "You keep working HARD in order to win and you get better little by little. To IMMERSE yourself in something you like, that's what it means to enjoy something fully."
 
-&mdash; [**Rem Saverem**](https://myanimelist.net/character.php?q=Rem%20Saverem&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
