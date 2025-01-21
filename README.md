@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't need a reason to save someone."
+> "It was my fault. It was my carelessness that led to Mitsukuni's cavity. I forgot to tell him to brush his teeth before napping... twice."
 
-&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Takashi Morinozuka**](https://myanimelist.net/character.php?q=Takashi%20Morinozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
