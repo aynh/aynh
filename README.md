@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Relying on someone else without exerting any effort of your own is just not right. Because the one you rely on most, can disappear, at any time."
+> "If you keep your vision clear you will see the future. What happens in our future is our own responsibility."
 
-&mdash; [**Jodie Starling**](https://myanimelist.net/character.php?q=Jodie%20Starling&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Rem Saverem**](https://myanimelist.net/character.php?q=Rem%20Saverem&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
