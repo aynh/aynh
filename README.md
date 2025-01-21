@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't live your life making up excuses. The one making your choices is yourself!"
+> "Mysterious things are everywhere. So bizarre as often as you can hear of them. Without witness, with sight unseen, without a care it is simply a phenomenon. Merely not of concern. In this world, mankind itself has its own fantastic wonders."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
