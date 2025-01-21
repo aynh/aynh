@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm just a guy who's a hero for fun."
+> "It's not the face that makes someone a monster, it's the choices they make with their lives."
 
-&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
