@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just 'cause you're a girl, it doesn't mean you have to wait for a prince to come along on a white horse. You can go out and find Prince Charming yourself. It is up to you to find the right boy."
+> "To everything that comes near you, I am jealous."
 
-&mdash; [**Sailor Chibi Moon**](https://myanimelist.net/character.php?q=Sailor%20Chibi%20Moon&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
