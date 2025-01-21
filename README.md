@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "True beauty lies in things that last forever, never rotting or fading."
+> "There's no law that says you can't go after someone just because he's already in love with someone else."
 
-&mdash; [**Sasori**](https://myanimelist.net/character.php?q=Sasori&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ruri Miyamoto**](https://myanimelist.net/character.php?q=Ruri%20Miyamoto&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
