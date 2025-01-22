@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The freedom to do better than you do now, to be better than you are now. The spirit did not create us perfectly good. She gave us the freedom to keep trying to be better everyday."
+> "The strong one doesn't win. The one who wins is strong."
 
-&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
