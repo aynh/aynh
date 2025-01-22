@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The strong one doesn't win. The one who wins is strong."
+> "Being in love is a difficult situation. Too much to bear, you can't help it. You can't control yourself to the extent that you're sad and in pain, and your heart is full."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Uroko**](https://myanimelist.net/character.php?q=Uroko&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
