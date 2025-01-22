@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who can't love themselves are the ugliest."
+> "He's terribly reasonable, this new L."
 
-&mdash; [**Ichijou Kazuomi**](https://myanimelist.net/character.php?q=Ichijou%20Kazuomi&cat=character), [**Mayonaka Ni Kiss**](https://myanimelist.net/search/all?q=Mayonaka%20Ni%20Kiss&cat=all)
+&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
