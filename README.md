@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I may suggest, I recommend my waking you up every morning wearing nothing but an apron. Then I can cook you breakfast. Isn't it a man's fantasy to watch that from behind?"
+> "You can believe in anything. But it's your heart...That ultimately decides."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
