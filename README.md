@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And there you go. You heard her, Iri. Our Heroic Spirit thinks a battlefield to be something better than Hell. What a joke. It's Hell itself. There is no hope on a battlefield. There is nothing but unspeakable despair. Just a crime we call victory, paid for by the pain of the defeated. But humanity has never recognized this truth. And the reason is that, in every era, a dazzling hero has blinded the people with their legends, and kept them from seeing the evil of bloodshed. True human nature has not advanced a step beyond the Stone Age."
+> "He appeared right in front of me, and he wasn't a demon... but what looked like a human. As if he'd been yanked from before into the present unchanged. I gazed at him and for a second... I forgot to kill him."
 
-&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
