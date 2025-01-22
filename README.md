@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He appeared right in front of me, and he wasn't a demon... but what looked like a human. As if he'd been yanked from before into the present unchanged. I gazed at him and for a second... I forgot to kill him."
+> "'Those who believe will be saved'. It's just that I wanted to find out whether you'll be saved if you believed. If such a thing were true, I feel like I can change myself too."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
