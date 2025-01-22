@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no more trusted observer than someone who suspects you."
+> "Cheer up. No matter how hopeless you are, even if everyone else abandons you, I’ll always be here for you."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Kousaka Kirino**](https://myanimelist.net/character.php?q=Kousaka%20Kirino&cat=character), [**Ore No Imouto Ga Konna Ni Kawaii Wake Ga Nai**](https://myanimelist.net/search/all?q=Ore%20No%20Imouto%20Ga%20Konna%20Ni%20Kawaii%20Wake%20Ga%20Nai&cat=all)
