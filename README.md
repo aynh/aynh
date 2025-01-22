@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Legends from the distant past are always exaggerated, but eventually, someone outdoes them... that's when new legends are born!"
+> "There's no more trusted observer than someone who suspects you."
 
-&mdash; [**Shikaku Nara**](https://myanimelist.net/character.php?q=Shikaku%20Nara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
