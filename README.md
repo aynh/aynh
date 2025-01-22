@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mysterious things are everywhere. So bizarre as often as you can hear of them. Without witness, with sight unseen, without a care it is simply a phenomenon. Merely not of concern. In this world, mankind itself has its own fantastic wonders."
+> "The freedom to do better than you do now, to be better than you are now. The spirit did not create us perfectly good. She gave us the freedom to keep trying to be better everyday."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
