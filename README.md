@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being in love is a difficult situation. Too much to bear, you can't help it. You can't control yourself to the extent that you're sad and in pain, and your heart is full."
+> "Live, Clare! Your staying alive is the only proof that Teresa ever existed."
 
-&mdash; [**Uroko**](https://myanimelist.net/character.php?q=Uroko&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
+&mdash; [**Irene**](https://myanimelist.net/character.php?q=Irene&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
