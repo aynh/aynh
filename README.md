@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Cheer up. No matter how hopeless you are, even if everyone else abandons you, I’ll always be here for you."
+> "Thinking it's your fault after the fact is just pointless."
 
-&mdash; [**Kousaka Kirino**](https://myanimelist.net/character.php?q=Kousaka%20Kirino&cat=character), [**Ore No Imouto Ga Konna Ni Kawaii Wake Ga Nai**](https://myanimelist.net/search/all?q=Ore%20No%20Imouto%20Ga%20Konna%20Ni%20Kawaii%20Wake%20Ga%20Nai&cat=all)
+&mdash; [**Fujinuma Sachiko**](https://myanimelist.net/character.php?q=Fujinuma%20Sachiko&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
