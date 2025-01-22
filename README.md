@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The same melody repeats itself as the song grows richer and more beautiful. Wouldn't it be wonderful if we could live seemingly constant lives while experiencing changes bit by bit?"
+> "People who know how painful it can be to be alive, are fascinating."
 
-&mdash; [**Sayuri Kurata**](https://myanimelist.net/character.php?q=Sayuri%20Kurata&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
+&mdash; [**Soichiro Arima**](https://myanimelist.net/character.php?q=Soichiro%20Arima&cat=character), [**His and Her Circumstances**](https://myanimelist.net/search/all?q=His%20and%20Her%20Circumstances&cat=all)
