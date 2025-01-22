@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Thinking it's your fault after the fact is just pointless."
+> "If I may suggest, I recommend my waking you up every morning wearing nothing but an apron. Then I can cook you breakfast. Isn't it a man's fantasy to watch that from behind?"
 
-&mdash; [**Fujinuma Sachiko**](https://myanimelist.net/character.php?q=Fujinuma%20Sachiko&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
