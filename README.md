@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What about when you reciprocate someone else’s emotions? Is that still coming from you… or is the air connecting you to one another?"
+> "STOP IMAGINING ME!"
 
-&mdash; [**Jinno Yuu**](https://myanimelist.net/character.php?q=Jinno%20Yuu&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
