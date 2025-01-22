@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't lose to my older sister! Right now she's ahead of me by 2 millimeters in chest size!"
+> "The same melody repeats itself as the song grows richer and more beautiful. Wouldn't it be wonderful if we could live seemingly constant lives while experiencing changes bit by bit?"
 
-&mdash; [**Risa Harada**](https://myanimelist.net/character.php?q=Risa%20Harada&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Sayuri Kurata**](https://myanimelist.net/character.php?q=Sayuri%20Kurata&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
