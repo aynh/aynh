@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To reach the top we must crush their dreams and climb atop their shattered hopes. The will to win at any cost, to obliterate the enemy if necessary, without ambition there is no way to move up."
+> "Just apologize, even if you don't mean it. *to some kid, about Inuyasha*"
 
-&mdash; [**Agito Wanijima**](https://myanimelist.net/character.php?q=Agito%20Wanijima&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
