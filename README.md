@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Simple yet mysterious. Distant ancestors unlike any plant or animal we've ever seen. These groups of odd creatures have induced whispers of fear among man since ancient times."
+> "You should quake in fear of your impending death."
 
-&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
