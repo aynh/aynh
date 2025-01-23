@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's a simple formula. The greater the tragedy, the greater the emotional effect."
+> "What we cannot speak about, we must pass over in silence."
 
-&mdash; [**Legato Bluesummers**](https://myanimelist.net/character.php?q=Legato%20Bluesummers&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Kurosu Etsurou**](https://myanimelist.net/character.php?q=Kurosu%20Etsurou&cat=character), [**Ana Satsujin**](https://myanimelist.net/search/all?q=Ana%20Satsujin&cat=all)
