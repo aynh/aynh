@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ichigo...We can't...Watch any longer...Eachother's backs...I just can't...I just can't help you out anymore."
+> "It's a simple formula. The greater the tragedy, the greater the emotional effect."
 
-&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Legato Bluesummers**](https://myanimelist.net/character.php?q=Legato%20Bluesummers&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
