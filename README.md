@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Heaven is a six-tatami, one room, second floor apartment on Earth. Being a NEET is the best."
+> "Love requires no reason. That is what makes it love!"
 
-&mdash; [**Urushihara Hanzou**](https://myanimelist.net/character.php?q=Urushihara%20Hanzou&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
+&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
