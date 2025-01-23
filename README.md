@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more exciting it was to meet, the sadder it feels to say goodbye, right?"
+> "The scariest thing about killing people is getting used to it! When you kill someone and realize you won't be punished... That's when people forget all about punishment!"
 
-&mdash; [**Haruto Kirishima**](https://myanimelist.net/character.php?q=Haruto%20Kirishima&cat=character), [**Kimi no Iru Machi**](https://myanimelist.net/search/all?q=Kimi%20no%20Iru%20Machi&cat=all)
+&mdash; [**Satomi Rentarou**](https://myanimelist.net/character.php?q=Satomi%20Rentarou&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
