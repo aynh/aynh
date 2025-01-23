@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not fat, I'm pleasingly plump!"
+> "Assassins Rule Number Three - Speed: Take out the target before the target notices your presence."
 
-&mdash; [**Chouji Akimichi**](https://myanimelist.net/character.php?q=Chouji%20Akimichi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
