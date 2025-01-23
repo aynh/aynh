@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Assassins Rule Number Three - Speed: Take out the target before the target notices your presence."
+> "To reach the top we must crush their dreams and climb atop their shattered hopes. The will to win at any cost, to obliterate the enemy if necessary, without ambition there is no way to move up."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Agito Wanijima**](https://myanimelist.net/character.php?q=Agito%20Wanijima&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
