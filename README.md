@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Justice is a weapon. It can be used to cause harm, but it cannot protect or save others."
+> "If you forget your fear you become reckless."
 
-&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
