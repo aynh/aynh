@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Change can only arise from fluctuations, right? That's why going back and forth between confidence and weakness, if you're shifting then you're changing, I think. Like that, little by little, everyone is changing probably."
+> "Rejection is a part of any man’s life. If you can’t accept and move past rejection, or at least use it as writing material - you’re not a real man."
 
-&mdash; [**Touma Kikuchi**](https://myanimelist.net/character.php?q=Touma%20Kikuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
