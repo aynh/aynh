@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you were to turn into a snake tomorrow and began devouring humans, and from the same mouth you devoured humans, you cried out to me, 'I Love You!' Would I still be able to say 'I Love You,' the same way I do today?"
+> "Trunks, I never hugged you as a baby… let me hug you."
 
-&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
