@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are always lazy people to deal with when you act as a group. Splitting into pairs and handling out jobs is more efficient."
+> "I hate the fox, but the boy - I don't hate the boy."
 
-&mdash; [**Kazuki Kazami**](https://myanimelist.net/character.php?q=Kazuki%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
