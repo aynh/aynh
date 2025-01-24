@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just apologize, even if you don't mean it. *to some kid, about Inuyasha*"
+> "Zealotry and prejudice more than anything, bring harm to the people of the land."
 
-&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Arslan**](https://myanimelist.net/character.php?q=Arslan&cat=character), [**The Heroic Legend of Arslan**](https://myanimelist.net/search/all?q=The%20Heroic%20Legend%20of%20Arslan&cat=all)
