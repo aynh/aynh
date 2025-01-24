@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Studying is important, but I think love is too. It's the last summer of high school. It's a precious time that won't come again."
+> "An island from a dream within a dream? I could never pass up a great adventure like this!"
 
-&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
