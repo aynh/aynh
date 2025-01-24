@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being hurt on the outside is better than being hurt on the inside."
+> "The summer continues to make me wonder. So my head, boiling like a pot, will never cool. With the heat. With the cicadas buzzing. With the twinkling of the myriad stars floating in the sky."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Makoto Niwa**](https://myanimelist.net/character.php?q=Makoto%20Niwa&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
