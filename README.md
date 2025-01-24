@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Women tend to kill when it's not necessary. They kill for reasons of passion. For trivial reasons like love and hate."
+> "I know the loneliness of being a prisoner. I know the joy you feel when your friends come to rescue you and the fear of them being injured and defeated."
 
-&mdash; [**Lieutenant Colonel Yuuki**](https://myanimelist.net/character.php?q=Lieutenant%20Colonel%20Yuuki&cat=character), [**Joker Game**](https://myanimelist.net/search/all?q=Joker%20Game&cat=all)
+&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
