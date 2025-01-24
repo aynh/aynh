@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Little by little, what you’ve begun will naturally become important to you. What you need at the start is a little bit of curiosity."
+> "God would never put us through all this suffering if he didn't think we could bear it."
 
-&mdash; [**Kiyoko Shimizu**](https://myanimelist.net/character.php?q=Kiyoko%20Shimizu&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Konno Yuuki**](https://myanimelist.net/character.php?q=Konno%20Yuuki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
