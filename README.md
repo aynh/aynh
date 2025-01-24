@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "An island from a dream within a dream? I could never pass up a great adventure like this!"
+> "Revenge never does anyone any good. Killing the person you hate will never ease the pain. Always look forward! Follow the path of light!"
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Mikage**](https://myanimelist.net/character.php?q=Mikage&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
