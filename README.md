@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Zealotry and prejudice more than anything, bring harm to the people of the land."
+> "Change can only arise from fluctuations, right? That's why going back and forth between confidence and weakness, if you're shifting then you're changing, I think. Like that, little by little, everyone is changing probably."
 
-&mdash; [**Arslan**](https://myanimelist.net/character.php?q=Arslan&cat=character), [**The Heroic Legend of Arslan**](https://myanimelist.net/search/all?q=The%20Heroic%20Legend%20of%20Arslan&cat=all)
+&mdash; [**Touma Kikuchi**](https://myanimelist.net/character.php?q=Touma%20Kikuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
