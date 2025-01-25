@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even now, she continues to burn away her life in order to bring about a beginning rather than an end... She just looks forward while dreaming of the outside world. But you know what I think? Isn't it a bad thing to just look forward? Sometimes looking to the side, or looking back... There just might be something important there. You may have lost something. There may be the smile of a loved one. Isn't it impotant to try looking around once in a while? That's how it was for me. I could only ever face forward, could only move my legs with reckless abandon. I never had any idea what sort of footprints I might be leaving behind me. No, in truth, I couldn't even look ahead. The fact that I've never seen anything was scary... so I went on a trip to find what I truly desired."
+> "I have no interest in being a villain, and I don’t think that I can become a good person. I’m at a halfway point where I’m not even sure which path I should walk down… but I guess even there, I can still interfere in someone’s life and help bring things to a positive conclusion…"
 
-&mdash; [**Natsume**](https://myanimelist.net/character.php?q=Natsume&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
+&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
