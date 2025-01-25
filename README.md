@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We're hunting after a legendary sword. Finding a fairy or two shouldn't be surprising."
+> "Happiness isn't something you divide in halves."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**L-elf**](https://myanimelist.net/character.php?q=L-elf&cat=character), [**Kakumeiki Valvrave**](https://myanimelist.net/search/all?q=Kakumeiki%20Valvrave&cat=all)
