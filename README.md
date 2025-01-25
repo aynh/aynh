@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no master who deliberately lets his birds escape from his birdcage"
+> "Every human has another personality that they keep hidden from others."
 
-&mdash; [**Blue Owl**](https://myanimelist.net/character.php?q=Blue%20Owl&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
+&mdash; [**Yakumo Saitō**](https://myanimelist.net/character.php?q=Yakumo%20Sait%C5%8D&cat=character), [**Psychic Detective Yakumo**](https://myanimelist.net/search/all?q=Psychic%20Detective%20Yakumo&cat=all)
