@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If a person could so ideally control their feelings... how carefree would life be?"
+> "Being indebted to someone is nothing to be ashamed of. Not repaying that debt is."
 
-&mdash; [**Jun Isurugi**](https://myanimelist.net/character.php?q=Jun%20Isurugi&cat=character), [**True Tears**](https://myanimelist.net/search/all?q=True%20Tears&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
