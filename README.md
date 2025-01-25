@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you haven't changed, that means you haven't improved."
+> "Even if we are far apart. We'll always be united by tennis."
 
-&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Fuji Shuusuke**](https://myanimelist.net/character.php?q=Fuji%20Shuusuke&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
