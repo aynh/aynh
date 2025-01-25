@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I lose my 'voice'. Even if everyone else doesn't turn up to hear me sing — as long as you're there, then, that's enough. If it comes to that… I will sing, just for you."
+> "Stop laughing hamster legs!"
 
-&mdash; [**Izayoi Miku**](https://myanimelist.net/character.php?q=Izayoi%20Miku&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
+&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
