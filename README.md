@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Happiness isn't something you divide in halves."
+> "One's true worth shows as hardship increases."
 
-&mdash; [**L-elf**](https://myanimelist.net/character.php?q=L-elf&cat=character), [**Kakumeiki Valvrave**](https://myanimelist.net/search/all?q=Kakumeiki%20Valvrave&cat=all)
+&mdash; [**Kotomine Risei**](https://myanimelist.net/character.php?q=Kotomine%20Risei&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
