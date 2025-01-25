@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who'd eat a pervert's banana? *blushing*"
+> "If a person could so ideally control their feelings... how carefree would life be?"
 
-&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Jun Isurugi**](https://myanimelist.net/character.php?q=Jun%20Isurugi&cat=character), [**True Tears**](https://myanimelist.net/search/all?q=True%20Tears&cat=all)
