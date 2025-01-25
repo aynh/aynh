@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being indebted to someone is nothing to be ashamed of. Not repaying that debt is."
+> "Its ony one simple thing, but why do I feel like forever I cannot reach it. Only keep on and on, staying at the same spot."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
