@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm as normal as they come and this is a contest of freaks! What do you want me to do, shoot my slingshot at him?"
+> "Even when the answer’s obvious, making one wait for it is the worst thing you can do."
 
-&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
