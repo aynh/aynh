@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is like a mountain - you can say you've reached the top, but only after climbing back down."
+> "Stealing someone's name is never all right. It means you're unwilling to recognize them as human."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Shiroe**](https://myanimelist.net/character.php?q=Shiroe&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
