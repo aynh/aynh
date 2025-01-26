@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who stand above others, must have noble ideals along with the most noble intentions. Anyone that cannot manage the will of the masses is not fit to serve as the leader. You say you're punishing someone for standing up to you? That kind of justice is a lie."
+> "Things learned as a child stay with you forever."
 
-&mdash; [**Silver Knight**](https://myanimelist.net/character.php?q=Silver%20Knight&cat=character), [**.hack//GIFT**](https://myanimelist.net/search/all?q=.hack%2F%2FGIFT&cat=all)
+&mdash; [**Cosette Sara**](https://myanimelist.net/character.php?q=Cosette%20Sara&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
