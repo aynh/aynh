@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Push through the pain, giving up hurts more."
+> "[to Hisagi after stabbing him] I am afraid. Then and now, my fear has always been that I would die a shinigami like you."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
