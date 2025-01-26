@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only those who do their jobs on the battlefield get the rewards they desire. That's the life of a warrior."
+> "Because people don't have wings... We look for ways to fly."
 
-&mdash; [**Askeladd**](https://myanimelist.net/character.php?q=Askeladd&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Ukai Keishin**](https://myanimelist.net/character.php?q=Ukai%20Keishin&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
