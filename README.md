@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Hisagi after stabbing him] I am afraid. Then and now, my fear has always been that I would die a shinigami like you."
+> "People have many different ways of thinking. Even if you make a mistake, if you realize it was a mistake, You can always fix it. Then if you turn around, you will see the future. This must be realized by oneself."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
