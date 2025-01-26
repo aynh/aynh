@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who don't fulfill their obligation to others 'ave no right to ask 'em for such privilege..."
+> "Life is like a mountain - you can say you've reached the top, but only after climbing back down."
 
-&mdash; [**Mr. Blouse**](https://myanimelist.net/character.php?q=Mr.%20Blouse&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
