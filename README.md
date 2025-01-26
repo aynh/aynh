@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because people don't have wings... We look for ways to fly."
+> "Push through the pain, giving up hurts more."
 
-&mdash; [**Ukai Keishin**](https://myanimelist.net/character.php?q=Ukai%20Keishin&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
