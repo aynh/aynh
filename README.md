@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That makes four time. Listen. The more you say, 'I'm sorry', the lesser it's worth."
+> "Only those who do their jobs on the battlefield get the rewards they desire. That's the life of a warrior."
 
-&mdash; [**Kazuki Kazami**](https://myanimelist.net/character.php?q=Kazuki%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Askeladd**](https://myanimelist.net/character.php?q=Askeladd&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
