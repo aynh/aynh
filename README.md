@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This feels like extortion."
+> "Hey! It looks like now is a good time to do a little tail fishing!"
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
