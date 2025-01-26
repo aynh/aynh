@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Things learned as a child stay with you forever."
+> "Attaining happiness is quite simple. All you have to do is cast away your humanity."
 
-&mdash; [**Cosette Sara**](https://myanimelist.net/character.php?q=Cosette%20Sara&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
+&mdash; [**Akihiko Chuuzenji**](https://myanimelist.net/character.php?q=Akihiko%20Chuuzenji&cat=character), [**Mouryou No Hako**](https://myanimelist.net/search/all?q=Mouryou%20No%20Hako&cat=all)
