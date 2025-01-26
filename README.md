@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll rip that mouth of yours apart, so you can never again utter such spells!"
+> "In order to accomplish anything, sacrifices must be made."
 
-&mdash; [**Reiji Shiratori**](https://myanimelist.net/character.php?q=Reiji%20Shiratori&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
