@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In order to accomplish anything, sacrifices must be made."
+> "And so it all begins. This boy's name is Yusuke. He's 14 years old and is supposed to be the hero of the story... but oddly enough, he's dead."
 
-&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Yu Yu Hakusho**](https://myanimelist.net/character.php?q=Yu%20Yu%20Hakusho&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
