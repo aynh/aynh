@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A soul naturally seeks pleasure, consciously or not."
+> "I love clichés, I love predictable scripts, I love it when they paste over problems and I love it when they force a happy ending too. What's wrong with working towards that?"
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Ryuugamine Mikado**](https://myanimelist.net/character.php?q=Ryuugamine%20Mikado&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
