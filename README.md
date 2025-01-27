@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't pick up water once it's spilled, so handle it carefully."
+> "Ichigo...We can't...Watch any longer...Eachother's backs...I just can't...I just can't help you out anymore."
 
-&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
