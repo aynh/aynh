@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm having a major hat crisis. Could you try to steal Pikachu some other time?"
+> "Opportunities and success come only to those who do not fear to stand in the batter's box. Who want to hit the ball more than anything, and swing with all their might!"
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
