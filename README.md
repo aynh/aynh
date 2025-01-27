@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Risa is a bitch."
+> "If the ideal world can be found in a bad game, it can be found in the real world as well."
 
-&mdash; [**Krad**](https://myanimelist.net/character.php?q=Krad&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
