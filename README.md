@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "True happiness only lasts for a brief time, so you better enjoy it while you can, right?"
+> "To hate something that you used to love is such a painful feeling."
 
-&mdash; [**Yuichi Onodera**](https://myanimelist.net/character.php?q=Yuichi%20Onodera&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
