@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How weak the mind is when it wants to forget. Maybe you didn't forget. Maybe you're lying. Is it a lie you tell everyone around you, or perhaps a lie you tell yourself?"
+> "A soul naturally seeks pleasure, consciously or not."
 
-&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
