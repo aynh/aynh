@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I found happiness, my weakness can't be discarded. But, even so, I'm sure that we took the right path to move forward."
+> "What are you talking about? We LET you corner us."
 
-&mdash; [**Adolf Reinhardt**](https://myanimelist.net/character.php?q=Adolf%20Reinhardt&cat=character), [**Terraformars**](https://myanimelist.net/search/all?q=Terraformars&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
