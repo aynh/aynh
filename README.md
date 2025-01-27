@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dammit! I'm fine, I just stepped in a hole."
+> "True happiness only lasts for a brief time, so you better enjoy it while you can, right?"
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Yuichi Onodera**](https://myanimelist.net/character.php?q=Yuichi%20Onodera&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
