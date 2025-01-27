@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing can be communicated without words but if you really care about someone, even the smallest details are important to notice."
+> "You're stubborn and reckless, all you like to do for fun is read, so you're boring, and you have fat ankles."
 
-&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
