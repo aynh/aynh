@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know… When something bad happens, I don’t like thinking it was someone else’s fault. See, if it’s someone else’s fault, then there’s nothing I, personally, can do about it. I want to think it’s all up to me. If that’s the case, then I can do something about the things that go wrong. Then I can always run and always fly."
+> "I'll give you some wise words, Shining Sleepless General. All heroes die of overwork."
 
-&mdash; [**Arata Kohata**](https://myanimelist.net/character.php?q=Arata%20Kohata&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
+&mdash; [**Ikta Solork**](https://myanimelist.net/character.php?q=Ikta%20Solork&cat=character), [**Alderamin on the Sky**](https://myanimelist.net/search/all?q=Alderamin%20on%20the%20Sky&cat=all)
