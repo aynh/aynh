@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Red is supposed to be the color of fate, right? Even if it’s annoying now, it might connect to something good when you least expect it."
+> "This brings us to number 278 of the 1,000 provisions you must observe. I hate carrots. Never even think about putting them in my food, you get it?"
 
-&mdash; [**Zen Wistalia**](https://myanimelist.net/character.php?q=Zen%20Wistalia&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
