@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ichigo...We can't...Watch any longer...Eachother's backs...I just can't...I just can't help you out anymore."
+> "Even if I found happiness, my weakness can't be discarded. But, even so, I'm sure that we took the right path to move forward."
 
-&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Adolf Reinhardt**](https://myanimelist.net/character.php?q=Adolf%20Reinhardt&cat=character), [**Terraformars**](https://myanimelist.net/search/all?q=Terraformars&cat=all)
