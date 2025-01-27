@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're stubborn and reckless, all you like to do for fun is read, so you're boring, and you have fat ankles."
+> "Red is supposed to be the color of fate, right? Even if it’s annoying now, it might connect to something good when you least expect it."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Zen Wistalia**](https://myanimelist.net/character.php?q=Zen%20Wistalia&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
