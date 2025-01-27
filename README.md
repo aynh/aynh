@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no such thing as luck in this world. Rules, prerequisites, psychological states... There are any number of invisible factors that combine to produce an unpredictable, but inevitable result. The winner of each game is decided before it even begins. Chance is never a factor."
+> "How weak the mind is when it wants to forget. Maybe you didn't forget. Maybe you're lying. Is it a lie you tell everyone around you, or perhaps a lie you tell yourself?"
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
