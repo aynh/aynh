@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A beast in human's clothing understands better than anyone how people want to be treated."
+> "Risa is a bitch."
 
-&mdash; [**Kurapika**](https://myanimelist.net/character.php?q=Kurapika&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Krad**](https://myanimelist.net/character.php?q=Krad&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
