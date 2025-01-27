@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I love clichés, I love predictable scripts, I love it when they paste over problems and I love it when they force a happy ending too. What's wrong with working towards that?"
+> "I am who I am because I learned your ideals and took your prayers to the heart. You've guided me. You've given me a life a mere puppet wouldn't have. You need not to pity me. I am a part of you."
 
-&mdash; [**Ryuugamine Mikado**](https://myanimelist.net/character.php?q=Ryuugamine%20Mikado&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Irisviel von Einzbern**](https://myanimelist.net/character.php?q=Irisviel%20von%20Einzbern&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
