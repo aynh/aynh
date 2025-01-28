@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You shouldn’t stop like that. If you can move forward, then you should."
+> "Oh, right, Senjougahara. I've got a great story to tell you. It's about that man who tried to rape you way back. He was hit by a car and died in a place with no connection to you, in an event with no connection to you. Without any drama at all. [...] That's the lesson for you here: You shouldn't expect your life to be like the theater."
 
-&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
