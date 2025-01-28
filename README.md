@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're so gullible! Don't you have any standards? So if I told you to spin around, you'd do it? If they told you to jump off a cliff, would you do that, too? I can't stand people who have no individuality!! (To Tohru)"
+> "Feel pain, think about pain, accept pain, know pain... Shinra Tensei!"
 
-&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
