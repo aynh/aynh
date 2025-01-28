@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Feel pain, think about pain, accept pain, know pain... Shinra Tensei!"
+> "I am He, that arrogant fool who thought he could fool death itself with his money. Al Da Flaga, your father, but I am merely that man's defective clone."
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
