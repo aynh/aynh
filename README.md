@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We could drive them off the entire earth if we had your strength, Gintoki!"
+> "Even when the answer’s obvious, making one wait for it is the worst thing you can do."
 
-&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
