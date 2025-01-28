@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't care if it's a girl, a baby or someone's grandma. I'm gonna fight her anyway."
+> "*referring to Ichigo* I see. So I still haven't reached you..."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Zangetsu**](https://myanimelist.net/character.php?q=Zangetsu&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
