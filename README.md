@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So, who should we hold responsible? Compensation. Punishment. If you didn't want any problems you shouldn't have taken risks."
+> "Life is suffering, pain, and misery."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Nana**](https://myanimelist.net/character.php?q=Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
