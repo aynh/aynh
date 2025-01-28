@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A thief is a creative artist who takes his prey in style... But a detective is nothing more than a critic, who follows our footsteps."
+> "Hijikata-san. I forgot my flute at the headquarters, so I'm gonna go back and get it real quick."
 
-&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
