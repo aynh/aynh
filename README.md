@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To me, Kawai-san is like a mirror. A mirror that reflects all the bad parts about you. A devil-like mirror that contaminates your heart."
+> "Trust me, you don't want to make the whole world your enemy. At the very least, you have a friend in me."
 
-&mdash; [**Yuusuke Kanda**](https://myanimelist.net/character.php?q=Yuusuke%20Kanda&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Abel Nightroad**](https://myanimelist.net/character.php?q=Abel%20Nightroad&cat=character), [**Trinity Blood**](https://myanimelist.net/search/all?q=Trinity%20Blood&cat=all)
