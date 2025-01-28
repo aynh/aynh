@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, right, Senjougahara. I've got a great story to tell you. It's about that man who tried to rape you way back. He was hit by a car and died in a place with no connection to you, in an event with no connection to you. Without any drama at all. [...] That's the lesson for you here: You shouldn't expect your life to be like the theater."
+> "You're so gullible! Don't you have any standards? So if I told you to spin around, you'd do it? If they told you to jump off a cliff, would you do that, too? I can't stand people who have no individuality!! (To Tohru)"
 
-&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
