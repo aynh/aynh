@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's fine even if you're useless right now. As long as you keep looking towards the future, I'm sure a day will come when you'll find your worth."
+> "We could drive them off the entire earth if we had your strength, Gintoki!"
 
-&mdash; [**Sachi Nanjou**](https://myanimelist.net/character.php?q=Sachi%20Nanjou&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
