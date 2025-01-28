@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hijikata-san. I forgot my flute at the headquarters, so I'm gonna go back and get it real quick."
+> "Losing something is sad. Even when I lose something as tiny as a worn-out eraser, I feel pretty down for a day or two. That's why I'm looking for him."
 
-&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Komari Kamikita**](https://myanimelist.net/character.php?q=Komari%20Kamikita&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
