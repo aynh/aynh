@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To himself, while fighting Temari* Oh man... those clouds are so lucky. so free. More to the point, I didn't feel like doing this in the first place. And I only became a ninja because I thought life would've been more interesting as one... I suppose things aren't gonna be that simple."
+> "The melody of logic always plays the notes of truth."
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ayumi Narumi**](https://myanimelist.net/character.php?q=Ayumi%20Narumi&cat=character), [**Spiral**](https://myanimelist.net/search/all?q=Spiral&cat=all)
