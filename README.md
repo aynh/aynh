@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The end result is important. But what's truly important... is the journey to get there."
+> "By depending on others and letting them depend on you, people can exceed what they can do as individuals."
 
-&mdash; [**Hikari Hanazono**](https://myanimelist.net/character.php?q=Hikari%20Hanazono&cat=character), [**Special A**](https://myanimelist.net/search/all?q=Special%20A&cat=all)
+&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
