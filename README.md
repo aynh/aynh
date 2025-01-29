@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Friends are nothing more than the people who you spend the fun, yet meaningless times with. When those times get rough, they aren't there to support you."
+> "This device paints the illusion of fairy tales for those with naive wishes in their hearts, who say they wish something eternal existed, who say they wish the power of miracles existed. But, there's no place higher than this room. This room is the summit of Ohtori Academy, and of the world."
 
-&mdash; [**Ryuuguu Rena**](https://myanimelist.net/character.php?q=Ryuuguu%20Rena&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
+&mdash; [**Akio Ohtori**](https://myanimelist.net/character.php?q=Akio%20Ohtori&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
