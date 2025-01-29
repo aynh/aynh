@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "By depending on others and letting them depend on you, people can exceed what they can do as individuals."
+> "Take it, that courage you have locked in your heart. Awaken it, wipe your tears, be strong and use that courage."
 
-&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
