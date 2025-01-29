@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why is it that what I want, and what's expected of me are so similar, yet so different?"
+> "Is fighting right, or wrong? Does winning in the end mean justice? Truthfully, I don't know. But I know we must fight this battle! Or we will never save the world."
 
-&mdash; [**Yui Yuigahama**](https://myanimelist.net/character.php?q=Yui%20Yuigahama&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Haru Glory**](https://myanimelist.net/character.php?q=Haru%20Glory&cat=character), [**Rave Master**](https://myanimelist.net/search/all?q=Rave%20Master&cat=all)
