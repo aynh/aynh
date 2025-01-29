@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are walls that can't be broken through power alone. But if there is a power that can break through those walls, it is the power of feelings."
+> "Friends are nothing more than the people who you spend the fun, yet meaningless times with. When those times get rough, they aren't there to support you."
 
-&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Ryuuguu Rena**](https://myanimelist.net/character.php?q=Ryuuguu%20Rena&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
