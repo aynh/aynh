@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We reset, and return to our separate lives. You can't reset your life, but you can reset your relationships."
+> "Another story of Fruits Basket manga has begun. I have something very important to tell everyone. Yuki is actually...A GIRL!"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
