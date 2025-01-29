@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Take it, that courage you have locked in your heart. Awaken it, wipe your tears, be strong and use that courage."
+> "Anything can happen. No one ever thinks it will until it does. What will happen, happens. That's how the world is. The most important thing is to not let the tragedy defeat you. To believe that you can get through it."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
