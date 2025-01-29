@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Another story of Fruits Basket manga has begun. I have something very important to tell everyone. Yuki is actually...A GIRL!"
+> "They say when you fall, it's best to fall straight to the bottom, and the farther you have to crawl back up, the stronger and greater you'll be as a result."
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Hiyono Yuizaki**](https://myanimelist.net/character.php?q=Hiyono%20Yuizaki&cat=character), [**Spiral**](https://myanimelist.net/search/all?q=Spiral&cat=all)
