@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Songs are good. Singing brings us joy. It is the highest point in the culture that Lilims have created."
+> "Life is short, so fall in love, dear maiden, before your youthful ardor cools off, for there is no tomorrow."
 
-&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Atsushi Shimao**](https://myanimelist.net/character.php?q=Atsushi%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
