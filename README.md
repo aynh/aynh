@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's when I realized! That I had become a child who would be found. So I broke into tears of happiness. No matter how far we're separated, you two would definitely find me. It's nice knowing someone will find you."
+> "Now I feel that maybe knowing who I actually am is the key to reach perfection. Because that means knowing what I can and cannot do."
 
-&mdash; [**Himari Takakura**](https://myanimelist.net/character.php?q=Himari%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
