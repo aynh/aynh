@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen to yourself whining and complaining like some sorry little victim! You can whimper all day for all I care, you're nothing but a coward!"
+> "My name is Duck. Yes, like the bird. Take it up with my parents. They never loved me!"
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ahiru Arima**](https://myanimelist.net/character.php?q=Ahiru%20Arima&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
