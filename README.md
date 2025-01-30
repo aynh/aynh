@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "An idiot that knows he's an idiot, is even harder to deal with than an idiot that thinks he isn't."
+> "You're a team player, a save-the-day superhero... I hate people like you."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
