@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Cherry blossoms in Spring. Stars cover the sky on Summer. Full moon shines on Autumn and in Winter, the snow covers the ground. All these things make sake taste good. If it tastes bad, it's because there is something wrong in you."
+> "Listen to yourself whining and complaining like some sorry little victim! You can whimper all day for all I care, you're nothing but a coward!"
 
-&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
