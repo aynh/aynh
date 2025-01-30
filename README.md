@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't protect that child, I will never forgive you! (referring to Tohru as she was talking to Kyo on the day of the accident)"
+> "Songs are good. Singing brings us joy. It is the highest point in the culture that Lilims have created."
 
-&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
