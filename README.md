@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "NEEDLENOGGIN!"
+> "If you don't protect that child, I will never forgive you! (referring to Tohru as she was talking to Kyo on the day of the accident)"
 
-&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
