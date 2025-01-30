@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A misty moonlight night washes over the land and though darkness ebbs with the glow of the full moon, shadows still remain. They conceal an evil which exists just beyond our grasp. Sides are chosen. Lines are drawn, ones that we dare not cross. But in the distance a ray of light shines to expose our path. It is then that we realize that some things in life are better left unseen."
+> "The world doesn't get to decide whether my life is boring, fun, or ordinary, because that's my decision to make. As long as I have the will, nothing is impossible!"
 
-&mdash; [**Gen Fudou**](https://myanimelist.net/character.php?q=Gen%20Fudou&cat=character), [**Sousei no Aquarion**](https://myanimelist.net/search/all?q=Sousei%20no%20Aquarion&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
