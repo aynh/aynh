@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't just think about the ones you have lost. You can't get back what you have lost. What is it that you still have ?"
+> "Even when our eyes are closed, there's a whole world out there that lives outside ourselves and our dreams."
 
-&mdash; [**Jinbei**](https://myanimelist.net/character.php?q=Jinbei&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
