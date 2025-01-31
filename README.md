@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Effort is nothing but a means to an end. Being proud of the fact that you tried is just putting the carriage before the horse."
+> "There must be something wrong with those that are delighted about other people's happiness. Every one of them is either a hypocrite or just scheming something."
 
-&mdash; [**Yoshii Akira**](https://myanimelist.net/character.php?q=Yoshii%20Akira&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Samejima Mirai**](https://myanimelist.net/character.php?q=Samejima%20Mirai&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
