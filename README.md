@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There must be something wrong with those that are delighted about other people's happiness. Every one of them is either a hypocrite or just scheming something."
+> "A lot of people are too scared to admit that they're still children. They do everything they can to avoid it. So people who can admit that have a lot of courage."
 
-&mdash; [**Samejima Mirai**](https://myanimelist.net/character.php?q=Samejima%20Mirai&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
