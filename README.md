@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fortunately, I do not have any pride. But what about it? Will the name of the hero be disgraced? Hah, don't make me laugh, Lancer. You can wash away disgrace with results. You can feed your meaningless pride to the dogs."
+> "With enemies like that, who needs friends?"
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
