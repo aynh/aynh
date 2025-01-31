@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we're going to regret it either way, then let's regret doing something fun that we wanted to do."
+> "In the end, L is indeed the greatest detective on earth..."
 
-&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
