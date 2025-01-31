@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even when you want to say something, there are times when you'll lose the chance to."
+> "What good are dreams, if all you do is work? There's more to life than hitting the books, I hope you know."
 
-&mdash; [**Tateyama Ayano**](https://myanimelist.net/character.php?q=Tateyama%20Ayano&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
+&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
