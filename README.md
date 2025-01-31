@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The natural enemy of the strong is the weak, but the natural enemy of the weak is not the strong - it is the ones that are even weaker."
+> "The reason we hurt others is because we don't understand their pain."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
