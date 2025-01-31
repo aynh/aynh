@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "DON'T CALL ME SMALL! I'LL BREAK DOWN YOUR FEET AND STICK THEM ON YOUR HEAD!!"
+> "...She's scary. People who can put on a serious face while joking are the scariest."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
