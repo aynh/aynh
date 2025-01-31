@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end, L is indeed the greatest detective on earth..."
+> "Effort is nothing but a means to an end. Being proud of the fact that you tried is just putting the carriage before the horse."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Yoshii Akira**](https://myanimelist.net/character.php?q=Yoshii%20Akira&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
