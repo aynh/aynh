@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, it's funny. Every crook I meet wants to tell me how much I'm just like them. But there's a big difference between you and me and the burdens we bear."
+> "The natural enemy of the strong is the weak, but the natural enemy of the weak is not the strong - it is the ones that are even weaker."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
