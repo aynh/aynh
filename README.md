@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What good are dreams, if all you do is work? There's more to life than hitting the books, I hope you know."
+> "If we're going to regret it either way, then let's regret doing something fun that we wanted to do."
 
-&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
