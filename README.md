@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone's fighting for their own kind of freedom. It seems small; but in their hearts, nothing is more important. With such hopes, I won't have enough time for revenge or fear, right?"
+> "Don't just think about the ones you have lost. You can't get back what you have lost. What is it that you still have ?"
 
-&mdash; [**Nagi Kengamine**](https://myanimelist.net/character.php?q=Nagi%20Kengamine&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Jinbei**](https://myanimelist.net/character.php?q=Jinbei&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
