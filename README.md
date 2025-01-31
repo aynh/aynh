@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is better to be hated for what you are. Than to be loved for what you are not."
+> "Fortunately, I do not have any pride. But what about it? Will the name of the hero be disgraced? Hah, don't make me laugh, Lancer. You can wash away disgrace with results. You can feed your meaningless pride to the dogs."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
