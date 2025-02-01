@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My legend dates back to the 12th Century thank you very much."
+> "All humans are loved by another and build up emotions with them. That's nature's providence. There's no way around it. And it's pointless to question it. A bug with wings has no idea why, but it can't help but want to fly. When two people can't help but seek one another out, I think, in essence, it's exactly the same scenario."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Isshin Saitō**](https://myanimelist.net/character.php?q=Isshin%20Sait%C5%8D&cat=character), [**Psychic Detective Yakumo**](https://myanimelist.net/search/all?q=Psychic%20Detective%20Yakumo&cat=all)
