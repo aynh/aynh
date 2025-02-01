@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm getting a litte bored of this curse of yours Ashitaka just let me cut the damn thing off."
+> "Games are not boring. Games purify our souls and leave room for new development that challenges the mind! They are the products of human wisdom!"
 
-&mdash; [**Lady Eboshi**](https://myanimelist.net/character.php?q=Lady%20Eboshi&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Seto Kaiba**](https://myanimelist.net/character.php?q=Seto%20Kaiba&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
