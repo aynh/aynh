@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My happiness can only be made by my own hands. My happiness doesn't depend on anyone but me!"
+> "I'm getting a litte bored of this curse of yours Ashitaka just let me cut the damn thing off."
 
-&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Lady Eboshi**](https://myanimelist.net/character.php?q=Lady%20Eboshi&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
