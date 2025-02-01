@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I won't ask what you wish for. I only hope it comes true by your own two hands. (to Kyo)"
+> "Those with talent who aren't aware of themselves cause pain for those who have none."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Fuyumi Irisu**](https://myanimelist.net/character.php?q=Fuyumi%20Irisu&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
