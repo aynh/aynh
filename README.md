@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there's no eye to see, there's no difference between the darkness and the light."
+> "Tears are how our heart speaks when your lips cannot describe how much we've been hurt."
 
-&mdash; [**Subaru**](https://myanimelist.net/character.php?q=Subaru&cat=character), [**Houkago no Pleiades**](https://myanimelist.net/search/all?q=Houkago%20no%20Pleiades&cat=all)
+&mdash; [**Jellal Fernandes**](https://myanimelist.net/character.php?q=Jellal%20Fernandes&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
