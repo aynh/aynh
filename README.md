@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Earthbenders! You don't know me, but I know of you. Every child of my water tribe village was rocked to sleep with stories of the brave Earth Kingdom and the courageous earthbenders who guard its borders. Some of you may think that the Fire Nation has made you powerless. Yes, they have taken away your ability to bend, but they can't take away your courage and it is your courage they should truly fear! Because it runs deeper than any mine you've been forced to dig, any ocean that keeps you far from home. It is the strength of your hearts that make you who you are, hearts that will remain unbroken when all rock and stone has eroded away. The time to fight back is now! I can tell you the Avatar has returned! So remember your courage, earthbenders, let us fight for our freedom!"
+> "You're Puss in Boots, the one who tricks the prince. He hides who he really is and pretends to be someone else forever. So in time he becomes that person, so his lie becomes the truth, see? He transcends the mask. Don't you get it? That's how he finds happiness. That's pretty good, right?"
 
-&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Eri Ninamori**](https://myanimelist.net/character.php?q=Eri%20Ninamori&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
