@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Better to ask and be a fool once than never to ask and be a fool forever."
+> "When we hit our lowest point, we are open to the greatest change."
 
-&mdash; [**Yumi Iguchi**](https://myanimelist.net/character.php?q=Yumi%20Iguchi&cat=character), [**Shirobako**](https://myanimelist.net/search/all?q=Shirobako&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
