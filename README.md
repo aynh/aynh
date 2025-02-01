@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All humans are loved by another and build up emotions with them. That's nature's providence. There's no way around it. And it's pointless to question it. A bug with wings has no idea why, but it can't help but want to fly. When two people can't help but seek one another out, I think, in essence, it's exactly the same scenario."
+> "My happiness can only be made by my own hands. My happiness doesn't depend on anyone but me!"
 
-&mdash; [**Isshin Saitō**](https://myanimelist.net/character.php?q=Isshin%20Sait%C5%8D&cat=character), [**Psychic Detective Yakumo**](https://myanimelist.net/search/all?q=Psychic%20Detective%20Yakumo&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
