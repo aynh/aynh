@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those with talent who aren't aware of themselves cause pain for those who have none."
+> "My legend dates back to the 12th Century thank you very much."
 
-&mdash; [**Fuyumi Irisu**](https://myanimelist.net/character.php?q=Fuyumi%20Irisu&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
