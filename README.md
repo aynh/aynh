@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What a strange creature is man, who would cage himself so willingly."
+> "What's the use of looking towards the past? If past data dictates reality... then our 33,1 winning percentage last year means we shouldn't even be playing the Mariners and their 66,7 winning percentage."
 
-&mdash; [**Athena Areios**](https://myanimelist.net/character.php?q=Athena%20Areios&cat=character), [**Appleseed**](https://myanimelist.net/search/all?q=Appleseed&cat=all)
+&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
