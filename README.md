@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our contracts are completely dependent upon you agreeing to them first. I think that, in and of itself, is quite kind of us."
+> "Better to ask and be a fool once than never to ask and be a fool forever."
 
-&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Yumi Iguchi**](https://myanimelist.net/character.php?q=Yumi%20Iguchi&cat=character), [**Shirobako**](https://myanimelist.net/search/all?q=Shirobako&cat=all)
