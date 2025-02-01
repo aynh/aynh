@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When we hit our lowest point, we are open to the greatest change."
+> "I won't ask what you wish for. I only hope it comes true by your own two hands. (to Kyo)"
 
-&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
