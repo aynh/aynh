@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(to Komuro Takashi) In a war like this, there is no surrender or shit like that."
+> "What a strange creature is man, who would cage himself so willingly."
 
-&mdash; [**Kouta Hirano**](https://myanimelist.net/character.php?q=Kouta%20Hirano&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Athena Areios**](https://myanimelist.net/character.php?q=Athena%20Areios&cat=character), [**Appleseed**](https://myanimelist.net/search/all?q=Appleseed&cat=all)
