@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Instead of judging others based on rumors and gossip articles, I must look and feel for myself. You cannot know anyone without coming face-to-face with them."
+> "Our contracts are completely dependent upon you agreeing to them first. I think that, in and of itself, is quite kind of us."
 
-&mdash; [**Haine Wittgenstein**](https://myanimelist.net/character.php?q=Haine%20Wittgenstein&cat=character), [**Oushitsu Kyoushi Haine**](https://myanimelist.net/search/all?q=Oushitsu%20Kyoushi%20Haine&cat=all)
+&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
