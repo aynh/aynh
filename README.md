@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...She's scary. People who can put on a serious face while joking are the scariest."
+> "(to Komuro Takashi) In a war like this, there is no surrender or shit like that."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Kouta Hirano**](https://myanimelist.net/character.php?q=Kouta%20Hirano&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
