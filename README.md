@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you need to run, you should run the best you can! Then you can just take your time to think."
+> "Instead of judging others based on rumors and gossip articles, I must look and feel for myself. You cannot know anyone without coming face-to-face with them."
 
-&mdash; [**Hajime Ichinose**](https://myanimelist.net/character.php?q=Hajime%20Ichinose&cat=character), [**Gatchaman Crowds**](https://myanimelist.net/search/all?q=Gatchaman%20Crowds&cat=all)
+&mdash; [**Haine Wittgenstein**](https://myanimelist.net/character.php?q=Haine%20Wittgenstein&cat=character), [**Oushitsu Kyoushi Haine**](https://myanimelist.net/search/all?q=Oushitsu%20Kyoushi%20Haine&cat=all)
