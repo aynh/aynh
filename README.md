@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's always something one can't explain even if one has experience with it."
+> "A joke only lasts for a moment, if it leaves a misunderstanding, it becomes a lie."
 
-&mdash; [**Shirogane**](https://myanimelist.net/character.php?q=Shirogane&cat=character), [**Monochrome Factor**](https://myanimelist.net/search/all?q=Monochrome%20Factor&cat=all)
+&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
