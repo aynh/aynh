@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're Puss in Boots, the one who tricks the prince. He hides who he really is and pretends to be someone else forever. So in time he becomes that person, so his lie becomes the truth, see? He transcends the mask. Don't you get it? That's how he finds happiness. That's pretty good, right?"
+> "There's always something one can't explain even if one has experience with it."
 
-&mdash; [**Eri Ninamori**](https://myanimelist.net/character.php?q=Eri%20Ninamori&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Shirogane**](https://myanimelist.net/character.php?q=Shirogane&cat=character), [**Monochrome Factor**](https://myanimelist.net/search/all?q=Monochrome%20Factor&cat=all)
