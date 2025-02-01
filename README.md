@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A joke only lasts for a moment, if it leaves a misunderstanding, it becomes a lie."
+> "If there's no eye to see, there's no difference between the darkness and the light."
 
-&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Subaru**](https://myanimelist.net/character.php?q=Subaru&cat=character), [**Houkago no Pleiades**](https://myanimelist.net/search/all?q=Houkago%20no%20Pleiades&cat=all)
