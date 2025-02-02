@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It looks to me like you've completely lost your touch."
+> "It's not whether you can or not. You just do it."
 
-&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kitahara Haruki**](https://myanimelist.net/character.php?q=Kitahara%20Haruki&cat=character), [**White Album 2**](https://myanimelist.net/search/all?q=White%20Album%202&cat=all)
