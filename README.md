@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is fear. That's good then, I had forgotten what it felt like."
+> "Stand back? [To Kira after Gin asked him to stand back] No, Kira...Run. Run until you're out of my sight, and keep running. Otherwise...I can't guarantee you won't get dragged into this and be killed."
 
-&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
