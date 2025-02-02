@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I may be unreliable, and I may not be able to do anything, but I’m here. I’ll always be with you. I’ll be always by your side."
+> "No matter how messed up things get, you can always figure out the best solution."
 
-&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
