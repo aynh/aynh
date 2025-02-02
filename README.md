@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't lie if you don't have to."
+> "When you do something for the man you love, instead of for the world, it's easier to decide what must be done. Ultimately, it's better to do things for someone rather than something."
 
-&mdash; [**Kaname Tanuma**](https://myanimelist.net/character.php?q=Kaname%20Tanuma&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Hakaze Kusaribe**](https://myanimelist.net/character.php?q=Hakaze%20Kusaribe&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
