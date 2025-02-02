@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*talking about a nosebleed* And why would a girl your age pick hard enough to get a nosebleed?!"
+> "I've learned that from a war ignited by revenge, nothing can be born, but sorrow."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Aladdin**](https://myanimelist.net/character.php?q=Aladdin&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
