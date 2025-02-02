@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You always seem to look back. The scenery in front of you, the people near you, don't you see it? Live right now. That's what life is."
+> "It's the sky...that allows the clouds to move about freely."
 
-&mdash; [**Izumi Yukihira**](https://myanimelist.net/character.php?q=Izumi%20Yukihira&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
+&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
