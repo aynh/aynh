@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not whether you can or not. You just do it."
+> "This is fear. That's good then, I had forgotten what it felt like."
 
-&mdash; [**Kitahara Haruki**](https://myanimelist.net/character.php?q=Kitahara%20Haruki&cat=character), [**White Album 2**](https://myanimelist.net/search/all?q=White%20Album%202&cat=all)
+&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
