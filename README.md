@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sunday, May 14th at 14:15:30--the moment I got Senjōgahara's phone number."
+> "In society, those who don't have many abilities, tend to complain more."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
