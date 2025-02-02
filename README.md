@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In society, those who don't have many abilities, tend to complain more."
+> "Don't lie if you don't have to."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kaname Tanuma**](https://myanimelist.net/character.php?q=Kaname%20Tanuma&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
