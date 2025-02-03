@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Remembering something that no one else can is a painful thing. You can't talk to anyone about it. No one will understand you. You'll be alone."
+> "I'm not going to protect you by being your shield or armor, but I'll be the dagger hidden below your pillow."
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Shuu Tsukiyama**](https://myanimelist.net/character.php?q=Shuu%20Tsukiyama&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
