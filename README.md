@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not a genuine idiot like you! I'm an idiot who accepts the fact that he's an idiot!"
+> "Whenever people see birds flying through the sky, it's said that they get the urge to go on a journey."
 
-&mdash; [**Aoba Kouyou**](https://myanimelist.net/character.php?q=Aoba%20Kouyou&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
