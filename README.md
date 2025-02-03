@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes when I'd go to visit her in the hospital...she would purposely avoid me. Then I didn't know what she was thinking about anymore... (to Yuki, about Rin)"
+> "Living things are restrained by Chains: The laws of nature, the flow of time, the vessel known as your “body”, and the existence called your mind. There's only one chain that people can wield: WORDS."
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
