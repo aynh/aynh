@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder if it's the selfish people who get ahead in this world, after all."
+> "Sometimes when I'd go to visit her in the hospital...she would purposely avoid me. Then I didn't know what she was thinking about anymore... (to Yuki, about Rin)"
 
-&mdash; [**Shū Ouma**](https://myanimelist.net/character.php?q=Sh%C5%AB%20Ouma&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
