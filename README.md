@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you can't move anymore, or your back gets bent out of shape, it doesn't matter! What matters is what's inside! Not what someone looks like, dammit!"
+> "Remembering something that no one else can is a painful thing. You can't talk to anyone about it. No one will understand you. You'll be alone."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
