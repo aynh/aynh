@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Before the heart of truth, there is no need for words."
+> "Even if you can't move anymore, or your back gets bent out of shape, it doesn't matter! What matters is what's inside! Not what someone looks like, dammit!"
 
-&mdash; [**Nico Robin**](https://myanimelist.net/character.php?q=Nico%20Robin&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
