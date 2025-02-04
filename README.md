@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have someone I like. I never had the confidence and I’ve doubted my feelings countless of times. But, when she stays by my side and smiles with me, I feel like I can do anything."
+> "Hey, I'll have you know that I almost really did kick the bucket during that training, so don't you dare sum it all up in one word, even if it is a nice one like 'potential'."
 
-&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Sanosuke Sagara**](https://myanimelist.net/character.php?q=Sanosuke%20Sagara&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
