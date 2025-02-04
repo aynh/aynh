@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you believe it was destined to happen it is most likely to happen, if you believe nothing has been decided then most likely nothing has been decided."
+> "Attention, gun-toting extremists! Can you hear me all right, or did you blow your ears out playing target practice?"
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
