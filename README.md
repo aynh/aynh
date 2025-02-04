@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We're all born with selfish desires so we can relate to those feelings in others. But kindness is created individually by each person... So it's easy to misunderstand when someone is trying to be kind to you... But, Tohru, people's differences are something to celebrate."
+> "While it takes time to recover from the loss of a loved one, having an opportunity to take your mind off things helps too."
 
-&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Yogi**](https://myanimelist.net/character.php?q=Yogi&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
