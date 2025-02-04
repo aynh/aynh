@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The trees cry out as they die, but you cannot hear them. I lie here. I listen to the pain of the forest and feel the ache of the bullet in my chest and dream of the day when I will finally crunch that gun woman's head in my jaws... She is my daughter. One of the wolf tribe. When the forest dies, so does she. I caught her human parents defiling my forest. They threw their baby at my feet as they ran away. Instead of eating her, I raised her as my own. Now my poor, ugly, beautiful daughter is neither human nor wolf."
+> "Protect the one thing you want to protect until the very end."
 
-&mdash; [**Moro**](https://myanimelist.net/character.php?q=Moro&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
