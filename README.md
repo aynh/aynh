@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anyone can cheer for you and your dreams, but only the people closest to you can worry about you."
+> "If you can't see what's important, then it's because you're too ashamed to open your eyes."
 
-&mdash; [**Jurai Andou**](https://myanimelist.net/character.php?q=Jurai%20Andou&cat=character), [**Inou Battle wa Nichijou-kei no Naka de**](https://myanimelist.net/search/all?q=Inou%20Battle%20wa%20Nichijou-kei%20no%20Naka%20de&cat=all)
+&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
