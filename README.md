@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Senpai, take me to the art museum again. Next time, I'll carefully listen to what you say. Please feed me worms!"
+> "Anyone can cheer for you and your dreams, but only the people closest to you can worry about you."
 
-&mdash; [**Noda Megumi**](https://myanimelist.net/character.php?q=Noda%20Megumi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
+&mdash; [**Jurai Andou**](https://myanimelist.net/character.php?q=Jurai%20Andou&cat=character), [**Inou Battle wa Nichijou-kei no Naka de**](https://myanimelist.net/search/all?q=Inou%20Battle%20wa%20Nichijou-kei%20no%20Naka%20de&cat=all)
