@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no telling what kind of pain will come  after me, but... if I stop believing because of that, if the hero should change, it'll turn into another story from the one my master left behind. Then it wont be Naruto! I can't write novels like my master did. That's why the sequel has to come from the life I live no matter how great the pain, I'll continue walking because that's who Naruto is!"
+> "If we all reacted the same way, we'd be predictable, and there's always more than one way to view a situation. What's true for the group is also true for the individual. It's simple: overspecialize, and you breed in weakness. It's slow death."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Motoko Kusanagi**](https://myanimelist.net/character.php?q=Motoko%20Kusanagi&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
