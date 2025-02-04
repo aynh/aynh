@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder how you're suppose to give up... Do I just decide to give up and act accordingly? And move further and further away from what my heart really wants? Then will I forget everything one day?.. Everything including the pain in my heart? Everything? Without a trace as if nothing was there to begin with?"
+> "There is no telling what kind of pain will come  after me, but... if I stop believing because of that, if the hero should change, it'll turn into another story from the one my master left behind. Then it wont be Naruto! I can't write novels like my master did. That's why the sequel has to come from the life I live no matter how great the pain, I'll continue walking because that's who Naruto is!"
 
-&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
