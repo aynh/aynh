@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So maybe I can't defend against attacks from multiple angles, but sometimes a good defense is just kicking ass!"
+> "The trees cry out as they die, but you cannot hear them. I lie here. I listen to the pain of the forest and feel the ache of the bullet in my chest and dream of the day when I will finally crunch that gun woman's head in my jaws... She is my daughter. One of the wolf tribe. When the forest dies, so does she. I caught her human parents defiling my forest. They threw their baby at my feet as they ran away. Instead of eating her, I raised her as my own. Now my poor, ugly, beautiful daughter is neither human nor wolf."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Moro**](https://myanimelist.net/character.php?q=Moro&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
