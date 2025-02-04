@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "While it takes time to recover from the loss of a loved one, having an opportunity to take your mind off things helps too."
+> "What a lovely voice! But I have to wonder though... is that voice a result of fiddling around with her genes?"
 
-&mdash; [**Yogi**](https://myanimelist.net/character.php?q=Yogi&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
+&mdash; [**Sai Argyle**](https://myanimelist.net/character.php?q=Sai%20Argyle&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
