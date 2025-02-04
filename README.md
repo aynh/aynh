@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you someday find a way of life that you can truly be proud of, you'll be forced into your own battle whether you like it or not."
+> "I'll be back."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
