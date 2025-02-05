@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can't see what's important, then it's because you're too ashamed to open your eyes."
+> "What you speak of at greatest length is what interests you the most."
 
-&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
