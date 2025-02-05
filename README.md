@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're always positive, good luck will eventually find you."
+> "Those who make mistakes blame themselves and close their hearts. It's impossible to fix the mistake. Men can't return to the past. That's why they drink. Lushes, drunks, sliding alcohol down their throats to try to dilute the memories that can't be forgotten. Frank Marlon, the gunsmith, does nothing but drink, and questions the glass after it's empty. 'Am I wrong? Was I wrong?'"
 
-&mdash; [**Fe-chan**](https://myanimelist.net/character.php?q=Fe-chan&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
