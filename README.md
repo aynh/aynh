@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are people out there who would say there's nothing more important than love. But is love really that great? There are women, who because of love, get chased around by men. And there are men, who because of love, get killed by women. To put it down, for love to be so great, there's gotta be something else behind it that's even greater."
+> "I want to possess her...to make her belong to me, and only me. (about Rin)"
 
-&mdash; [**Dante**](https://myanimelist.net/character.php?q=Dante&cat=character), [**Devil May Cry**](https://myanimelist.net/search/all?q=Devil%20May%20Cry&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
