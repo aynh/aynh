@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm a half-demon, more egotistical and greedy than any other living creature — that's what human beings are, right?.. But with human blood flowing through my veins, I never give up! Don't you understand? When you have someone to protect, your power increases multifold!"
+> "Think of your shivers as excitement rather than fear. Cover the anxiety on your face with a smile."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Kurusu Keigo**](https://myanimelist.net/character.php?q=Kurusu%20Keigo&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
