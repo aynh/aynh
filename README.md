@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Living forever means that the suffering of life also continues forever."
+> "I'm a half-demon, more egotistical and greedy than any other living creature — that's what human beings are, right?.. But with human blood flowing through my veins, I never give up! Don't you understand? When you have someone to protect, your power increases multifold!"
 
-&mdash; [**Sakura Hiraga**](https://myanimelist.net/character.php?q=Sakura%20Hiraga&cat=character), [**Masquerade**](https://myanimelist.net/search/all?q=Masquerade&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
