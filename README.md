@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The devil made me do it. It was all his fault. Yup, all him. Look at them shake. I don't blame them. The second I spotted them, I put a lid on the tin and ran away. In other words, I kidnapped them. Is there any way to spin this? I mean, any way to solve the problem?"
+> "As long as the kindness received from others... is returned back, it's fine even if it takes time."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Isogi Toshio**](https://myanimelist.net/character.php?q=Isogi%20Toshio&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
