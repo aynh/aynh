@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you make fiction just as valuable as reality, then any reality you don't need can be a delusion."
+> "Religion, ideology, resources, land, spite, love or just because. No matter how pathetic the reason, it's enough to start a war."
 
-&mdash; [**Erika Karisawa**](https://myanimelist.net/character.php?q=Erika%20Karisawa&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
