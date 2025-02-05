@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Think of your shivers as excitement rather than fear. Cover the anxiety on your face with a smile."
+> "Do you think it's possible to send Flame Alchemy through the phone and burn someones ears off?"
 
-&mdash; [**Kurusu Keigo**](https://myanimelist.net/character.php?q=Kurusu%20Keigo&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
