@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Romance is all about how far you'll go to prove your love. Finding a person who's worth the effort is pure luck. You just gotta wait for the right hurricane to sweep you off your feet."
+> "Is the world too peaceful? Is the future bothersome? Is reality your enemy? Don't worry, even if it is - LIFE IS EPIC."
 
-&mdash; [**Tomoko Kuroki**](https://myanimelist.net/character.php?q=Tomoko%20Kuroki&cat=character), [**WATAMOTE**](https://myanimelist.net/search/all?q=WATAMOTE&cat=all)
+&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
