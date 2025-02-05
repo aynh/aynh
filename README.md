@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Religion, ideology, resources, land, spite, love or just because. No matter how pathetic the reason, it's enough to start a war."
+> "I love the word 'fate'. Because, you know how they talk about 'fated encounters'? A single encounter can completely change your life. Such special encounters are not just coincidences. They're definitely... fate. Of course, life is not all happy encounters. There are many painful, sad moments. But this is what I think: sad and painful things definitely happen for a reason. Nothing in this world is pointless."
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ringo Oginome**](https://myanimelist.net/character.php?q=Ringo%20Oginome&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
