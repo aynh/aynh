@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Friendship is unnecessary, like philosophy, like art. It has no survival value. Rather it is one of those things that give value to survival."
+> "There are no guarantees. But if there’s a chance it could help everyone avoid the calamity, isn’t it worth it? It’s sad when people die."
 
-&mdash; [**Shana**](https://myanimelist.net/character.php?q=Shana&cat=character), [**Shakugan no Shana**](https://myanimelist.net/search/all?q=Shakugan%20no%20Shana&cat=all)
+&mdash; [**Mei Misaki**](https://myanimelist.net/character.php?q=Mei%20Misaki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
