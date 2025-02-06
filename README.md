@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are three kinds of secrets. Something that you hide at the bottom of your heart because you don't want it to be mentioned. Something that you can't say even if you want to and something that you hope someone asks about even though you're hiding it."
+> "Let's value our lives."
 
-&mdash; [**Kazuhiko Yukimi**](https://myanimelist.net/character.php?q=Kazuhiko%20Yukimi&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
