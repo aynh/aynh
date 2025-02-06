@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm begging you, don't make me a killer!"
+> "Whatever you value... What you consider right is up to you. But don't force those ideals onto other people."
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Yozuru Kagenui**](https://myanimelist.net/character.php?q=Yozuru%20Kagenui&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
