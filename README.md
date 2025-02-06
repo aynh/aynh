@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are no guarantees. But if there’s a chance it could help everyone avoid the calamity, isn’t it worth it? It’s sad when people die."
+> "There are three kinds of secrets. Something that you hide at the bottom of your heart because you don't want it to be mentioned. Something that you can't say even if you want to and something that you hope someone asks about even though you're hiding it."
 
-&mdash; [**Mei Misaki**](https://myanimelist.net/character.php?q=Mei%20Misaki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
+&mdash; [**Kazuhiko Yukimi**](https://myanimelist.net/character.php?q=Kazuhiko%20Yukimi&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
