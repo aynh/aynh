@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The scariest and the most painful thing is to be hated by someone you truly love."
+> "Friendship is unnecessary, like philosophy, like art. It has no survival value. Rather it is one of those things that give value to survival."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Shana**](https://myanimelist.net/character.php?q=Shana&cat=character), [**Shakugan no Shana**](https://myanimelist.net/search/all?q=Shakugan%20no%20Shana&cat=all)
