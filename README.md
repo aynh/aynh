@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let's value our lives."
+> "I understand now... What I really need to protect isn't myself, much less my money. It's my pride."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kubota Yoshinobu**](https://myanimelist.net/character.php?q=Kubota%20Yoshinobu&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
