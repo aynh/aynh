@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have no intention of reciprocating my daughter's feelings, do you? So what gives you the right to speak in that way? Perhaps you wish to appease your guilty conscience. Would you not call that 'hypocrisy'?"
+> "That's what I call smallness as a human being. No matter how much I'm irritated by it, I can't do anything about it. It's not complex, just stunted. Because as a human being I'm small, or something."
 
-&mdash; [**Tachibana Chika**](https://myanimelist.net/character.php?q=Tachibana%20Chika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
