@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I understand now... What I really need to protect isn't myself, much less my money. It's my pride."
+> "It's just like changes in the notes and passports. You may find it hard to adjust to at the beginning, but you get used to it eventually. Time is very depressing after all... Both happiness and sadness fade away with time."
 
-&mdash; [**Kubota Yoshinobu**](https://myanimelist.net/character.php?q=Kubota%20Yoshinobu&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
+&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
