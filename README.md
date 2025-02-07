@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You shouldn't talk. It makes you sound stupid."
+> "The meaning to our existence... is to live. To remember those who have died and face the world. God doesn't exist. I will. Through my own will."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Setsuna F. Seiei**](https://myanimelist.net/character.php?q=Setsuna%20F.%20Seiei&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
