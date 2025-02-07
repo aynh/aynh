@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let me tell you something. Humans don't even have the patience to wait even ten minutes for something!"
+> "Because I love you, I want to rip you apart. I want to pile corpses before you."
 
-&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Kazutaka Muraki**](https://myanimelist.net/character.php?q=Kazutaka%20Muraki&cat=character), [**Yami no Matsuei**](https://myanimelist.net/search/all?q=Yami%20no%20Matsuei&cat=all)
