@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's what I call smallness as a human being. No matter how much I'm irritated by it, I can't do anything about it. It's not complex, just stunted. Because as a human being I'm small, or something."
+> "Men always seem to think about their past before they die, as though they were frantically searching for proof that they truly lived."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Jet Black**](https://myanimelist.net/character.php?q=Jet%20Black&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
