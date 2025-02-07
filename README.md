@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm gonna slit your stomach, take out your guts, and put them in a bowl. By the time I'm through with you, you're going to wish it was you who was dead."
+> "Using a simple method to accomplish something impressive, far outshines using a complex method to achieve the same thing."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
