@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The meaning to our existence... is to live. To remember those who have died and face the world. God doesn't exist. I will. Through my own will."
+> "Let me tell you something. Humans don't even have the patience to wait even ten minutes for something!"
 
-&mdash; [**Setsuna F. Seiei**](https://myanimelist.net/character.php?q=Setsuna%20F.%20Seiei&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
