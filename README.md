@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Peace cannot be kept by force. It can only be achieved by understanding."
+> "I believe there are many things in this world that people haven't seen yet. If you really want to see something, there's nothing you can't see. You can't see it because you're closing your eyes on purpose. Because if you use your eyes to see it, it'll be painful, and sad. That's why they're closed in the first place. I think photography is like borrowing someone else's eyes. So even if your eyes are closed... you can borrow someone else's."
 
-&mdash; [**Setsuna F. Seiei**](https://myanimelist.net/character.php?q=Setsuna%20F.%20Seiei&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Maria Oosawa**](https://myanimelist.net/character.php?q=Maria%20Oosawa&cat=character), [**CANAAN**](https://myanimelist.net/search/all?q=CANAAN&cat=all)
