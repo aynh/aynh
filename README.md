@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We should be driven by things like our desires, instincts, and impulses. That's how it should be."
+> "It is a thousand years too early... for you to become worthy enough to die by my Bankai."
 
-&mdash; [**Ranta**](https://myanimelist.net/character.php?q=Ranta&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
