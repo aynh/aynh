@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our bodies get bigger, but our hearts get torn up."
+> "Peace cannot be kept by force. It can only be achieved by understanding."
 
-&mdash; [**Mikoto Suoh**](https://myanimelist.net/character.php?q=Mikoto%20Suoh&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
+&mdash; [**Setsuna F. Seiei**](https://myanimelist.net/character.php?q=Setsuna%20F.%20Seiei&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
