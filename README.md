@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't be upset because of what you can't do. Do what you do best, live as carefree and optimistically as you can, because some people aren't able to do that."
+> "Our bodies get bigger, but our hearts get torn up."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Mikoto Suoh**](https://myanimelist.net/character.php?q=Mikoto%20Suoh&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
