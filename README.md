@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everybody can fight. It's just a choice of whether you should."
+> "We cannot go back to the past, no matter how hard we try. No matter how wonderful it was. The past is nothing but the past."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Eikichi Onizuka**](https://myanimelist.net/character.php?q=Eikichi%20Onizuka&cat=character), [**Great Teacher Onizuka**](https://myanimelist.net/search/all?q=Great%20Teacher%20Onizuka&cat=all)
