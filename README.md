@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah, so I don’t appear to be the brightest crayon in the box but I still look down on the rest of the world."
+> "What is the point if those with the means and power do not fight?"
 
-&mdash; [**Kei Kurono**](https://myanimelist.net/character.php?q=Kei%20Kurono&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
+&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
