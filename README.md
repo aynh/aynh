@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe there are many things in this world that people haven't seen yet. If you really want to see something, there's nothing you can't see. You can't see it because you're closing your eyes on purpose. Because if you use your eyes to see it, it'll be painful, and sad. That's why they're closed in the first place. I think photography is like borrowing someone else's eyes. So even if your eyes are closed... you can borrow someone else's."
+> "People who sin say that they had to... had to survive. People who sin say that it's too late to stop now. The shadow called Sin dogs them steadily from behind, silently, without a word. Remorse and Agony are repeated, only to end up at Despair. But what sinners don't know, or what they have forgotten, is that there is a light, a light which keeps shining on them ever so warmly. A light that will never fade."
 
-&mdash; [**Maria Oosawa**](https://myanimelist.net/character.php?q=Maria%20Oosawa&cat=character), [**CANAAN**](https://myanimelist.net/search/all?q=CANAAN&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
