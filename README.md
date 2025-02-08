@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think it's fun to get to know a person little by little, through looking at their personality."
+> "'The important thing is to take part.' Famous words spoken by Pierre de Frédy, Baron de Coubertin during a speech. However, this quote tends to be frequently misused and serves as kind of a threat to force participation. There are tons of wild-goose chases in this world, y'know. If the most important thing is to take part, then surely one could find meaning in not taking part as well. And if everything's worth experiencing, then there's little doubt that the feeling of not experiencing something is, in itself, worth experiencing. In fact, you could even call it a valuable experience to not experience something everyone else does."
 
-&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
