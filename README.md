@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Reaching out to someone is simple.  All you need is the resolve to say, 'I'm your ally no matter what.' 'I believe in you.' That's all the resolve you need. It's okay to make mistakes. I grew up by making mistakes. Don't have any regrets. Your justice may be completely different from someone else's. You are completely different people after all. But you still live on together. People always look for ways to do just that."
+> "With Roku gone and the Great Comet returning, the timing was perfect to change the world. I knew the next Avatar would be born an Air Nomad so I wiped out the Air Temples, but somehow the new Avatar eluded me. I wasted the remainder of my life searching in vain. I know he's hiding out there somewhere: the Fire Nation's greatest threat, the last Airbender."
 
-&mdash; [**Shirota Tooru**](https://myanimelist.net/character.php?q=Shirota%20Tooru&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
+&mdash; [**Sozin**](https://myanimelist.net/character.php?q=Sozin&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
