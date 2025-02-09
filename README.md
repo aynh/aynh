@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "La lang natamad na ako."
+> "It's alright to feel sad. When you're sad, you should experience that sorrow fully. It's not too late to move on after that."
 
-&mdash; [**Gian Carlo**](https://myanimelist.net/character.php?q=Gian%20Carlo&cat=character), [**Lucky Dog**](https://myanimelist.net/search/all?q=Lucky%20Dog&cat=all)
+&mdash; [**Urutori**](https://myanimelist.net/character.php?q=Urutori&cat=character), [**Utawarerumono**](https://myanimelist.net/search/all?q=Utawarerumono&cat=all)
