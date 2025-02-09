@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unfortunately, I don't have a nice eyeball like you, that can see this and that. All I can do to pursue one thing in front of me. So whether it's the abyss of death or an empty void, I won't fight for the manju offered to my grave. I'll fight for tomorrow's breakfast. That's all."
+> "You think you can just escape? Walk out of this world like it's some bad movie? It's too easy to make like a bird. To flap your wings as you chicken out after causing all these problems. The tough part's walking. Taking what comes along and walking right through it. That's what real people do."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Eikichi Onizuka**](https://myanimelist.net/character.php?q=Eikichi%20Onizuka&cat=character), [**Great Teacher Onizuka**](https://myanimelist.net/search/all?q=Great%20Teacher%20Onizuka&cat=all)
