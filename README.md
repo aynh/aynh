@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What good are dreams, if all you do is work? There's more to life than hitting the books, I hope you know."
+> "I don't like sparklers all that much. It burns so beautifully for just a little while and when it's done, only black cinders remain. It's like a misbegotten life and it makes me feel lonely for no good reason."
 
-&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Matsushima Michiru**](https://myanimelist.net/character.php?q=Matsushima%20Michiru&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
