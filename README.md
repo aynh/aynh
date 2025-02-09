@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's alright to feel sad. When you're sad, you should experience that sorrow fully. It's not too late to move on after that."
+> "[looking at a porno magazine] Geez, doing it with a squid."
 
-&mdash; [**Urutori**](https://myanimelist.net/character.php?q=Urutori&cat=character), [**Utawarerumono**](https://myanimelist.net/search/all?q=Utawarerumono&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
