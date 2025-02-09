@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And I'll be happy to vouch for his insanity!"
+> "God, my face hurts from forcing smiles all night..."
 
-&mdash; [**Haruka**](https://myanimelist.net/character.php?q=Haruka&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
