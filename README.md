@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If they're not given a problem, if they're unable to find a reason, some people can't bring themselves to act. Maybe I got something wrong somewhere. Only that bit of doubt stayed with me."
+> "Even if I'm not around, nothing will change, you say? It's not as if I'm living my life to prove something silly like that! We live our lives to see how the world changes around us, don't you think?"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
