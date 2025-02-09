@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen up, I don't care what you punks do around the universe. But with this, my sword… anywhere it can reach, is part of my country! Asses who blunder in and violate my things… whether it be a Shogun, whether it be space pirates, whether it be a meteorite - I'll destroy them!!"
+> "Reaching out to someone is simple.  All you need is the resolve to say, 'I'm your ally no matter what.' 'I believe in you.' That's all the resolve you need. It's okay to make mistakes. I grew up by making mistakes. Don't have any regrets. Your justice may be completely different from someone else's. You are completely different people after all. But you still live on together. People always look for ways to do just that."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Shirota Tooru**](https://myanimelist.net/character.php?q=Shirota%20Tooru&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
