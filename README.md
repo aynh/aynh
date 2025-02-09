@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't you think it's beautiful? That rosy red that spreads only where the body is wounded. Shall I paint you in that lovely red... little boy?"
+> "La lang natamad na ako."
 
-&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Gian Carlo**](https://myanimelist.net/character.php?q=Gian%20Carlo&cat=character), [**Lucky Dog**](https://myanimelist.net/search/all?q=Lucky%20Dog&cat=all)
