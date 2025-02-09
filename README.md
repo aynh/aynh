@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, I don't see what's so funny. I'm honest, I speak my mind, and I don't hold back. It's sneaky people like Kaoru who are the troublemakers."
+> "People need to be told they're worthy of being alive by someone else or they can't go on."
 
-&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Atsushi Nakajima**](https://myanimelist.net/character.php?q=Atsushi%20Nakajima&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
