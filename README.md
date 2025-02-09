@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[looking at a porno magazine] Geez, doing it with a squid."
+> "Do you dislike that someone you once knew has become someone new without your knowing?"
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Minato**](https://myanimelist.net/character.php?q=Minato&cat=character), [**Houkago no Pleiades**](https://myanimelist.net/search/all?q=Houkago%20no%20Pleiades&cat=all)
