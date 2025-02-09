@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I'm not around, nothing will change, you say? It's not as if I'm living my life to prove something silly like that! We live our lives to see how the world changes around us, don't you think?"
+> "Don't you think it's beautiful? That rosy red that spreads only where the body is wounded. Shall I paint you in that lovely red... little boy?"
 
-&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
