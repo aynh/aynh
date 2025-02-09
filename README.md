@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't like sparklers all that much. It burns so beautifully for just a little while and when it's done, only black cinders remain. It's like a misbegotten life and it makes me feel lonely for no good reason."
+> "Well, I don't see what's so funny. I'm honest, I speak my mind, and I don't hold back. It's sneaky people like Kaoru who are the troublemakers."
 
-&mdash; [**Matsushima Michiru**](https://myanimelist.net/character.php?q=Matsushima%20Michiru&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
+&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
