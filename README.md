@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everytime Otani says or does something, I end up going to heaven, or hell."
+> "If they're not given a problem, if they're unable to find a reason, some people can't bring themselves to act. Maybe I got something wrong somewhere. Only that bit of doubt stayed with me."
 
-&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
