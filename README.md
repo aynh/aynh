@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It must be the way you look, Vash the Stampede. Your very existence seems to cause me undue irritation."
+> "...Have I... Stumbled upon a brand new shitty game again...?"
 
-&mdash; [**Legato Bluesummers**](https://myanimelist.net/character.php?q=Legato%20Bluesummers&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
