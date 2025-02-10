@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't have any wishes that won't come true or that are impossible. Because if it's a dream I can't reach by myself, I won't even dream it in the first place."
+> "It must be the way you look, Vash the Stampede. Your very existence seems to cause me undue irritation."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Legato Bluesummers**](https://myanimelist.net/character.php?q=Legato%20Bluesummers&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
