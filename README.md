@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because of the existence of love - sacrifice is born. As well as hate. Then one comprehends... one knows PAIN."
+> "Think you're pretty smart, you old hag. (to Kaede)"
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
