@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They're part of who I am. No matter how much they hurt, they're important to me."
+> "You have to do the things you don't want to do, before you can do the things you truly want to do."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Tsutomu Komano**](https://myanimelist.net/character.php?q=Tsutomu%20Komano&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
