@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have to do the things you don't want to do, before you can do the things you truly want to do."
+> "Time might separate us some day. But, even still, until then, let's stay together."
 
-&mdash; [**Tsutomu Komano**](https://myanimelist.net/character.php?q=Tsutomu%20Komano&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Hotaru Takegawa**](https://myanimelist.net/character.php?q=Hotaru%20Takegawa&cat=character), [**Hotarubi no Mori e**](https://myanimelist.net/search/all?q=Hotarubi%20no%20Mori%20e&cat=all)
