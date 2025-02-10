@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...Have I... Stumbled upon a brand new shitty game again...?"
+> "There were a lot of people who were kind to begin with. No, they were probably good people but, I don't want to see the disappointment in their eyes anymore. I don't really want to meet kind of people anymore."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Natsume Takeshi**](https://myanimelist.net/character.php?q=Natsume%20Takeshi&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
