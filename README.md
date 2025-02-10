@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen to yourself whining and complaining like some sorry little victim! You can whimper all day for all I care, you're nothing but a coward!"
+> "Human beings don't feel pain with their bodies. The brain is the thing that transmits the pain to the body."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Madoka Shishito**](https://myanimelist.net/character.php?q=Madoka%20Shishito&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
