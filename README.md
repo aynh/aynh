@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think that loving someone is utterly useless. The more you want to be loved the more it will make you miserable."
+> "Because of the existence of love - sacrifice is born. As well as hate. Then one comprehends... one knows PAIN."
 
-&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
