@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Think you're pretty smart, you old hag. (to Kaede)"
+> "It's simple. Even a single Coordinator is a threat to the Earth's survival, and our goal here is to get rid of them all!"
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Muruta Azrael**](https://myanimelist.net/character.php?q=Muruta%20Azrael&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
