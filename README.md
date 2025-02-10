@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*talking about a nosebleed* And why would a girl your age pick hard enough to get a nosebleed?!"
+> "It doesn´t matter what day it is as long as you are happy."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Juvia Loxar**](https://myanimelist.net/character.php?q=Juvia%20Loxar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
