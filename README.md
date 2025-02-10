@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People need to be told they're worthy of being alive by someone else or they can't go on."
+> "*talking about a nosebleed* And why would a girl your age pick hard enough to get a nosebleed?!"
 
-&mdash; [**Atsushi Nakajima**](https://myanimelist.net/character.php?q=Atsushi%20Nakajima&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
