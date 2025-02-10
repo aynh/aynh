@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A person can work for their ideals. But if you lose sight of those ideals, when things don't work out as you hoped, you'll never accomplish anything! You won't be able to protect yourself or those dear to you."
+> "Living this way is my way of getting revenge!! I'm going to be living proof that your fate isn't decided at birth!! So what about you?! You're going to kill yourself, the ultimate act of submission. Is that how much you want to please the people who treated you like a nuisance?! Why are you trying to hurt yourself?! If your will is that strong... Then shouldn't you be able to change your fate?!"
 
-&mdash; [**Hiroomi Nase**](https://myanimelist.net/character.php?q=Hiroomi%20Nase&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
+&mdash; [**Ymir**](https://myanimelist.net/character.php?q=Ymir&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
