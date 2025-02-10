@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn´t matter what day it is as long as you are happy."
+> "What about when you reciprocate someone else’s emotions? Is that still coming from you… or is the air connecting you to one another?"
 
-&mdash; [**Juvia Loxar**](https://myanimelist.net/character.php?q=Juvia%20Loxar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Jinno Yuu**](https://myanimelist.net/character.php?q=Jinno%20Yuu&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
