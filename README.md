@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Saying that people's personalities are products of their pasts isn't totally wrong. The way people live depends on their experiences."
+> "Those who aim further for other's sake. Those who think of others before themselves. ...And those who hate themselves more than anyone. These are the qualities of a Magus. This is a contradiction you can only have if you are born broken."
 
-&mdash; [**Kirie Kanoe**](https://myanimelist.net/character.php?q=Kirie%20Kanoe&cat=character), [**Dusk maiden of Amnesia**](https://myanimelist.net/search/all?q=Dusk%20maiden%20of%20Amnesia&cat=all)
+&mdash; [**Tohsaka Rin**](https://myanimelist.net/character.php?q=Tohsaka%20Rin&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
