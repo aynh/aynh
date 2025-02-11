@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Lovers don't need words to communicate."
+> "I can only tell the fortune of girls."
 
-&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Shima Kinzou**](https://myanimelist.net/character.php?q=Shima%20Kinzou&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
