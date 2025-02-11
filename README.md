@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Little fool, demons exist, all right. They’re inside our hearts."
+> "The world has too many heroes. It needs a monster."
 
-&mdash; [**Fujimoto Shirou**](https://myanimelist.net/character.php?q=Fujimoto%20Shirou&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Dracule Mihawk**](https://myanimelist.net/character.php?q=Dracule%20Mihawk&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
