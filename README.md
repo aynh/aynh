@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That curse will spread throughout your whole body, bone and flesh alike and finally kill you. Now leave this place at sunrise. Return and *I* shall kill you."
+> "The heart moves where the heart wills."
 
-&mdash; [**Moro**](https://myanimelist.net/character.php?q=Moro&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Twenty-Fifth Baam**](https://myanimelist.net/character.php?q=Twenty-Fifth%20Baam&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
