@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What exactly would change if I wanted revenge, was consumed by hatred, or went insane with rage?"
+> "In the long flow of time, living things know nothing of their ancestors, except for the genes they’ve inherited. Only mankind has history. Having a history differentiates mankind from all other living species. That’s why I wanted to be a historian."
 
-&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
