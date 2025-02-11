@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Forgiving someone and being forgiven, that’s what binds people together."
+> "What exactly would change if I wanted revenge, was consumed by hatred, or went insane with rage?"
 
-&mdash; [**Nagi Sanzenin**](https://myanimelist.net/character.php?q=Nagi%20Sanzenin&cat=character), [**Hayate no Gotoku!**](https://myanimelist.net/search/all?q=Hayate%20no%20Gotoku!&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
