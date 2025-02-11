@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is what's inside your heart right now. A sky that has become this lovely, will not always remain sunny. There will be times when rain will fall and storms will carry on. The scenery will change, but if it is left alone, it will stay changed forever. For that, you must continue to fight, because that is to live. To live is to fight."
+> "Stay the fuck back, you freak!"
 
-&mdash; [**Shinku**](https://myanimelist.net/character.php?q=Shinku&cat=character), [**Rozen Maiden**](https://myanimelist.net/search/all?q=Rozen%20Maiden&cat=all)
+&mdash; [**Saya Takagi**](https://myanimelist.net/character.php?q=Saya%20Takagi&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
