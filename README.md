@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The heart moves where the heart wills."
+> "What is an adult? Does coolly drinking black coffee and spouting logic make you an adult?! If that's the case, I'll stay a kid that likes drinking orange juice."
 
-&mdash; [**Twenty-Fifth Baam**](https://myanimelist.net/character.php?q=Twenty-Fifth%20Baam&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
+&mdash; [**Shirota Mahiru**](https://myanimelist.net/character.php?q=Shirota%20Mahiru&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
