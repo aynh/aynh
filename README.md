@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who aim further for other's sake. Those who think of others before themselves. ...And those who hate themselves more than anyone. These are the qualities of a Magus. This is a contradiction you can only have if you are born broken."
+> "Kurosaki-kun... I'm weak, so it's always like I turn back to look to you for help. But now I won't turn back and I'll go forward. The next time we meet I won't look to you for help, Kurosaki-kun, I'll be able to fight on my own."
 
-&mdash; [**Tohsaka Rin**](https://myanimelist.net/character.php?q=Tohsaka%20Rin&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
