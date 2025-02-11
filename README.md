@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the long flow of time, living things know nothing of their ancestors, except for the genes they’ve inherited. Only mankind has history. Having a history differentiates mankind from all other living species. That’s why I wanted to be a historian."
+> "That curse will spread throughout your whole body, bone and flesh alike and finally kill you. Now leave this place at sunrise. Return and *I* shall kill you."
 
-&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Moro**](https://myanimelist.net/character.php?q=Moro&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
