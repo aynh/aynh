@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is an adult? Does coolly drinking black coffee and spouting logic make you an adult?! If that's the case, I'll stay a kid that likes drinking orange juice."
+> "Little fool, demons exist, all right. They’re inside our hearts."
 
-&mdash; [**Shirota Mahiru**](https://myanimelist.net/character.php?q=Shirota%20Mahiru&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
+&mdash; [**Fujimoto Shirou**](https://myanimelist.net/character.php?q=Fujimoto%20Shirou&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
