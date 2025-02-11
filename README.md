@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Infinite wisdom requires infinite perspective. Only by experiencing each element, each moment separately and in their own time, does the beauty of the whole become apparent."
+> "I study too, you know. How could I teach anyone if I didn't grow and learn day by day. Now let's get rid of this dangerous cloth. Experiencing my Absolute Defense Form over summer vacation taught me yet another skill: compressing not my whole body, but a portion of my tentacles to release a burst of energy. Remember this Itona, I say assassination is education. The assassination classrooms teacher will get stronger every time he teaches!"
 
-&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Bubblegum Crisis: Tokyo 2040**](https://myanimelist.net/search/all?q=Bubblegum%20Crisis%3A%20Tokyo%202040&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
