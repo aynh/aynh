@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who try to step over someone else and go up higher... are actually only running away from some fear that they cannot see. Trying to step over someone is an cowardly action. It means you're not confident enough to face the opponent and speak to them with the same viewpoint. It doesn't matter how much power I have in me. By using that 'power' that's taking over you. I do not want to become such a cowardly person. I will fight and get hurt in order to survive...."
+> "Saying that people's personalities are products of their pasts isn't totally wrong. The way people live depends on their experiences."
 
-&mdash; [**Twenty-Fifth Baam**](https://myanimelist.net/character.php?q=Twenty-Fifth%20Baam&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
+&mdash; [**Kirie Kanoe**](https://myanimelist.net/character.php?q=Kirie%20Kanoe&cat=character), [**Dusk maiden of Amnesia**](https://myanimelist.net/search/all?q=Dusk%20maiden%20of%20Amnesia&cat=all)
