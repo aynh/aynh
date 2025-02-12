@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sit upon the frozen heavens! Hyōrinmaru!!"
+> "Work together with everyone, motivating one another...even though they may not be your close friends, you can still understand each another. I'm looking forward to bonding with more people."
 
-&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Mikan Sakura**](https://myanimelist.net/character.php?q=Mikan%20Sakura&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
