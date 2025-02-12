@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't know what state you wounds are in, of where you're hurting if you don't know that for yourself, there's no point in trying to share it with others, is there?"
+> "There is no such thing as a perfect person. That is why we cannot live alone."
 
-&mdash; [**Hisomu Yoshiharu**](https://myanimelist.net/character.php?q=Hisomu%20Yoshiharu&cat=character), [**Kiznaiver**](https://myanimelist.net/search/all?q=Kiznaiver&cat=all)
+&mdash; [**Chichiri**](https://myanimelist.net/character.php?q=Chichiri&cat=character), [**Fushigi Yuugi**](https://myanimelist.net/search/all?q=Fushigi%20Yuugi&cat=all)
