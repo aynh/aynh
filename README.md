@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Deceive your other self. Deceive the world. That is what you must do to reach the Steins Gate. Good Luck. El Psy Congroo."
+> "Since when did the 'Cat' set the rules for this house? You mean to tell me that you contribute more to this house than anyone else? Do you pay all the bills? I can't stand people who do absolutely nothing but complain all the time! (To Kyo)"
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
