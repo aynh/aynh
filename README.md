@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Since when did the 'Cat' set the rules for this house? You mean to tell me that you contribute more to this house than anyone else? Do you pay all the bills? I can't stand people who do absolutely nothing but complain all the time! (To Kyo)"
+> "Man, kids these days. They think it's a competition to have the most friends. One is enough. Find someone completely unique."
 
-&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
