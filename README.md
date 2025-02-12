@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everything doesn't have to be decided by life and death. Just think about the future."
+> "Don't worry fool, we've entered into an alliance and I'm not the type to break it. Of course, after we win the tournament I can't guarantee anything."
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
