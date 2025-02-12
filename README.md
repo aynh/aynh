@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who can see get to choose... if you want them to know you can see. To pretend to be able to see, even when you can't... Or to pretend that you can't see even when you can."
+> "You must live life as long as you are still strong. Never look at your life as something insignificant."
 
-&mdash; [**Akagi Shigeru**](https://myanimelist.net/character.php?q=Akagi%20Shigeru&cat=character), [**Touhai Densetsu Akagi: Yami Ni Maiorita Tensai**](https://myanimelist.net/search/all?q=Touhai%20Densetsu%20Akagi%3A%20Yami%20Ni%20Maiorita%20Tensai&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
