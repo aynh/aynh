@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'You can't run away' is an ideal for the strong. You're not always wrong. Society, the world, the people around you - often someone else is in the wrong. To think that you can change is adapting to this cruel, indifferent, trashy world. It's admitting defeat and servility. You're simply deceiving yourself by dressing it up with pretty words."
+> "Everything doesn't have to be decided by life and death. Just think about the future."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
