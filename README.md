@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When an otaku goes all-out with his mind set on something you better not underestimate him."
+> "A day when everything is perfect, when everything will turn into memories, will eventually come.  But I'll probably remember over and over again you were there and everyone else was there. The day we all searched for just one thing."
 
-&mdash; [**Tomoya Aki**](https://myanimelist.net/character.php?q=Tomoya%20Aki&cat=character), [**Saenai Heroine no Sodatekata**](https://myanimelist.net/search/all?q=Saenai%20Heroine%20no%20Sodatekata&cat=all)
+&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
