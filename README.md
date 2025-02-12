@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Man, kids these days. They think it's a competition to have the most friends. One is enough. Find someone completely unique."
+> "Trying to pilot that mobile suit? You're in way over your head, Natural!"
 
-&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Miguel Aiman**](https://myanimelist.net/character.php?q=Miguel%20Aiman&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
