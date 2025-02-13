@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why not just try hard again? Quit mopping around. Stop lying to yourself and try once more."
+> "Dragons are just bigger swallows."
 
-&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Kagaku no Railgun**](https://myanimelist.net/search/all?q=Toaru%20Kagaku%20no%20Railgun&cat=all)
+&mdash; [**Assassin**](https://myanimelist.net/character.php?q=Assassin&cat=character), [**Fate Grand Order**](https://myanimelist.net/search/all?q=Fate%20Grand%20Order&cat=all)
