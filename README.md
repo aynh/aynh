@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Six innocent peasants down, hundreds of thousand more to go."
+> "My goal isn't your death. I will just torture you, make you awaken and then make you my friends!"
 
-&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
