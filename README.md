@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All the while we've been thinking you were a brilliant strategist when really, you're just a lucky fool."
+> "If you're alone... if it's just your life, you can use it however you please Wear yourself out, get cut to ribbons, doesn't matter. But when there's two, the blade grows heavy. Fighting like death doesn't concern you becomes a thing of the past. It's no longer just you. I threw away my way of life, relied on the strength of others, and somehow pushed on."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
