@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've forged my own way alone. While you were consoling and fighting with one another, I faced everything myself, head on. Now look at how strong I am."
+> "I'm just letting you know, I'm not telling you this because I want your pity! I'm just fed up with humans, that's all! They tell lie after lie, only accepting people who are the same as they are! Humans are such hypocrites!"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Rachnera Arachnera**](https://myanimelist.net/character.php?q=Rachnera%20Arachnera&cat=character), [**Monster Musume no Iru Nichijou**](https://myanimelist.net/search/all?q=Monster%20Musume%20no%20Iru%20Nichijou&cat=all)
