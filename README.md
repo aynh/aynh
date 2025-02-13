@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The result is the most important thing."
+> "It is meaningless to distinguish between the beautiful and the ugly, or between the talented and the ordinary. Every human struggles to survive."
 
-&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
