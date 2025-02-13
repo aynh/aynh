@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans believe their lives and ants lives are weighted differently. This is profound arrogance."
+> "If you turn your back on something you wanted, you don't deserve to call yourself greed!"
 
-&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
+&mdash; [**Ling Yao**](https://myanimelist.net/character.php?q=Ling%20Yao&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
