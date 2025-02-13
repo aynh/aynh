@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is meaningless to distinguish between the beautiful and the ugly, or between the talented and the ordinary. Every human struggles to survive."
+> "I know you play by higher standards, but at least give me credit for the nose."
 
-&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
