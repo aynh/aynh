@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dragons are just bigger swallows."
+> "I would no longer fight against my feelings because I realized how useless and ineffective it was to fight them."
 
-&mdash; [**Assassin**](https://myanimelist.net/character.php?q=Assassin&cat=character), [**Fate Grand Order**](https://myanimelist.net/search/all?q=Fate%20Grand%20Order&cat=all)
+&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
