@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You must live life as long as you are still strong. Never look at your life as something insignificant."
+> "Humans have the ability to actively put things to an end rather than simply accept what's in store."
 
-&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Souda Manatsu**](https://myanimelist.net/character.php?q=Souda%20Manatsu&cat=character), [**RDG: Red Data Girl**](https://myanimelist.net/search/all?q=RDG%3A%20Red%20Data%20Girl&cat=all)
