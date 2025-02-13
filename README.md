@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we understood how other people felt, then nobody would ever start wars!"
+> "Ha-ha these humans are definitely foolish creatures.  Think as hard as those weak brains of yours can manage. Do you humans ever listen to the cries of mercy coming from pigs and cows you slaughter?"
 
-&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Meruem**](https://myanimelist.net/character.php?q=Meruem&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
