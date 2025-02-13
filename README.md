@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ha-ha these humans are definitely foolish creatures.  Think as hard as those weak brains of yours can manage. Do you humans ever listen to the cries of mercy coming from pigs and cows you slaughter?"
+> "All the while we've been thinking you were a brilliant strategist when really, you're just a lucky fool."
 
-&mdash; [**Meruem**](https://myanimelist.net/character.php?q=Meruem&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
