@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Rangiku steps out of the bath naked to comfort a crying Orihime] There, there! Cry, cry, you poor thing. Drown all of your sorrows in my chest!"
+> "If you let yourself get depressed, you'd be making light of the people who trust and follow you."
 
-&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ogami Rei**](https://myanimelist.net/character.php?q=Ogami%20Rei&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
