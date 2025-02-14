@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have no fear of death. It just means dreaming in silence. A dream that lasts for eternity"
+> "Quotes were invented in Korea, you know!"
 
-&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**South Korea**](https://myanimelist.net/character.php?q=South%20Korea&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
