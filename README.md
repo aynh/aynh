@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I realized, I was already on the roof of a building. ...I had come to hate everything. I was sick of sitting in my room holding my knees too. If nobody was going to notice or care if I died then... what's the point in living?"
+> "I lost my mother when I was 8...and killed my father when I was 10. Those with the title of 'Executive' or above...are my 'family', with whom I've shared my joys and sorrows. They're the only thing I have! I won't forgive anyone that laughs at my family. Understood?"
 
-&mdash; [**Moeka Kiryū**](https://myanimelist.net/character.php?q=Moeka%20Kiry%C5%AB&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
