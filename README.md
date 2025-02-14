@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if Hell is where we're headed. You people might not have found it, but we're going to. We will find Paradise."
+> "To Grell Sutcliff: Then, it's fine if you don't be careful on your way home. Rather, I'd prefer you walk through dangerous roads with your eyes closed."
 
-&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
