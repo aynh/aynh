@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Rules make the world work. They don't protect you."
+> "Being too rigid makes you fragile. You'll end up breaking yourself and those around you."
 
-&mdash; [**Osamu Mikumo**](https://myanimelist.net/character.php?q=Osamu%20Mikumo&cat=character), [**World Trigger**](https://myanimelist.net/search/all?q=World%20Trigger&cat=all)
+&mdash; [**Yukina Himeragi**](https://myanimelist.net/character.php?q=Yukina%20Himeragi&cat=character), [**Strike the Blood**](https://myanimelist.net/search/all?q=Strike%20the%20Blood&cat=all)
