@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being too rigid makes you fragile. You'll end up breaking yourself and those around you."
+> "There’s no such thing as a person who doesn’t belong. You’re here because there’s someone who wants you to be here."
 
-&mdash; [**Yukina Himeragi**](https://myanimelist.net/character.php?q=Yukina%20Himeragi&cat=character), [**Strike the Blood**](https://myanimelist.net/search/all?q=Strike%20the%20Blood&cat=all)
+&mdash; [**Seki Kenji**](https://myanimelist.net/character.php?q=Seki%20Kenji&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
