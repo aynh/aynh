@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The death of a culture, is the death of a people."
+> "They're part of who I am. No matter how much they hurt, they're important to me."
 
-&mdash; [**Miles**](https://myanimelist.net/character.php?q=Miles&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
