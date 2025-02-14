@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Haven't you already lifted your foot, preparing to step forward? Then you only have one option! Finish taking that step!"
+> "I have no fear of death. It just means dreaming in silence. A dream that lasts for eternity"
 
-&mdash; [**Sumire Kanō**](https://myanimelist.net/character.php?q=Sumire%20Kan%C5%8D&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
