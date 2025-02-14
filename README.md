@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bury the pain of losing your loved ones... into the arms of your friends."
+> "Even if Hell is where we're headed. You people might not have found it, but we're going to. We will find Paradise."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
