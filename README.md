@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death on the battlefield comes regardless of class, royal or common. The loser must die!"
+> "The death of a culture, is the death of a people."
 
-&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Miles**](https://myanimelist.net/character.php?q=Miles&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
