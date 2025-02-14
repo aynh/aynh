@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing good can come by rejecting yourself."
+> "[Rangiku steps out of the bath naked to comfort a crying Orihime] There, there! Cry, cry, you poor thing. Drown all of your sorrows in my chest!"
 
-&mdash; [**Riki Naoe**](https://myanimelist.net/character.php?q=Riki%20Naoe&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
