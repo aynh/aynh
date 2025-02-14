@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They're part of who I am. No matter how much they hurt, they're important to me."
+> "Everyone shows their true face on death's doorstep. Even a noble-minded gentlemen will cast away his principles to beg on the ground. Even a cordial and gentle lady will start cursing with a face like a demon's. Even a frivolous and humorous man will accept death without any punchlines... That is what I believe--The instant just prior to death is when all sorts of true natures will be revealed. Using fear and suffering leading straight to death, baring naked hearts to be admired at one's leisure... This is also one of the wonders of murder."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Syamaya Saki**](https://myanimelist.net/character.php?q=Syamaya%20Saki&cat=character), [**Psycho Love Comedy**](https://myanimelist.net/search/all?q=Psycho%20Love%20Comedy&cat=all)
