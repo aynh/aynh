@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no such thing as a person who doesn’t belong. You’re here because there’s someone who wants you to be here."
+> "In romance, you tend to end up looking for someone who resembles you."
 
-&mdash; [**Seki Kenji**](https://myanimelist.net/character.php?q=Seki%20Kenji&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Koyomimonogatari**](https://myanimelist.net/search/all?q=Koyomimonogatari&cat=all)
