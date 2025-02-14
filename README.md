@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In romance, you tend to end up looking for someone who resembles you."
+> "Haven't you already lifted your foot, preparing to step forward? Then you only have one option! Finish taking that step!"
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Koyomimonogatari**](https://myanimelist.net/search/all?q=Koyomimonogatari&cat=all)
+&mdash; [**Sumire Kanō**](https://myanimelist.net/character.php?q=Sumire%20Kan%C5%8D&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
