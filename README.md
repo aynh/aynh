@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The key is to be like the leaf, flow... with the movement of the gates. Airbending is all about spiral movements. When you meet resistance, you must be able to switch directions at a moments notice."
+> "A temporary defeat is nothing if it leads to ultimate victory!"
 
-&mdash; [**Tenzin**](https://myanimelist.net/character.php?q=Tenzin&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
+&mdash; [**Stephanie Dola**](https://myanimelist.net/character.php?q=Stephanie%20Dola&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
