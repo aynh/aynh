@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone dies eventually, whether they have power or not. That's why you need to think about what you'll accomplish while you're alive."
+> "People who use others are stupid, but people who are used are even more stupid."
 
-&mdash; [**Mary Macbeth**](https://myanimelist.net/character.php?q=Mary%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Aoyagi Ritsuka**](https://myanimelist.net/character.php?q=Aoyagi%20Ritsuka&cat=character), [**Loveless**](https://myanimelist.net/search/all?q=Loveless&cat=all)
