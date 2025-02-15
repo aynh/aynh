@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether we live or die isn't a big issue. If you focus on being alive, you develop fear. Your eyes get clouded. But if you have no such feelings... you are capable of fighting right to the end of the world."
+> "Compared to the 'righteous' greed of the rulers, the criminals of the world seem much more honorable. When scum rules the world, only more scum is born."
 
-&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
+&mdash; [**Eustass Kid**](https://myanimelist.net/character.php?q=Eustass%20Kid&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
