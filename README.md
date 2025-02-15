@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I may suggest, I recommend my waking you up every morning wearing nothing but an apron. Then I can cook you breakfast. Isn't it a man's fantasy to watch that from behind?"
+> "Sakura-chan, you sure do love Sasuke, don't you?"
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
