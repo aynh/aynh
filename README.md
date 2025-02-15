@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After all.. love is all about timing. If you don't say the right thing at the right moment, no matter how much fate was involved in the relationship, everything will be ruined. Even if you regret it, it'll be too late."
+> "Don't ever forget that with each step a person is able to take on their own, they have become that much stronger."
 
-&mdash; [**Masafumi Takeuchi**](https://myanimelist.net/character.php?q=Masafumi%20Takeuchi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Tamahome**](https://myanimelist.net/character.php?q=Tamahome&cat=character), [**Fushigi Yugi**](https://myanimelist.net/search/all?q=Fushigi%20Yugi&cat=all)
