@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you notice an insect on the ground, do you stop to consider it a fool? The life of an insect is so beneath you that it would be a waste of your time to even consider judging it. That would be an accurate summation of my feelings towards you, humans."
+> "When saying good-bye to this world, our great father split his blood into four: the eldest inherited only his sense of responsibility, the second eldest inherited only his easygoing personality, the youngest inherited only his innocence, and me, well, I inherited only his idiocy.  What held us diverse brothers together was the love of our mother, deeper than the sea, and the farewell we bid our great father.  Sometimes, one profound separation can unite the ones left behind."
 
-&mdash; [**Father**](https://myanimelist.net/character.php?q=Father&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Yasaburou Shimogamo**](https://myanimelist.net/character.php?q=Yasaburou%20Shimogamo&cat=character), [**Uchouten Kazoku**](https://myanimelist.net/search/all?q=Uchouten%20Kazoku&cat=all)
