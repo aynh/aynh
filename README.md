@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When saying good-bye to this world, our great father split his blood into four: the eldest inherited only his sense of responsibility, the second eldest inherited only his easygoing personality, the youngest inherited only his innocence, and me, well, I inherited only his idiocy.  What held us diverse brothers together was the love of our mother, deeper than the sea, and the farewell we bid our great father.  Sometimes, one profound separation can unite the ones left behind."
+> "Whether we live or die isn't a big issue. If you focus on being alive, you develop fear. Your eyes get clouded. But if you have no such feelings... you are capable of fighting right to the end of the world."
 
-&mdash; [**Yasaburou Shimogamo**](https://myanimelist.net/character.php?q=Yasaburou%20Shimogamo&cat=character), [**Uchouten Kazoku**](https://myanimelist.net/search/all?q=Uchouten%20Kazoku&cat=all)
+&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
