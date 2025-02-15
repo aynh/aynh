@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will see the truth of this world... LORD OROCHIMARU WILL SHOW ME!!!"
+> "The key is to be like the leaf, flow... with the movement of the gates. Airbending is all about spiral movements. When you meet resistance, you must be able to switch directions at a moments notice."
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Tenzin**](https://myanimelist.net/character.php?q=Tenzin&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
