@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is suffering, pain, and misery."
+> "That is when I realized that in all of the world no one needed me. I was alone."
 
-&mdash; [**Nana**](https://myanimelist.net/character.php?q=Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
