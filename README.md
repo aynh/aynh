@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That is when I realized that in all of the world no one needed me. I was alone."
+> "Even if we painstakingly piece together something lost, it doesn't mean things will ever go back to how they were."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
