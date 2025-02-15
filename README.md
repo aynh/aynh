@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Compared to the 'righteous' greed of the rulers, the criminals of the world seem much more honorable. When scum rules the world, only more scum is born."
+> "We cannot direct the wind, but we can adjust the sails."
 
-&mdash; [**Eustass Kid**](https://myanimelist.net/character.php?q=Eustass%20Kid&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
