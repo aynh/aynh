@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if we painstakingly piece together something lost, it doesn't mean things will ever go back to how they were."
+> "I will see the truth of this world... LORD OROCHIMARU WILL SHOW ME!!!"
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
