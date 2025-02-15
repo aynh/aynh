@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You stinker! I took it easy on you!"
+> "When I saw you, I just wanted to find a way to protect you."
 
-&mdash; [**Blue**](https://myanimelist.net/character.php?q=Blue&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Shawn**](https://myanimelist.net/character.php?q=Shawn&cat=character), [**Karigurashi no Arrietty**](https://myanimelist.net/search/all?q=Karigurashi%20no%20Arrietty&cat=all)
