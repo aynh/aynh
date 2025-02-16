@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I didn't abduct her. It was voluntary arrest."
+> "The past is not what needs to be rectified. We learn from the past to rectify the future."
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Goyle**](https://myanimelist.net/character.php?q=Goyle&cat=character), [**Blood Lad**](https://myanimelist.net/search/all?q=Blood%20Lad&cat=all)
