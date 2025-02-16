@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans continue to live in a cycle of death and destruction. Guns can't change anything. It merely creates an infinite chain of hatred and retribution."
+> "No one's gonna save me. People just accept help selfishly, for their own sake."
 
-&mdash; [**TimeKeeper**](https://myanimelist.net/character.php?q=TimeKeeper&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
