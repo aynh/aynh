@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after the client asks Shinpachi, Kagura and Ayame to get him stronger] Well, whatever. At any rate, raise his hit points another hundred or so."
+> "It's better not to look for more meaning than there is in a name. You'll lose sight of a lot more than you notice."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
