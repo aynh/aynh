@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This blank space represents infinite potential. One day, it may become anything."
+> "There are times when you have to give up on one thing to preserve the other. Your mother couldn't. That isn't kindness. That's just being weak."
 
-&mdash; [**No Game No Life**](https://myanimelist.net/character.php?q=No%20Game%20No%20Life&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Rize Kamishiro**](https://myanimelist.net/character.php?q=Rize%20Kamishiro&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
