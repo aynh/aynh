@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mom, dad, Risa became a delinquent!"
+> "There's no advantage to hurrying through life."
 
-&mdash; [**Riku Harada**](https://myanimelist.net/character.php?q=Riku%20Harada&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
