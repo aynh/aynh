@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times when you have to give up on one thing to preserve the other. Your mother couldn't. That isn't kindness. That's just being weak."
+> "A journey of a thousand miles begins with a single step. Even though each step is small, you never know if you'll end up achieving your major goal."
 
-&mdash; [**Rize Kamishiro**](https://myanimelist.net/character.php?q=Rize%20Kamishiro&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Ensei Rou**](https://myanimelist.net/character.php?q=Ensei%20Rou&cat=character), [**The Story of Saiunkoku**](https://myanimelist.net/search/all?q=The%20Story%20of%20Saiunkoku&cat=all)
