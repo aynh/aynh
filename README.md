@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The aura of offensive smell has come to such a strong extent that you can even see it!!"
+> "I think that loving someone is utterly useless. The more you want to be loved the more it will make you miserable"
 
-&mdash; [**Misaki Ayuzawa**](https://myanimelist.net/character.php?q=Misaki%20Ayuzawa&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
