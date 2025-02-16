@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one knows what’s going to happen to the world. But I believe we have the ability to deal with that. Although we cannot change the past - we can change the future. We can change it into the world we desire."
+> "[after the client asks Shinpachi, Kagura and Ayame to get him stronger] Well, whatever. At any rate, raise his hit points another hundred or so."
 
-&mdash; [**Saji Crossroad**](https://myanimelist.net/character.php?q=Saji%20Crossroad&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
