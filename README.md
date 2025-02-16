@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's better not to look for more meaning than there is in a name. You'll lose sight of a lot more than you notice."
+> "The aura of offensive smell has come to such a strong extent that you can even see it!!"
 
-&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
+&mdash; [**Misaki Ayuzawa**](https://myanimelist.net/character.php?q=Misaki%20Ayuzawa&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
