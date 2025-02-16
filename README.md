@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Ichigo* So you're the human who got his powers from Rukia?"
+> "If you're going to hide a tree, put it in the forest."
 
-&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
