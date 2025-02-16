@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past is not what needs to be rectified. We learn from the past to rectify the future."
+> "[thinking after Soifon asks why she didn't take her with her] You've gotten stronger since the last time we were together, Soifon."
 
-&mdash; [**Goyle**](https://myanimelist.net/character.php?q=Goyle&cat=character), [**Blood Lad**](https://myanimelist.net/search/all?q=Blood%20Lad&cat=all)
+&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
