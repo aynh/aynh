@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think that loving someone is utterly useless. The more you want to be loved the more it will make you miserable"
+> "This blank space represents infinite potential. One day, it may become anything."
 
-&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
+&mdash; [**No Game No Life**](https://myanimelist.net/character.php?q=No%20Game%20No%20Life&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
