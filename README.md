@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are some things you can gain by letting some things go. Happiness isn't just what you have here and now."
+> "The souls that God has given us, our spirits. Our spirits, which found a way to swim through the immense network and live in the infinity of space. Is not the human body a mere shell? A form of existence all too small and weak for consciousness with such vast reach and potential."
 
-&mdash; [**Kunio Yaobi**](https://myanimelist.net/character.php?q=Kunio%20Yaobi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
+&mdash; [**Londes**](https://myanimelist.net/character.php?q=Londes&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
