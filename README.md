@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one's gonna save me. People just accept help selfishly, for their own sake."
+> "That makes four time. Listen. The more you say, 'I'm sorry', the lesser it's worth."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Kazuki Kazami**](https://myanimelist.net/character.php?q=Kazuki%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
