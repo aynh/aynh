@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't judge me if you don't stand in my position."
+> "Wrong or not, I'll follow my own path!"
 
-&mdash; [**Satsuki Shishio**](https://myanimelist.net/character.php?q=Satsuki%20Shishio&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Mine**](https://myanimelist.net/character.php?q=Mine&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
