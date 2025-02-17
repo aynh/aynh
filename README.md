@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's a limit to the amount of pleasure a person can obtain. But pleasure brought out by intellect is infinite."
+> "A smile is the best way to get oneself out of a tight spot, even if it is a fake one. Surprisingly enough, everyone takes it at face value."
 
-&mdash; [**Kouzaburou Touma**](https://myanimelist.net/character.php?q=Kouzaburou%20Touma&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Sai**](https://myanimelist.net/character.php?q=Sai&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
