@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's as if you are stuck in some predetermined program, following some predetermined script. If you really want to live in reality, then fight against it. Break through destiny with your own hands, and build your own reality!"
+> "Whoever invented stew is brilliant! It has milk in it and it still tastes good."
 
-&mdash; [**Sarutobi Ayame**](https://myanimelist.net/character.php?q=Sarutobi%20Ayame&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
