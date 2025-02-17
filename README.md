@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't start a fight if you can't end it."
+> "Sorry I'm late. You wouldn't believe the traffic."
 
-&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
