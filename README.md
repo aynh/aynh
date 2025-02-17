@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Know much about purgatory? It's the place between heaven and hell, where those who were left behind, unable to get into heaven continue to suffer, a place of struggle and pain. In other words, the world that we're in now."
+> "To put things simply, if your past makes your present... Then your present can and will make your future. When you think about it that way... You absolutely have the potential to be anything you want to be, don't you agree?"
 
-&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
