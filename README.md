@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Some of us don't have time to die."
+> "Know much about purgatory? It's the place between heaven and hell, where those who were left behind, unable to get into heaven continue to suffer, a place of struggle and pain. In other words, the world that we're in now."
 
-&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
