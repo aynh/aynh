@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I follow my dream and it shatters - I can accept having to regret that. But I don't want to regret not pursuing it in the first place."
+> "It increases the weight of whatever it hits, until my opponent can no longer bear the weight and falls to the ground. And then they bow their head as if in apology. That's why it's called 'Wabisuke'."
 
-&mdash; [**Akito Takagi**](https://myanimelist.net/character.php?q=Akito%20Takagi&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Kira Izuru**](https://myanimelist.net/character.php?q=Kira%20Izuru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
