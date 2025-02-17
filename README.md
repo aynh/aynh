@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry I'm late. You wouldn't believe the traffic."
+> "There's a limit to the amount of pleasure a person can obtain. But pleasure brought out by intellect is infinite."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kouzaburou Touma**](https://myanimelist.net/character.php?q=Kouzaburou%20Touma&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
