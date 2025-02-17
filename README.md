@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whoever invented stew is brilliant! It has milk in it and it still tastes good."
+> "An unreasonable situation deserves an unreasonable solution."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
