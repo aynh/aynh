@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "True beauty lies in things that last forever, never rotting or fading."
+> "No matter how much we think we want - it's never enough. I just want one thing to go right for me. I just need something to give me the energy so I can keep going."
 
-&mdash; [**Sasori**](https://myanimelist.net/character.php?q=Sasori&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Nana Komatsu**](https://myanimelist.net/character.php?q=Nana%20Komatsu&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
