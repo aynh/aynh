@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Ichigo] Try to stay alive, okay? That way, you and Kenny can play again some day!"
+> "I don't care if it's a girl, a baby or someone's grandma. I'm gonna fight her anyway."
 
-&mdash; [**Kusajishi Yachiru**](https://myanimelist.net/character.php?q=Kusajishi%20Yachiru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
