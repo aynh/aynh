@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's not possible. With your ability, you couldn't even make one of my knees touch the ground."
+> "Mayama, if you can't be with her on every festival, then you have no right to say anything."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Takumi Nomiya**](https://myanimelist.net/character.php?q=Takumi%20Nomiya&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
