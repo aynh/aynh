@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In our culture, the phenomena known as emotion is considered a mental disorder."
+> "That's not possible. With your ability, you couldn't even make one of my knees touch the ground."
 
-&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
