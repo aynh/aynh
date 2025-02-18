@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trusting someone...means relying on them and only the weak do that."
+> "Society doesn't always do what's right. That's exactly why we ourselves must live virtuous lives."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Akane Tsunemori**](https://myanimelist.net/character.php?q=Akane%20Tsunemori&cat=character), [**Psycho-Pass 2**](https://myanimelist.net/search/all?q=Psycho-Pass%202&cat=all)
