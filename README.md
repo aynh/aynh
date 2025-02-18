@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's enough, Soifon. You remind me of myself. I even think of you sometimes as my little sister."
+> "Time does not exist. Only the illusion of memories exist."
 
-&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Seiichi Kirima**](https://myanimelist.net/character.php?q=Seiichi%20Kirima&cat=character), [**Boogiepop Phantom**](https://myanimelist.net/search/all?q=Boogiepop%20Phantom&cat=all)
