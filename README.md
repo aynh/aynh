@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even when times are at their hardest, don't let it show on your face. If the captain is shaken, the team will waver."
+> "Choosing another way of life means throwing away all you've done so far and becoming a new self..."
 
-&mdash; [**Tetsuya Yūki**](https://myanimelist.net/character.php?q=Tetsuya%20Y%C5%ABki&cat=character), [**Diamond No Ace**](https://myanimelist.net/search/all?q=Diamond%20No%20Ace&cat=all)
+&mdash; [**Konan**](https://myanimelist.net/character.php?q=Konan&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
