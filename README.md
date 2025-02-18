@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to an arrogant projectile-specialist Shinigami] Apparently, on this side, 'ultimate master' means a windbag with diarrhea of the mouth."
+> "So how long will it be, then? How long before you're no longer cursed to walk the earth...?"
 
-&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
