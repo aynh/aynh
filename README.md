@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Huh? What are you doing falling into a hole? Some genius you are. Serves you right!"
+> "Do you know what the most primitive emotion people have is? It’s fear."
 
-&mdash; [**Silver**](https://myanimelist.net/character.php?q=Silver&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Nona**](https://myanimelist.net/character.php?q=Nona&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
