@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're ever lost in the darkness, follow the compass in your heart."
+> "I kept the ball in the air, it’s not your place to give up."
 
-&mdash; [**Kayo Senju**](https://myanimelist.net/character.php?q=Kayo%20Senju&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
+&mdash; [**Yuu Nishinoya**](https://myanimelist.net/character.php?q=Yuu%20Nishinoya&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
