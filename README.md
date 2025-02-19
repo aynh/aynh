@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times where we cannot stand without the support of others."
+> "*after seeing Grevil's unicorn hairstyle for the first time* I've never seen such a creative hairstyle!"
 
-&mdash; [**Kirijou Mitsuru**](https://myanimelist.net/character.php?q=Kirijou%20Mitsuru&cat=character), [**Persona 3**](https://myanimelist.net/search/all?q=Persona%203&cat=all)
+&mdash; [**Kazuya Kujō**](https://myanimelist.net/character.php?q=Kazuya%20Kuj%C5%8D&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
