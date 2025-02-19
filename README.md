@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how much we think we want - it's never enough. I just want one thing to go right for me. I just need something to give me the energy so I can keep going."
+> "Once my stomach settles down... You better be prepared, 'cause we'll really give you something to cry about in the mat... ugh... ch... uughh..."
 
-&mdash; [**Nana Komatsu**](https://myanimelist.net/character.php?q=Nana%20Komatsu&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Shōyō Hinata**](https://myanimelist.net/character.php?q=Sh%C5%8Dy%C5%8D%20Hinata&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
