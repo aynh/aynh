@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has something they like, something they have to do, or something they want to do."
+> "All this time, I seriously thought that it's better to die than to live your life alone."
 
-&mdash; [**Yutaka Hasebe**](https://myanimelist.net/character.php?q=Yutaka%20Hasebe&cat=character), [**Servant X Service**](https://myanimelist.net/search/all?q=Servant%20X%20Service&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
