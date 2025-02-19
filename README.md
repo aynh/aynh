@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who try to step over someone else and go up higher... are actually only running away from some fear that they cannot see. Trying to step over someone is an cowardly action. It means you're not confident enough to face the opponent and speak to them with the same viewpoint. It doesn't matter how much power I have in me. By using that 'power' that's taking over you. I do not want to become such a cowardly person. I will fight and get hurt in order to survive...."
+> "Dreams. Each man longs to pursue his dream. Each man is tortured by this dream, but the dream gives meaning to his life. Even if the dream ruins his life, man cannot allow himself to leave it behind. In this world, is man ever able to possess anything more solid, than a dream?"
 
-&mdash; [**Twenty-Fifth Baam**](https://myanimelist.net/character.php?q=Twenty-Fifth%20Baam&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
+&mdash; [**Berserk**](https://myanimelist.net/character.php?q=Berserk&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
