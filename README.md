@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fine then, in exchange, you can roam around looking like a cosplayer, violate weapon laws, get arrested by the police, and get interviewed on television."
+> "Your god is a fragment of your imagination from your weakness."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Twenty-Fifth Baam**](https://myanimelist.net/character.php?q=Twenty-Fifth%20Baam&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
