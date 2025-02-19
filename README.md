@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's easy for girls to take advantage of your kindness, so be careful."
+> "There are times where we cannot stand without the support of others."
 
-&mdash; [**Suruga Kanbaru**](https://myanimelist.net/character.php?q=Suruga%20Kanbaru&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Kirijou Mitsuru**](https://myanimelist.net/character.php?q=Kirijou%20Mitsuru&cat=character), [**Persona 3**](https://myanimelist.net/search/all?q=Persona%203&cat=all)
