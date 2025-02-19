@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know what the most primitive emotion people have is? It’s fear."
+> "If you're ever lost in the darkness, follow the compass in your heart."
 
-&mdash; [**Nona**](https://myanimelist.net/character.php?q=Nona&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Kayo Senju**](https://myanimelist.net/character.php?q=Kayo%20Senju&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
