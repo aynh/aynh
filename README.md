@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nice speech, Azula! It was pretty and poetic, but also scary in a good way!"
+> "Those who try to step over someone else and go up higher... are actually only running away from some fear that they cannot see. Trying to step over someone is an cowardly action. It means you're not confident enough to face the opponent and speak to them with the same viewpoint. It doesn't matter how much power I have in me. By using that 'power' that's taking over you. I do not want to become such a cowardly person. I will fight and get hurt in order to survive...."
 
-&mdash; [**Ty Lee**](https://myanimelist.net/character.php?q=Ty%20Lee&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Twenty-Fifth Baam**](https://myanimelist.net/character.php?q=Twenty-Fifth%20Baam&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
