@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your god is a fragment of your imagination from your weakness."
+> "It's easy for girls to take advantage of your kindness, so be careful."
 
-&mdash; [**Twenty-Fifth Baam**](https://myanimelist.net/character.php?q=Twenty-Fifth%20Baam&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
+&mdash; [**Suruga Kanbaru**](https://myanimelist.net/character.php?q=Suruga%20Kanbaru&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
