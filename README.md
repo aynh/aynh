@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm the smartest member in the Straw Hat group."
+> "You may come to a standstill or get irritated because things don't work out the way you want them to, but what you gain from hard work will never betray you."
 
-&mdash; [**Nami**](https://myanimelist.net/character.php?q=Nami&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Tooru Miyagishi**](https://myanimelist.net/character.php?q=Tooru%20Miyagishi&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
