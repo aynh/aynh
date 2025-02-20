@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Ichigo] Try to stay alive, okay? That way, you and Kenny can play again some day!"
+> "I'm the smartest member in the Straw Hat group."
 
-&mdash; [**Kusajishi Yachiru**](https://myanimelist.net/character.php?q=Kusajishi%20Yachiru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Nami**](https://myanimelist.net/character.php?q=Nami&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
