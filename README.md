@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A dream isn't something that someone tells you to go for. It's something you fulfill of your own will."
+> "I've lived my life as a newspaper reporter. I uncover the truth and write my articles. But then I learned, all too well, that a mere reporter like myself can't ever get to the truth in this city... it's nearly impossible. And it's unsure! No one here is even interested in learning the truth - a truth that must be known. But I want to know! I want to learn what must be known!"
 
-&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Michael Seebach**](https://myanimelist.net/character.php?q=Michael%20Seebach&cat=character), [**The Big O**](https://myanimelist.net/search/all?q=The%20Big%20O&cat=all)
