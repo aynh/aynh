@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Relying on someone else without exerting any effort of your own is just not right. Because the one you rely on most, can disappear, at any time."
+> "If I fail to make my every-minute reports, a gang of 5,000 brutes will attack your whole family."
 
-&mdash; [**Jodie Starling**](https://myanimelist.net/character.php?q=Jodie%20Starling&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
