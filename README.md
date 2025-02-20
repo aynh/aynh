@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A wounded heart needs time to heal."
+> "A bratty little midget."
 
-&mdash; [**Hibiki Kuze**](https://myanimelist.net/character.php?q=Hibiki%20Kuze&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
