@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't get to choose who you fall for. The heart doesn't always work the way you want it to. You should just follow your feelings honestly. You'll be happier that way."
+> "Zuko's gone crazy! I made a sand sculpture of Suki and he destroyed it! ... Oh, and he's attacking Aang."
 
-&mdash; [**Ayumi Sanda**](https://myanimelist.net/character.php?q=Ayumi%20Sanda&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
