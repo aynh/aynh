@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Normally, as people love and are loved, they feel happiness. When I am hated by people, that is when I feel happiness. And then I want to tear apart and inflict unimaginable harm to the things I love. But is that really all that strange, I wonder?"
+> "*To himself, while fighting Temari* Oh man... those clouds are so lucky. so free. More to the point, I didn't feel like doing this in the first place. And I only became a ninja because I thought life would've been more interesting as one... I suppose things aren't gonna be that simple."
 
-&mdash; [**Pariston Hill**](https://myanimelist.net/character.php?q=Pariston%20Hill&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
