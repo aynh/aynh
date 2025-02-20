@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I laugh at gravity all the time. Hahaha, gravity..."
+> "A dream isn't something that someone tells you to go for. It's something you fulfill of your own will."
 
-&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
