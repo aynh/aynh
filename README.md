@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I fail to make my every-minute reports, a gang of 5,000 brutes will attack your whole family."
+> "*to Edward* So, you hooked up with your mechanic, huh? Not too shabby, sprout."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
