@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What exactly is the end? The end. The end. The end. I've seen the end over and over. What is the end?"
+> "Simple: girls are better at fixing pants than guys, and guys are better at hunting and fighting and stuff like that. It's just the natural order of things."
 
-&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
