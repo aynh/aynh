@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Zuko's gone crazy! I made a sand sculpture of Suki and he destroyed it! ... Oh, and he's attacking Aang."
+> "What exactly is the end? The end. The end. The end. I've seen the end over and over. What is the end?"
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
