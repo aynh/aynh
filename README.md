@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You may come to a standstill or get irritated because things don't work out the way you want them to, but what you gain from hard work will never betray you."
+> "Because it has powers that surpass everything, a king must cut off his own desires and never use it."
 
-&mdash; [**Tooru Miyagishi**](https://myanimelist.net/character.php?q=Tooru%20Miyagishi&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
+&mdash; [**Durandal Tobari Kumohira**](https://myanimelist.net/character.php?q=Durandal%20Tobari%20Kumohira&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
