@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To himself, while fighting Temari* Oh man... those clouds are so lucky. so free. More to the point, I didn't feel like doing this in the first place. And I only became a ninja because I thought life would've been more interesting as one... I suppose things aren't gonna be that simple."
+> "Relying on someone else without exerting any effort of your own is just not right. Because the one you rely on most, can disappear, at any time."
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Jodie Starling**](https://myanimelist.net/character.php?q=Jodie%20Starling&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
