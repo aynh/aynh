@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Say, how about we put an end to all of this? The two of us could become Witches and destroy everything! Everything in this world that has ever made us hate, everything that has ever made us cry, will turn to ashes until nothing is left, like it was all just a bad dream! We'd have no worries! Isn't that nice?"
+> "Normally, as people love and are loved, they feel happiness. When I am hated by people, that is when I feel happiness. And then I want to tear apart and inflict unimaginable harm to the things I love. But is that really all that strange, I wonder?"
 
-&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Pariston Hill**](https://myanimelist.net/character.php?q=Pariston%20Hill&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
