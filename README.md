@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don’t win alone. That’s just how it is."
+> "Only a man brave enough to ride into battle at my side could ever be my Master. A coward lacking the courage to even show himself is nowhere close to being worthy!"
 
-&mdash; [**Tobio Kageyama**](https://myanimelist.net/character.php?q=Tobio%20Kageyama&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
