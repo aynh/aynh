@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're gonna send people after me, bring on the strongest you have."
+> "Life comes at a cost. Wouldn’t it be arrogant to die before you’ve repaid that debt?"
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
