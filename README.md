@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if he hates me, being able to die with the knowledge that the one I love will never forget me… there is no greater happiness a woman could desire."
+> "Don't use such strong words -- It makes your weakness all the more apparent."
 
-&mdash; [**Hakaze Kusaribe**](https://myanimelist.net/character.php?q=Hakaze%20Kusaribe&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
