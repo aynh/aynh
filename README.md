@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't use such strong words -- It makes your weakness all the more apparent."
+> "Even if it doesn't pay off or you're laughed at, go down the path that you believe is right."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Makoto Hijikata**](https://myanimelist.net/character.php?q=Makoto%20Hijikata&cat=character), [**Psychic Detective Yakumo**](https://myanimelist.net/search/all?q=Psychic%20Detective%20Yakumo&cat=all)
