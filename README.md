@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll always be by your side, just like the wind that flows through your hair."
+> "I'm the one who's in the wrong, so if you really want to break someone's nose, break mine."
 
-&mdash; [**Kazuma Yagami**](https://myanimelist.net/character.php?q=Kazuma%20Yagami&cat=character), [**Kaze no Stigma**](https://myanimelist.net/search/all?q=Kaze%20no%20Stigma&cat=all)
+&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
