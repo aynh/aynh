@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've lived my life as a newspaper reporter. I uncover the truth and write my articles. But then I learned, all too well, that a mere reporter like myself can't ever get to the truth in this city... it's nearly impossible. And it's unsure! No one here is even interested in learning the truth - a truth that must be known. But I want to know! I want to learn what must be known!"
+> "Let go of me. It'll all be in vain anyway. No matter how gently you hold onto me. No matter what kind of expression you look at me with. In the end, you guys are... only my imagination. I have a slight addiction to fantasy. I sometimes mix the reality that I don't want to face with warm illusions. That's why I can think of 'that' as one of those moments."
 
-&mdash; [**Michael Seebach**](https://myanimelist.net/character.php?q=Michael%20Seebach&cat=character), [**The Big O**](https://myanimelist.net/search/all?q=The%20Big%20O&cat=all)
+&mdash; [**Kuro Fukase**](https://myanimelist.net/character.php?q=Kuro%20Fukase&cat=character), [**ib: Instant Bullet**](https://myanimelist.net/search/all?q=ib%3A%20Instant%20Bullet&cat=all)
