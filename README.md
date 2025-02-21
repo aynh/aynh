@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't know what you're trying to pull, but I'm not into this kinky stuff, and you're WAY too old!"
+> "No matter what lies you tell, you can't fool your own heart."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Meliodas**](https://myanimelist.net/character.php?q=Meliodas&cat=character), [**Nanatsu no Taizai**](https://myanimelist.net/search/all?q=Nanatsu%20no%20Taizai&cat=all)
