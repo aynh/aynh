@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is the first time in my life that I've been provoked to hit a woman."
+> "Women tend to kill when it's not necessary. They kill for reasons of passion. For trivial reasons like love and hate."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Lieutenant Colonel Yuuki**](https://myanimelist.net/character.php?q=Lieutenant%20Colonel%20Yuuki&cat=character), [**Joker Game**](https://myanimelist.net/search/all?q=Joker%20Game&cat=all)
