@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stellar Spirits are not 'Shields'."
+> "The world is not meant just to be looked at, it’s important to get the feel of things. Don’t be captivated just by what’s in front of you and neglect the rest. Free your mind from evil and accept everything as it is. This is what we call enlightenment."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Priest**](https://myanimelist.net/character.php?q=Priest&cat=character), [**Kekkaishi**](https://myanimelist.net/search/all?q=Kekkaishi&cat=all)
