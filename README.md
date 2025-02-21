@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what lies you tell, you can't fool your own heart."
+> "I'll always be by your side, just like the wind that flows through your hair."
 
-&mdash; [**Meliodas**](https://myanimelist.net/character.php?q=Meliodas&cat=character), [**Nanatsu no Taizai**](https://myanimelist.net/search/all?q=Nanatsu%20no%20Taizai&cat=all)
+&mdash; [**Kazuma Yagami**](https://myanimelist.net/character.php?q=Kazuma%20Yagami&cat=character), [**Kaze no Stigma**](https://myanimelist.net/search/all?q=Kaze%20no%20Stigma&cat=all)
