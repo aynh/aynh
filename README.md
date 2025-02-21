@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Women tend to kill when it's not necessary. They kill for reasons of passion. For trivial reasons like love and hate."
+> "Aah... I said I'd 'answer you' ... Not that I'd 'give you a straight answer'."
 
-&mdash; [**Lieutenant Colonel Yuuki**](https://myanimelist.net/character.php?q=Lieutenant%20Colonel%20Yuuki&cat=character), [**Joker Game**](https://myanimelist.net/search/all?q=Joker%20Game&cat=all)
+&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
