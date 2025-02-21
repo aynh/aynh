@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only a man brave enough to ride into battle at my side could ever be my Master. A coward lacking the courage to even show himself is nowhere close to being worthy!"
+> "If you're gonna send people after me, bring on the strongest you have."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
