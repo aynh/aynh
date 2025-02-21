@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let go of me. It'll all be in vain anyway. No matter how gently you hold onto me. No matter what kind of expression you look at me with. In the end, you guys are... only my imagination. I have a slight addiction to fantasy. I sometimes mix the reality that I don't want to face with warm illusions. That's why I can think of 'that' as one of those moments."
+> "This is the first time in my life that I've been provoked to hit a woman."
 
-&mdash; [**Kuro Fukase**](https://myanimelist.net/character.php?q=Kuro%20Fukase&cat=character), [**ib: Instant Bullet**](https://myanimelist.net/search/all?q=ib%3A%20Instant%20Bullet&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
