@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Manipulating the pieces according to your strategy... That is what defines a King."
+> "*referring to Orochimaru* I am not his pawn..! He is the one, the only one who ever gave my life meaning!! But how could the likes of you EVER UNDERSTAND THAT?!?"
 
-&mdash; [**Minerva Orland**](https://myanimelist.net/character.php?q=Minerva%20Orland&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
