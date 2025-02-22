@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He feared sleep. He'd say that his soul would slip down into nothing. They say that man never dreamt after the day he cut his pillow."
+> "It's interesting, isn't it? The way that when someone expresses something, someone else always shows up to interpret it."
 
-&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
