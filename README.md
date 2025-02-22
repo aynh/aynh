@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your happiness is your own business. Its a promise you make to yourself. It is a reward you give yourself for accomplishing what you set out to do, for achieving what you strive for. But if you fail to reward yourself for what you have accomplished, then you are essentially breaking a promise to yourself. Its like a breach of contract, compensation must always be made. You must pay all of the debts that you made, even to yourself."
+> "You took my teacher, and now I let you take my friend. What the hell do you want from me?"
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
