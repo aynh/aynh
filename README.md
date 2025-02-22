@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Does losing prove that you are weak? Isn't losing difficult for all of you? A challenge where, after ending up on your hands and knees, you must see if you can stand up again? If you stay on your hands and knees, that proves that you are weak."
+> "Any man who has the brains to think and the nerve to act for the benefit of the people of the country, is considered a radical, by those who are content with stagnation and willing to endure disaster."
 
-&mdash; [**Ittetsu Takeda**](https://myanimelist.net/character.php?q=Ittetsu%20Takeda&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
