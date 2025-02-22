@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there is such a thing like happiness in this world, it should resemble the endless nothingness. Nihility is having nothing and having nothing to lose. If that isn't happiness... then what is?"
+> "Manipulating the pieces according to your strategy... That is what defines a King."
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Minerva Orland**](https://myanimelist.net/character.php?q=Minerva%20Orland&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
