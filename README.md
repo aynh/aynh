@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If today is the worst day ever - tomorrow has to be better."
+> "Once the thread of fate is tangled, it cannot be undone."
 
-&mdash; [**Ikusaba Marco**](https://myanimelist.net/character.php?q=Ikusaba%20Marco&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
