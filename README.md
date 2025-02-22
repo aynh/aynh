@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Temari* It really doesn't matter to me if I ever become a chūnin or not, but I guess I shouldn't let myself be beaten by a female, so let's do it."
+> "The one hundred years we were apart were meant to bring me power and make you weak! Yoruichi!"
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
