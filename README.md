@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether we live or die isn't a big issue. If you focus on being alive, you develop fear. Your eyes get clouded. But if you have no such feelings... you are capable of fighting right to the end of the world."
+> "Wealth is a nightmare. With each coveted thing we buy, we lose a thing we dream about."
 
-&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
+&mdash; [**Francis Scott Key Fitzgerald**](https://myanimelist.net/character.php?q=Francis%20Scott%20Key%20Fitzgerald&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
