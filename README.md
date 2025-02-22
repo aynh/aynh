@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Wealth is a nightmare. With each coveted thing we buy, we lose a thing we dream about."
+> "People who grow up in different environments will invariably have different tastes and preferences. Therefore, could one say that the subsequent marriages necessarily lead to happiness?"
 
-&mdash; [**Francis Scott Key Fitzgerald**](https://myanimelist.net/character.php?q=Francis%20Scott%20Key%20Fitzgerald&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
