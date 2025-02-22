@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's interesting, isn't it? The way that when someone expresses something, someone else always shows up to interpret it."
+> "No matter what may happen... As long as you walk by my side... There shall be no enemy that can stand before us."
 
-&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
