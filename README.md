@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’m scared of hot and cold. In winter, I hide under the heating table and in summer, I lie in bed and do nothing."
+> "Your happiness is your own business. Its a promise you make to yourself. It is a reward you give yourself for accomplishing what you set out to do, for achieving what you strive for. But if you fail to reward yourself for what you have accomplished, then you are essentially breaking a promise to yourself. Its like a breach of contract, compensation must always be made. You must pay all of the debts that you made, even to yourself."
 
-&mdash; [**Yui Hirasawa**](https://myanimelist.net/character.php?q=Yui%20Hirasawa&cat=character), [**K-ON!**](https://myanimelist.net/search/all?q=K-ON!&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
