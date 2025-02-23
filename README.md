@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm still a man too, I wanted to look calm and composed in front of everyone. Especially in front of the one I'm in love with."
+> "Unnecessary thoughts will only interfere with your plays."
 
-&mdash; [**Ooga Kazuomi**](https://myanimelist.net/character.php?q=Ooga%20Kazuomi&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Gouenji Shuuya**](https://myanimelist.net/character.php?q=Gouenji%20Shuuya&cat=character), [**Inazuma Eleven**](https://myanimelist.net/search/all?q=Inazuma%20Eleven&cat=all)
