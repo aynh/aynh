@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In all things, I think having a dream requires having the resolve to struggle with reality."
+> "[to Toboe] I wanted to take you to paradise."
 
-&mdash; [**Juui**](https://myanimelist.net/character.php?q=Juui&cat=character), [**Silver Spoon**](https://myanimelist.net/search/all?q=Silver%20Spoon&cat=all)
+&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
