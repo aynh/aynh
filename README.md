@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unnecessary thoughts will only interfere with your plays."
+> "The prince's ice cream - it's an indirect kiss!"
 
-&mdash; [**Gouenji Shuuya**](https://myanimelist.net/character.php?q=Gouenji%20Shuuya&cat=character), [**Inazuma Eleven**](https://myanimelist.net/search/all?q=Inazuma%20Eleven&cat=all)
+&mdash; [**Su**](https://myanimelist.net/character.php?q=Su&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
