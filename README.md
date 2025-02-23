@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What could that creep possibly be thinking sending sexy underwear to his own daughter."
+> "I'm surrounded by idiots."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Integra Hellsing**](https://myanimelist.net/character.php?q=Integra%20Hellsing&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
