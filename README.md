@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We have no need for the past. All we need are the present and the future."
+> "Let me ask you the reverse. How is it that you can give up so easily? [exaggerated sigh] I can't understand that…attitude! “It's bad luck! I have no choice!” People who passively accept their fate…because no one knows their future, least of all me, so I don't dare put things off. I have to do what I can, while I can still do it, so…I'll be kicking and screaming, 'til the very end."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Rosette Christopher**](https://myanimelist.net/character.php?q=Rosette%20Christopher&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
