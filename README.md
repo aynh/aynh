@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can kill anything that exists - even if it's a god."
+> "When a man bleeds freely for the sake of other people, it's only proper to pretend that you never saw it."
 
-&mdash; [**Ryougi Shiki**](https://myanimelist.net/character.php?q=Ryougi%20Shiki&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Gen Takekura**](https://myanimelist.net/character.php?q=Gen%20Takekura&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
