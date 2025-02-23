@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't believe in destiny. I always thought that it was nothing more than an overlap of coincidences. But if a meeting changes from chance to inevitable, that's what we call destiny."
+> "In all things, I think having a dream requires having the resolve to struggle with reality."
 
-&mdash; [**You Miyagi**](https://myanimelist.net/character.php?q=You%20Miyagi&cat=character), [**Junjō Romantica**](https://myanimelist.net/search/all?q=Junj%C5%8D%20Romantica&cat=all)
+&mdash; [**Juui**](https://myanimelist.net/character.php?q=Juui&cat=character), [**Silver Spoon**](https://myanimelist.net/search/all?q=Silver%20Spoon&cat=all)
