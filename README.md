@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you said that you hate yourself, it made me want to tell you all the wonderful things I know about you."
+> "I don't believe in destiny. I always thought that it was nothing more than an overlap of coincidences. But if a meeting changes from chance to inevitable, that's what we call destiny."
 
-&mdash; [**Rem (re:zero)**](https://myanimelist.net/character.php?q=Rem%20(re%3Azero)&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
+&mdash; [**You Miyagi**](https://myanimelist.net/character.php?q=You%20Miyagi&cat=character), [**Junjō Romantica**](https://myanimelist.net/search/all?q=Junj%C5%8D%20Romantica&cat=all)
