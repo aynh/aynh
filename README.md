@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The prince's ice cream - it's an indirect kiss!"
+> "No matter how big the place is, we'll eventually reach the edge if we keep moving forward!"
 
-&mdash; [**Su**](https://myanimelist.net/character.php?q=Su&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
