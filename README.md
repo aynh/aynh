@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter where you are, you have to have the energy to keep on doing the things that you like until the final moment."
+> "Forget what hurt you in the past, but never forget what it taught you."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
