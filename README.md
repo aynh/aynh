@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When a man bleeds freely for the sake of other people, it's only proper to pretend that you never saw it."
+> "I'm still a man too, I wanted to look calm and composed in front of everyone. Especially in front of the one I'm in love with."
 
-&mdash; [**Gen Takekura**](https://myanimelist.net/character.php?q=Gen%20Takekura&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
+&mdash; [**Ooga Kazuomi**](https://myanimelist.net/character.php?q=Ooga%20Kazuomi&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
