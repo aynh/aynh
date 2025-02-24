@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why torment yourself saying, 'Eventually, someday?' How long have you been fighting with your thoughts clouded by that brand of sweet poison?"
+> "It's not that I'm on the side of humans. I just really don't like you guys."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Yuuki Natsuno**](https://myanimelist.net/character.php?q=Yuuki%20Natsuno&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
