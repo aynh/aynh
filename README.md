@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just because of your angry, childish actions, do you know how many will suffer from it? Don't you go thinking that lives are not connected, you idiotic brat!"
+> "It's not justice if you don't go overboard."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Myouri Unzen**](https://myanimelist.net/character.php?q=Myouri%20Unzen&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
