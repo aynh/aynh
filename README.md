@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is beautiful. Even if you're full of tears and sadness, open your eyes. Do what you want to do. Be what you want to be. Find friends. Don't be in a hurry to grow up. Take your time."
+> "There are things I don't want to forget... Memories of time spent with friends. Memories of time spent with her alone. Memories are important. But there's something even more important... That's to continue making memories."
 
-&mdash; [**CLANNAD**](https://myanimelist.net/character.php?q=CLANNAD&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Yūki Hase**](https://myanimelist.net/character.php?q=Y%C5%ABki%20Hase&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
