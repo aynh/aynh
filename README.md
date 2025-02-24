@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Welcome home. Thank you for your great efforts."
+> "Why torment yourself saying, 'Eventually, someday?' How long have you been fighting with your thoughts clouded by that brand of sweet poison?"
 
-&mdash; [**Komui Lee**](https://myanimelist.net/character.php?q=Komui%20Lee&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
