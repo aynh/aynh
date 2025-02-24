@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A poor choice seals our fate."
+> "Was he the kind of master who would leave you behind? If you decided in your hearts to serve him, then believe in your master."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Hiiragi**](https://myanimelist.net/character.php?q=Hiiragi&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
