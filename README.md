@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who seek out the truth must not be arrogant. You must not laugh at miracles just because they cannot be explained scientifically. You must not turn away from the beauty of this world."
+> "My goal isn't your death. I will just torture you, make you awaken and then make you my friends!"
 
-&mdash; [**Ichinose Kotomi**](https://myanimelist.net/character.php?q=Ichinose%20Kotomi&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
