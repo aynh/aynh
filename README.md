@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why do I always do this? I fall in love with someone, then I get all these and then I feel brokenhearted. And It's always my fault."
+> "Those who win are not strong. It is those who lose and crawl back up who are strong."
 
-&mdash; [**Shōta Kisa**](https://myanimelist.net/character.php?q=Sh%C5%8Dta%20Kisa&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
