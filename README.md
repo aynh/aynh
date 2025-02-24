@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Live on and endure the shadows! There is no light for those who do not know darkness."
+> "Why do I always do this? I fall in love with someone, then I get all these and then I feel brokenhearted. And It's always my fault."
 
-&mdash; [**Takuan Sōhō**](https://myanimelist.net/character.php?q=Takuan%20S%C5%8Dh%C5%8D&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
+&mdash; [**Shōta Kisa**](https://myanimelist.net/character.php?q=Sh%C5%8Dta%20Kisa&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
