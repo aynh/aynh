@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I fight to get what I need, and I kill whoever gets in my way. I always have."
+> "Those who seek out the truth must not be arrogant. You must not laugh at miracles just because they cannot be explained scientifically. You must not turn away from the beauty of this world."
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Ichinose Kotomi**](https://myanimelist.net/character.php?q=Ichinose%20Kotomi&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
