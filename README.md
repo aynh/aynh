@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being kind to everyone, simply means there's no one special."
+> "Welcome home. Thank you for your great efforts."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Komui Lee**](https://myanimelist.net/character.php?q=Komui%20Lee&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
