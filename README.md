@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What you need are feelings and experiences. The feelings of the person seeking the rain must be in concert with those of the person making it."
+> "Family is the society that you came into contact with first; The people who influence you first. But if that first society banishes you, there will be another society that accepts you."
 
-&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Reisi Munakata**](https://myanimelist.net/character.php?q=Reisi%20Munakata&cat=character), [**Project K: Days Of Blue**](https://myanimelist.net/search/all?q=Project%20K%3A%20Days%20Of%20Blue&cat=all)
