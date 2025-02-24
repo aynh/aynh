@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not that I'm on the side of humans. I just really don't like you guys."
+> "The president did say please."
 
-&mdash; [**Yuuki Natsuno**](https://myanimelist.net/character.php?q=Yuuki%20Natsuno&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
