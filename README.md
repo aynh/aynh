@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not about wanting to do something that you can do, it's about what you do. It's not about wanting to become someone, it's about who you want to become."
+> "Trying to pilot that mobile suit? You're in way over your head, Natural!"
 
-&mdash; [**Licht Jekylland Todoroki**](https://myanimelist.net/character.php?q=Licht%20Jekylland%20Todoroki&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
+&mdash; [**Miguel Aiman**](https://myanimelist.net/character.php?q=Miguel%20Aiman&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
