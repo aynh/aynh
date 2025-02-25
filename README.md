@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't wanna live a thousand years. If I just live through today, that'll be enough."
+> "People can have lovers. They can have friends. They can be together. But when you think about it, you'll see that originally, we're alone."
 
-&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Nana Osaki**](https://myanimelist.net/character.php?q=Nana%20Osaki&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
