@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once the kiln is opened and the pottery inspected, all that are crooked or bear cracks are fated to be smashed. If all that awaited us was the fate of smashed pottery, then we decided we would rather run away in the hopes of finding a different future."
+> "I don't wanna live a thousand years. If I just live through today, that'll be enough."
 
-&mdash; [**Maria Akitsuki**](https://myanimelist.net/character.php?q=Maria%20Akitsuki&cat=character), [**Shinsekai Yori**](https://myanimelist.net/search/all?q=Shinsekai%20Yori&cat=all)
+&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
