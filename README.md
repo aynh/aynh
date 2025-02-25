@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A problem is not a problem as long as nobody sees it as one."
+> "Once the kiln is opened and the pottery inspected, all that are crooked or bear cracks are fated to be smashed. If all that awaited us was the fate of smashed pottery, then we decided we would rather run away in the hopes of finding a different future."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Maria Akitsuki**](https://myanimelist.net/character.php?q=Maria%20Akitsuki&cat=character), [**Shinsekai Yori**](https://myanimelist.net/search/all?q=Shinsekai%20Yori&cat=all)
