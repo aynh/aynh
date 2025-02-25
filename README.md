@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you're in the darkness, you only sink deeper into it. Keep the light shining."
+> "I'm scared. Or should I borrow your words and say this is exciting?"
 
-&mdash; [**Kenzo Tenma**](https://myanimelist.net/character.php?q=Kenzo%20Tenma&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Waver Velvet**](https://myanimelist.net/character.php?q=Waver%20Velvet&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
