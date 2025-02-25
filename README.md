@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regret is a different beast when you live for centuries."
+> "I'm in the mood for loooooove! *Hot nurse walks in.* I'm in the mood for seeeeeeeeex!"
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Carrot Glace**](https://myanimelist.net/character.php?q=Carrot%20Glace&cat=character), [**Bakuretsu Hunters**](https://myanimelist.net/search/all?q=Bakuretsu%20Hunters&cat=all)
