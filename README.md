@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People can have lovers. They can have friends. They can be together. But when you think about it, you'll see that originally, we're alone."
+> "Loyalty is only given meaning through one's actions."
 
-&mdash; [**Nana Osaki**](https://myanimelist.net/character.php?q=Nana%20Osaki&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Futayo Honda**](https://myanimelist.net/character.php?q=Futayo%20Honda&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
