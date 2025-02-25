@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm scared. Or should I borrow your words and say this is exciting?"
+> "Regret is a different beast when you live for centuries."
 
-&mdash; [**Waver Velvet**](https://myanimelist.net/character.php?q=Waver%20Velvet&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
