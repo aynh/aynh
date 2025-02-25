@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Most non-NEET people in the world don't realize that human nature isn't scalar, but vectorial."
+> "I have no desire to kill you. In fact, you're not worth killing. Killing you, would only tarnish my blade."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Jin**](https://myanimelist.net/character.php?q=Jin&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
