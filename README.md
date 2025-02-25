@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm in the mood for loooooove! *Hot nurse walks in.* I'm in the mood for seeeeeeeeex!"
+> "I'll keep my promise, I'll save the world."
 
-&mdash; [**Carrot Glace**](https://myanimelist.net/character.php?q=Carrot%20Glace&cat=character), [**Bakuretsu Hunters**](https://myanimelist.net/search/all?q=Bakuretsu%20Hunters&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
