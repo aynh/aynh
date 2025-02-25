@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Loyalty is only given meaning through one's actions."
+> "Doing what one likes is the right of the powerful."
 
-&mdash; [**Futayo Honda**](https://myanimelist.net/character.php?q=Futayo%20Honda&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
+&mdash; [**Yakumo Oomori**](https://myanimelist.net/character.php?q=Yakumo%20Oomori&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
