@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we give our best in something we love, we'll enjoy the victories from the bottom of our hearts."
+> "When you're in the darkness, you only sink deeper into it. Keep the light shining."
 
-&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Kenzo Tenma**](https://myanimelist.net/character.php?q=Kenzo%20Tenma&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
