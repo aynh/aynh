@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The harder you try to see the good in people the easier it is to fake you out."
+> "If we give our best in something we love, we'll enjoy the victories from the bottom of our hearts."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!×2 Ten**](https://myanimelist.net/search/all?q=Durarara!!%C3%972%20Ten&cat=all)
+&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
