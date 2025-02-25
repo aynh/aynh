@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have no desire to kill you. In fact, you're not worth killing. Killing you, would only tarnish my blade."
+> "It is a tasteless life if you don't have something you regret."
 
-&mdash; [**Jin**](https://myanimelist.net/character.php?q=Jin&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Inu X Boku SS**](https://myanimelist.net/character.php?q=Inu%20X%20Boku%20SS&cat=character), [**Inu X Boku SS**](https://myanimelist.net/search/all?q=Inu%20X%20Boku%20SS&cat=all)
