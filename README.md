@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't have to worry about being special or normal compared to everyone else! It doesn't matter who it is. So as long as they think you're special, then you're special."
+> "The harder you try to see the good in people the easier it is to fake you out."
 
-&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!×2 Ten**](https://myanimelist.net/search/all?q=Durarara!!%C3%972%20Ten&cat=all)
