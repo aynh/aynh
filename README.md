@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let those who seek death find it."
+> "I'm just letting you know, I'm not telling you this because I want your pity! I'm just fed up with humans, that's all! They tell lie after lie, only accepting people who are the same as they are! Humans are such hypocrites!"
 
-&mdash; [**Father Willibald**](https://myanimelist.net/character.php?q=Father%20Willibald&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Rachnera Arachnera**](https://myanimelist.net/character.php?q=Rachnera%20Arachnera&cat=character), [**Monster Musume no Iru Nichijou**](https://myanimelist.net/search/all?q=Monster%20Musume%20no%20Iru%20Nichijou&cat=all)
