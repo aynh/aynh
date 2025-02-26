@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Run-chan was chasing a butterfly and was about to get hit by a car..."
+> "* The Zone * In this state of extreme focus, all unnecessary thoughts disappear and the athlete becomes absorbed in his play. Only those who have practiced and practiced earn the right to stand before the door, and it only opens unpredictably. It is the ultimate domain, open only to the chosen."
 
-&mdash; [**Ichii Tooru**](https://myanimelist.net/character.php?q=Ichii%20Tooru&cat=character), [**A Channel**](https://myanimelist.net/search/all?q=A%20Channel&cat=all)
+&mdash; [**Kuroko No Basket**](https://myanimelist.net/character.php?q=Kuroko%20No%20Basket&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
