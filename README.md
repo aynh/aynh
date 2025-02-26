@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "* The Zone * In this state of extreme focus, all unnecessary thoughts disappear and the athlete becomes absorbed in his play. Only those who have practiced and practiced earn the right to stand before the door, and it only opens unpredictably. It is the ultimate domain, open only to the chosen."
+> "I love clichés, I love predictable scripts, I love it when they paste over problems and I love it when they force a happy ending too. What's wrong with working towards that?"
 
-&mdash; [**Kuroko No Basket**](https://myanimelist.net/character.php?q=Kuroko%20No%20Basket&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Ryuugamine Mikado**](https://myanimelist.net/character.php?q=Ryuugamine%20Mikado&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
