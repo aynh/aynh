@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The whale leaps. As high as he can imagine. Piercing the water from peak to peak. Is a yearning for the sky reflected in his eyes? What if this high point wasn't merely the sky, but something far higher? If he knew of the infinite glitter of the stars, would his dreams soar even higher? Even if one doesn't know why, to live is to constantly reach out. Not to a nervous restlessness, but to a constant motion of the heart."
+> "Humans love hurting others when they can´t be hurt themselves. Like killing animals, or flaming people online. And if the target makes a mistake, it fans the flames even more, and the bully gets even more fun out of it."
 
-&mdash; [**Nino**](https://myanimelist.net/character.php?q=Nino&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
+&mdash; [**Yozora Mikazuki**](https://myanimelist.net/character.php?q=Yozora%20Mikazuki&cat=character), [**Boku wa Tomodachi ga Sukunai**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai&cat=all)
