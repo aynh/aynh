@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Laziness is the mother of all bad habits. But ultimately she is a mother and we should respect her."
+> "Sometimes, we have to look beyond what we want and do what's best."
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
