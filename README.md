@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I love clichés, I love predictable scripts, I love it when they paste over problems and I love it when they force a happy ending too. What's wrong with working towards that?"
+> "All I ever did was pay attention to myself. And I'm not even sure I saw myself clearly."
 
-&mdash; [**Ryuugamine Mikado**](https://myanimelist.net/character.php?q=Ryuugamine%20Mikado&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Luke Fon Fabre**](https://myanimelist.net/character.php?q=Luke%20Fon%20Fabre&cat=character), [**Tales of the Abyss**](https://myanimelist.net/search/all?q=Tales%20of%20the%20Abyss&cat=all)
