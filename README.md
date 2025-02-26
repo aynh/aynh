@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The death of a culture, is the death of a people."
+> "I know you're not supposed to cry over spilled tea, but (sniffs) it's just so sad!"
 
-&mdash; [**Miles**](https://myanimelist.net/character.php?q=Miles&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
