@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We should work towards world peace. Like giving everyone in the world an Upa cushion..."
+> "A heaven that only watches has no meaning."
 
-&mdash; [**Mayuri Shiina**](https://myanimelist.net/character.php?q=Mayuri%20Shiina&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Su-won**](https://myanimelist.net/character.php?q=Su-won&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
