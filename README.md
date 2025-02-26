@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're not supposed to find yourself, you're supposed to choose yourself!"
+> "The gush from my fountain of wisdom told me."
 
-&mdash; [**Grizzly-san**](https://myanimelist.net/character.php?q=Grizzly-san&cat=character), [**Polar Bear's Café**](https://myanimelist.net/search/all?q=Polar%20Bear's%20Caf%C3%A9&cat=all)
+&mdash; [**Victorique de Blois**](https://myanimelist.net/character.php?q=Victorique%20de%20Blois&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
