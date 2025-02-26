@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Chizuru, you shouldn't be laughing too much. It was just a youthful indiscretion. Don't treat someone's first love like a mistake!"
+> "Being kind to everyone, simply means there's no one special."
 
-&mdash; [**Kaname Tsukahara**](https://myanimelist.net/character.php?q=Kaname%20Tsukahara&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
