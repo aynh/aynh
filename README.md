@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how crazy it may be, or how dangerous it may be, even if it's something personal, it doesn't matter! Anything that you're worried about, I'll worry right along with you and think of a solution! Just like you did for me all those times!"
+> "You're not supposed to find yourself, you're supposed to choose yourself!"
 
-&mdash; [**Alibaba Saluja**](https://myanimelist.net/character.php?q=Alibaba%20Saluja&cat=character), [**Magi - The Kingdom of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Kingdom%20of%20Magic&cat=all)
+&mdash; [**Grizzly-san**](https://myanimelist.net/character.php?q=Grizzly-san&cat=character), [**Polar Bear's Café**](https://myanimelist.net/search/all?q=Polar%20Bear's%20Caf%C3%A9&cat=all)
