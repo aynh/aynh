@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not that you don't know how to interact with people. It's just that no one ever came to interact with you."
+> "People who perish in other’s battles are worms… If one can’t live their life the way they want, they might as well die."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
