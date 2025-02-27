@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When people get close to death they change."
+> "Become strong not just for your own sake, but for your friends."
 
-&mdash; [**Jin-Ie Kwon**](https://myanimelist.net/character.php?q=Jin-Ie%20Kwon&cat=character), [**The Breaker**](https://myanimelist.net/search/all?q=The%20Breaker&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
