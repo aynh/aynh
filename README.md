@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe there've been times when I've been pissed and hated things, but it wasn't from this work. My dad's a no-show, my mom's lush and school sucks, but this job is the one damn thing I'm good at. If all the crap in my life hasn't screwed up yet, then neither will this and neither will you."
+> "It's where all parallel lines meet. Where conflicting ideas are reconciled. It is... above the horizon."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Horizon Ariadust**](https://myanimelist.net/character.php?q=Horizon%20Ariadust&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
