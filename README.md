@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who perish in other’s battles are worms… If one can’t live their life the way they want, they might as well die."
+> "If we fight again... We're both gonna die."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
