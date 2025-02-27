@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter what you do, if you live and die as you like. However, no matter what road you end up taking, remember to protect the people that are precious to you."
+> "Because it has powers that surpass everything, a king must cut off his own desires and never use it."
 
-&mdash; [**Hiruzen Sarutobi**](https://myanimelist.net/character.php?q=Hiruzen%20Sarutobi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Durandal Tobari Kumohira**](https://myanimelist.net/character.php?q=Durandal%20Tobari%20Kumohira&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
