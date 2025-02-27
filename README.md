@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human potential for evolution is limitless."
+> "Compared to a man as big as me you realize how small you are, don't you? I understand how you feel. Even I can be frightened by my own greatness. So I find it difficult to stand in front of mirrors."
 
-&mdash; [**Netero**](https://myanimelist.net/character.php?q=Netero&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
