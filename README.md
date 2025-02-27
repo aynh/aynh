@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans all behave the same way, like idiots. They all forget that someday, they're gonna die, so the moment they come face to face with death, they cling to life."
+> "Neutral Jing is the key to earthbending. It involves listening and waiting for the right moment to strike."
 
-&mdash; [**Ginti**](https://myanimelist.net/character.php?q=Ginti&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**King Bumi**](https://myanimelist.net/character.php?q=King%20Bumi&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
