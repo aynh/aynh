@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Compared to a man as big as me you realize how small you are, don't you? I understand how you feel. Even I can be frightened by my own greatness. So I find it difficult to stand in front of mirrors."
+> "Trying to knock others down a peg just means lowering yourself. Don't go trampling all the hardwork and trust you've build up. It insults the effort you put in."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
