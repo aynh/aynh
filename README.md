@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Blue sky is in the distance. It feels so close. Yet, I cannot grab it even if I reach out with my hands. I looked up at the stars before. The stars that I cannot reach and the wishes that will not be granted. There is nothing we have been able to leave behind for each other. Therefore, traces and memories will disappear someday. But still... Even if it will not reach her, there should be something that will remain in our hearts. There is nothing that remains in our hands, but we lived the same time and looked up at the same things. If I can remember that. I can believe that we can be together even if we are far apart."
+> "Maybe there've been times when I've been pissed and hated things, but it wasn't from this work. My dad's a no-show, my mom's lush and school sucks, but this job is the one damn thing I'm good at. If all the crap in my life hasn't screwed up yet, then neither will this and neither will you."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
