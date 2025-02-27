@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Wear the best shoes you can, because those shoes will take you to great places."
+> "When people get close to death they change."
 
-&mdash; [**Todo Shizuka**](https://myanimelist.net/character.php?q=Todo%20Shizuka&cat=character), [**Hana Yori Dango**](https://myanimelist.net/search/all?q=Hana%20Yori%20Dango&cat=all)
+&mdash; [**Jin-Ie Kwon**](https://myanimelist.net/character.php?q=Jin-Ie%20Kwon&cat=character), [**The Breaker**](https://myanimelist.net/search/all?q=The%20Breaker&cat=all)
