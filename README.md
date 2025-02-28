@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yes, I saw it over and over... Meaningless massacres. Meaningless suffering. Meaningless happiness! I was forced to watch it all. Even when I refused to look, it surrounded me. That isn't what I wished for! I didn't become a Guardian for this!"
+> "And now it's time for formal introductions. Eliza, my darling, meet Yoh Asakura. Yoh Asakura, meet your doom!"
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
