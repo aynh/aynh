@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Somewhere, that’s not here, in a place I can’t remember, I was obsessed with the idea that I was all alone. I thought that nobody would care, or even miss me if I vanished from the face of the Earth. I wanted to disappear. Then I had a dream about falling from the sky. I just remember that the bird was in the dream with me, and that the bird was someone in the form of a bird, trying to call me back. I now know that I was never alone."
+> "Why are you looking for something when you can't even remember what it is?"
 
-&mdash; [**Rakka**](https://myanimelist.net/character.php?q=Rakka&cat=character), [**Haibane Renmei**](https://myanimelist.net/search/all?q=Haibane%20Renmei&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
