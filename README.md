@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Abandon your fear. Look forward. Move forward and never stop. You'll age if you pull back. You'll die if you hesitate."
+> "Yes, I saw it over and over... Meaningless massacres. Meaningless suffering. Meaningless happiness! I was forced to watch it all. Even when I refused to look, it surrounded me. That isn't what I wished for! I didn't become a Guardian for this!"
 
-&mdash; [**Zangetsu**](https://myanimelist.net/character.php?q=Zangetsu&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
