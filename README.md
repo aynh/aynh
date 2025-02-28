@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ayuzawa, you are the first person ever to appear in my life and able to make me a mess."
+> "A detective who corners a culprit with their reasoning and drives them to suicide in front of himself - is no different than a murderer."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
