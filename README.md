@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe I was lonely. Maybe I've just... always... been lonely."
+> "Abandon your fear. Look forward. Move forward and never stop. You'll age if you pull back. You'll die if you hesitate."
 
-&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Zangetsu**](https://myanimelist.net/character.php?q=Zangetsu&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
