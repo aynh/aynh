@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't be strong not because you can't throw away your weakness, but it's because you don't face your own weakness."
+> "In their own way, fights are also a valid form of communication."
 
-&mdash; [**Kanoko Naedoko**](https://myanimelist.net/character.php?q=Kanoko%20Naedoko&cat=character), [**Warau Kanoko-sama**](https://myanimelist.net/search/all?q=Warau%20Kanoko-sama&cat=all)
+&mdash; [**Tsukihi Araragi**](https://myanimelist.net/character.php?q=Tsukihi%20Araragi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
