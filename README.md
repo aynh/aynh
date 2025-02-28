@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll sooner die than become burden."
+> "You keep working HARD in order to win and you get better little by little. To IMMERSE yourself in something you like, that's what it means to enjoy something fully."
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
