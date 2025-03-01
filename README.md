@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I no longer even dream, for I no longer sleep. So I had this golden enclosed garden made. However, now the only place where I can be myself is in this room. And my wealth is just this one glass of water."
+> "Today's my birthday. During times like these I always think whether or not it was a good thing that I was born."
 
-&mdash; [**The Count of Monte Cristo**](https://myanimelist.net/character.php?q=The%20Count%20of%20Monte%20Cristo&cat=character), [**Gankutsuou: The Count of Monte Cristo**](https://myanimelist.net/search/all?q=Gankutsuou%3A%20The%20Count%20of%20Monte%20Cristo&cat=all)
+&mdash; [**Eucliwood Hellscythe**](https://myanimelist.net/character.php?q=Eucliwood%20Hellscythe&cat=character), [**Kore Wa Zombie Desu Ka?**](https://myanimelist.net/search/all?q=Kore%20Wa%20Zombie%20Desu%20Ka%3F&cat=all)
