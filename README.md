@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's ineffective to deal with many problems at once."
+> "If you cling to life, you live in fear of death. And that fear will cloud your judgment."
 
-&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
