@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm neither a soldier, nor a brave man. Not to mention that running away isn't the same thing as losing. You only truly lose by dying. So as long you're alive, you win!"
+> "We've never worked together before, so don't worry about teamwork! Just stay out of each other's way. Fight the way you want to fight!"
 
-&mdash; [**Senator Figaro**](https://myanimelist.net/character.php?q=Senator%20Figaro&cat=character), [**Kakumeiki Valvrave**](https://myanimelist.net/search/all?q=Kakumeiki%20Valvrave&cat=all)
+&mdash; [**Bors Elder**](https://myanimelist.net/character.php?q=Bors%20Elder&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
