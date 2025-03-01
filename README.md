@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is when it isn't fun to be with that person. It's when nothing goes the way you want. When you're not having fun... and yet you still want to be with that person."
+> "I don't know much about you. You were the one who selfishly entered my world...yet you immediately plunged into silence. What were you thinking? Did you really pick on me just because it was fun? Which one is serious and which one of it is just a joke? That's enough now, making me all messed up like this."
 
-&mdash; [**Taichi Mashima**](https://myanimelist.net/character.php?q=Taichi%20Mashima&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Misaki Ayuzawa**](https://myanimelist.net/character.php?q=Misaki%20Ayuzawa&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
