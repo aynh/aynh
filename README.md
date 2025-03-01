@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's our job as normal people to ensure the potential of those misunderstood ones are realized."
+> "After today, tomorrow will come again. Maybe I've been taking that for granted. But now... It's not easy, huh..."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
