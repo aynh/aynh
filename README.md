@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen, Haku. I don’t remember it, but my mom told me... Once, when I was little, I fell into a river. She said they’d drained it and built things on top. But I’ve just remembered. The river was called the Kohaku River. Your real name is... Kohaku."
+> "Love is when it isn't fun to be with that person. It's when nothing goes the way you want. When you're not having fun... and yet you still want to be with that person."
 
-&mdash; [**Chihiro Ogino**](https://myanimelist.net/character.php?q=Chihiro%20Ogino&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
+&mdash; [**Taichi Mashima**](https://myanimelist.net/character.php?q=Taichi%20Mashima&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
