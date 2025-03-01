@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Today's my birthday. During times like these I always think whether or not it was a good thing that I was born."
+> "Perfection is a fairly nonexistent thing. If you couldn’t do it, it was probably impossible for anybody else, too."
 
-&mdash; [**Eucliwood Hellscythe**](https://myanimelist.net/character.php?q=Eucliwood%20Hellscythe&cat=character), [**Kore Wa Zombie Desu Ka?**](https://myanimelist.net/search/all?q=Kore%20Wa%20Zombie%20Desu%20Ka%3F&cat=all)
+&mdash; [**Reinhard von Lohengramm**](https://myanimelist.net/character.php?q=Reinhard%20von%20Lohengramm&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
