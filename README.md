@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[In his Resurrección form] I can see! I can see! I can see!!! So this is the sky!! So this is blood!! So this is the world!! ...So this is what you look like. Komamura. You are uglier... than I thought."
+> "It's impossible for humans to forget their emotions."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Wolfgang Grimmer**](https://myanimelist.net/character.php?q=Wolfgang%20Grimmer&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
