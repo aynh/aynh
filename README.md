@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whenever people see birds flying through the sky, it's said that they get the urge to go on a journey."
+> "Bonds that are too strong create flaws over time."
 
-&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
+&mdash; [**Road Kamelot**](https://myanimelist.net/character.php?q=Road%20Kamelot&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
