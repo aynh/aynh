@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no such thing as being born into the world to be alone."
+> "*to Zuko* You're looking at the rare white dragon bush. It's leaves make a tea sooo delicious, it's heartbreaking... THAT, or it's the white jade bush, which is poisonous."
 
-&mdash; [**Saul Jaguar D**](https://myanimelist.net/character.php?q=Saul%20Jaguar%20D&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
