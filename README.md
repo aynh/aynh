@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because the sight of your beautiful smile causes the fountain inside of me to start overflowing."
+> "It's alright to feel sad. When you're sad, you should experience that sorrow fully. It's not too late to move on after that."
 
-&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Urutori**](https://myanimelist.net/character.php?q=Urutori&cat=character), [**Utawarerumono**](https://myanimelist.net/search/all?q=Utawarerumono&cat=all)
