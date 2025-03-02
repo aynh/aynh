@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dressing up on the outside won’t change what’s on the inside."
+> "There's no advantage to hurrying through life."
 
-&mdash; [**Uka-no-Mitama-no-Kami**](https://myanimelist.net/character.php?q=Uka-no-Mitama-no-Kami&cat=character), [**Inari Kon Kon**](https://myanimelist.net/search/all?q=Inari%20Kon%20Kon&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
