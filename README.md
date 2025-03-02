@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you can't move anymore, or your back gets bent out of shape, it doesn't matter! What matters is what's inside! Not what someone looks like, dammit!"
+> "When life changes to be harder, change yourself to be stronger."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
