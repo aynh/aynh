@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Ichigo] You're a Soul Reaper and I'm a Hollow. Whichever side loses will be massacred! It's been that way for over a thousand years! Who needs any more reason than that?! Now bring it! The last man standing gets to go home alive! That's all there is to it!"
+> "Whenever people see birds flying through the sky, it's said that they get the urge to go on a journey."
 
-&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
