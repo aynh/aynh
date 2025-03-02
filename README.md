@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end no one's going to protect you but yourself."
+> "This is a world where people’s hearts are filled with hatred... where fingers have no purpose other than to pull triggers."
 
-&mdash; [**Yamato Kurosawa**](https://myanimelist.net/character.php?q=Yamato%20Kurosawa&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
