@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You wont be laughing once you taste our power of friendship!"
+> "This may come as something of a surprise, but I'm a sore loser."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
