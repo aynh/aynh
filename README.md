@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you understand how to handle cards now? I win as long as I can make you think 'there's no way he will play that card'."
+> "I have no desire to kill you. In fact, you're not worth killing. Killing you, would only tarnish my blade."
 
-&mdash; [**Hiruma Youichi**](https://myanimelist.net/character.php?q=Hiruma%20Youichi&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
+&mdash; [**Jin**](https://myanimelist.net/character.php?q=Jin&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
