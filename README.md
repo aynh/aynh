@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When a dog soils the carpet, its master is responsible."
+> "You shouldn’t stop like that. If you can move forward, then you should."
 
-&mdash; [**Cruhteo**](https://myanimelist.net/character.php?q=Cruhteo&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
+&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
