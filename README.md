@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have no desire to kill you. In fact, you're not worth killing. Killing you, would only tarnish my blade."
+> "In the limited time we have between our births and our deaths, we live life with everything we've got."
 
-&mdash; [**Jin**](https://myanimelist.net/character.php?q=Jin&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Ushiromiya Battler**](https://myanimelist.net/character.php?q=Ushiromiya%20Battler&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
