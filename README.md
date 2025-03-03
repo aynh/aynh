@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's just that... It's just that not being able to fight with everyone makes me feel lonely...!! But what would make me feel worse than being lonely is getting in everyone's way... that would make me feel worse!! If it means getting in the way of Kurosaki-kun and everyone... then I would rather be lonely, very lonely."
+> "I've only lived 18 years, but I don't want to change any of them. They're all part of my life, even the failures."
 
-&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
