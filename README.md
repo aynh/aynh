@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kakarot! Dodge this next attack, if you can!.. But even if I miss you... THIS WHOLE PLANET'S GOING UP IN SMOOOOKE!"
+> "When a dog soils the carpet, its master is responsible."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Cruhteo**](https://myanimelist.net/character.php?q=Cruhteo&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
