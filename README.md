@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not a crime if no one knows about it."
+> "We're all born with selfish desires so we can relate to those feelings in others. But kindness is created individually by each person... So it's easy to misunderstand when someone is trying to be kind to you... But, Tohru, people's differences are something to celebrate."
 
-&mdash; [**Nyaruko**](https://myanimelist.net/character.php?q=Nyaruko&cat=character), [**Haiyore! Nyaruko-san**](https://myanimelist.net/search/all?q=Haiyore!%20Nyaruko-san&cat=all)
+&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
