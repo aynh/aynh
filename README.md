@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've only lived 18 years, but I don't want to change any of them. They're all part of my life, even the failures."
+> "The worst kind of pain is when you're smiling just to stop the tears from falling."
 
-&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
