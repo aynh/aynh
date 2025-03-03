@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But I think it’s natural that not everything you try will go well, right? So, I’m gonna start again from scratch."
+> "People like you disgust me. You can't even face your own weakness."
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Murasaki**](https://myanimelist.net/character.php?q=Murasaki&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
