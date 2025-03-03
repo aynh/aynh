@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes the truth can hurt others more than a lie."
+> "It's not a crime if no one knows about it."
 
-&mdash; [**Nonomiya**](https://myanimelist.net/character.php?q=Nonomiya&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
+&mdash; [**Nyaruko**](https://myanimelist.net/character.php?q=Nyaruko&cat=character), [**Haiyore! Nyaruko-san**](https://myanimelist.net/search/all?q=Haiyore!%20Nyaruko-san&cat=all)
