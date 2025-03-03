@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who do well, respect their chances. Those who pass on chances, may never be presented with that chance again."
+> "Do you understand how to handle cards now? I win as long as I can make you think 'there's no way he will play that card'."
 
-&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Hiruma Youichi**](https://myanimelist.net/character.php?q=Hiruma%20Youichi&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
