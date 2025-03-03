@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When there's nothing to be gained, rising to the challenge at those times... is surely the mark... of a true hero!!"
+> "I don't think anyone is born knowing the reason why they're here. It's just something you have to find as you go along."
 
-&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
