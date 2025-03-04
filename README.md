@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[When she hops into the bath with Ichigo, but in cat form] What? Are you a little disappointed? Come on, be honest. You are, aren't you? You little pervert!"
+> "There must be something wrong with those that are delighted about other people's happiness. Every one of them is either a hypocrite or just scheming something."
 
-&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Samejima Mirai**](https://myanimelist.net/character.php?q=Samejima%20Mirai&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
