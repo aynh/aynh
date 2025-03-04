@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't think anyone is born knowing the reason why they're here. It's just something you have to find as you go along."
+> "You know... you really are something... (to Tohru)"
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
