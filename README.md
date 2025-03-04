@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we have time to get upset, we should have used that time to move on… Even if just one step forward!"
+> "I might be the ugly duckling of the group, but I'll make sure that I'll protect all of you with all my might."
 
-&mdash; [**Kise Ryouta**](https://myanimelist.net/character.php?q=Kise%20Ryouta&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Zeno**](https://myanimelist.net/character.php?q=Zeno&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
