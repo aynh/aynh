@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're about to find out what it's like to fight a real super saiyan...and I'm not talking about Goku."
+> "That hot dog must've fried your brain!"
 
-&mdash; [**Trunks Brief**](https://myanimelist.net/character.php?q=Trunks%20Brief&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
