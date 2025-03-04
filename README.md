@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is a big cradle of lies where people lay their heads on pretending nothing is wrong. A cycle where mortals dwells upon to...for a cursed one like me happily watch them from darkness savoring each moment a human dies due to their ignorance..."
+> "No matter how strong a defense, a stronger offense will always shatter it."
 
-&mdash; [**Flandre Scarlet**](https://myanimelist.net/character.php?q=Flandre%20Scarlet&cat=character), [**Touhou Project**](https://myanimelist.net/search/all?q=Touhou%20Project&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
