@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Miracles are irrational by nature."
+> "If we have time to get upset, we should have used that time to move on… Even if just one step forward!"
 
-&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Kise Ryouta**](https://myanimelist.net/character.php?q=Kise%20Ryouta&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
