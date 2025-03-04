@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After all, lying for someone's sake doesn't make it a lie."
+> "It's okay if you don't understand, just stay with me, watch me, and slowly come to understand."
 
-&mdash; [**Mizuki Hayama**](https://myanimelist.net/character.php?q=Mizuki%20Hayama&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Agata Katsuhira**](https://myanimelist.net/character.php?q=Agata%20Katsuhira&cat=character), [**Kiznaiver**](https://myanimelist.net/search/all?q=Kiznaiver&cat=all)
