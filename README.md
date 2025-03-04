@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A man who cannot play by himself, cannot improve by himself."
+> "You're about to find out what it's like to fight a real super saiyan...and I'm not talking about Goku."
 
-&mdash; [**Midorima Shintarou**](https://myanimelist.net/character.php?q=Midorima%20Shintarou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Trunks Brief**](https://myanimelist.net/character.php?q=Trunks%20Brief&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
