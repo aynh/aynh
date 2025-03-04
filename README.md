@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "WHO ARE YOU CALLING A RUNT SO TINY HE COULD ONLY BE SEEN WITH A MAGNIFYING GLASS, YOU JERK!"
+> "Death may be my only freedom."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
