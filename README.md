@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After all, most human beings are completely selfish. Eventually, they will meet their desires and try to help others. However, that isn't their only desire, they wish to stir people up. It is simplistically easier to do so anyway, they think it is a stupid ideal to show love to anyone but themselves."
+> "I'm just letting you know, I'm not telling you this because I want your pity! I'm just fed up with humans, that's all! They tell lie after lie, only accepting people who are the same as they are! Humans are such hypocrites!"
 
-&mdash; [**Fuyumi Utsuromiya**](https://myanimelist.net/character.php?q=Fuyumi%20Utsuromiya&cat=character), [**Life is Money**](https://myanimelist.net/search/all?q=Life%20is%20Money&cat=all)
+&mdash; [**Rachnera Arachnera**](https://myanimelist.net/character.php?q=Rachnera%20Arachnera&cat=character), [**Monster Musume no Iru Nichijou**](https://myanimelist.net/search/all?q=Monster%20Musume%20no%20Iru%20Nichijou&cat=all)
