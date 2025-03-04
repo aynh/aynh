@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death may be my only freedom."
+> "If you ever reach the point where you need to pray, you're already a failure of a man."
 
-&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Hyoudou Kazutaka**](https://myanimelist.net/character.php?q=Hyoudou%20Kazutaka&cat=character), [**Gyakkyou Burai Kaiji: Hakairoku Hen**](https://myanimelist.net/search/all?q=Gyakkyou%20Burai%20Kaiji%3A%20Hakairoku%20Hen&cat=all)
