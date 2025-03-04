@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To be able to stay beside a beloved one is the special privilege of a friend."
+> "Knowing what it feels to be in pain, is exactly why we try to be kind to others."
 
-&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
