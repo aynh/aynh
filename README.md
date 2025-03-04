@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay if you don't understand, just stay with me, watch me, and slowly come to understand."
+> "To be able to stay beside a beloved one is the special privilege of a friend."
 
-&mdash; [**Agata Katsuhira**](https://myanimelist.net/character.php?q=Agata%20Katsuhira&cat=character), [**Kiznaiver**](https://myanimelist.net/search/all?q=Kiznaiver&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
