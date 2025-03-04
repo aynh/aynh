@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Doctor Tenma, for you all lives are created equal, that's why I came back to life. But you've finally come to realize it now, haven't you? Only one thing is equal for all, and that is death."
+> "If I were to survive, but couldn't protect what was important to me, then I might as well be dead."
 
-&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Tama**](https://myanimelist.net/character.php?q=Tama&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
