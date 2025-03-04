@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I were to survive, but couldn't protect what was important to me, then I might as well be dead."
+> "I'm not going there to die. I'm going there to find out if I'm really alive."
 
-&mdash; [**Tama**](https://myanimelist.net/character.php?q=Tama&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
