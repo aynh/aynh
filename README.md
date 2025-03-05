@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That hot dog must've fried your brain!"
+> "You know the power of my zanpakuto, Suzumebachi. If someone gets hit twice in the same spot... They die!"
 
-&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
