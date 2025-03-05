@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What are you talking about? We LET you corner us."
+> "Justice comes from vengeance, but that justice only breeds more vengeance."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
