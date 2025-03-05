@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Rarely does one have the chance to exchange blows with heroes from another age. And with the chance to fight as many as six, I can't allow one of them to fall right now. Look at Saber and Lancer. Both are valiant warriors I would love to duel with. It'd be a pity to let either die."
+> "In the darkness, hope is something you give yourself."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
