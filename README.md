@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Use the Spirit Wave to float on top of the spike. Good. Now we'll hold this for twelve hours."
+> "Even though I'm expressionless, being told that I'm annoying still hurts."
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
