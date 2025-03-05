@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Justice comes from vengeance, but that justice only breeds more vengeance."
+> "It doesn't hurt! It's not hot! I'm not scared! I will not be beaten!"
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
