@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Blaming others isn't going to resolve anything. There'll be a lot of things that are injust throughout your life. You will have to stand up by yourself."
+> "I love adventures."
 
-&mdash; [**Kazuichi Arai**](https://myanimelist.net/character.php?q=Kazuichi%20Arai&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
