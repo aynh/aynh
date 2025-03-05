@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If one side is putting all their efforts into killing a normal high school student and the other side is putting all their efforts into saving that normal high school student, which side do you want to be on? Which side could you proudly say you were on?"
+> "Whatever you value... What you consider right is up to you. But don't force those ideals onto other people."
 
-&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Yozuru Kagenui**](https://myanimelist.net/character.php?q=Yozuru%20Kagenui&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
