@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Belief in others is an illusion concocted by the clever to exploit the stupid."
+> "Become an idol who can laugh through the bitterness. If you do that, you can make everyone happy."
 
-&mdash; [**Shin Hyuga Shaing**](https://myanimelist.net/character.php?q=Shin%20Hyuga%20Shaing&cat=character), [**Code Geass: Akito the Exiled**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Akito%20the%20Exiled&cat=all)
+&mdash; [**Johnny Beppu**](https://myanimelist.net/character.php?q=Johnny%20Beppu&cat=character), [**Aikatsu!**](https://myanimelist.net/search/all?q=Aikatsu!&cat=all)
