@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know the power of my zanpakuto, Suzumebachi. If someone gets hit twice in the same spot... They die!"
+> "It looked like it was going to be germ warfare, but the Bacterian fight got me ready for that."
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
