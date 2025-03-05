@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Keeping all the wealth for yourself may make your rich, but it won’t make you prosperous. You give people money, and they spend it. True prosperity comes from a free flow of wealth and goods."
+> "Look at the sky, it's so far away. But right here, right now, it seems so close."
 
-&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
+&mdash; [**Lee Yunlee**](https://myanimelist.net/character.php?q=Lee%20Yunlee&cat=character), [**Nineteen Twenty-one**](https://myanimelist.net/search/all?q=Nineteen%20Twenty-one&cat=all)
