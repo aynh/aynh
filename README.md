@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Become an idol who can laugh through the bitterness. If you do that, you can make everyone happy."
+> "Keeping all the wealth for yourself may make your rich, but it won’t make you prosperous. You give people money, and they spend it. True prosperity comes from a free flow of wealth and goods."
 
-&mdash; [**Johnny Beppu**](https://myanimelist.net/character.php?q=Johnny%20Beppu&cat=character), [**Aikatsu!**](https://myanimelist.net/search/all?q=Aikatsu!&cat=all)
+&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
