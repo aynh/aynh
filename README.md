@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whatever you value... What you consider right is up to you. But don't force those ideals onto other people."
+> "One can hardly lose what one does not already have."
 
-&mdash; [**Yozuru Kagenui**](https://myanimelist.net/character.php?q=Yozuru%20Kagenui&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
