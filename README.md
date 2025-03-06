@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it’s an important memory, then you shouldn't forget it. Since those who aren't with us only live on in our memories."
+> "I don't need you anymore. I'm tired of you. (To Haru)"
 
-&mdash; [**Wataru Takagi**](https://myanimelist.net/character.php?q=Wataru%20Takagi&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
