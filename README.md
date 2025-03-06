@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What do you think it means to be the strongest man in the world? The strongest man in the world has power, skill, wisdom, heart, and luck."
+> "If it’s an important memory, then you shouldn't forget it. Since those who aren't with us only live on in our memories."
 
-&mdash; [**Adlet Mayer**](https://myanimelist.net/character.php?q=Adlet%20Mayer&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
+&mdash; [**Wataru Takagi**](https://myanimelist.net/character.php?q=Wataru%20Takagi&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
