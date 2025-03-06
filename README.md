@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For murderers, there is no good or evil. I know that."
+> "When I'm with Iruka-sensei, I think if that's what having a father is like... *to Sasuke* When I'm with you, I think if that's what having a brother is like."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
