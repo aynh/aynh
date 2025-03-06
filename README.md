@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What I hate the most in the world is when I'm already trying hard and I'm told to try harder!"
+> "*chanting* Blessed be the Lord! For he hath heard the voice of my supplication. The Lord is my helper...and my protector. Thou shalt perish where thou standeth!"
 
-&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Fujimoto Shirou**](https://myanimelist.net/character.php?q=Fujimoto%20Shirou&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
