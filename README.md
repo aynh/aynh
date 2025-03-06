@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things that we don't want to happen, but have to accept. Things that we don't want to know, but have to learn. And people that we can't live without, but have to let go."
+> "If you lose credibility by just admitting fault, then you didn't have any in the first place."
 
-&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
+&mdash; [**Fujitora**](https://myanimelist.net/character.php?q=Fujitora&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
