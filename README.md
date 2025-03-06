@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you follow your rage into battle, I have a feeling that terrible things can happen."
+> "I can’t even imagine a world without Light."
 
-&mdash; [**Aladdin**](https://myanimelist.net/character.php?q=Aladdin&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
+&mdash; [**Misa Amane**](https://myanimelist.net/character.php?q=Misa%20Amane&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
