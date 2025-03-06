@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the world is full of things we never wanted to know, is our only option to look away? You won't solve anything by looking away."
+> "Yes! One small candy for man, one giant candy for new mankind."
 
-&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
