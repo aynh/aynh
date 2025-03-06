@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you lose credibility by just admitting fault, then you didn't have any in the first place."
+> "NEEDLENOGGIN!"
 
-&mdash; [**Fujitora**](https://myanimelist.net/character.php?q=Fujitora&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
