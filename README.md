@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Something as shady as a witch couldn't possibly exist."
+> "If it's something I can only cry about in my heart, it's almost like a sin."
 
-&mdash; [**Ushiromiya Battler**](https://myanimelist.net/character.php?q=Ushiromiya%20Battler&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Yuki Kuran**](https://myanimelist.net/character.php?q=Yuki%20Kuran&cat=character), [**Vampire Knight**](https://myanimelist.net/search/all?q=Vampire%20Knight&cat=all)
