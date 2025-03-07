@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "O anger, turn to heat, dry up my brains! This mad thirst for vengeance must be quenched… no matter how cruel and merciless I must become!"
+> "I think Romeo likes Juliet!"
 
-&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Haruka**](https://myanimelist.net/character.php?q=Haruka&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
