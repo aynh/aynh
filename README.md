@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Youth is fleeting. Young people can't even wait for a spoonful of sugar to dissolve and bitter regret is proof of that. But by bit, you get a taste for it."
+> "I'm on TV! I gotta call my folks!"
 
-&mdash; [**Tamako Love Story**](https://myanimelist.net/character.php?q=Tamako%20Love%20Story&cat=character), [**Tamako Love Story**](https://myanimelist.net/search/all?q=Tamako%20Love%20Story&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
