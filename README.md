@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think Romeo likes Juliet!"
+> "This is something my master used to say. 'Kids who are too obedient and never think of themselves are the hardest to watch.'"
 
-&mdash; [**Haruka**](https://myanimelist.net/character.php?q=Haruka&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
