@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you lose your uniqueness for fear of being disliked, then no one will ever love you."
+> "Dying means to be gone. And what goes, is not your pain, but your existence itself. But in your mind, you think that you’d have a sense of “nothing” after you die. How can you call that “nothing”? In other words, you don't even have an idea of what death is really like."
 
-&mdash; [**Yuuki Aito**](https://myanimelist.net/character.php?q=Yuuki%20Aito&cat=character), [**The Comic Artist and His Assistants**](https://myanimelist.net/search/all?q=The%20Comic%20Artist%20and%20His%20Assistants&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
