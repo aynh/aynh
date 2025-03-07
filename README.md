@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I would no longer fight against my feelings because I realized how useless and ineffective it was to fight them."
+> "In my family; Father, Mother, and Grandmother all hated each other. I was the trash can into which they dumped their hatred. That's why I only thought about beautiful and warm things, fun things. But after I met you, I understood. No matter how many beautiful stories I made, they were all lies. Because the person telling the stories, me, was an ugly and dirty creature."
 
-&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
+&mdash; [**Miu Asakura**](https://myanimelist.net/character.php?q=Miu%20Asakura&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
