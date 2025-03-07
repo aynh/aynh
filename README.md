@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is full of choices unseen. With the willingness to notice, anyone can choose a world of their very own, from an infinity of choices."
+> "Anything at all. Just this once I'll fulfil whatever your wish is. Whether is world conquest, or eternal life, or to defeat the saiyans that are coming to earth."
 
-&mdash; [**Shinku**](https://myanimelist.net/character.php?q=Shinku&cat=character), [**Rozen Maiden**](https://myanimelist.net/search/all?q=Rozen%20Maiden&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
