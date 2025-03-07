@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anything at all. Just this once I'll fulfil whatever your wish is. Whether is world conquest, or eternal life, or to defeat the saiyans that are coming to earth."
+> "If you lose your uniqueness for fear of being disliked, then no one will ever love you."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Yuuki Aito**](https://myanimelist.net/character.php?q=Yuuki%20Aito&cat=character), [**The Comic Artist and His Assistants**](https://myanimelist.net/search/all?q=The%20Comic%20Artist%20and%20His%20Assistants&cat=all)
