@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is something my master used to say. 'Kids who are too obedient and never think of themselves are the hardest to watch.'"
+> "I'm not asking you to love me. No, actually, please don't love me. But please let me be in love with you."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Fuyou Kaede**](https://myanimelist.net/character.php?q=Fuyou%20Kaede&cat=character), [**Shuffle!**](https://myanimelist.net/search/all?q=Shuffle!&cat=all)
