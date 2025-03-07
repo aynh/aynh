@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Give a kid a smoke and he'll be happy for a day. Teach him how to smoke... he'll be happy for his whole shortened life."
+> "Youth is fleeting. Young people can't even wait for a spoonful of sugar to dissolve and bitter regret is proof of that. But by bit, you get a taste for it."
 
-&mdash; [**Eikichi Onizuka**](https://myanimelist.net/character.php?q=Eikichi%20Onizuka&cat=character), [**Great Teacher Onizuka**](https://myanimelist.net/search/all?q=Great%20Teacher%20Onizuka&cat=all)
+&mdash; [**Tamako Love Story**](https://myanimelist.net/character.php?q=Tamako%20Love%20Story&cat=character), [**Tamako Love Story**](https://myanimelist.net/search/all?q=Tamako%20Love%20Story&cat=all)
