@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are calm and composed. You are able to see through things clearly at this age. You are outstanding. And... Always being able to make the correct judgments, not falling into darkness. Outstanding. 'That won't do', 'This is wrong'. You reject any number of paths... Choosing your path with cynicism. What do you want to do? How are you going to do it? What is your motive? Where do you want to move forward to? Say it. Hmm? Fine. Then stick to the ground forever to move forward, you creep. You little coward who can only move forward by using the method of elimination. Until you found something to reject... You shall just lie on the ground helplessly."
+> "O anger, turn to heat, dry up my brains! This mad thirst for vengeance must be quenched… no matter how cruel and merciless I must become!"
 
-&mdash; [**Little Demon**](https://myanimelist.net/character.php?q=Little%20Demon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
