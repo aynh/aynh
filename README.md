@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how severe the situation is, if you continue to stay there, you'll accept everything as a everyday life."
+> "The world is full of choices unseen. With the willingness to notice, anyone can choose a world of their very own, from an infinity of choices."
 
-&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Shinku**](https://myanimelist.net/character.php?q=Shinku&cat=character), [**Rozen Maiden**](https://myanimelist.net/search/all?q=Rozen%20Maiden&cat=all)
