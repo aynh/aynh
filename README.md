@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dying means to be gone. And what goes, is not your pain, but your existence itself. But in your mind, you think that you’d have a sense of “nothing” after you die. How can you call that “nothing”? In other words, you don't even have an idea of what death is really like."
+> "I would no longer fight against my feelings because I realized how useless and ineffective it was to fight them."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
