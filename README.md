@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Will you stay by my side? Will you watch as we uncover a harsh truth that was meant to remain buried, and share in the pain that comes with the act?"
+> "A Gun is Good. Unlike A sword or a knife, it doesn't leave the feeling of a person dying in your hands."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
