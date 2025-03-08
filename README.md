@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no telling when this war will end. No matter how many troops the country deploys, the desert just absorbs them like water. We suffer, conquer, and what's left? Nothing but sand."
+> "If you just submit yourself to fate, then that's the end of it."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Maebara Keiichi**](https://myanimelist.net/character.php?q=Maebara%20Keiichi&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
