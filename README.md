@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The slight difference between those who always aim for the top and those who don't... It'll come to matter in a big way once you all emerge into society."
+> "I now have things that I don't want to forget, and things that I shouldn't forget. And I don't plan to ever forget those things, as long as I live."
 
-&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
