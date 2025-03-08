@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So don't be afraid to open your hearts to others. It's pointless to keep testing people. All you're doing is hurting yourselves."
+> "Protecting someone means giving them a place to belong. Giving them a place where they can be happy."
 
-&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Rayneshia El-Arte Corwen**](https://myanimelist.net/character.php?q=Rayneshia%20El-Arte%20Corwen&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
