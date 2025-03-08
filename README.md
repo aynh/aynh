@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't be strong not because you can't throw away your weakness, but it's because you don't face your own weakness."
+> "The slight difference between those who always aim for the top and those who don't... It'll come to matter in a big way once you all emerge into society."
 
-&mdash; [**Kanoko Naedoko**](https://myanimelist.net/character.php?q=Kanoko%20Naedoko&cat=character), [**Warau Kanoko-sama**](https://myanimelist.net/search/all?q=Warau%20Kanoko-sama&cat=all)
+&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
