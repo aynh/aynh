@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In order to measure a person’s worth, you must do more than push them. The real way to test their worth is to give them power. When they gain the freedom to act outside the boundaries of law and ethics, you can sometimes see their souls. When the weak become strong... When good citizens become free to engage in violence... I'm interested to see what is the outcome of that."
+> "Pain, suffering. It's pointless to just think about those things. The traveler (referring to 'The Most Foolish Traveler' by Natsuki Takaya) didn't. That may be stupid to some people but that's not stupid to me. Yuki... Kyo... when you close your eyes, what do you think?"
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Sohma Momiji**](https://myanimelist.net/character.php?q=Sohma%20Momiji&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
