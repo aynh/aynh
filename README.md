@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[On first seeing Kyo] The ceiling... Is he hurt...? Wh-who... Well, hello, orange-head..."
+> "If strength is justice, then is powerlessness a crime?"
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
