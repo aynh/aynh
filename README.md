@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's very difficult for me to step on an ant without crushing it."
+> "Love is like a firework from the past... it's more beautiful for it to go to pieces and scatter far off."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Shima Katsuki**](https://myanimelist.net/character.php?q=Shima%20Katsuki&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
