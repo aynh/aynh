@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "However rough the waters in the outside world may be, to find your own lighthouse and swim for it is only logical, isn't it?"
+> "In this world, there's no such thing as 'failure' in the first place. The one who knows the 'ways to win' more than anyone is also the one who's experienced the most 'mistakes'. In other words... You could say 'failure' is equal to 'success'... Couldn't you?"
 
-&mdash; [**Hayabusa Shou**](https://myanimelist.net/character.php?q=Hayabusa%20Shou&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
+&mdash; [**Toriko**](https://myanimelist.net/character.php?q=Toriko&cat=character), [**Toriko**](https://myanimelist.net/search/all?q=Toriko&cat=all)
