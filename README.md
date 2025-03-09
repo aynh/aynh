@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is like a firework from the past... it's more beautiful for it to go to pieces and scatter far off."
+> "The stars sure are beautiful tonight. [angrily] Too bad you can't see them, Toph!"
 
-&mdash; [**Shima Katsuki**](https://myanimelist.net/character.php?q=Shima%20Katsuki&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
