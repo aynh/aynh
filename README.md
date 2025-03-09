@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The stars sure are beautiful tonight. [angrily] Too bad you can't see them, Toph!"
+> "It’s vulgar and foolish to spend all your time thinking about love!"
 
-&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kanade Ōe**](https://myanimelist.net/character.php?q=Kanade%20%C5%8Ce&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
