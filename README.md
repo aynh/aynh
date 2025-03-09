@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, there's no such thing as 'failure' in the first place. The one who knows the 'ways to win' more than anyone is also the one who's experienced the most 'mistakes'. In other words... You could say 'failure' is equal to 'success'... Couldn't you?"
+> "Isn't using the net just like using knives for cooking or using paper to write things down? It has nothing to do with good or bad. It's like, it's there, so we accept and use it."
 
-&mdash; [**Toriko**](https://myanimelist.net/character.php?q=Toriko&cat=character), [**Toriko**](https://myanimelist.net/search/all?q=Toriko&cat=all)
+&mdash; [**Akane Tsunemori**](https://myanimelist.net/character.php?q=Akane%20Tsunemori&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
