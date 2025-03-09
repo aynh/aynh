@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Vegeta's last thought before he dies fighting Majin Buu] Bulma, Trunks. This is for you."
+> "Ahh, don't get your underwear in a knot."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
