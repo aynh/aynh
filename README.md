@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you have faith, your dreams will surely come true."
+> "*to Hige* Coming from you, that sounds kind of fishy."
 
-&mdash; [**Katsura Kotarou**](https://myanimelist.net/character.php?q=Katsura%20Kotarou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
