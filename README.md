@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're going to make a wish, you must put forth the effort to ensure that it comes true!"
+> "If you have faith, your dreams will surely come true."
 
-&mdash; [**Kouki Akune**](https://myanimelist.net/character.php?q=Kouki%20Akune&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Katsura Kotarou**](https://myanimelist.net/character.php?q=Katsura%20Kotarou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
