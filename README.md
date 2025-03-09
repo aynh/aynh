@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Isn't using the net just like using knives for cooking or using paper to write things down? It has nothing to do with good or bad. It's like, it's there, so we accept and use it."
+> "Don't mistake borrowed power for your own ability!"
 
-&mdash; [**Akane Tsunemori**](https://myanimelist.net/character.php?q=Akane%20Tsunemori&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
