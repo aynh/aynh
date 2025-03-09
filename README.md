@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And can you offer me proof of your existence? How can you, when neither modern science nor philosophy can explain what life is?"
+> "It's very difficult for me to step on an ant without crushing it."
 
-&mdash; [**Puppet Master**](https://myanimelist.net/character.php?q=Puppet%20Master&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
