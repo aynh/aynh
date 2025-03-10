@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just as water runs downhill, the human heart also tends to revert to its basest instincts."
+> "It is not wise to judge others based on your own preconceptions and by their appearances."
 
-&mdash; [**Hideo Kuze**](https://myanimelist.net/character.php?q=Hideo%20Kuze&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
