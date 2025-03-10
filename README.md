@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tornado Flip!"
+> "Even when times are at their hardest, don't let it show on your face. If the captain is shaken, the team will waver."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Tetsuya Yūki**](https://myanimelist.net/character.php?q=Tetsuya%20Y%C5%ABki&cat=character), [**Diamond No Ace**](https://myanimelist.net/search/all?q=Diamond%20No%20Ace&cat=all)
