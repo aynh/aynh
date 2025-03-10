@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate, hate, hate everyone."
+> "[Referring to Tosen] He's such a boy scout, wouldn't you agree?"
 
-&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
