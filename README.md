@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know, someone like me can't just go out and change the world on a whim."
+> "[To Kyo] Being away from everyone else may be lonely, but being away from you will be even lonelier."
 
-&mdash; [**Akatsuki Kojou**](https://myanimelist.net/character.php?q=Akatsuki%20Kojou&cat=character), [**Strike the Blood**](https://myanimelist.net/search/all?q=Strike%20the%20Blood&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
