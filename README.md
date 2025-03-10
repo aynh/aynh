@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yamcha, I was worried about you. For all I knew, you were dead in a ditch in a country you can't pronounce. You'll have to make this up to me. And you're going to enjoy it."
+> "Dedication is a talent all on its own."
 
-&mdash; [**Bulma**](https://myanimelist.net/character.php?q=Bulma&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
