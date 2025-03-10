@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Words are very powerful. That's why you have to watch everything that comes out from your mouth."
+> "Life really is a mysterious thing. Each and every life spins its own, totally separate tale, yet they become intricately entwined in each other. And no one knows how they will end up."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Decim**](https://myanimelist.net/character.php?q=Decim&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
