@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Six innocent peasants down, hundreds of thousand more to go."
+> "I am who I am because I learned your ideals and took your prayers to the heart. You've guided me. You've given me a life a mere puppet wouldn't have. You need not to pity me. I am a part of you."
 
-&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Irisviel von Einzbern**](https://myanimelist.net/character.php?q=Irisviel%20von%20Einzbern&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
