@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To wish for your own happiness is sometimes coupled with another's unhappiness. Since I couldn't pray for my own happiness, I prayed to the moon in the night sky for the happiness of the one whose warm hand I held."
+> "In a way, the supernatural is what's behind the curtain. Normally, you only need to see what's happening on stage. That's how reality works. If you don't know, it's best that you don't. Actually, learning about the supernatural only increases the number of things you don't know."
 
-&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Mayoi Hachikuji**](https://myanimelist.net/character.php?q=Mayoi%20Hachikuji&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
