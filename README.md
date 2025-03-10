@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am who I am because I learned your ideals and took your prayers to the heart. You've guided me. You've given me a life a mere puppet wouldn't have. You need not to pity me. I am a part of you."
+> "I want to reply with a long message, but if it's too long, that might be kind of revolting. But if it's too short, then I might come off as cold instead. Feeling apprehensive of what to do, I decided to reply back with a similar word count instead. This was what they called 'mirroring' in psychology. By emulating the actions of the other party, your affection levels would increase!"
 
-&mdash; [**Irisviel von Einzbern**](https://myanimelist.net/character.php?q=Irisviel%20von%20Einzbern&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
