@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're all grown up, so you won't feel dirty looking at my body, right?"
+> "To wish for your own happiness is sometimes coupled with another's unhappiness. Since I couldn't pray for my own happiness, I prayed to the moon in the night sky for the happiness of the one whose warm hand I held."
 
-&mdash; [**Nadeko Sengoku**](https://myanimelist.net/character.php?q=Nadeko%20Sengoku&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
