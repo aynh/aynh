@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In exchange of being able to get something that normal people can't have... you must let go of what normal people have."
+> "Does a death wish cause you to talk to me that way?"
 
-&mdash; [**Aki Ogasawara**](https://myanimelist.net/character.php?q=Aki%20Ogasawara&cat=character), [**Kanojo wa Uso wo Aishisugiteru**](https://myanimelist.net/search/all?q=Kanojo%20wa%20Uso%20wo%20Aishisugiteru&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
