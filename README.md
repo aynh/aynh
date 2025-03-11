@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(In response to Seaman's question) When real men do what they're supposed to, it's not always about what they want."
+> "If you see a girl lookin' unhappy, be a man and help her."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Wave**](https://myanimelist.net/character.php?q=Wave&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
