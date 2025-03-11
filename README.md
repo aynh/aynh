@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Riku* At least I'm the cute one!!"
+> "This is a world where people’s hearts are filled with hatred... where fingers have no purpose other than to pull triggers."
 
-&mdash; [**Risa Harada**](https://myanimelist.net/character.php?q=Risa%20Harada&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
