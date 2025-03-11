@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What’s important is not losing sight of your path."
+> "If something is possible, carry on as planned. Even if it isn't possible, do it anyway."
 
-&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Karasuma Tadaomi**](https://myanimelist.net/character.php?q=Karasuma%20Tadaomi&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
