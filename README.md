@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If something is possible, carry on as planned. Even if it isn't possible, do it anyway."
+> "Duh!! There's no such thing as free wish."
 
-&mdash; [**Karasuma Tadaomi**](https://myanimelist.net/character.php?q=Karasuma%20Tadaomi&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
