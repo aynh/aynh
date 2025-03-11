@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've finally realized that the one thing you want, something greater than money, it can never be yours."
+> "(In response to Seaman's question) When real men do what they're supposed to, it's not always about what they want."
 
-&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
