@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is a world where people’s hearts are filled with hatred... where fingers have no purpose other than to pull triggers."
+> "Courage is the mindset of not surrendering even if you lack the strength."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Chun-Woo Han**](https://myanimelist.net/character.php?q=Chun-Woo%20Han&cat=character), [**The Breaker**](https://myanimelist.net/search/all?q=The%20Breaker&cat=all)
