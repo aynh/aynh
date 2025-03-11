@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's overpriced, but that's okay, HERE'S YOUR CHANGE!"
+> "Although my life hasn't been very fortunate until now, I'm glad if I caught your eye because of that misfortune..."
 
-&mdash; [**Touji Suzuhara**](https://myanimelist.net/character.php?q=Touji%20Suzuhara&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
