@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Alcohol is humanity's friend. How can I abandon a friend?"
+> "What’s important is not losing sight of your path."
 
-&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
