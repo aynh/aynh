@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In my next life, I want to be me, and meet you again."
+> "No one would intentionally set an easily accessible place as their goal. It's a challenge, because it's difficult. It is a dream because it can't be achieved easily."
 
-&mdash; [**Gon Freecss**](https://myanimelist.net/character.php?q=Gon%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Isashiki Jun**](https://myanimelist.net/character.php?q=Isashiki%20Jun&cat=character), [**Diamond No Ace**](https://myanimelist.net/search/all?q=Diamond%20No%20Ace&cat=all)
