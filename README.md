@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those stars look like they're close to each other, but they're actually very far away, aren't they? It's like Kitamura-kun and I. The things you see aren't always real. How hard must I try in order to understand the unseen truth?"
+> "The fastest way to happiness is to avoid looking at reality."
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Ame Ochibana**](https://myanimelist.net/character.php?q=Ame%20Ochibana&cat=character), [**Denpa teki na Kanojo**](https://myanimelist.net/search/all?q=Denpa%20teki%20na%20Kanojo&cat=all)
