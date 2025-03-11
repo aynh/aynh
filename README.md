@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Duh!! There's no such thing as free wish."
+> "Protecting someone means giving them a place to belong. Giving them a place where they can be happy."
 
-&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Rayneshia El-Arte Corwen**](https://myanimelist.net/character.php?q=Rayneshia%20El-Arte%20Corwen&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
