@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Although my life hasn't been very fortunate until now, I'm glad if I caught your eye because of that misfortune..."
+> "It's fine, I'll come to save you as much as you want. I'll make you fall for me as much as you wish. Leave this to your master."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
