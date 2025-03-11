@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Courage is the mindset of not surrendering even if you lack the strength."
+> "Those stars look like they're close to each other, but they're actually very far away, aren't they? It's like Kitamura-kun and I. The things you see aren't always real. How hard must I try in order to understand the unseen truth?"
 
-&mdash; [**Chun-Woo Han**](https://myanimelist.net/character.php?q=Chun-Woo%20Han&cat=character), [**The Breaker**](https://myanimelist.net/search/all?q=The%20Breaker&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
