@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The same thing as always. No matter how many times I reach game over and no matter how many times I must pathetically hit continue, I will not stop moving forward."
+> "Different conclusions are reached when one fact is viewed from two separate points of view. When that happens, there is no immediate way to judge which point of view is the correct one. There is no way to conclude one's own conclusion is the correct one. But for that exact reason, it is also premature to decide one's own conclusion is wrong."
 
-&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
