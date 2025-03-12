@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kira is childish and he hates losing... I'm also childish and hate to lose. That's how I know."
+> "You can't change reality, just your perception!"
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Father**](https://myanimelist.net/character.php?q=Father&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
