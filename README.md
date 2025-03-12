@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The reason the Yamadas get along fine is because all three adults are nuts. If one of you were normal it would unbalance the rest."
+> "Even in the depths of Hell... blooms a beautiful flower of friendship... leaving its petals as mementos... bobbing back and forth on the waves... may it one day bloom once more...the Okama Way."
 
-&mdash; [**Noboru Yamada**](https://myanimelist.net/character.php?q=Noboru%20Yamada&cat=character), [**My Neighbors the Yamadas**](https://myanimelist.net/search/all?q=My%20Neighbors%20the%20Yamadas&cat=all)
+&mdash; [**Mr. 2 Bon Clay**](https://myanimelist.net/character.php?q=Mr.%202%20Bon%20Clay&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
