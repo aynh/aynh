@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't wear these beads just to make a fashion statement. These are my spirit beads - my link to the afterlife."
+> "As long as no one got hurt, it's all good. Who cares who saved who?"
 
-&mdash; [**Anna Kyoyama**](https://myanimelist.net/character.php?q=Anna%20Kyoyama&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
