@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What takes reason a hundred years to build a bridge to only takes the wings of faith a single night to reach."
+> "Unless someone makes the first move, nothing will happen."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Misa Amane**](https://myanimelist.net/character.php?q=Misa%20Amane&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
