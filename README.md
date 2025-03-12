@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Different conclusions are reached when one fact is viewed from two separate points of view. When that happens, there is no immediate way to judge which point of view is the correct one. There is no way to conclude one's own conclusion is the correct one. But for that exact reason, it is also premature to decide one's own conclusion is wrong."
+> "The reason the Yamadas get along fine is because all three adults are nuts. If one of you were normal it would unbalance the rest."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Noboru Yamada**](https://myanimelist.net/character.php?q=Noboru%20Yamada&cat=character), [**My Neighbors the Yamadas**](https://myanimelist.net/search/all?q=My%20Neighbors%20the%20Yamadas&cat=all)
