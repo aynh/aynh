@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Most non-NEET people in the world don't realize that human nature isn't scalar, but vectorial."
+> "[aiming at a small prey animal] You're awfully cute, but unfortunately for you, you're made of meat."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
