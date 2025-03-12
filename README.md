@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't think I'll learn anything if I don't try to do something about it on my own."
+> "Kira is childish and he hates losing... I'm also childish and hate to lose. That's how I know."
 
-&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
