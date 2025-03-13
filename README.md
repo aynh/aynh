@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even in the depths of Hell... blooms a beautiful flower of friendship... leaving its petals as mementos... bobbing back and forth on the waves... may it one day bloom once more...the Okama Way."
+> "Laziness is the mother of all bad habits. But ultimately she is a mother and we should respect her."
 
-&mdash; [**Mr. 2 Bon Clay**](https://myanimelist.net/character.php?q=Mr.%202%20Bon%20Clay&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
