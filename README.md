@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think people should try to ignore their race, and just treat each other as equals."
+> "[about his deceased friend] I never overcame my shyness and told her that I actually liked clouds."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
