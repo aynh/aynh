@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm going to keep getting closer and closer to you. And not just day after day, oh no. It's going to happen much faster than that! See I'm already closer to you than I was a moment ago. And I'll keep getting closer and closer to you, until I swallow you up and then, you'll disappear. Things are not turning out well for you at all, are they? (laughs) See you around."
+> "To desire some results, one must take actions."
 
-&mdash; [**Hollow Ichigo**](https://myanimelist.net/character.php?q=Hollow%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Suzaku Kururugi**](https://myanimelist.net/character.php?q=Suzaku%20Kururugi&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
