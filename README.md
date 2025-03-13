@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is suffering, pain, and misery."
+> "I think people should try to ignore their race, and just treat each other as equals."
 
-&mdash; [**Nana**](https://myanimelist.net/character.php?q=Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
