@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm neither a soldier, nor a brave man. Not to mention that running away isn't the same thing as losing. You only truly lose by dying. So as long you're alive, you win!"
+> "Don't think that the me tomorrow will be the same as the me today. You'd better be careful."
 
-&mdash; [**Senator Figaro**](https://myanimelist.net/character.php?q=Senator%20Figaro&cat=character), [**Kakumeiki Valvrave**](https://myanimelist.net/search/all?q=Kakumeiki%20Valvrave&cat=all)
+&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
