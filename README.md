@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You people, are you satisfied with this kind of world? I'm not."
+> "We have to live a life of no regrets."
 
-&mdash; [**Lockon Stratos**](https://myanimelist.net/character.php?q=Lockon%20Stratos&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
