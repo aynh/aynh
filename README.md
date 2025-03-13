@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being the best decoy ever is as cool as being the ace."
+> "The brain is a microcosm, creating its own stories. People then live out these stories."
 
-&mdash; [**Tobio Kageyama**](https://myanimelist.net/character.php?q=Tobio%20Kageyama&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Seiichi Kirima**](https://myanimelist.net/character.php?q=Seiichi%20Kirima&cat=character), [**Boogiepop Phantom**](https://myanimelist.net/search/all?q=Boogiepop%20Phantom&cat=all)
