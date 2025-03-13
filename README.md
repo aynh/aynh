@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every day, the words cross my mind.  'If I had done this back then...' but they don't take the sincere form of regret.  The words are just an excuse that come to my mind then disappear."
+> "I'm going to keep getting closer and closer to you. And not just day after day, oh no. It's going to happen much faster than that! See I'm already closer to you than I was a moment ago. And I'll keep getting closer and closer to you, until I swallow you up and then, you'll disappear. Things are not turning out well for you at all, are they? (laughs) See you around."
 
-&mdash; [**Satoru Fujinuma**](https://myanimelist.net/character.php?q=Satoru%20Fujinuma&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
+&mdash; [**Hollow Ichigo**](https://myanimelist.net/character.php?q=Hollow%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
