@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as you do not give up, nothing is over."
+> "I'm neither a soldier, nor a brave man. Not to mention that running away isn't the same thing as losing. You only truly lose by dying. So as long you're alive, you win!"
 
-&mdash; [**Yuzuki Eba**](https://myanimelist.net/character.php?q=Yuzuki%20Eba&cat=character), [**Kimi no Iru Machi**](https://myanimelist.net/search/all?q=Kimi%20no%20Iru%20Machi&cat=all)
+&mdash; [**Senator Figaro**](https://myanimelist.net/character.php?q=Senator%20Figaro&cat=character), [**Kakumeiki Valvrave**](https://myanimelist.net/search/all?q=Kakumeiki%20Valvrave&cat=all)
