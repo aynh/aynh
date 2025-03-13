@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ore-sama no bigi ni yoi na!"
+> "Life is suffering, pain, and misery."
 
-&mdash; [**Keigo Atobe**](https://myanimelist.net/character.php?q=Keigo%20Atobe&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Nana**](https://myanimelist.net/character.php?q=Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
