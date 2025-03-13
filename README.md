@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Small animals have their own ways of surviving."
+> "Regardless if you see them or not, if you don't believe, then it's like they never existed."
 
-&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Kurosaki Karin**](https://myanimelist.net/character.php?q=Kurosaki%20Karin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
