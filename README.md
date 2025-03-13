@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The brain is a microcosm, creating its own stories. People then live out these stories."
+> "You people, are you satisfied with this kind of world? I'm not."
 
-&mdash; [**Seiichi Kirima**](https://myanimelist.net/character.php?q=Seiichi%20Kirima&cat=character), [**Boogiepop Phantom**](https://myanimelist.net/search/all?q=Boogiepop%20Phantom&cat=all)
+&mdash; [**Lockon Stratos**](https://myanimelist.net/character.php?q=Lockon%20Stratos&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
