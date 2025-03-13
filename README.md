@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regardless if you see them or not, if you don't believe, then it's like they never existed."
+> "Being the best decoy ever is as cool as being the ace."
 
-&mdash; [**Kurosaki Karin**](https://myanimelist.net/character.php?q=Kurosaki%20Karin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tobio Kageyama**](https://myanimelist.net/character.php?q=Tobio%20Kageyama&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
