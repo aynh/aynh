@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hundreds of gallons of blood from all the people I've killed in the past, have seeped into this body."
+> "Can it be that I'm afraid or is it merely I know not my own limit?"
 
-&mdash; [**Holland Novak**](https://myanimelist.net/character.php?q=Holland%20Novak&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
