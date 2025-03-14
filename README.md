@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, there are very few people who actually trust each other."
+> "Everyone in this place is unhappy. And since they're unhappy, they're probably looking for someone worse off than they are."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
