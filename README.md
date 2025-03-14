@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This brings us to number 278 of the 1,000 provisions you must observe. I hate carrots. Never even think about putting them in my food, you get it?"
+> "The individual exists because there is a point of reference to identify itself."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Haruka Shitow**](https://myanimelist.net/character.php?q=Haruka%20Shitow&cat=character), [**RahXephon**](https://myanimelist.net/search/all?q=RahXephon&cat=all)
