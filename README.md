@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not going to protect you by being your shield or armor, but I'll be the dagger hidden below your pillow."
+> "In this world, there are very few people who actually trust each other."
 
-&mdash; [**Shuu Tsukiyama**](https://myanimelist.net/character.php?q=Shuu%20Tsukiyama&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
