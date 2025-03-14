@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's human nature. We have regrets, and go on blaming ourselves forever."
+> "Death may be my only freedom."
 
-&mdash; [**Kazuki Kuwanomi**](https://myanimelist.net/character.php?q=Kazuki%20Kuwanomi&cat=character), [**Plastic Memories**](https://myanimelist.net/search/all?q=Plastic%20Memories&cat=all)
+&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
