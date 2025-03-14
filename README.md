@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to get to know someone, you need to make an effort to learn why they're angry."
+> "You sure can talk the talk, but you're not quite ready to walk the walk. Time's up, it's my turn."
 
-&mdash; [**Mito Freecss**](https://myanimelist.net/character.php?q=Mito%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
