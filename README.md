@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After today, tomorrow will come again. Maybe I've been taking that for granted. But now... It's not easy, huh..."
+> "If anyone does not love the Lord Jesus Christ, let them be accursed at His coming. God save you from your fate. Amen!"
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
