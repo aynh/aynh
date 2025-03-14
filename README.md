@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To desire some results, one must take actions."
+> "Remember this... no matter where you go, the strength of your mind and spirit is the most powerful magic of all."
 
-&mdash; [**Suzaku Kururugi**](https://myanimelist.net/character.php?q=Suzaku%20Kururugi&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Princess Emeraude**](https://myanimelist.net/character.php?q=Princess%20Emeraude&cat=character), [**Magic Knight Rayearth**](https://myanimelist.net/search/all?q=Magic%20Knight%20Rayearth&cat=all)
