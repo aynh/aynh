@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Remember this... no matter where you go, the strength of your mind and spirit is the most powerful magic of all."
+> "Everyone makes mistakes. What's important is how to make up for it."
 
-&mdash; [**Princess Emeraude**](https://myanimelist.net/character.php?q=Princess%20Emeraude&cat=character), [**Magic Knight Rayearth**](https://myanimelist.net/search/all?q=Magic%20Knight%20Rayearth&cat=all)
+&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
