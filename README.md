@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone in this place is unhappy. And since they're unhappy, they're probably looking for someone worse off than they are."
+> "Come on, scribbles on the bathroom wall, please show me the path that I must follow!"
 
-&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Excel**](https://myanimelist.net/character.php?q=Excel&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
