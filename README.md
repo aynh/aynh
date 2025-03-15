@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Karin] Do as your heart desires! Jump into your father's bosom!"
+> "I wonder if there really is a God... If such an entity really existed, wouldn't all honest, hard-working people be happy?"
 
-&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Vermouth**](https://myanimelist.net/character.php?q=Vermouth&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
