@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who aim further for other's sake. Those who think of others before themselves. ...And those who hate themselves more than anyone. These are the qualities of a Magus. This is a contradiction you can only have if you are born broken."
+> "Trying to improve by learning from others that is what calls friendship."
 
-&mdash; [**Tohsaka Rin**](https://myanimelist.net/character.php?q=Tohsaka%20Rin&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Shino Aburame**](https://myanimelist.net/character.php?q=Shino%20Aburame&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
