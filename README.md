@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know as much of games as I do of hugs and puppies, and care for them even less. Wake me for the end of the world."
+> "All we can do is live while losing things."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Renji Yomo**](https://myanimelist.net/character.php?q=Renji%20Yomo&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
