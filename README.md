@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, there are things you have to protect even if your hands get stained with blood."
+> "[to Karin] Do as your heart desires! Jump into your father's bosom!"
 
-&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
