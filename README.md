@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In exchange of being able to get something that normal people can't have... you must let go of what normal people have."
+> "I know as much of games as I do of hugs and puppies, and care for them even less. Wake me for the end of the world."
 
-&mdash; [**Aki Ogasawara**](https://myanimelist.net/character.php?q=Aki%20Ogasawara&cat=character), [**Kanojo wa Uso wo Aishisugiteru**](https://myanimelist.net/search/all?q=Kanojo%20wa%20Uso%20wo%20Aishisugiteru&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
