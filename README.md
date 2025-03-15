@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Come on, scribbles on the bathroom wall, please show me the path that I must follow!"
+> "In the long flow of time, living things know nothing of their ancestors, except for the genes they’ve inherited. Only mankind has history. Having a history differentiates mankind from all other living species. That’s why I wanted to be a historian."
 
-&mdash; [**Excel**](https://myanimelist.net/character.php?q=Excel&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
+&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
