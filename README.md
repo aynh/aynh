@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Some people think the act of investing efforts, trying your best is more precious than the result. But for mentors as well as their pupils, that approach feels bitter. 'I did my best', 'the fight was close'... words like that blow past and die out like a wind. Only the result is a stone. The stone you can reach by doing your best."
+> "In exchange of being able to get something that normal people can't have... you must let go of what normal people have."
 
-&mdash; [**Hidehiro Harada**](https://myanimelist.net/character.php?q=Hidehiro%20Harada&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Aki Ogasawara**](https://myanimelist.net/character.php?q=Aki%20Ogasawara&cat=character), [**Kanojo wa Uso wo Aishisugiteru**](https://myanimelist.net/search/all?q=Kanojo%20wa%20Uso%20wo%20Aishisugiteru&cat=all)
