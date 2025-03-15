@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sebastian, you know what to do."
+> "There are many kinds of fights in this world, but if you don't stick to the rules you won't win support from the people around you."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Maebara Ichirō**](https://myanimelist.net/character.php?q=Maebara%20Ichir%C5%8D&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
