@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Fuu passed out after one drink and is asleep] Sleeping so carelessly. I could do something to you so easily."
+> "The envy of a man runs deeper than a woman's, surprisingly."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Yahiro Takigawa**](https://myanimelist.net/character.php?q=Yahiro%20Takigawa&cat=character), [**Shinmai Maou no Testament**](https://myanimelist.net/search/all?q=Shinmai%20Maou%20no%20Testament&cat=all)
