@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And what's the real lesson? Don't leave things in the fridge."
+> "Having someone to lean on is an amazing thing. Some things that can't be done alone can be achieved with the courage of two. And in times when you try your hardest and still can't make it work. When it's so tough you're ready to cry... if you have someone there to support you, you can make it through. The smallest words of support can save you."
 
-&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Gokou Ruri**](https://myanimelist.net/character.php?q=Gokou%20Ruri&cat=character), [**Ore No Imouto Ga Konna Ni Kawaii Wake Ga Nai**](https://myanimelist.net/search/all?q=Ore%20No%20Imouto%20Ga%20Konna%20Ni%20Kawaii%20Wake%20Ga%20Nai&cat=all)
