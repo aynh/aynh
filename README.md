@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Seeing nature and thinking it's beautiful is what's unnatural. That means the life you lead is an unclean one. If you can cut yourself off from mother nature and still survive, doesn't it mean you have enough inner beauty to allow you to do that?"
+> "Some people think the act of investing efforts, trying your best is more precious than the result. But for mentors as well as their pupils, that approach feels bitter. 'I did my best', 'the fight was close'... words like that blow past and die out like a wind. Only the result is a stone. The stone you can reach by doing your best."
 
-&mdash; [**Souhei Saikawa**](https://myanimelist.net/character.php?q=Souhei%20Saikawa&cat=character), [**Subete ga F ni Naru**](https://myanimelist.net/search/all?q=Subete%20ga%20F%20ni%20Naru&cat=all)
+&mdash; [**Hidehiro Harada**](https://myanimelist.net/character.php?q=Hidehiro%20Harada&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
