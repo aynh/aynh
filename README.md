@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At what speed must I live...to be able to see you again..?"
+> "Being angry consumes energy and makes me tired. So I'd rather apologize, even if I'm not at fault. Besides, we get along, and we both want to stay friends. Prolonging an awkward situation out of stubbornness is just silly."
 
-&mdash; [**Takaki Toono**](https://myanimelist.net/character.php?q=Takaki%20Toono&cat=character), [**5 Centimeters per Second**](https://myanimelist.net/search/all?q=5%20Centimeters%20per%20Second&cat=all)
+&mdash; [**Tanaka**](https://myanimelist.net/character.php?q=Tanaka&cat=character), [**Tanaka-kun wa Itsumo Kedaruge**](https://myanimelist.net/search/all?q=Tanaka-kun%20wa%20Itsumo%20Kedaruge&cat=all)
