@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Having someone to lean on is an amazing thing. Some things that can't be done alone can be achieved with the courage of two. And in times when you try your hardest and still can't make it work. When it's so tough you're ready to cry... if you have someone there to support you, you can make it through. The smallest words of support can save you."
+> "There is no telling what kind of pain will come  after me, but... if I stop believing because of that, if the hero should change, it'll turn into another story from the one my master left behind. Then it wont be Naruto! I can't write novels like my master did. That's why the sequel has to come from the life I live no matter how great the pain, I'll continue walking because that's who Naruto is!"
 
-&mdash; [**Gokou Ruri**](https://myanimelist.net/character.php?q=Gokou%20Ruri&cat=character), [**Ore No Imouto Ga Konna Ni Kawaii Wake Ga Nai**](https://myanimelist.net/search/all?q=Ore%20No%20Imouto%20Ga%20Konna%20Ni%20Kawaii%20Wake%20Ga%20Nai&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
