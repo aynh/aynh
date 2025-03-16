@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All the liabilities in this world are due to the inadequacies of the person involved."
+> "Individuality that stands apart from the rest is a great asset."
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul √A**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%20%E2%88%9AA&cat=all)
+&mdash; [**Mitsuki Nase**](https://myanimelist.net/character.php?q=Mitsuki%20Nase&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
