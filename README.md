@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want Dr. Verde's intellect. In all honesty I wish he were just a brain and nothing more."
+> "Forgiveness is the only way to end the war."
 
-&mdash; [**Rokudou Mukuro**](https://myanimelist.net/character.php?q=Rokudou%20Mukuro&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Yūya Sakaki**](https://myanimelist.net/character.php?q=Y%C5%ABya%20Sakaki&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
