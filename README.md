@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Under normal circumstances, humans should have continued to evolve as the greatest creatures upon this earth, but we were actually regressing. A rotten world. Politics, law, education... Was there anybody around who could correct this world? But someone had to do it."
+> "Sometimes feelings get tangled together with deductions, forming a veil that hides the truth."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
