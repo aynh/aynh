@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Forgiveness is the only way to end the war."
+> "Our world is like a terminal cancer. Saying you’ll change things through individual will is the rambling of a peace-loving fool. Why don’t you understand it’s too late for humanity?!"
 
-&mdash; [**Yūya Sakaki**](https://myanimelist.net/character.php?q=Y%C5%ABya%20Sakaki&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
+&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
