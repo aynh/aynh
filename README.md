@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Individuality that stands apart from the rest is a great asset."
+> "If you use your head, you won't get fat even if you eat sweets."
 
-&mdash; [**Mitsuki Nase**](https://myanimelist.net/character.php?q=Mitsuki%20Nase&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
