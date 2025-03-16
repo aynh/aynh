@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes feelings get tangled together with deductions, forming a veil that hides the truth."
+> "Nobody can make someone who isn't trying to be happy into someone that's happy"
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Tsubasa Hanekawa**](https://myanimelist.net/character.php?q=Tsubasa%20Hanekawa&cat=character), [**Owarimonogatari**](https://myanimelist.net/search/all?q=Owarimonogatari&cat=all)
