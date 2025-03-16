@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm sorry! I'm sorry, Takashi! I won't forget to brush my teeth again! I won't forget!..."
+> "For me and Mello, L has been the only person we adore, and the only person who deserves our respect."
 
-&mdash; [**Mitsukuni Haninozuka**](https://myanimelist.net/character.php?q=Mitsukuni%20Haninozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
