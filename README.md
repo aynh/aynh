@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you use your head, you won't get fat even if you eat sweets."
+> "Our world is like a terminal cancer. Saying you'll change things through individual will is rambling of a peace-loving fool."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
