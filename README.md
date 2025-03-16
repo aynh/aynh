@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder if there really is a God... If such an entity really existed, wouldn't all honest, hard-working people be happy?"
+> "Don't look away, Rose! You need to see what happens when you try to bring a human to life, when you cross into God's territory or whatever the hell it is! Is this what you want?! Look!!"
 
-&mdash; [**Vermouth**](https://myanimelist.net/character.php?q=Vermouth&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
