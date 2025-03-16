@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Killing others is never justice, no matter what kind of noble cause one upholds."
+> "The arrogant one is you, Espada. But rest at ease. The reason for your loss is not due to that arrogance. It is simply due to a difference in power."
 
-&mdash; [**Seishin Muroi**](https://myanimelist.net/character.php?q=Seishin%20Muroi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
