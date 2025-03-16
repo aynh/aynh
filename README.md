@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Daunting and mistrusting others forever won’t accomplish anything."
+> "Killing others is never justice, no matter what kind of noble cause one upholds."
 
-&mdash; [**Teito Klein**](https://myanimelist.net/character.php?q=Teito%20Klein&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Seishin Muroi**](https://myanimelist.net/character.php?q=Seishin%20Muroi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
