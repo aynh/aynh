@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our world is like a terminal cancer. Saying you’ll change things through individual will is the rambling of a peace-loving fool. Why don’t you understand it’s too late for humanity?!"
+> "All the liabilities in this world are due to the inadequacies of the person involved."
 
-&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul √A**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%20%E2%88%9AA&cat=all)
