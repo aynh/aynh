@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The desire to fly with ''real wings'' is what motivates you."
+> "Giraffe! Giraffe! I love Giraffes!"
 
-&mdash; [**Ringo Noyamano**](https://myanimelist.net/character.php?q=Ringo%20Noyamano&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
