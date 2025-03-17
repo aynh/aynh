@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life hurts, you think we don't know that? But some of us choose to go on regardless. Some of us don't have time to die cause people count on us to survive."
+> "I’m a very lucky person. I was able to meet people I love."
 
-&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Noumi Kudoryafuka**](https://myanimelist.net/character.php?q=Noumi%20Kudoryafuka&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
