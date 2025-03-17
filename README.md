@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing good comes from digging up the past."
+> "I've seen this before. This sensation... I get it now. This is what I wanted. No need to rely on or work with other people. I just want to drift through the water alone in silence."
 
-&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Haruka Nanase**](https://myanimelist.net/character.php?q=Haruka%20Nanase&cat=character), [**Free!**](https://myanimelist.net/search/all?q=Free!&cat=all)
