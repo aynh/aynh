@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was born alone in this world and alone I will die. If this is my fate, why are tears coming out of my eyes?"
+> "You know I think I understand now why you and I never had children…on some level we knew the world was ending, it may of seemed like we had found something else to obsess over but the truth is we’d given up on the future. That’s the real reason I was never able to get pregnant."
 
-&mdash; [**Alan Humphries**](https://myanimelist.net/character.php?q=Alan%20Humphries&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Cher Degre**](https://myanimelist.net/character.php?q=Cher%20Degre&cat=character), [**Wolf’s Rain**](https://myanimelist.net/search/all?q=Wolf%E2%80%99s%20Rain&cat=all)
