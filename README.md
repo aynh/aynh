@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’m a very lucky person. I was able to meet people I love."
+> "The best way to write a realistic romance is to first be in love. Everyone can write a love story from their life."
 
-&mdash; [**Noumi Kudoryafuka**](https://myanimelist.net/character.php?q=Noumi%20Kudoryafuka&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Lida Ayano**](https://myanimelist.net/character.php?q=Lida%20Ayano&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
