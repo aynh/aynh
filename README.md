@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nobody can make someone who isn't trying to be happy into someone that's happy"
+> "But... If you're the kind of person who can devote herself like that to someone, then I'll bet you anything there's someone out there who'll fall in love with you."
 
-&mdash; [**Tsubasa Hanekawa**](https://myanimelist.net/character.php?q=Tsubasa%20Hanekawa&cat=character), [**Owarimonogatari**](https://myanimelist.net/search/all?q=Owarimonogatari&cat=all)
+&mdash; [**Ichijou Raku**](https://myanimelist.net/character.php?q=Ichijou%20Raku&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
