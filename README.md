@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've seen this before. This sensation... I get it now. This is what I wanted. No need to rely on or work with other people. I just want to drift through the water alone in silence."
+> "Say your prayers, wretches. Filth like you is even lower than Yoma. I'm going to kill... every last one of you."
 
-&mdash; [**Haruka Nanase**](https://myanimelist.net/character.php?q=Haruka%20Nanase&cat=character), [**Free!**](https://myanimelist.net/search/all?q=Free!&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
