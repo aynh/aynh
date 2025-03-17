@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I devour the five lands and drain the three seas, yet only the sky is impossible to reach. With this body lacking wings, hands, or legs. I am the World Serpent. My name is Jormungand."
+> "Nothing good ever comes from a man interfering with women's problems."
 
-&mdash; [**Jormungand**](https://myanimelist.net/character.php?q=Jormungand&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
