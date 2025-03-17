@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know I think I understand now why you and I never had children…on some level we knew the world was ending, it may of seemed like we had found something else to obsess over but the truth is we’d given up on the future. That’s the real reason I was never able to get pregnant."
+> "I devour the five lands and drain the three seas, yet only the sky is impossible to reach. With this body lacking wings, hands, or legs. I am the World Serpent. My name is Jormungand."
 
-&mdash; [**Cher Degre**](https://myanimelist.net/character.php?q=Cher%20Degre&cat=character), [**Wolf’s Rain**](https://myanimelist.net/search/all?q=Wolf%E2%80%99s%20Rain&cat=all)
+&mdash; [**Jormungand**](https://myanimelist.net/character.php?q=Jormungand&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
