@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Theories are nothing more than words. Accept what you've seen."
+> "Human beings aren't known for remaining calm and rational."
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Inaho Kaizuka**](https://myanimelist.net/character.php?q=Inaho%20Kaizuka&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
