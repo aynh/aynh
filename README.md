@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But there's nothing wrong about worrying. It's like a wall you need to overcome, to make it to the next level. If you're running up against that wall, it means you're moving forward. I wonder how many walls I've broken up until now, but if you won't move yourself, you will never get anywhere."
+> "Wrongly placed jealousy is ugly when it goes too far."
 
-&mdash; [**Aiko Mutō**](https://myanimelist.net/character.php?q=Aiko%20Mut%C5%8D&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
