@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You stole this world and it's people. You're a king of thieves, alone upon a stolen throne!"
+> "Things that don't change go extinct."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Milly Ashford**](https://myanimelist.net/character.php?q=Milly%20Ashford&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
