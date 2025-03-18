@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how colossal a power you obtain, no matter how gigantic an army you bring with you, I ain't scared. While you've abandoned a hundred, I've connected with a thousand. While you've destroyed a thousand, I've been helped by ten thousand. So what's an army of a few thousand? We have protected everything as just three people. We're the Yorozuya."
+> "*spits out his juice* I don't think so, pops! Do I look like a clown to you?!"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
