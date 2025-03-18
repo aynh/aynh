@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*spits out his juice* I don't think so, pops! Do I look like a clown to you?!"
+> "Then I ask you, what do you define as the beginning of the sky? At one hundred meter or even one thousand meters, it isn't much different from right here. The sole difference is the air density and water concentration. So, this is where sky begins. Anything above the earth belongs to the domain of sky."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Yoshitsune**](https://myanimelist.net/character.php?q=Yoshitsune&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
