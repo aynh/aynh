@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Wrongly placed jealousy is ugly when it goes too far."
+> "No matter how much talent you have, if you aren't the best, you're nothing because there can only be one king. If you're in his shadow, then history won't see you."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Takamura Mamoru**](https://myanimelist.net/character.php?q=Takamura%20Mamoru&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
