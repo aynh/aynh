@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Things that don't change go extinct."
+> "People's mind are like alien existence. We don't know where they are, and we can barely scratch the surface of what they really are."
 
-&mdash; [**Milly Ashford**](https://myanimelist.net/character.php?q=Milly%20Ashford&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/character.php?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
