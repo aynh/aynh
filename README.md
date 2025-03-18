@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let´s see how many people you can kill with the power of love."
+> "I hate deserts. It's nothing but sand. *collapses* If there was some grass, I could turn it into bread. I'm starving! Huh? Hey! Al, where'd you go? Al? Hey!"
 
-&mdash; [**Sanetoshi Watase**](https://myanimelist.net/character.php?q=Sanetoshi%20Watase&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
