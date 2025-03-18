@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Then I ask you, what do you define as the beginning of the sky? At one hundred meter or even one thousand meters, it isn't much different from right here. The sole difference is the air density and water concentration. So, this is where sky begins. Anything above the earth belongs to the domain of sky."
+> "The chosen one? I feel more like the frozen one."
 
-&mdash; [**Yoshitsune**](https://myanimelist.net/character.php?q=Yoshitsune&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
