@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The truth is everyone is going to hurt you, you just got to find the ones worth suffering for."
+> "I know as much of games as I do of hugs and puppies, and care for them even less. Wake me for the end of the world."
 
-&mdash; [**Hei**](https://myanimelist.net/character.php?q=Hei&cat=character), [**Darker than Black - Kuro no Keiyakusha: Gaiden**](https://myanimelist.net/search/all?q=Darker%20than%20Black%20-%20Kuro%20no%20Keiyakusha%3A%20Gaiden&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
