@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trunks, I never hugged you as a baby… let me hug you."
+> "If you are doing it, I'm doing it. If I don't do it, will you? If you don't do it, I'll do it. I'm doing it so that you'll do it too!!"
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Kamina**](https://myanimelist.net/character.php?q=Kamina&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
