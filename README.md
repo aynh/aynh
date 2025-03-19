@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You want to bring back someone that you've lost. You might want money. Maybe you want women. Or, you might want to protect the world. These are all common things people want. Things that their hearts desire. Greed may not be good, but it's not so bad, either. You humans think greed is just for money and power! But everyone wants something they don't have."
+> "Taking responsibility for yourself is the first condition for humanity. One who cannot do even that is less than human. Just a dog, Kariya."
 
-&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Tohsaka Tokiomi**](https://myanimelist.net/character.php?q=Tohsaka%20Tokiomi&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
