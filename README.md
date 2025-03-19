@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One face is given to us by God. The other - we make ourselves."
+> "The truth is everyone is going to hurt you, you just got to find the ones worth suffering for."
 
-&mdash; [**Skull Man**](https://myanimelist.net/character.php?q=Skull%20Man&cat=character), [**The Skull Man**](https://myanimelist.net/search/all?q=The%20Skull%20Man&cat=all)
+&mdash; [**Hei**](https://myanimelist.net/character.php?q=Hei&cat=character), [**Darker than Black - Kuro no Keiyakusha: Gaiden**](https://myanimelist.net/search/all?q=Darker%20than%20Black%20-%20Kuro%20no%20Keiyakusha%3A%20Gaiden&cat=all)
