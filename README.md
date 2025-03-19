@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't be upset because of what you can't do. Do what you do best, live as carefree and optimistically as you can, because some people aren't able to do that."
+> "You want to bring back someone that you've lost. You might want money. Maybe you want women. Or, you might want to protect the world. These are all common things people want. Things that their hearts desire. Greed may not be good, but it's not so bad, either. You humans think greed is just for money and power! But everyone wants something they don't have."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
