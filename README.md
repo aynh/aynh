@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not afraid of the times I can't see him. When I feel pain in my chest, my song grows... The scenery feels closer. The next time I see you... I will, once again, fall in love."
+> "Trunks, I never hugged you as a baby… let me hug you."
 
-&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
