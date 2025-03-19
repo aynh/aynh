@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you are doing it, I'm doing it. If I don't do it, will you? If you don't do it, I'll do it. I'm doing it so that you'll do it too!!"
+> "Hey! Don't you know the rules!? When heroes transform, ride in their machine, or stand in their main pose, no one should attack them!"
 
-&mdash; [**Kamina**](https://myanimelist.net/character.php?q=Kamina&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
+&mdash; [**Da Cider**](https://myanimelist.net/character.php?q=Da%20Cider&cat=character), [**NG Knight Ramune & 40**](https://myanimelist.net/search/all?q=NG%20Knight%20Ramune%20%26%2040&cat=all)
