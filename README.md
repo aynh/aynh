@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "While we are talking of peace, people are dying."
+> "You tick me off. I hate short people anyway. And you're so impertinent for someone younger than me. It makes me want to break you."
 
-&mdash; [**Setsuna F. Seiei**](https://myanimelist.net/character.php?q=Setsuna%20F.%20Seiei&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Kankuro**](https://myanimelist.net/character.php?q=Kankuro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
