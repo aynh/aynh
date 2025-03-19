@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was reckless when I was young. I educated myself by cursing the heartlessness of the world. The world was cruel - so I made myself more heartless and used that as a weapon, trying to follow through on my ideals."
+> "Okay. I will protect all of you. I will never let another friend die."
 
-&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Mary**](https://myanimelist.net/character.php?q=Mary&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
