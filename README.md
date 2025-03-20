@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Toboe] I wanted to take you to paradise."
+> "I don't need you anymore. I'm tired of you. (To Haru)"
 
-&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
