@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We cannot direct the wind, but we can adjust the sails."
+> "Explosion!!!"
 
-&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Megumin**](https://myanimelist.net/character.php?q=Megumin&cat=character), [**Kono Subarashii Sekai ni Shukufuku wo!**](https://myanimelist.net/search/all?q=Kono%20Subarashii%20Sekai%20ni%20Shukufuku%20wo!&cat=all)
