@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To sum up, that is what led to number 679 of the 1,000 provisions you must observe. Always place a dehumidifier in your room."
+> "You can't just wait. You need to make things happen yourself."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Tokie**](https://myanimelist.net/character.php?q=Tokie&cat=character), [**Sakamichi no Apollon**](https://myanimelist.net/search/all?q=Sakamichi%20no%20Apollon&cat=all)
