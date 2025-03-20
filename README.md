@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The worst way to miss someone is to be sitting right next to them and know you can never have them."
+> "To sum up, that is what led to number 679 of the 1,000 provisions you must observe. Always place a dehumidifier in your room."
 
-&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
