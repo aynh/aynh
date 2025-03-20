@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ready or not, Spirit, this is where you take over."
+> "Her sword shines, a dream that all warriors  scattered in battle, past, present, and future, hold and mournfully exalt as their final moments approach. She carries their will as her pride, bidding them to remain steadfast in their loyalty."
 
-&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Irisviel von Einzbern**](https://myanimelist.net/character.php?q=Irisviel%20von%20Einzbern&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
