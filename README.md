@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to spend a lot more time with you! But I don’t want you to think I’m annoying, so I’m holding myself back. When you’re away, I always wonder what you’re doing and thinking."
+> "Hey, mutt! I need exercise, so I'll play with you!"
 
-&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
