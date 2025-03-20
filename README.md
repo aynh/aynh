@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You should keep your distance from me if you want to live. My place is in the shadows, yours in the light. We walk opposite paths, Aberline. It's best that you remember that."
+> "[to Toboe] I wanted to take you to paradise."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
