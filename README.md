@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't need you anymore. I'm tired of you. (To Haru)"
+> "You're right. Whether I ever see that girl again or not, that doesn't change the fact that this promise is important to me. I'm gonna go on treasuring it."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Ichijou Raku**](https://myanimelist.net/character.php?q=Ichijou%20Raku&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
