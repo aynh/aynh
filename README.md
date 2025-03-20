@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If anyone does not love the Lord Jesus Christ, let them be accursed at His coming. God save you from your fate. Amen!"
+> "Whether in a brawl or anything else, bones can be broken but the spirit must not yield. Once a decision was made, it must be upheld until the bitter end."
 
-&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
+&mdash; [**Kamiya Kyousuke**](https://myanimelist.net/character.php?q=Kamiya%20Kyousuke&cat=character), [**Psycho Love Comedy**](https://myanimelist.net/search/all?q=Psycho%20Love%20Comedy&cat=all)
