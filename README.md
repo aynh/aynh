@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'd had fifteen years to think about him. And I realized that it wasn't a matter of the life or death of flesh. What's important to a warrior is the soul...And where it lies."
+> "We cannot direct the wind, but we can adjust the sails."
 
-&mdash; [**Thorkell**](https://myanimelist.net/character.php?q=Thorkell&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
