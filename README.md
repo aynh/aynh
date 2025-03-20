@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A guy with only a cat for a friend won't look attractive by playing cool."
+> "The doors here only open one way. They open inward."
 
-&mdash; [**Saya Minatsuki**](https://myanimelist.net/character.php?q=Saya%20Minatsuki&cat=character), [**Black Cat**](https://myanimelist.net/search/all?q=Black%20Cat&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
