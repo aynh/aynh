@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether in a brawl or anything else, bones can be broken but the spirit must not yield. Once a decision was made, it must be upheld until the bitter end."
+> "Shut up! I did what I had to do. People lie to survive. No one is blameless."
 
-&mdash; [**Kamiya Kyousuke**](https://myanimelist.net/character.php?q=Kamiya%20Kyousuke&cat=character), [**Psycho Love Comedy**](https://myanimelist.net/search/all?q=Psycho%20Love%20Comedy&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
