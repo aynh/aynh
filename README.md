@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Men are not men on the battlefield. We turn into some other creature. You can do the cruelest things... It doesn't even matter if it's an order or not. To protect yourself, your mind shuts out any emotions you have. It's like a steel door. But once the war is over, you can't keep it closed forever."
+> "A guy with only a cat for a friend won't look attractive by playing cool."
 
-&mdash; [**Fullmetal Alchemist**](https://myanimelist.net/character.php?q=Fullmetal%20Alchemist&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Saya Minatsuki**](https://myanimelist.net/character.php?q=Saya%20Minatsuki&cat=character), [**Black Cat**](https://myanimelist.net/search/all?q=Black%20Cat&cat=all)
