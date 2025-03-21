@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Explosion!!!"
+> "There's always someone better. That's why I can't stop fighting."
 
-&mdash; [**Megumin**](https://myanimelist.net/character.php?q=Megumin&cat=character), [**Kono Subarashii Sekai ni Shukufuku wo!**](https://myanimelist.net/search/all?q=Kono%20Subarashii%20Sekai%20ni%20Shukufuku%20wo!&cat=all)
+&mdash; [**Hidetora Toujo**](https://myanimelist.net/character.php?q=Hidetora%20Toujo&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
