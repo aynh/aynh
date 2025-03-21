@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’m afraid of myself, because... I'm a monster."
+> "You can't trust people who call themselves your friends after you've just met them. This is a trap. I know it. A friend who gets close to the protagonist like this is actually the boss, bullying them from the shadows, cornering them into utter despair. And then comes this line... 'The truth is I've hated you from the moment I met you!'"
 
-&mdash; [**Inori Yuzuriha**](https://myanimelist.net/character.php?q=Inori%20Yuzuriha&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Umetarō Nozaki**](https://myanimelist.net/character.php?q=Umetar%C5%8D%20Nozaki&cat=character), [**Monthly Girls' Nozaki-kun**](https://myanimelist.net/search/all?q=Monthly%20Girls'%20Nozaki-kun&cat=all)
