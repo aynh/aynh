@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can no longer believe in the person you love, then test him until you are satisfied."
+> "I just know you are all my newest enemies... and you have really nice guns. You people are all the same. You think you're so special! 'Oh yeah, with all of our wonderful guns on this pathetic train, there's no way anyone can stop us! We are invincible and unbeatable! We are so strong with all of our men and our guns!' *laughs*"
 
-&mdash; [**Bianchi**](https://myanimelist.net/character.php?q=Bianchi&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Ladd Russo**](https://myanimelist.net/character.php?q=Ladd%20Russo&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
