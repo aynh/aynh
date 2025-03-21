@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Forcing their interest on someone else, that's a legitimate previlege of an otaku."
+> "It's not the fun and games you think. It's bizarre... sinister... cursed. (speaking of the curse to Tohru)"
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
