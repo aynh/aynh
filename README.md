@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's overpriced, but that's okay, HERE'S YOUR CHANGE!"
+> "Living your life sympathizing with others in your everyday life is more powerful, than living your life based on a religious belief or some story."
 
-&mdash; [**Touji Suzuhara**](https://myanimelist.net/character.php?q=Touji%20Suzuhara&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Akuto Sai**](https://myanimelist.net/character.php?q=Akuto%20Sai&cat=character), [**Demon King Daimao**](https://myanimelist.net/search/all?q=Demon%20King%20Daimao&cat=all)
