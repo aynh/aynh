@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who stand above others, must have noble ideals along with the most noble intentions. Anyone that cannot manage the will of the masses is not fit to serve as the leader. You say you're punishing someone for standing up to you? That kind of justice is a lie."
+> "Do not fear Death. Death is always at our side. When we show fear, it jumps at us faster than light. But, if we do not show fear, it casts its eye upon us gently and then guides us into infinity."
 
-&mdash; [**Silver Knight**](https://myanimelist.net/character.php?q=Silver%20Knight&cat=character), [**.hack//GIFT**](https://myanimelist.net/search/all?q=.hack%2F%2FGIFT&cat=all)
+&mdash; [**Laughing Bull**](https://myanimelist.net/character.php?q=Laughing%20Bull&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
