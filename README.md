@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just know you are all my newest enemies... and you have really nice guns. You people are all the same. You think you're so special! 'Oh yeah, with all of our wonderful guns on this pathetic train, there's no way anyone can stop us! We are invincible and unbeatable! We are so strong with all of our men and our guns!' *laughs*"
+> "It's where all parallel lines meet. Where conflicting ideas are reconciled. It is... above the horizon."
 
-&mdash; [**Ladd Russo**](https://myanimelist.net/character.php?q=Ladd%20Russo&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Horizon Ariadust**](https://myanimelist.net/character.php?q=Horizon%20Ariadust&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
