@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment you put it into words and tell someone, it starts to diverge from your feelings. Words are nothing but lies and nothing but cheats. No matter what the truth, the moment it is told, it becomes dramatized."
+> "Come down here and face me, you third-rate fraud. I'll show you there's no comparison between us!"
 
-&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
