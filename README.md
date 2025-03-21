@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are a few things that people can't avoid while they live. People can't avoid misfortune. There are lots of hard things in life. There might even be times when you want to die."
+> "You all underestimate humans. Individually, they may appear weak, but that is not the case. What we need to recognize is that humans are a single life-form comprised of millions of individuals. Besides their individual brains, humans possess a different 'brain' of enormous magnitude. The moment we act in opposition to that brain, we will lose."
 
-&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
+&mdash; [**Tamura Reiko**](https://myanimelist.net/character.php?q=Tamura%20Reiko&cat=character), [**Parasyte -the maxim-**](https://myanimelist.net/search/all?q=Parasyte%20-the%20maxim-&cat=all)
