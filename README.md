@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not the fun and games you think. It's bizarre... sinister... cursed. (speaking of the curse to Tohru)"
+> "It's impossible to share everything. No one can become someone else. It's natural to envy someone who's more wealthy or who has higher standing. That's how conflicts begin. However, being blissfully unaware of this, relying on whatever someone provided without thinking, and only seeing things as 'black' or 'white' with such overly simplified thinking... Isn't that a sin as well? People need to think for themselves. For this reason, someone 'grey', someone between 'black' and 'white' is essential. I will not gloss over the flaws in my ideals. It's not possible for all of mankind to share the same kind of thoughts. However, everyone is capable of thought. Everyone can learn, share, and decide with their own strength. A world built upon an understanding of that. If this is a 'dream', if I don't realize it, who will?"
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Sinbad**](https://myanimelist.net/character.php?q=Sinbad&cat=character), [**Magi: Adventure of Sinbad**](https://myanimelist.net/search/all?q=Magi%3A%20Adventure%20of%20Sinbad&cat=all)
