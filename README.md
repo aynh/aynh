@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans have the ability to actively put things to an end rather than simply accept what's in store."
+> "A sound soul dwells within sound skin and sound cuticles."
 
-&mdash; [**Souda Manatsu**](https://myanimelist.net/character.php?q=Souda%20Manatsu&cat=character), [**RDG: Red Data Girl**](https://myanimelist.net/search/all?q=RDG%3A%20Red%20Data%20Girl&cat=all)
+&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
