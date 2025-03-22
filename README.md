@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Can you do me a favor? Could you kill me with your fangs? Can you still not forgive me? Am I still a traitor?"
+> "So what if you're an aristocrat?! Dying for the sake of honor is something an idiot does!"
 
-&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Saito Hiraga**](https://myanimelist.net/character.php?q=Saito%20Hiraga&cat=character), [**Zero no Tsukaima: Futatsuki no Kishi**](https://myanimelist.net/search/all?q=Zero%20no%20Tsukaima%3A%20Futatsuki%20no%20Kishi&cat=all)
