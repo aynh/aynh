@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As a musician, in the process of learning from a teacher, your differences breed a sense of discomfort which you should cherish. It's because of those differences that we have individuality."
+> "What must be done... Must be done. No matter what. Complete your mission. You were born into this world so that you could complete your mission."
 
-&mdash; [**Hiroko Seto**](https://myanimelist.net/character.php?q=Hiroko%20Seto&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Annie Leonhardt**](https://myanimelist.net/character.php?q=Annie%20Leonhardt&cat=character), [**Shingeki no Kyojin: Lost Girls**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Lost%20Girls&cat=all)
