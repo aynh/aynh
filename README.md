@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Also, the 'fear' experience is a little different from yours, I imagine. You're afraid of what you might lose, right? But I'm afraid of what I've already lost."
+> "I can see through you, you're lying, you want to gobble up my hot body!"
 
-&mdash; [**Kyōko Kirigiri**](https://myanimelist.net/character.php?q=Ky%C5%8Dko%20Kirigiri&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
