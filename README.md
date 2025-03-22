@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I only have one chance to have my life, and it's right here. It's the only life I have. This is my life. I can't give it to anyone else, It can't be stolen, I can't force it on anyone, or forget it, or make it disappear, or trample on it, or laugh it away, or beautify it. I have no choice but to accept this one cruel, meaningless life! That's why I will fight, and why I will continue fighting."
+> "I've got nowhere to go back to. So all I can do is move forward."
 
-&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
