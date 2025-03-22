@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I can get my target to move as I want, I've succeeded as a Hunter."
+> "I'm the one who is grateful. That's because you're all willing to be my friends. For that, I'm grateful."
 
-&mdash; [**Ging Freecss**](https://myanimelist.net/character.php?q=Ging%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Manato**](https://myanimelist.net/character.php?q=Manato&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
