@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm the one who is grateful. That's because you're all willing to be my friends. For that, I'm grateful."
+> "No matter how severe the situation is, if you continue to stay there, you'll accept everything as a everyday life."
 
-&mdash; [**Manato**](https://myanimelist.net/character.php?q=Manato&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
