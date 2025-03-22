@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder if the flowers themselves are happy, being forced to last so long. Eternity doesn't exist in this world, does it? It's just that one could think that a heart that longs for eternity is beautiful."
+> "Can you do me a favor? Could you kill me with your fangs? Can you still not forgive me? Am I still a traitor?"
 
-&mdash; [**Mamiya Chida**](https://myanimelist.net/character.php?q=Mamiya%20Chida&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
+&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
