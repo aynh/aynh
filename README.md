@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I always thought of humans as intelligent dominoes, since they tend to follow each other."
+> "At times, the truth can be cruel."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Shin Fukuhara**](https://myanimelist.net/character.php?q=Shin%20Fukuhara&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
