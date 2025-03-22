@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What must be done... Must be done. No matter what. Complete your mission. You were born into this world so that you could complete your mission."
+> "If I can get my target to move as I want, I've succeeded as a Hunter."
 
-&mdash; [**Annie Leonhardt**](https://myanimelist.net/character.php?q=Annie%20Leonhardt&cat=character), [**Shingeki no Kyojin: Lost Girls**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Lost%20Girls&cat=all)
+&mdash; [**Ging Freecss**](https://myanimelist.net/character.php?q=Ging%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
