@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay to make mistakes. In fact, you should. Making mistakes is how you learn to do it right. Getting a good result isn't the only thing. What matters is that you play your best during the game."
+> "I wonder if the flowers themselves are happy, being forced to last so long. Eternity doesn't exist in this world, does it? It's just that one could think that a heart that longs for eternity is beautiful."
 
-&mdash; [**Soujuu Matsushita**](https://myanimelist.net/character.php?q=Soujuu%20Matsushita&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
+&mdash; [**Mamiya Chida**](https://myanimelist.net/character.php?q=Mamiya%20Chida&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
