@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A sound soul dwells within sound skin and sound cuticles."
+> "It's okay to make mistakes. In fact, you should. Making mistakes is how you learn to do it right. Getting a good result isn't the only thing. What matters is that you play your best during the game."
 
-&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Soujuu Matsushita**](https://myanimelist.net/character.php?q=Soujuu%20Matsushita&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
