@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A very small degree of hope is sufficient to cause the birth of love."
+> "'Those who believe will be saved'. It's just that I wanted to find out whether you'll be saved if you believed. If such a thing were true, I feel like I can change myself too."
 
-&mdash; [**Sayonara Zetsubou Sensei**](https://myanimelist.net/character.php?q=Sayonara%20Zetsubou%20Sensei&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
