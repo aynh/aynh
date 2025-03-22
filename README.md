@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So what if you're an aristocrat?! Dying for the sake of honor is something an idiot does!"
+> "Death is not the end of life, it's the completion of life."
 
-&mdash; [**Saito Hiraga**](https://myanimelist.net/character.php?q=Saito%20Hiraga&cat=character), [**Zero no Tsukaima: Futatsuki no Kishi**](https://myanimelist.net/search/all?q=Zero%20no%20Tsukaima%3A%20Futatsuki%20no%20Kishi&cat=all)
+&mdash; [**Irina**](https://myanimelist.net/character.php?q=Irina&cat=character), [**Akuma no Riddle**](https://myanimelist.net/search/all?q=Akuma%20no%20Riddle&cat=all)
