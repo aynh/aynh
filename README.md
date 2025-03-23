@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Before creation… must come destruction!"
+> "Only someone that's prepared to devote oneself to others' happiness, without caring about his own, is allowed to become a king."
 
-&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Oomine Daiya**](https://myanimelist.net/character.php?q=Oomine%20Daiya&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
