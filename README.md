@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What isn't remembered never happened."
+> "When humans are faced with truly terrifying circumstances, they don't think about other people around them. They're even willing to sacrifice those around themselves. By exposing that unsightly part of them, they can no longer get along."
 
-&mdash; [**Lain Iwakura**](https://myanimelist.net/character.php?q=Lain%20Iwakura&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
