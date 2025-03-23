@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am a complete opposite of Ryuk."
+> "What exactly is the end? The end. The end. The end. I've seen the end over and over. What is the end?"
 
-&mdash; [**Rem (Death Note)**](https://myanimelist.net/character.php?q=Rem%20(Death%20Note)&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
