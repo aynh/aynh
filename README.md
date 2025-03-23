@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When humans are faced with truly terrifying circumstances, they don't think about other people around them. They're even willing to sacrifice those around themselves. By exposing that unsightly part of them, they can no longer get along."
+> "A bond may seem like a beautiful thing from the outside...but if those involved see it as a burden, it's nothing but a shackle."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
