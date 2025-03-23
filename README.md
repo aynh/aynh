@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Aren't you the least bit curious? About the ultimate extent of humanity's insatiable desires? About the fools who pursued their insane dream in the name of progress? Because after all, Kira, you're a child of this too."
+> "I am a complete opposite of Ryuk."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Rem (Death Note)**](https://myanimelist.net/character.php?q=Rem%20(Death%20Note)&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
