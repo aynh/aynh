@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What exactly is the end? The end. The end. The end. I've seen the end over and over. What is the end?"
+> "So because you think you got the ending, you're giving up on viewing the whole play? Even though it could still lead to a climax that you weren't able to predict?"
 
-&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Ushiromiya Lion**](https://myanimelist.net/character.php?q=Ushiromiya%20Lion&cat=character), [**Umineko no Naku Koro ni Chiru Episode 8: Twilight of the...**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni%20Chiru%20Episode%208%3A%20Twilight%20of%20the...&cat=all)
