@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Games are fun because you can do things you couldn’t in real life, right?"
+> "[naked and smiling at Shinji] Hey Shinji, you idiot! Want to become of one mind and one body?"
 
-&mdash; [**Akatsuki**](https://myanimelist.net/character.php?q=Akatsuki&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Souryuu Asuka Langley**](https://myanimelist.net/character.php?q=Souryuu%20Asuka%20Langley&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
