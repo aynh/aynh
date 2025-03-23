@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At last, the sea lion has crossed the ocean and is heading up the hill! Attention soldiers of the Millennium battalion, this is a message from your commander! Friends, let's bring them Hell."
+> "Remember how you're supposed to let go right away when you fall off a horse and hit the ground? You don't need to hurt yourself for no reason. If you don't let go, you'll get dragged by the horse and get hurt."
 
-&mdash; [**Montana Max**](https://myanimelist.net/character.php?q=Montana%20Max&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Aki Mikage (Silver Spoon)**](https://myanimelist.net/character.php?q=Aki%20Mikage%20(Silver%20Spoon)&cat=character), [**Silver Spoon**](https://myanimelist.net/search/all?q=Silver%20Spoon&cat=all)
