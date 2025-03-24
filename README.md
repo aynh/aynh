@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When one thing ends, another begins."
+> "The ones who aren't able to acknowledge their own selves are bound to fail."
 
-&mdash; [**Riko Aida**](https://myanimelist.net/character.php?q=Riko%20Aida&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
