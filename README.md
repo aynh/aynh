@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's quite educational, seeing the thought process of someone in charge."
+> "I have nothing but me. I'll give you myself. You can use me however you like for the rest of my life. (To Shigure)"
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
