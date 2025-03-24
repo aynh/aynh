@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The ones who aren't able to acknowledge their own selves are bound to fail."
+> "I'll get what I want... even if I have to steal it."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Rue Kuroha**](https://myanimelist.net/character.php?q=Rue%20Kuroha&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
