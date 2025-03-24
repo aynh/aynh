@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People are weak. Because of their weakness, they sometimes behave in ways devoid of self-respect. But then, so what if they do, my old friend? Even if I am struck with a thousand setbacks... it does not serve as a reason to alter the way I live... my life!"
+> "Spring will be here soon. Spring, the season I met you, is coming. A Spring without you...is coming."
 
-&mdash; [**Klaus von Reinherz**](https://myanimelist.net/character.php?q=Klaus%20von%20Reinherz&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
