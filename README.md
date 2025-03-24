@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have nothing but me. I'll give you myself. You can use me however you like for the rest of my life. (To Shigure)"
+> "Beautiful night, isn't it, Police Girl? It's especially beautiful, of course, if you're a bloodsucker."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
