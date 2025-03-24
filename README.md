@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only someone that's prepared to devote oneself to others' happiness, without caring about his own, is allowed to become a king."
+> "I won't ask what you wish for. I only hope it comes true by your own two hands. (to Kyo)"
 
-&mdash; [**Oomine Daiya**](https://myanimelist.net/character.php?q=Oomine%20Daiya&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
