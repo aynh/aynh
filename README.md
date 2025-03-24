@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ciel, how are you?"
+> "Everyone becomes an adult by learning how to give up on things."
 
-&mdash; [**Elizabeth Middleford**](https://myanimelist.net/character.php?q=Elizabeth%20Middleford&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Jihou**](https://myanimelist.net/character.php?q=Jihou&cat=character), [**Da Capo II**](https://myanimelist.net/search/all?q=Da%20Capo%20II&cat=all)
