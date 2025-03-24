@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Math is like a puzzle or a game. There's a clear answer, and you're going on a journey to find it. But there are many ways to reach that answer. That's why it's so fulfilling when you find the solution. There are ways to find an answer promptly, or more freely. Even roundabout methods can bring you to a definite solution. The method may not be pretty, but when the answer you worked hard to discover is right, it makes you happy."
+> "Please remember that there are times to take someone's hand and lead them along... But also times when you must be stern and let them fend for themselves."
 
-&mdash; [**Kaori Fujimiya**](https://myanimelist.net/character.php?q=Kaori%20Fujimiya&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
