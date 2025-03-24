@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why do you have to pay money to eat?! Can't we all just share?! Where is freedom in the world?! All are slaves to labor!! The rich grow fat... While the poor die!!"
+> "It's quite educational, seeing the thought process of someone in charge."
 
-&mdash; [**Hammerhead**](https://myanimelist.net/character.php?q=Hammerhead&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
