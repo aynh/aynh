@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Please remember that there are times to take someone's hand and lead them along... But also times when you must be stern and let them fend for themselves."
+> "Know that the only people you can save like that are the ones that survive."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
