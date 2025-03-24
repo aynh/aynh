@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I won't ask what you wish for. I only hope it comes true by your own two hands. (to Kyo)"
+> "It is sky that allows the cloud to move about freely. But someday, I will even bite up the sky itself."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
