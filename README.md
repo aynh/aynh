@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mom taught me that people's differences are something to celebrate. When I thought of all the different shapes of human kindness -- imagining them as round or square...I got really excited. Your kindness is like a candle Sohma-kun. I can feel it light up, and I just want to smile. It's that kind of kindness."
+> "Hmm... *puts on a happy face* Delectable tea... *changes to serious face* or deadly poison?.."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
