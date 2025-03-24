@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone becomes an adult by learning how to give up on things."
+> "What are you smoking? Don't you see how cool I am? You think I'm going to settle for a flat chested girl like her?"
 
-&mdash; [**Jihou**](https://myanimelist.net/character.php?q=Jihou&cat=character), [**Da Capo II**](https://myanimelist.net/search/all?q=Da%20Capo%20II&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
