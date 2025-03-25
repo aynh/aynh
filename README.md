@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will defeat him. It may cost my life to do it. However, if I survive, I'll make a promise. The same promise as that time, on the same thing as that time."
+> "What does it feel like, having your own death right before your eyes? That grand kaleidoscope glimpsed in the moments before death... What could be flashing through that perfect mind of yours?"
 
-&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
