@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And without any buildup or fanfare, we now see Nagato Yuki. Even if she were ordinary, she sure doesn't look like a normal person and naturally, she was actually an evil magician. And an alien on top of that."
+> "Awaken, Benihime."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
