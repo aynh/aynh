@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you make fiction just as valuable as reality, then any reality you don't need can be a delusion."
+> "Better to ask and be a fool once than never to ask and be a fool forever."
 
-&mdash; [**Erika Karisawa**](https://myanimelist.net/character.php?q=Erika%20Karisawa&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Yumi Iguchi**](https://myanimelist.net/character.php?q=Yumi%20Iguchi&cat=character), [**Shirobako**](https://myanimelist.net/search/all?q=Shirobako&cat=all)
