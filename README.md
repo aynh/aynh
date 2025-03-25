@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have to fool your own people before you try to bluff the enemy."
+> "Those bound by superficial rules who do not use their pawns to the utmost are fools."
 
-&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
