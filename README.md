@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't go thinking you're my rival, you circus freak!"
+> "You can't see the whole picture until you look at it from the outside."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Trafalgar Law**](https://myanimelist.net/character.php?q=Trafalgar%20Law&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
