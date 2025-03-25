@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What does it feel like, having your own death right before your eyes? That grand kaleidoscope glimpsed in the moments before death... What could be flashing through that perfect mind of yours?"
+> "What exactly is the end? The end. The end. The end. I've seen the end over and over. What is the end?"
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
