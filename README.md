@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All men are jealous and stupid, and all women are stupid to be happy about it, idiots are everywhere you look!"
+> "Be not a fool, I have no such time to waste."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
