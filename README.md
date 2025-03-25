@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We fail. We make mistakes. But each time we do, I think we become stronger."
+> "On this planet you call females who have yet to become adults, girls. It makes sense then that since you'll eventually become withes, you should be called Magical Girls."
 
-&mdash; [**Kyouka Katagiri**](https://myanimelist.net/character.php?q=Kyouka%20Katagiri&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
+&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Puella Magi Madoka Magica**](https://myanimelist.net/search/all?q=Puella%20Magi%20Madoka%20Magica&cat=all)
