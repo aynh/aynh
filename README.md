@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We can't waste time worrying about the what-if's. Rukia's execution date has been changed to noon tomorrow. So what? If the deadline has been changed to tomorrow... I'll just have to finish today!"
+> "*to Inuyasha* You fight as though you're still a child."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
