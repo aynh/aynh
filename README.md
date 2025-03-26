@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't change reality, just your perception!"
+> "If you're looking at a single withered tree, it can seem like a big wound to the forest. But from the forest's perspective, that tree's remains will nourish other plants, acting for the good of the whole forest. If you change your perspective, a situation right in front of you, can reverse itself."
 
-&mdash; [**Father**](https://myanimelist.net/character.php?q=Father&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
