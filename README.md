@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Such a shame. I overestimated you. As a vampire, you were just a pathetic piece of shit. And now you're nothing but dog shit!"
+> "Why did I fall in love with music in the first place?"
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Jirō Yamada**](https://myanimelist.net/character.php?q=Jir%C5%8D%20Yamada&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
