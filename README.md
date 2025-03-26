@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To rule time is to rule the world."
+> "If you keep your vision clear you will see the future. What happens in our future is our own responsibility."
 
-&mdash; [**Suzuha Amane**](https://myanimelist.net/character.php?q=Suzuha%20Amane&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Rem Saverem**](https://myanimelist.net/character.php?q=Rem%20Saverem&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
