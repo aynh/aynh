@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why did I fall in love with music in the first place?"
+> "Weak humans are sly and irresponsible, they always put the blame on and hurt others."
 
-&mdash; [**Jirō Yamada**](https://myanimelist.net/character.php?q=Jir%C5%8D%20Yamada&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Toto Sakigami**](https://myanimelist.net/character.php?q=Toto%20Sakigami&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
