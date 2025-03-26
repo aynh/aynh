@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Peace under an illusion is not true peace. It's only meaningful if the real world manages to accomplish it."
+> "It would be so great if it was possible to go through life without making a single mistake."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
