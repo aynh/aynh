@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're looking at a single withered tree, it can seem like a big wound to the forest. But from the forest's perspective, that tree's remains will nourish other plants, acting for the good of the whole forest. If you change your perspective, a situation right in front of you, can reverse itself."
+> "DEATH is so unfair. It comes to those who don't need it. But not the people who are asking for it."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Yuu Otosaka**](https://myanimelist.net/character.php?q=Yuu%20Otosaka&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
