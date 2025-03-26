@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How do you prove that you exist...? Maybe we don't exist."
+> "It's not a matter of a creature's individual worth. It's a matter of a creature's personal feelings."
 
-&mdash; [**Vivi Ornitier**](https://myanimelist.net/character.php?q=Vivi%20Ornitier&cat=character), [**Final Fantasy IX**](https://myanimelist.net/search/all?q=Final%20Fantasy%20IX&cat=all)
+&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
