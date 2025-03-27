@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Good women flow like water."
+> "You are not the man you used to be. You are stronger and wiser and freer than you ever used to be. And now you have come at the crossroads of destiny. It's time for you to choose. It's time for you to choose good."
 
-&mdash; [**Sakurai Tomozo**](https://myanimelist.net/character.php?q=Sakurai%20Tomozo&cat=character), [**Sora no Otoshimono: Forte**](https://myanimelist.net/search/all?q=Sora%20no%20Otoshimono%3A%20Forte&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
