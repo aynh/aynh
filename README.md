@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to be free from your suffering, make up your mind. If you give up on your dream, you will suffer more."
+> "Don't tell me he wants to conquer the world? Can't he come up with something more original?"
 
-&mdash; [**Might Guy**](https://myanimelist.net/character.php?q=Might%20Guy&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
