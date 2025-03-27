@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Inherited will, the swelling of the changing times, and the dreams of people. These are things that cannot be stopped. As long as people seek the answer to freedom, these will never cease to be!"
+> "Hatred will never be erased! The only thing you can do is erase the ones you hate!"
 
-&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Hakuryū Ren**](https://myanimelist.net/character.php?q=Hakury%C5%AB%20Ren&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
