@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I'm with Iruka-sensei, I think if that's what having a father is like... *to Sasuke* When I'm with you, I think if that's what having a brother is like."
+> "Even if doesn't alter or change the end result in the slightest, making decisions based on convictions that you believe in and walking your own path has its own merit and worth. There's something to be said for not having... even one regret."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Haschwalth Jugram**](https://myanimelist.net/character.php?q=Haschwalth%20Jugram&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
