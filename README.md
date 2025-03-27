@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You'll have some painful, despair-ridden experiences. In fact, most of them will be tragic. But we chose to walk this path. We'll take on the dirty work. And change the world. After we finish, we can disappear."
+> "I was in the avatar state... But I was outside my body watching myself. It was scary. I was scary..."
 
-&mdash; [**Bulat**](https://myanimelist.net/character.php?q=Bulat&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
