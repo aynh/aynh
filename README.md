@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Spring will be here soon. Spring, the season I met you, is coming. A Spring without you...is coming."
+> "To me, the world is not only the shape on the map. On the battle field, all I see are the faces of the order and my friends... I am an awful person aren't I? Instead of the real world, all I care about is my friends. That's because they are my whole world... Even if just one of my friends dies, to me, it's the same thing as part of the world being destroyed."
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Lenalee Lee**](https://myanimelist.net/character.php?q=Lenalee%20Lee&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
