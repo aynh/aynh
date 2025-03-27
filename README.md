@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you live, your life will end sooner or later. The body will return to the earth. Grass and flowers will grow on top of it. The soul will nourish the hearts... and it will live on in the hearts of other people. Everything in this world flows around and circulates. That goes for human lives too."
+> "Spring will be here soon. Spring, the season I met you, is coming. A Spring without you...is coming."
 
-&mdash; [**Izumi Curtis**](https://myanimelist.net/character.php?q=Izumi%20Curtis&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
