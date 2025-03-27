@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if doesn't alter or change the end result in the slightest, making decisions based on convictions that you believe in and walking your own path has its own merit and worth. There's something to be said for not having... even one regret."
+> "Good women flow like water."
 
-&mdash; [**Haschwalth Jugram**](https://myanimelist.net/character.php?q=Haschwalth%20Jugram&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sakurai Tomozo**](https://myanimelist.net/character.php?q=Sakurai%20Tomozo&cat=character), [**Sora no Otoshimono: Forte**](https://myanimelist.net/search/all?q=Sora%20no%20Otoshimono%3A%20Forte&cat=all)
