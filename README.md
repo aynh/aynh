@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not knowing everything in this world is fun."
+> "There's only one certainty in life. A strong man stands above and conquers all!"
 
-&mdash; [**Akise Aru**](https://myanimelist.net/character.php?q=Akise%20Aru&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
