@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hatred will never be erased! The only thing you can do is erase the ones you hate!"
+> "I have long forgotten how to laugh as if I were having fun."
 
-&mdash; [**Hakuryū Ren**](https://myanimelist.net/character.php?q=Hakury%C5%AB%20Ren&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
