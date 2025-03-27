@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Cry... yell... act tough... be proud of the way you live... LAUGH!"
+> "If I was the protagonist in this story, I'm sure someone would come save me. It would be like a miracle. But I have no one to save me. There is no god who would grant me a miracle. I'm a murderer, after all. But I've done nothing bad. All I did was feed myself. If I hadn't, I would have starved to death. Would it have been better that way? Am I evil because I didn't let myself starve to death? Give me an answer, Muroi-san! I didn't willingly become such a creature. But if I have a life, shouldn't I treasure it? Is that a sin? Muroi-san! This is what it means to be abandoned by God."
 
-&mdash; [**Tenka Kumō**](https://myanimelist.net/character.php?q=Tenka%20Kum%C5%8D&cat=character), [**Donten ni Warau**](https://myanimelist.net/search/all?q=Donten%20ni%20Warau&cat=all)
+&mdash; [**Sunako Kirishiki**](https://myanimelist.net/character.php?q=Sunako%20Kirishiki&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
