@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if it’s a coincidence, it’s wonderful when someone understands how you feel."
+> "Not knowing everything in this world is fun."
 
-&mdash; [**Norie Okazaki**](https://myanimelist.net/character.php?q=Norie%20Okazaki&cat=character), [**Tamayura**](https://myanimelist.net/search/all?q=Tamayura&cat=all)
+&mdash; [**Akise Aru**](https://myanimelist.net/character.php?q=Akise%20Aru&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
