@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm a pirate hunter."
+> "Honestly, how meaningless.. For something called love, which has neither meaning nor form. Laughable, isn't it?"
 
-&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
