@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’m not the same as you. I’ll never dream about things that I know won’t come true."
+> "GOOD MOOOORNING ICHIGOOOOOO!!!!"
 
-&mdash; [**Chiriko Tsurumi**](https://myanimelist.net/character.php?q=Chiriko%20Tsurumi&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
+&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
