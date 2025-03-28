@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Childish ideals pale when placed before reality."
+> "We cannot direct the wind, but we can adjust the sails."
 
-&mdash; [**Citan Uzuki**](https://myanimelist.net/character.php?q=Citan%20Uzuki&cat=character), [**Xenogears**](https://myanimelist.net/search/all?q=Xenogears&cat=all)
+&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
