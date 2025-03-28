@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you lose credibility by just admitting fault, then you didn't have any in the first place."
+> "*to Ohana* You can't do everything by yourself!... But I can't do it by myself, either. I need your help."
 
-&mdash; [**Fujitora**](https://myanimelist.net/character.php?q=Fujitora&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Minko Tsurugi**](https://myanimelist.net/character.php?q=Minko%20Tsurugi&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
