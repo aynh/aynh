@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He won't play up to anyone. He won't be led astray by anything. He simply places himself in a clear space."
+> "Mada mada dane."
 
-&mdash; [**Yu Kanda**](https://myanimelist.net/character.php?q=Yu%20Kanda&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Ryoma Echizen**](https://myanimelist.net/character.php?q=Ryoma%20Echizen&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
