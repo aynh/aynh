@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To become an observer, you shouldn't have someone you like or dislike, because special feelings or bias info would make it difficult for one to judge a situation."
+> "It's a rule that I've had in my life. Kill anyone who calls me 'Dirty Red'."
 
-&mdash; [**Kanoko Naedoko**](https://myanimelist.net/character.php?q=Kanoko%20Naedoko&cat=character), [**Warau Kanoko-sama**](https://myanimelist.net/search/all?q=Warau%20Kanoko-sama&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
