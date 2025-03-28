@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kurama, do not make me come over there and remove that precious thing you call a voice box."
+> "He won't play up to anyone. He won't be led astray by anything. He simply places himself in a clear space."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Yu Kanda**](https://myanimelist.net/character.php?q=Yu%20Kanda&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
