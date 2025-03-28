@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Honestly, how meaningless.. For something called love, which has neither meaning nor form. Laughable, isn't it?"
+> "Just wild heaven."
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
