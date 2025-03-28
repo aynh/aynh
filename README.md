@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Ohana* You can't do everything by yourself!... But I can't do it by myself, either. I need your help."
+> "As a cool guy, I'm used to seeing naked women."
 
-&mdash; [**Minko Tsurugi**](https://myanimelist.net/character.php?q=Minko%20Tsurugi&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
