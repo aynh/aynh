@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But I think... I want to live with all my memories. Even if they're bad memories. Even if they're memories that only hurt me... that I'd rather forget. If I keep them and keep trying, without running away, then someday I'll be strong enough that those memories can't defeat me. I believe that because I want to think that there's no such thing as a memory that's ok to forget."
+> "We need to stop living for others. From now on...Let's live for ourselves!!"
 
-&mdash; [**Sohma Momiji**](https://myanimelist.net/character.php?q=Sohma%20Momiji&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Historia Reiss**](https://myanimelist.net/character.php?q=Historia%20Reiss&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
