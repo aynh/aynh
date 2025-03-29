@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For a man to stand up again, he needs one thing... 'To make excuses'."
+> "If I had been more decisive, and acted sooner, I could have stopped Sozin, and stopped the war before it started. I offer you this wisdom, Aang, you must be decisive."
 
-&mdash; [**Takamura Mamoru**](https://myanimelist.net/character.php?q=Takamura%20Mamoru&cat=character), [**Hajime no Ippo - Champion Road**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo%20-%20Champion%20Road&cat=all)
+&mdash; [**Roku**](https://myanimelist.net/character.php?q=Roku&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
