@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just wild heaven."
+> "There are liars who only lie when there's a reason to, and there are liars who also lie without a reason."
 
-&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Biscuit Krueger**](https://myanimelist.net/character.php?q=Biscuit%20Krueger&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
