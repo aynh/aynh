@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We’re always serious. We’re seriously joking around."
+> "Underestimating an opponent is the first step towards defeat."
 
-&mdash; [**Anarchy Stocking**](https://myanimelist.net/character.php?q=Anarchy%20Stocking&cat=character), [**Panty And Stocking With Gaterbelt**](https://myanimelist.net/search/all?q=Panty%20And%20Stocking%20With%20Gaterbelt&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
