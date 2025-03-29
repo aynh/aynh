@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I had been more decisive, and acted sooner, I could have stopped Sozin, and stopped the war before it started. I offer you this wisdom, Aang, you must be decisive."
+> "We probably are.  I can't explain it very well, but it seems that lately it doesn't matter, human or spirit.  If your hearts touch, it's the same thing.  When you're all alone, you get lonely, and the first step is always scary."
 
-&mdash; [**Roku**](https://myanimelist.net/character.php?q=Roku&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Natsume Takeshi**](https://myanimelist.net/character.php?q=Natsume%20Takeshi&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
