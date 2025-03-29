@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are liars who only lie when there's a reason to, and there are liars who also lie without a reason."
+> "Your high school life will be over before you know it. There are things you can only do now. You should do as many of them as you can."
 
-&mdash; [**Biscuit Krueger**](https://myanimelist.net/character.php?q=Biscuit%20Krueger&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Youichi Tanaka**](https://myanimelist.net/character.php?q=Youichi%20Tanaka&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
