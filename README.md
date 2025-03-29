@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Russia* You were such a cute country when you were born and now your all grown up..."
+> "For a man to stand up again, he needs one thing... 'To make excuses'."
 
-&mdash; [**France**](https://myanimelist.net/character.php?q=France&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Takamura Mamoru**](https://myanimelist.net/character.php?q=Takamura%20Mamoru&cat=character), [**Hajime no Ippo - Champion Road**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo%20-%20Champion%20Road&cat=all)
