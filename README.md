@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The worst way to miss someone is to be sitting right next to them and know you can never have them."
+> "This area feels weird, it's been throbbing hard since that time. When you told me not to go. When you held me so tight. It won't go away. Your voice is still in my ear. What happened to me? Is this... love?"
 
-&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
+&mdash; [**Mashiro Shiina**](https://myanimelist.net/character.php?q=Mashiro%20Shiina&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
