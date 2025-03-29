@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We probably are.  I can't explain it very well, but it seems that lately it doesn't matter, human or spirit.  If your hearts touch, it's the same thing.  When you're all alone, you get lonely, and the first step is always scary."
+> "Some of us showed a strength we didn't expect. Some of us went ballistic like we thought they would, some got all fired up for next time and some irresponsible- lookin' types turned out to be crazy serious. The guy we thought was just a little runt turned out to be a genius assassin, and a guy we thought was a genius was secretly workin' hard all along. With all these different skillsets...we just might be able to handle any challenge that comes our way."
 
-&mdash; [**Natsume Takeshi**](https://myanimelist.net/character.php?q=Natsume%20Takeshi&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Ryōma Terasaka**](https://myanimelist.net/character.php?q=Ry%C5%8Dma%20Terasaka&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
