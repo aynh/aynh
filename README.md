@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pain, suffering, sadness... We all accept it, and that's why we can move forward!"
+> "When you are feeling sad... smile, even if you have to force yourself... If you cry when it gets painful... it will only get more painful."
 
-&mdash; [**Tooru Kazasumi**](https://myanimelist.net/character.php?q=Tooru%20Kazasumi&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
+&mdash; [**Chie**](https://myanimelist.net/character.php?q=Chie&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
