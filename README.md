@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Misfortune… that is my symbol. Unluckiness… that is my identity. I am a woman who looks best dressed in solitude and misfortune. That is who I am."
+> "Weak humans are sly and irresponsible, they always put the blame on and hurt others."
 
-&mdash; [**Hong Lihua**](https://myanimelist.net/character.php?q=Hong%20Lihua&cat=character), [**Sousei no Aquarion**](https://myanimelist.net/search/all?q=Sousei%20no%20Aquarion&cat=all)
+&mdash; [**Toto Sakigami**](https://myanimelist.net/character.php?q=Toto%20Sakigami&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
