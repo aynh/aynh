@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you are feeling sad... smile, even if you have to force yourself... If you cry when it gets painful... it will only get more painful."
+> "The worst way to miss someone is to be sitting right next to them and know you can never have them."
 
-&mdash; [**Chie**](https://myanimelist.net/character.php?q=Chie&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
