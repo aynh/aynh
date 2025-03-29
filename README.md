@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your high school life will be over before you know it. There are things you can only do now. You should do as many of them as you can."
+> "We’re always serious. We’re seriously joking around."
 
-&mdash; [**Youichi Tanaka**](https://myanimelist.net/character.php?q=Youichi%20Tanaka&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Anarchy Stocking**](https://myanimelist.net/character.php?q=Anarchy%20Stocking&cat=character), [**Panty And Stocking With Gaterbelt**](https://myanimelist.net/search/all?q=Panty%20And%20Stocking%20With%20Gaterbelt&cat=all)
