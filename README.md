@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Right, It's too late for doubts now. There is no returning from this place I've come to."
+> "Misfortune… that is my symbol. Unluckiness… that is my identity. I am a woman who looks best dressed in solitude and misfortune. That is who I am."
 
-&mdash; [**Inaho Kaizuka**](https://myanimelist.net/character.php?q=Inaho%20Kaizuka&cat=character), [**Aldnoah.Zero 2nd Season**](https://myanimelist.net/search/all?q=Aldnoah.Zero%202nd%20Season&cat=all)
+&mdash; [**Hong Lihua**](https://myanimelist.net/character.php?q=Hong%20Lihua&cat=character), [**Sousei no Aquarion**](https://myanimelist.net/search/all?q=Sousei%20no%20Aquarion&cat=all)
