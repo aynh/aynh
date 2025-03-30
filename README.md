@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People can't live without their memories. But hey can't live on their memories alone either. They have to wake up from their dreams. Those dreams will become sadness if they don't. Even if you wake up from your dream, your memories will still be there. So please smile. I want our memories to be happy to the very end. I wish everyone would keep smiling so that everyone could be happy and everybody could be warmer."
+> "[during Tosen, Gin Ichimaru and Sosuke Aizen's escape from Soul Society] Get down here, Tosen! Why did you become a Shingami? Was it not for your deceased friend? Was it not to carry out justice!? Where is your justice now!?"
 
-&mdash; [**Minagi Tohno**](https://myanimelist.net/character.php?q=Minagi%20Tohno&cat=character), [**Air**](https://myanimelist.net/search/all?q=Air&cat=all)
+&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
