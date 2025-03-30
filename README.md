@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't think that by abiding the rules you'll automatically be useful to society. Rules are not there for us, they are there for the 'person who made it' and the 'reality' and 'future', which are bound by these lies. They are preventing you from reaching your full potential. Which is why, if there is a future that you want, fight for it! Fight for it and pin down your own 'reality'."
+> "If a couple curses stopped me, what kind of hero would I be?!"
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
