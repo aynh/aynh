@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you can forget, you can't erase the past."
+> "The more you rush, the less careful you become. Even a cautious rat will show its tail."
 
-&mdash; [**Kenzo Tenma**](https://myanimelist.net/character.php?q=Kenzo%20Tenma&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Henrietta de Tristain**](https://myanimelist.net/character.php?q=Henrietta%20de%20Tristain&cat=character), [**Zero no Tsukaima: Futatsuki no Kishi**](https://myanimelist.net/search/all?q=Zero%20no%20Tsukaima%3A%20Futatsuki%20no%20Kishi&cat=all)
