@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're at a loss for words, you don't have to force yourself. That in itself is a form of comfort."
+> "I will stay by your side, my friend. Know that I am here, and that I am sorry. I am sorry that... I failed you. After waiting 600 years I made a beginner's mistake. I underestimated my enemy."
 
-&mdash; [**Shouta Kazehaya**](https://myanimelist.net/character.php?q=Shouta%20Kazehaya&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Amidamaru**](https://myanimelist.net/character.php?q=Amidamaru&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
