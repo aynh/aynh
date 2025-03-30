@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How do you know that the person you were one second ago, is the same person that you are right now?"
+> "Why are you punching? What are you chasing? You should already know the answer to that. To become strong."
 
-&mdash; [**Eri Ochiai**](https://myanimelist.net/character.php?q=Eri%20Ochiai&cat=character), [**Perfect Blue**](https://myanimelist.net/search/all?q=Perfect%20Blue&cat=all)
+&mdash; [**Coach Kamogawa**](https://myanimelist.net/character.php?q=Coach%20Kamogawa&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
