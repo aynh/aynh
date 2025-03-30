@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no need to change the past. Because of the past we are who we are now. Every second, every action from then is linked to us here and now."
+> "Who wouldn't want their friends to be happy? That's just normal, man. It's nothing amazing."
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Makoto Sunakawa**](https://myanimelist.net/character.php?q=Makoto%20Sunakawa&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
