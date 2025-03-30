@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "ADW is a severe, incurable ailment that makes the patient Able to Do only what he Wants to do."
+> "How do you know that the person you were one second ago, is the same person that you are right now?"
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Eri Ochiai**](https://myanimelist.net/character.php?q=Eri%20Ochiai&cat=character), [**Perfect Blue**](https://myanimelist.net/search/all?q=Perfect%20Blue&cat=all)
