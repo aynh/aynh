@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't break anyone's heart, they only have one. Break their bones, they have 206."
+> "If I don't have to do it, I won't. If I have to do it, I'll make it quick."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
