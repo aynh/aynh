@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In our society, letting others find out that you're a nice person is a very risky move. It's extremely likely that someone would take advantage of that."
+> "Even if you can forget, you can't erase the past."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Kenzo Tenma**](https://myanimelist.net/character.php?q=Kenzo%20Tenma&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
