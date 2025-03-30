@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes living can be hard! But it's only because we're alive that we can make each other laugh, cry, and be happy!"
+> "ADW is a severe, incurable ailment that makes the patient Able to Do only what he Wants to do."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
