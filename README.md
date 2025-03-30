@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why are you punching? What are you chasing? You should already know the answer to that. To become strong."
+> "In our society, letting others find out that you're a nice person is a very risky move. It's extremely likely that someone would take advantage of that."
 
-&mdash; [**Coach Kamogawa**](https://myanimelist.net/character.php?q=Coach%20Kamogawa&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
