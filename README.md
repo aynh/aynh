@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[during Tosen, Gin Ichimaru and Sosuke Aizen's escape from Soul Society] Get down here, Tosen! Why did you become a Shingami? Was it not for your deceased friend? Was it not to carry out justice!? Where is your justice now!?"
+> "If you're at a loss for words, you don't have to force yourself. That in itself is a form of comfort."
 
-&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Shouta Kazehaya**](https://myanimelist.net/character.php?q=Shouta%20Kazehaya&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
