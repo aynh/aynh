@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who wouldn't want their friends to be happy? That's just normal, man. It's nothing amazing."
+> "If you want to know the truth, you must have the courage to accept it."
 
-&mdash; [**Makoto Sunakawa**](https://myanimelist.net/character.php?q=Makoto%20Sunakawa&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
+&mdash; [**Bear**](https://myanimelist.net/character.php?q=Bear&cat=character), [**.hack//SIGN**](https://myanimelist.net/search/all?q=.hack%2F%2FSIGN&cat=all)
