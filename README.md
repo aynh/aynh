@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "By the way, Araragi-kun... I've never broken up with a man before. Hence, I won't be breaking up with you either."
+> "Sometimes living can be hard! But it's only because we're alive that we can make each other laugh, cry, and be happy!"
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
