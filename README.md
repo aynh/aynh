@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Never show your stupid self in public."
+> "Believe in yourself... If you don’t have that... it doesn’t matter how many talents you have, you still won’t be able to hold your head up high..."
 
-&mdash; [**Kanade Maki**](https://myanimelist.net/character.php?q=Kanade%20Maki&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Chiaki Nanami**](https://myanimelist.net/character.php?q=Chiaki%20Nanami&cat=character), [**Super Dangan Ronpa 2**](https://myanimelist.net/search/all?q=Super%20Dangan%20Ronpa%202&cat=all)
