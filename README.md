@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will stay by your side, my friend. Know that I am here, and that I am sorry. I am sorry that... I failed you. After waiting 600 years I made a beginner's mistake. I underestimated my enemy."
+> "Don't break anyone's heart, they only have one. Break their bones, they have 206."
 
-&mdash; [**Amidamaru**](https://myanimelist.net/character.php?q=Amidamaru&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
