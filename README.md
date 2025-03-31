@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And what of it? If you're good on the inside, then looks don't matter!"
+> "Failing to act, for fear of the risk, is no different than a living death. No matter what world you’re in."
 
-&mdash; [**Kei Enomoto**](https://myanimelist.net/character.php?q=Kei%20Enomoto&cat=character), [**Hatsukoi Limited**](https://myanimelist.net/search/all?q=Hatsukoi%20Limited&cat=all)
+&mdash; [**Crusty**](https://myanimelist.net/character.php?q=Crusty&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
