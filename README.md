@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I watch over Gin-san to protect him. Just like a fairy, like Tinkerbell!"
+> "Do not fear Death. Death is always at our side. When we show fear, it jumps at us faster than light. But, if we do not show fear, it casts its eye upon us gently and then guides us into infinity."
 
-&mdash; [**Sarutobi Ayame**](https://myanimelist.net/character.php?q=Sarutobi%20Ayame&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Laughing Bull**](https://myanimelist.net/character.php?q=Laughing%20Bull&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
