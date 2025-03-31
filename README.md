@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The envy of a man runs deeper than a woman's, surprisingly."
+> "Make a contract with me, and become a magical girl!"
 
-&mdash; [**Yahiro Takigawa**](https://myanimelist.net/character.php?q=Yahiro%20Takigawa&cat=character), [**Shinmai Maou no Testament**](https://myanimelist.net/search/all?q=Shinmai%20Maou%20no%20Testament&cat=all)
+&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
