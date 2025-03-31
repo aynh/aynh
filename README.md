@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just live normally. You'll be better off if you can catch some fish. Dig up the caves so you can set sail whenever you need to. It wouldn't be easy. But you have an endless amount of time ahead of you."
+> "And what of it? If you're good on the inside, then looks don't matter!"
 
-&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Kei Enomoto**](https://myanimelist.net/character.php?q=Kei%20Enomoto&cat=character), [**Hatsukoi Limited**](https://myanimelist.net/search/all?q=Hatsukoi%20Limited&cat=all)
