@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Believe in yourself and create your own destiny. Don't fear fate."
+> "People do change, little by little."
 
-&mdash; [**Outlaw Star**](https://myanimelist.net/character.php?q=Outlaw%20Star&cat=character), [**Outlaw Star**](https://myanimelist.net/search/all?q=Outlaw%20Star&cat=all)
+&mdash; [**Tetsudō Hisakawa**](https://myanimelist.net/character.php?q=Tetsud%C5%8D%20Hisakawa&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
