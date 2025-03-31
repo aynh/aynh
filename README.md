@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "<About Ciel> He turns his back towards the light without hesitation. That figure that charges into the abyss at a dignified pace. How beautiful and foolish."
+> "The brain is a microcosm, creating its own stories. People then live out these stories."
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Seiichi Kirima**](https://myanimelist.net/character.php?q=Seiichi%20Kirima&cat=character), [**Boogiepop Phantom**](https://myanimelist.net/search/all?q=Boogiepop%20Phantom&cat=all)
