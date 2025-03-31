@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Control'... you say? When you stand before me... that word holds no meaning. Bankai. Senbonzakura Kageyoshi."
+> "*to Alucard* Demons do not cry... You became a demon, because you couldn't cry anymore, right? Humans cry, and when their tears finally run dry, there is nothing left, but a demon, nor a monster, and one finally prayer for death..."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
