@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s only one difference between heroes and mad men. It’s whether they win or lose."
+> "I'm still a man too, I wanted to look calm and composed in front of everyone. Especially in front of the one I'm in love with."
 
-&mdash; [**Lambdadelta**](https://myanimelist.net/character.php?q=Lambdadelta&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Ooga Kazuomi**](https://myanimelist.net/character.php?q=Ooga%20Kazuomi&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
