@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I wasn't prepared to be flexible as the situations demands, I wouldn't have become a teacher."
+> "Believe in yourself and create your own destiny. Don't fear fate."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Outlaw Star**](https://myanimelist.net/character.php?q=Outlaw%20Star&cat=character), [**Outlaw Star**](https://myanimelist.net/search/all?q=Outlaw%20Star&cat=all)
