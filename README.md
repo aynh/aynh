@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Alucard* Demons do not cry... You became a demon, because you couldn't cry anymore, right? Humans cry, and when their tears finally run dry, there is nothing left, but a demon, nor a monster, and one finally prayer for death..."
+> "I watch over Gin-san to protect him. Just like a fairy, like Tinkerbell!"
 
-&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Sarutobi Ayame**](https://myanimelist.net/character.php?q=Sarutobi%20Ayame&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
