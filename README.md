@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Failing to act, for fear of the risk, is no different than a living death. No matter what world you’re in."
+> "Are you telling me to exploit an opening for the likes of you? Do not speak out of your league, boy."
 
-&mdash; [**Crusty**](https://myanimelist.net/character.php?q=Crusty&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
