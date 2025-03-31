@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All men are jealous and stupid, and all women are stupid to be happy about it, idiots are everywhere you look!"
+> "There’s only one difference between heroes and mad men. It’s whether they win or lose."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Lambdadelta**](https://myanimelist.net/character.php?q=Lambdadelta&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
