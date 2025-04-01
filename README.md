@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Make a contract with me, and become a magical girl!"
+> "Sorry. I don't believe in fate. I explore my future with my own strength. Good or bad, it's my own choice."
 
-&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Manjoume Jun**](https://myanimelist.net/character.php?q=Manjoume%20Jun&cat=character), [**Yu-Gi-Oh! Duel Monsters GX**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Duel%20Monsters%20GX&cat=all)
