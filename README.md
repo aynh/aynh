@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If what you lost was too big and you can’t replace it with something else, you don’t have to replace it with just one thing, right? If you get ten small things or a hundred small things, all together it will be enough of a reason for you to keep going!"
+> "Of the days that I have lived, only those I spent with you seemed real."
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop: The Movie**](https://myanimelist.net/search/all?q=Cowboy%20Bebop%3A%20The%20Movie&cat=all)
