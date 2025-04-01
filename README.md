@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are things that don't know the true value of something precious until they lose it...and if somehow, they get that precious thing back, they'll forget its value again."
+> "The school takes no responsibility of your future! You are fully responsible for your own future! That is why you have to find what you want to do! You are all free!"
 
-&mdash; [**Midou Ban**](https://myanimelist.net/character.php?q=Midou%20Ban&cat=character), [**Getbackers**](https://myanimelist.net/search/all?q=Getbackers&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
