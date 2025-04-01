@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't give a rat's ass about going to hell. I guess it's because I feel like I'm already there."
+> "There was no place for me, so I had to make one for myself, and then I realized, I had a place, but I was the only one in it. I didn't know any other way to live."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
