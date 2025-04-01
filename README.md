@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fools set the rules in this world. Just take a look around. It's undeniable."
+> "If what you lost was too big and you can’t replace it with something else, you don’t have to replace it with just one thing, right? If you get ten small things or a hundred small things, all together it will be enough of a reason for you to keep going!"
 
-&mdash; [**Noctis Lucis Caelum**](https://myanimelist.net/character.php?q=Noctis%20Lucis%20Caelum&cat=character), [**Final Fantasy XV**](https://myanimelist.net/search/all?q=Final%20Fantasy%20XV&cat=all)
+&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
