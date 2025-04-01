@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you throw your life away, you won't even have the capacity to feel regret."
+> "If we love someone, we need to tell them about it. That way, we'll feel relieved and a lot stronger."
 
-&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi Zoku Shou**](https://myanimelist.net/search/all?q=Mushishi%20Zoku%20Shou&cat=all)
+&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
