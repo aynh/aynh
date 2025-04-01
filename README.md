@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we love someone, we need to tell them about it. That way, we'll feel relieved and a lot stronger."
+> "It's a foolish thing, the human heart. Sometimes we fail to operate logically, and act on emotions."
 
-&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Ichijiku Chisato**](https://myanimelist.net/character.php?q=Ichijiku%20Chisato&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
