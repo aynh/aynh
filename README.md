@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't believe in yourself, who will!? You're the only one demeaning yourself!"
+> "It's not that you don't know how to interact with people. It's just that no one ever came to interact with you."
 
-&mdash; [**Amu Hinamori**](https://myanimelist.net/character.php?q=Amu%20Hinamori&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
