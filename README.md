@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder how you're suppose to give up... Do I just decide to give up and act accordingly? And move further and further away from what my heart really wants? Then will I forget everything one day?.. Everything including the pain in my heart? Everything? Without a trace as if nothing was there to begin with?"
+> "Fools set the rules in this world. Just take a look around. It's undeniable."
 
-&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Noctis Lucis Caelum**](https://myanimelist.net/character.php?q=Noctis%20Lucis%20Caelum&cat=character), [**Final Fantasy XV**](https://myanimelist.net/search/all?q=Final%20Fantasy%20XV&cat=all)
