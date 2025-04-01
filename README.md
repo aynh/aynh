@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you wanna make people dream, you've gotta start by believing in that dream yourself!"
+> "There's no meaningful difference between a real and a virtual world. It's pointless to ask anyone who they really are. All you can do is accept and believe in them, because whoever they are in your mind, is their true identity."
 
-&mdash; [**Seiya Kanie**](https://myanimelist.net/character.php?q=Seiya%20Kanie&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
