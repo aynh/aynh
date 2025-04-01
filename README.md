@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Of the days that I have lived, only those I spent with you seemed real."
+> "I don't give a rat's ass about going to hell. I guess it's because I feel like I'm already there."
 
-&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop: The Movie**](https://myanimelist.net/search/all?q=Cowboy%20Bebop%3A%20The%20Movie&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
