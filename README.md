@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let's eat fast so we can eat again!"
+> "If you don't believe in yourself, who will!? You're the only one demeaning yourself!"
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Amu Hinamori**](https://myanimelist.net/character.php?q=Amu%20Hinamori&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
