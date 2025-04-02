@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what happens, no matter what, never stop, always keep walking."
+> "If a couple curses stopped me, what kind of hero would I be?!"
 
-&mdash; [**Mana Walker**](https://myanimelist.net/character.php?q=Mana%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
