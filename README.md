@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The hot blood that flows through my body... is not something that can be suppressed by other people!"
+> "True power is forged from the desire smoldering in the heart, it fans into a flame and begins to burn with an intensity one scarcely imagines to be possible..."
 
-&mdash; [**Bulat**](https://myanimelist.net/character.php?q=Bulat&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Orochimaru**](https://myanimelist.net/character.php?q=Orochimaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
