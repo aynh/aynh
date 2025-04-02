@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "True power is forged from the desire smoldering in the heart, it fans into a flame and begins to burn with an intensity one scarcely imagines to be possible..."
+> "The closer you are to someone, the more you have to put things into words to get your feelings across."
 
-&mdash; [**Orochimaru**](https://myanimelist.net/character.php?q=Orochimaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sasaki Kaori**](https://myanimelist.net/character.php?q=Sasaki%20Kaori&cat=character), [**Ushinawareta Mirai wo Motomete**](https://myanimelist.net/search/all?q=Ushinawareta%20Mirai%20wo%20Motomete&cat=all)
