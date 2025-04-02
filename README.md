@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The concept of lateness being evil is wrong in the first place... The police don't mobilize until after an accident happens, and it's standard for heroes to show up late. But would anyone condemn them for being late? So, speaking paradoxically, lateness is justice."
+> "If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don't need them and their selfish ideas."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Alibaba Saluja**](https://myanimelist.net/character.php?q=Alibaba%20Saluja&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
