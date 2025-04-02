@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What a strange creature is man, who would cage himself so willingly."
+> "The concept of lateness being evil is wrong in the first place... The police don't mobilize until after an accident happens, and it's standard for heroes to show up late. But would anyone condemn them for being late? So, speaking paradoxically, lateness is justice."
 
-&mdash; [**Athena Areios**](https://myanimelist.net/character.php?q=Athena%20Areios&cat=character), [**Appleseed**](https://myanimelist.net/search/all?q=Appleseed&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
