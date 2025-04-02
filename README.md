@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To have a name. To remove one layer of the unknown. To be painted in reality. If you have your feet firmly planted to the ground, you may have a chance to pull someone down."
+> "What a strange creature is man, who would cage himself so willingly."
 
-&mdash; [**Makoto Niwa**](https://myanimelist.net/character.php?q=Makoto%20Niwa&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
+&mdash; [**Athena Areios**](https://myanimelist.net/character.php?q=Athena%20Areios&cat=character), [**Appleseed**](https://myanimelist.net/search/all?q=Appleseed&cat=all)
