@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you live, your life will end sooner or later. The body will return to the earth. Grass and flowers will grow on top of it. The soul will nourish the hearts... and it will live on in the hearts of other people. Everything in this world flows around and circulates. That goes for human lives too."
+> "Only I can help myself, and in the future, I can make up for all my misfortunes and change the world into a place where there's no irrational discrimination and that's why there's no way in hell that I can die here!"
 
-&mdash; [**Izumi Curtis**](https://myanimelist.net/character.php?q=Izumi%20Curtis&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Mine**](https://myanimelist.net/character.php?q=Mine&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
