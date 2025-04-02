@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Each one of them has something to improve. Victory doesn't come from technique or power alone. In the end, what's needed is a heart that won't give up. The only question is -- Do they have what it takes to push beyond their limits?"
+> "No matter what happens, no matter what, never stop, always keep walking."
 
-&mdash; [**Soujuu Matsushita**](https://myanimelist.net/character.php?q=Soujuu%20Matsushita&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
+&mdash; [**Mana Walker**](https://myanimelist.net/character.php?q=Mana%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
