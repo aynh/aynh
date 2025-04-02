@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Haruhi Fujioka about him helping her search for her wallet in water* A little water never hurt anyone. Besides, people are always telling me that I'm dripping with good looks."
+> "When you live, your life will end sooner or later. The body will return to the earth. Grass and flowers will grow on top of it. The soul will nourish the hearts... and it will live on in the hearts of other people. Everything in this world flows around and circulates. That goes for human lives too."
 
-&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Izumi Curtis**](https://myanimelist.net/character.php?q=Izumi%20Curtis&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
