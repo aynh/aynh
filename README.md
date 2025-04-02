@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The government is the sails, the people the wind, and the time the sea. As long as there is people to repair the ship, it can be used forever."
+> "It'll still feel better to try and regret, than regret not trying at all."
 
-&mdash; [**France**](https://myanimelist.net/character.php?q=France&cat=character), [**Hetalia The Beautiful World**](https://myanimelist.net/search/all?q=Hetalia%20The%20Beautiful%20World&cat=all)
+&mdash; [**Ai Kotani**](https://myanimelist.net/character.php?q=Ai%20Kotani&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
