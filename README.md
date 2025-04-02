@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The closer you are to someone, the more you have to put things into words to get your feelings across."
+> "People can run from the things they don't like all they want. But if they're just averting their eyes, they're not running. As long as you think the current situation is okay, no one can help."
 
-&mdash; [**Sasaki Kaori**](https://myanimelist.net/character.php?q=Sasaki%20Kaori&cat=character), [**Ushinawareta Mirai wo Motomete**](https://myanimelist.net/search/all?q=Ushinawareta%20Mirai%20wo%20Motomete&cat=all)
+&mdash; [**Mother Araragi**](https://myanimelist.net/character.php?q=Mother%20Araragi&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
