@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Facing irrationality doesn't mean not feeling fear, but rather possessing eyes that gaze upon fear and standing against the world."
+> "Real strength only reveals itself when one is faced with great turmoil! Therefore, I shall always tread a thorny path!"
 
-&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Aoi Asahina**](https://myanimelist.net/character.php?q=Aoi%20Asahina&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
