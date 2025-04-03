@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Smiles are what connect people! It allows them to communicate through their souls! Souls that are connected... Will never lose to power that only relies on control!"
+> "I don't have much power and I'm trying to get stronger. But I'm not afraid of sharing my heart..."
 
-&mdash; [**Yuzu Hiiragi**](https://myanimelist.net/character.php?q=Yuzu%20Hiiragi&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
