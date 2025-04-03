@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What if, and this is strictly hypothetical, what if you could reload your save data to change your previous choice, like in a game? Would it change your life? The answer is a resounding no."
+> "Smiles are what connect people! It allows them to communicate through their souls! Souls that are connected... Will never lose to power that only relies on control!"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Yuzu Hiiragi**](https://myanimelist.net/character.php?q=Yuzu%20Hiiragi&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
