@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is at the moment of death that humanity has value."
+> "Facing irrationality doesn't mean not feeling fear, but rather possessing eyes that gaze upon fear and standing against the world."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
