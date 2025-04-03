@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't have much power and I'm trying to get stronger. But I'm not afraid of sharing my heart..."
+> "I'm so stupid. At that time, I thought I could escape. I thought I'd be taken somewhere out of this world. I got my hopes up a little. But that's impossible isn't it? I'm not playing by the rules. As if anyone would just take me away when I wanted them to. I'm so stupid."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Mishima Lisa**](https://myanimelist.net/character.php?q=Mishima%20Lisa&cat=character), [**Terror in Resonance**](https://myanimelist.net/search/all?q=Terror%20in%20Resonance&cat=all)
