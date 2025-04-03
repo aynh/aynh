@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My heart was taken by you, broken by you, and now it's in pieces because of you."
+> "Once the thread of fate is tangled, it cannot be undone."
 
-&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
