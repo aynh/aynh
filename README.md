@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want a devil fruit."
+> "It is at the moment of death that humanity has value."
 
-&mdash; [**Tony Tony Chopper**](https://myanimelist.net/character.php?q=Tony%20Tony%20Chopper&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
