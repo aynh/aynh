@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Real strength only reveals itself when one is faced with great turmoil! Therefore, I shall always tread a thorny path!"
+> "What if, and this is strictly hypothetical, what if you could reload your save data to change your previous choice, like in a game? Would it change your life? The answer is a resounding no."
 
-&mdash; [**Aoi Asahina**](https://myanimelist.net/character.php?q=Aoi%20Asahina&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
