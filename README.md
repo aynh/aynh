@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder how long... How long will I remain anchored at this harbor known as battle?"
+> "[To Yuki] Liar! Moping around like a sad rat who lost his cheese!"
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
