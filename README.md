@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The sounds you find pretty, and the sounds the other members find pretty... Are they really the same?"
+> "Fear isn't evil, it only allows us to learn our own weaknesses. When we learn our weakness, people can grow stronger and kinder."
 
-&mdash; [**Len Tsukimori**](https://myanimelist.net/character.php?q=Len%20Tsukimori&cat=character), [**Kiniro no Corda: Blue♪Sky**](https://myanimelist.net/search/all?q=Kiniro%20no%20Corda%3A%20Blue%E2%99%AASky&cat=all)
+&mdash; [**Gildarts Clive**](https://myanimelist.net/character.php?q=Gildarts%20Clive&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
