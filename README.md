@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Yuki] Liar! Moping around like a sad rat who lost his cheese!"
+> "I want Dr. Verde's intellect. In all honesty I wish he were just a brain and nothing more."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Rokudou Mukuro**](https://myanimelist.net/character.php?q=Rokudou%20Mukuro&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
