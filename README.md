@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you let the fly live, the spider is going to die. You can't save both without one suffering."
+> "The sounds you find pretty, and the sounds the other members find pretty... Are they really the same?"
 
-&mdash; [**Millions Knives**](https://myanimelist.net/character.php?q=Millions%20Knives&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Len Tsukimori**](https://myanimelist.net/character.php?q=Len%20Tsukimori&cat=character), [**Kiniro no Corda: Blue♪Sky**](https://myanimelist.net/search/all?q=Kiniro%20no%20Corda%3A%20Blue%E2%99%AASky&cat=all)
