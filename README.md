@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[In his Resurrección form] I can see! I can see! I can see!!! So this is the sky!! So this is blood!! So this is the world!! ...So this is what you look like. Komamura. You are uglier... than I thought."
+> "We have choices. Some people like to stand in the rain without an umbrella. That's what it means to live free."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Roger Smith**](https://myanimelist.net/character.php?q=Roger%20Smith&cat=character), [**The Big O**](https://myanimelist.net/search/all?q=The%20Big%20O&cat=all)
