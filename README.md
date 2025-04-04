@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know how they have parameters in games? Like, you're good at magic, but your combat skills blow, or you're a great fighter, but you lack in the brains department."
+> "There would be no happier death than being killed by the woman I love."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!×2 Shou**](https://myanimelist.net/search/all?q=Durarara!!%C3%972%20Shou&cat=all)
+&mdash; [**Kurosu Etsurou**](https://myanimelist.net/character.php?q=Kurosu%20Etsurou&cat=character), [**Ana Satsujin**](https://myanimelist.net/search/all?q=Ana%20Satsujin&cat=all)
