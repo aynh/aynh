@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Watching messy troubles from the sidelines is a hobby of mine."
+> "A real man never goes back on his words!"
 
-&mdash; [**Tomoe**](https://myanimelist.net/character.php?q=Tomoe&cat=character), [**Kamisama Hajimemashita**](https://myanimelist.net/search/all?q=Kamisama%20Hajimemashita&cat=all)
+&mdash; [**Taiyou Natsuki**](https://myanimelist.net/character.php?q=Taiyou%20Natsuki&cat=character), [**Seishun Forget!**](https://myanimelist.net/search/all?q=Seishun%20Forget!&cat=all)
