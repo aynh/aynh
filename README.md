@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want you to understand something. If you should lose, not only does your future end, but also the future of the one you are trying to protect. Defeat isn't an option for the sword that protects others. You should keep that thought engraved in your heart."
+> "[after masturbating over Asuka's comatose body] I'm so fucked up."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Shinji Ikari**](https://myanimelist.net/character.php?q=Shinji%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
