@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That’s something you can’t know until you've tried it, and you still won’t understand after you play. I've been playing for 45 years and I still don’t understand. I've never been able to figure it out. That’s why I keep playing."
+> "Calling me a coward, eh? At least say it so I can hear it..."
 
-&mdash; [**Hidehiro Harada**](https://myanimelist.net/character.php?q=Hidehiro%20Harada&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
