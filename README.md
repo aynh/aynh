@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's a bad habit of mine. When I concentrate on one thing, I forget other important things."
+> "The envy of a man runs deeper than a woman's, surprisingly."
 
-&mdash; [**Tsukushi Makino**](https://myanimelist.net/character.php?q=Tsukushi%20Makino&cat=character), [**Hana Yori Dango**](https://myanimelist.net/search/all?q=Hana%20Yori%20Dango&cat=all)
+&mdash; [**Yahiro Takigawa**](https://myanimelist.net/character.php?q=Yahiro%20Takigawa&cat=character), [**Shinmai Maou no Testament**](https://myanimelist.net/search/all?q=Shinmai%20Maou%20no%20Testament&cat=all)
