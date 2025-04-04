@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one dies alone. When someone dies, the part of them that lives inside someone else also dies. You already live inside me."
+> "That’s something you can’t know until you've tried it, and you still won’t understand after you play. I've been playing for 45 years and I still don’t understand. I've never been able to figure it out. That’s why I keep playing."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
+&mdash; [**Hidehiro Harada**](https://myanimelist.net/character.php?q=Hidehiro%20Harada&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
