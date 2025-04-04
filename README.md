@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know we can't immediately treat her as part of our group, but if we always think of her as an outsider, she'll never have a chance to become part of our group."
+> "Even if I DO sacrifice my own life, I will only do it to save my friends."
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Lenalee Lee**](https://myanimelist.net/character.php?q=Lenalee%20Lee&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
