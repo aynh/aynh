@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am literally hemorrhaging generosity."
+> "Death on the battlefield comes regardless of class, royal or common. The loser must die!"
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
