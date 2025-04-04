@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ever since I joined the survey corps, I've had people dying on me everyday. But... you understand, don't you? One day or another, everyone you care about eventually dies. It's something we simply can't accept. It's a realization that could drive you insane... It's painful... so painful... I get it. And still... we must keep moving forward."
+> "I know we can't immediately treat her as part of our group, but if we always think of her as an outsider, she'll never have a chance to become part of our group."
 
-&mdash; [**Hange Zoe**](https://myanimelist.net/character.php?q=Hange%20Zoe&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
