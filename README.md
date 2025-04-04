@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I DO sacrifice my own life, I will only do it to save my friends."
+> "When something dies or is lost, that thing doesn't truly disappear, as long as someone remembers it. And that remembering it is to acknowledge its existence, and because of that, it can sometimes be seen again."
 
-&mdash; [**Lenalee Lee**](https://myanimelist.net/character.php?q=Lenalee%20Lee&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
