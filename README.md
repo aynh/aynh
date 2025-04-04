@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Old techniques created by others will never be your own. Only what you create and experience for yourself can become your own."
+> "Humans can’t reverse the flow of time. If you try to twist it against its will… You’ll be punished."
 
-&mdash; [**Oubu**](https://myanimelist.net/character.php?q=Oubu&cat=character), [**Reikenzan: Hoshikuzu-tachi no Utage**](https://myanimelist.net/search/all?q=Reikenzan%3A%20Hoshikuzu-tachi%20no%20Utage&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
