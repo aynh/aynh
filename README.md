@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When something dies or is lost, that thing doesn't truly disappear, as long as someone remembers it. And that remembering it is to acknowledge its existence, and because of that, it can sometimes be seen again."
+> "It's fine if he holds bad judgements without trying to get to know me. The real point is letting just the ones who want to understand me know my real self."
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Kyoya Ootori**](https://myanimelist.net/character.php?q=Kyoya%20Ootori&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
