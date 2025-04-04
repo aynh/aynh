@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's fine if he holds bad judgements without trying to get to know me. The real point is letting just the ones who want to understand me know my real self."
+> "No one dies alone. When someone dies, the part of them that lives inside someone else also dies. You already live inside me."
 
-&mdash; [**Kyoya Ootori**](https://myanimelist.net/character.php?q=Kyoya%20Ootori&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
