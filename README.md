@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There would be no happier death than being killed by the woman I love."
+> "Watching messy troubles from the sidelines is a hobby of mine."
 
-&mdash; [**Kurosu Etsurou**](https://myanimelist.net/character.php?q=Kurosu%20Etsurou&cat=character), [**Ana Satsujin**](https://myanimelist.net/search/all?q=Ana%20Satsujin&cat=all)
+&mdash; [**Tomoe**](https://myanimelist.net/character.php?q=Tomoe&cat=character), [**Kamisama Hajimemashita**](https://myanimelist.net/search/all?q=Kamisama%20Hajimemashita&cat=all)
