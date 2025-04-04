@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A real man never goes back on his words!"
+> "Old techniques created by others will never be your own. Only what you create and experience for yourself can become your own."
 
-&mdash; [**Taiyou Natsuki**](https://myanimelist.net/character.php?q=Taiyou%20Natsuki&cat=character), [**Seishun Forget!**](https://myanimelist.net/search/all?q=Seishun%20Forget!&cat=all)
+&mdash; [**Oubu**](https://myanimelist.net/character.php?q=Oubu&cat=character), [**Reikenzan: Hoshikuzu-tachi no Utage**](https://myanimelist.net/search/all?q=Reikenzan%3A%20Hoshikuzu-tachi%20no%20Utage&cat=all)
