@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're your own worst enemy. If your worries and doubts torment you, then just stop thinking about them."
+> "Senpai, take me to the art museum again. Next time, I'll carefully listen to what you say. Please feed me worms!"
 
-&mdash; [**Binboda Momiji**](https://myanimelist.net/character.php?q=Binboda%20Momiji&cat=character), [**Binbougami Ga!**](https://myanimelist.net/search/all?q=Binbougami%20Ga!&cat=all)
+&mdash; [**Noda Megumi**](https://myanimelist.net/character.php?q=Noda%20Megumi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
