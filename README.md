@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every power can be a poison or medicine depending on the user's intention."
+> "You're your own worst enemy. If your worries and doubts torment you, then just stop thinking about them."
 
-&mdash; [**Narumi Anjo**](https://myanimelist.net/character.php?q=Narumi%20Anjo&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
+&mdash; [**Binboda Momiji**](https://myanimelist.net/character.php?q=Binboda%20Momiji&cat=character), [**Binbougami Ga!**](https://myanimelist.net/search/all?q=Binbougami%20Ga!&cat=all)
