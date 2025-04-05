@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are taught never to shed tears. For to shed tears means that the body has been defeated by emotion. And to us, this simple act of crying proves, without question, that the existence of emotion is nothing but a burden."
+> "You’ll laugh at your fears when you find out who you are."
 
-&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
