@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I always knew you were no mere mortal... but I had no idea that you were a cat."
+> "Everyone becomes an adult by learning how to give up on things."
 
-&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Jihou**](https://myanimelist.net/character.php?q=Jihou&cat=character), [**Da Capo II**](https://myanimelist.net/search/all?q=Da%20Capo%20II&cat=all)
