@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How does one figure out if they're in love with a member of the opposite sex?"
+> "It's human nature not to realize the true value of something, unless they lose it."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Orochimaru**](https://myanimelist.net/character.php?q=Orochimaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
