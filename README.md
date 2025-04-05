@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The two of us aren't so different. My whole life I've desired from others. I felt bitter to the people around me and I closed off my heart...and a heart that lets nothing in..will become empty before you realize it. But in this world, you'll sometimes meet meddlesome people who will, even without asking, give you the love you need. And for someone like you or me, meeting such a person is very blissful."
+> "We’re searching for a reason of existence. With our own strength, because maybe the truth is that there’s no reason for life from the very beginning. Everyone hopes and tries so hard to find a reason of existence. The reason of birth, of staying with someone, of existence, believing we have to find them all with our own hands. Like finding a place for ourselves in dreams, in jobs, in people. The reasons we conclude may be indefinite and fragile. We may lose it too, but even so, we want a reason. As long as I’m alive, I want it too. If possible, I want to find a reason of existence within a person, within someone."
 
-&mdash; [**Mei Aihara**](https://myanimelist.net/character.php?q=Mei%20Aihara&cat=character), [**Citrus**](https://myanimelist.net/search/all?q=Citrus&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
