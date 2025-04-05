@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You’ll laugh at your fears when you find out who you are."
+> "What is important to survival isn't the ability to hide and protect yourself, it is to stand up and fight the Kabane."
 
-&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Biba Amatori**](https://myanimelist.net/character.php?q=Biba%20Amatori&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
