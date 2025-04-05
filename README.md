@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The only times we're fated to lose are in fictional stories. This is our drama! We decide what the plot will be!"
+> "The two of us aren't so different. My whole life I've desired from others. I felt bitter to the people around me and I closed off my heart...and a heart that lets nothing in..will become empty before you realize it. But in this world, you'll sometimes meet meddlesome people who will, even without asking, give you the love you need. And for someone like you or me, meeting such a person is very blissful."
 
-&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Mei Aihara**](https://myanimelist.net/character.php?q=Mei%20Aihara&cat=character), [**Citrus**](https://myanimelist.net/search/all?q=Citrus&cat=all)
