@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after masturbating over Asuka's comatose body] I'm so fucked up."
+> "Every power can be a poison or medicine depending on the user's intention."
 
-&mdash; [**Shinji Ikari**](https://myanimelist.net/character.php?q=Shinji%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Narumi Anjo**](https://myanimelist.net/character.php?q=Narumi%20Anjo&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
