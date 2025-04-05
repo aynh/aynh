@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just as there is a light at night and darkness in the day, there will always be darkness in the world. At the same time, the world will never be engulfed by the darkness. In that mix of ambiguous colors, everything moves on: our fates determined..."
+> "We are taught never to shed tears. For to shed tears means that the body has been defeated by emotion. And to us, this simple act of crying proves, without question, that the existence of emotion is nothing but a burden."
 
-&mdash; [**Akihito Kanbara**](https://myanimelist.net/character.php?q=Akihito%20Kanbara&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
+&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
