@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is important to survival isn't the ability to hide and protect yourself, it is to stand up and fight the Kabane."
+> "Those painful memories are what help us make it to tomorrow and become stronger."
 
-&mdash; [**Biba Amatori**](https://myanimelist.net/character.php?q=Biba%20Amatori&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
