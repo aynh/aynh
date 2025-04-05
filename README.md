@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone becomes an adult by learning how to give up on things."
+> "Just as there is a light at night and darkness in the day, there will always be darkness in the world. At the same time, the world will never be engulfed by the darkness. In that mix of ambiguous colors, everything moves on: our fates determined..."
 
-&mdash; [**Jihou**](https://myanimelist.net/character.php?q=Jihou&cat=character), [**Da Capo II**](https://myanimelist.net/search/all?q=Da%20Capo%20II&cat=all)
+&mdash; [**Akihito Kanbara**](https://myanimelist.net/character.php?q=Akihito%20Kanbara&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
