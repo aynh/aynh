@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People can't live without their memories. But hey can't live on their memories alone either. They have to wake up from their dreams. Those dreams will become sadness if they don't. Even if you wake up from your dream, your memories will still be there. So please smile. I want our memories to be happy to the very end. I wish everyone would keep smiling so that everyone could be happy and everybody could be warmer."
+> "The impostor is an impostor because it can't be distinguished from the real thing. The proof of its falsity is in its resemblance to the real thing."
 
-&mdash; [**Minagi Tohno**](https://myanimelist.net/character.php?q=Minagi%20Tohno&cat=character), [**Air**](https://myanimelist.net/search/all?q=Air&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
