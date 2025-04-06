@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You may come to a standstill or get irritated because things don't work out the way you want them to, but what you gain from hard work will never betray you."
+> "I can't compete with Kikyo, because, after all, I'm still alive"
 
-&mdash; [**Tooru Miyagishi**](https://myanimelist.net/character.php?q=Tooru%20Miyagishi&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
+&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
