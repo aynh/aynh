@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A prison, you say? You think you'll be free if you go to the world above? A girl like you can never be free no matter where you go. After all, we humans are apes put in a cage called Earth. There is no difference between the world above and the world below. The only difference is which is bigger or smaller. People who pout about how confining the cage is can never be happy. They live their lives only seeing the iron bars. A true lack of freedom is when you cage your soul."
+> "People can face tomorrow because they can see reality and accept it. By denying reality, you cloud up the present, and tomorrow will never come. No, you can cloud it up, but your tomorrow will be that much crueler."
 
-&mdash; [**Gintama**](https://myanimelist.net/character.php?q=Gintama&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kurokawa Mari**](https://myanimelist.net/character.php?q=Kurokawa%20Mari&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
