@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Crying is a nosebleed of the heart."
+> "However, I can't be happy. I feel I can't have that experience, I can't assume I will have that experience. I'm free, but feeling lonely and disheartened. I hope there's happiness out there. Besides, the future is approaching and waiting for me. In the future, I will be a part of the world. I will finally live my life."
 
-&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Sohma Momiji**](https://myanimelist.net/character.php?q=Sohma%20Momiji&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
