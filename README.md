@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What use is strength in modern society? You have to be smart."
+> "The bells are very loud today."
 
-&mdash; [**Han Jee-Han**](https://myanimelist.net/character.php?q=Han%20Jee-Han&cat=character), [**The Gamer**](https://myanimelist.net/search/all?q=The%20Gamer&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
