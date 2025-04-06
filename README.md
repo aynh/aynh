@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Overall, I think people tend to reveal their true selves when they step into an avatar. As I said earlier, they probably feel some sense of freedom. But freedom easily gained quickly turns into a false sense of omnipotence."
+> "Applying knowledge is of the utmost importance when studying. You wrestle with various things and come up with a solution from there. It's true that asking someone who knows the answer is the quickest. But you can't necessarily say that that's the best way, don't you think?"
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
+&mdash; [**Asakura Ryouko**](https://myanimelist.net/character.php?q=Asakura%20Ryouko&cat=character), [**The Disappearance of Nagato Yuki-chan**](https://myanimelist.net/search/all?q=The%20Disappearance%20of%20Nagato%20Yuki-chan&cat=all)
