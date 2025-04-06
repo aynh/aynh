@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How do you prove that you exist...? Maybe we don't exist."
+> "Fool! Next time you see the sun at night, know it's your last!"
 
-&mdash; [**Vivi Ornitier**](https://myanimelist.net/character.php?q=Vivi%20Ornitier&cat=character), [**Final Fantasy IX**](https://myanimelist.net/search/all?q=Final%20Fantasy%20IX&cat=all)
+&mdash; [**Yashiro Hoshimiya**](https://myanimelist.net/character.php?q=Yashiro%20Hoshimiya&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
