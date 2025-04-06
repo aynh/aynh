@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fool! Next time you see the sun at night, know it's your last!"
+> "Overall, I think people tend to reveal their true selves when they step into an avatar. As I said earlier, they probably feel some sense of freedom. But freedom easily gained quickly turns into a false sense of omnipotence."
 
-&mdash; [**Yashiro Hoshimiya**](https://myanimelist.net/character.php?q=Yashiro%20Hoshimiya&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
