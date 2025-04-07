@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is more than one way to win a game. You can win without fighting!"
+> "[thinking] Step awaaaay from the psycho..."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Manta Oyamada**](https://myanimelist.net/character.php?q=Manta%20Oyamada&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
