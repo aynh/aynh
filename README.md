@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "AHA-HA-HA! Alchemists are scientists. We don't believe in unprovable concepts like 'God'. *Rose looks angry* We strive to uncover the principles of creation in the matter of the world, to pursue truth... *gazes at Leto statue* it's ironic that we scientists... who don't believe in God... are in a sense the closest things to him."
+> "If you take someone at puberty, a teen... introduce him or her to a member of the opposite sex around the same age and say, 'This is the person who was meant for you'... and then go on to spend a lot of time together... why wouldn't you fall for them?"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Nisaka Yuusuke**](https://myanimelist.net/character.php?q=Nisaka%20Yuusuke&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
