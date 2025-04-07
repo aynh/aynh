@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not a matter of a creature's individual worth. It's a matter of a creature's personal feelings."
+> "AHA-HA-HA! Alchemists are scientists. We don't believe in unprovable concepts like 'God'. *Rose looks angry* We strive to uncover the principles of creation in the matter of the world, to pursue truth... *gazes at Leto statue* it's ironic that we scientists... who don't believe in God... are in a sense the closest things to him."
 
-&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
