@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A road is something that you make yourself."
+> "If I'm around you, I don't think I'll ever be bored."
 
-&mdash; [**Jotaro Kujo**](https://myanimelist.net/character.php?q=Jotaro%20Kujo&cat=character), [**JoJo's Bizarre Adventure: Stardust Crusaders**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Stardust%20Crusaders&cat=all)
+&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
