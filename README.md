@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Victory isn't something you are given. It is something you take."
+> "A road is something that you make yourself."
 
-&mdash; [**Ushiromiya Battler**](https://myanimelist.net/character.php?q=Ushiromiya%20Battler&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Jotaro Kujo**](https://myanimelist.net/character.php?q=Jotaro%20Kujo&cat=character), [**JoJo's Bizarre Adventure: Stardust Crusaders**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Stardust%20Crusaders&cat=all)
