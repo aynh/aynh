@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am strong. Stronger than all of you. Extremely strong. I can kill all the titans out there. Even if I am alone."
+> "*Holding Syaoran's hand* If I sleep like this, the first person I want to see when I wake up, is Syaoran."
 
-&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Sakura Kinomoto**](https://myanimelist.net/character.php?q=Sakura%20Kinomoto&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
