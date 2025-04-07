@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think being able to openly take away the most important thing people have... 'life'... is the best thing that ever happened!"
+> "It's not a matter of a creature's individual worth. It's a matter of a creature's personal feelings."
 
-&mdash; [**Luciano Bradley**](https://myanimelist.net/character.php?q=Luciano%20Bradley&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
