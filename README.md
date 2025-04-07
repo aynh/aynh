@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You cannot restrain me with logic."
+> "You are calm and intelligent, but youth can invite disaster. Do not fight alone."
 
-&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Dr. Kuseno**](https://myanimelist.net/character.php?q=Dr.%20Kuseno&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
