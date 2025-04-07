@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you take someone at puberty, a teen... introduce him or her to a member of the opposite sex around the same age and say, 'This is the person who was meant for you'... and then go on to spend a lot of time together... why wouldn't you fall for them?"
+> "A woman who can talk tough while completely naked...amazing. (about Rin, the horse)"
 
-&mdash; [**Nisaka Yuusuke**](https://myanimelist.net/character.php?q=Nisaka%20Yuusuke&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
