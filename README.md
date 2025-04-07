@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are calm and intelligent, but youth can invite disaster. Do not fight alone."
+> "Do you think your sin will disappear if you lie?"
 
-&mdash; [**Dr. Kuseno**](https://myanimelist.net/character.php?q=Dr.%20Kuseno&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
