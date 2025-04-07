@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I'm around you, I don't think I'll ever be bored."
+> "We all live under the same sky. If each of us learns to shine, it won't matter how far apart we are. We'll be able to see each other."
 
-&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
