@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We all live under the same sky. If each of us learns to shine, it won't matter how far apart we are. We'll be able to see each other."
+> "It's my turn to use you."
 
-&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
