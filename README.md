@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A woman who can talk tough while completely naked...amazing. (about Rin, the horse)"
+> "Just as stand users attract other stand users, loners seems to have an ability to attract other loners as well."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
