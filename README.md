@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Manipulating the pieces according to your strategy... That is what defines a King."
+> "The beating of a heart is the first source of music!"
 
-&mdash; [**Minerva Orland**](https://myanimelist.net/character.php?q=Minerva%20Orland&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Shining Saotome**](https://myanimelist.net/character.php?q=Shining%20Saotome&cat=character), [**Uta no Prince-sama**](https://myanimelist.net/search/all?q=Uta%20no%20Prince-sama&cat=all)
