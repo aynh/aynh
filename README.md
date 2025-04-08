@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it is because of what you call a heart, then it is the heart that causes you humans pain. It is because of your heart that you will die."
+> "The only principle is that there is no principles."
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kurapika**](https://myanimelist.net/character.php?q=Kurapika&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
