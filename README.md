@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Welcome. Welcome to my cave young ones. Please forgive the belated salutations I am the holy sword Excalibur!"
+> "Accepting one's own strength, and the strength of others, is an important quality of a swordsman."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
