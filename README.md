@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey Nana, if Cinderella's glass slipper fits so perfectly, I wonder why it fell off along the way? I can't help but think that it was on purpose, to attract the prince's affections. No matter what I do, I'll still have the fate of a girl who just keeps getting hurt, wondering if she can be happy in this pointless, one man show?"
+> "Conflict is humanity's primal instinct. Eliminating it would mean eliminating humanity itself."
 
-&mdash; [**Nana Komatsu**](https://myanimelist.net/character.php?q=Nana%20Komatsu&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
