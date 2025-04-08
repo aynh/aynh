@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The only principle is that there is no principles."
+> "Welcome. Welcome to my cave young ones. Please forgive the belated salutations I am the holy sword Excalibur!"
 
-&mdash; [**Kurapika**](https://myanimelist.net/character.php?q=Kurapika&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
