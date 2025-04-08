@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How worthless. Why are you saying things are impossible? You just decided that to make yourself feel better! Sure, there are things you can't do, things that seem impossible, but that's what makes everyone unique!"
+> "That's right, I am Kira. And what can you do? Kill me right here?"
 
-&mdash; [**Rima Mashiro**](https://myanimelist.net/character.php?q=Rima%20Mashiro&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
