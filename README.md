@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's right, I am Kira. And what can you do? Kill me right here?"
+> "If you guys weren't here, I don't know what would have happened to me. You can't live in this world alone, no matter how you look at it."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Manato**](https://myanimelist.net/character.php?q=Manato&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
