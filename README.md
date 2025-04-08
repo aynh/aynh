@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It might be ridiculous to save the people. But when there are sad people in front of us... we can't just ignore them."
+> "How worthless. Why are you saying things are impossible? You just decided that to make yourself feel better! Sure, there are things you can't do, things that seem impossible, but that's what makes everyone unique!"
 
-&mdash; [**Angelique**](https://myanimelist.net/character.php?q=Angelique&cat=character), [**Neo Angelique Abyss**](https://myanimelist.net/search/all?q=Neo%20Angelique%20Abyss&cat=all)
+&mdash; [**Rima Mashiro**](https://myanimelist.net/character.php?q=Rima%20Mashiro&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
