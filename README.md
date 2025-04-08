@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you guys weren't here, I don't know what would have happened to me. You can't live in this world alone, no matter how you look at it."
+> "Regardless of the color of eyes or skin, the color of blood is the same for everyone, isn’t it?"
 
-&mdash; [**Manato**](https://myanimelist.net/character.php?q=Manato&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Oskar von Reuenthal**](https://myanimelist.net/character.php?q=Oskar%20von%20Reuenthal&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
