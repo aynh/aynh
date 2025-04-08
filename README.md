@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you ask what life is to me, I'd answer endless days of homework and pain. Why you ask? The amount of homework, it's too much."
+> "No matter what may happen... As long as you walk by my side... There shall be no enemy that can stand before us."
 
-&mdash; [**Han Jee-Han**](https://myanimelist.net/character.php?q=Han%20Jee-Han&cat=character), [**The Gamer**](https://myanimelist.net/search/all?q=The%20Gamer&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
