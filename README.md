@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what may happen... As long as you walk by my side... There shall be no enemy that can stand before us."
+> "Manipulating the pieces according to your strategy... That is what defines a King."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Minerva Orland**](https://myanimelist.net/character.php?q=Minerva%20Orland&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
