@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yamcha, I was worried about you. For all I knew, you were dead in a ditch in a country you can’t pronounce. You’ll have to make this up to me. And you’re going to enjoy it."
+> "Lots of things change with the flow of time. But there are things that never change. Things that are precious because they change, and things that are precious because they don’t change… Both are precious. Don’t you feel the same?"
 
-&mdash; [**Bulma Briefs**](https://myanimelist.net/character.php?q=Bulma%20Briefs&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Akari Mizunashi**](https://myanimelist.net/character.php?q=Akari%20Mizunashi&cat=character), [**Aria the Animation**](https://myanimelist.net/search/all?q=Aria%20the%20Animation&cat=all)
