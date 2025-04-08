@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regardless of the color of eyes or skin, the color of blood is the same for everyone, isn’t it?"
+> "I called you an idiot, idiot!"
 
-&mdash; [**Oskar von Reuenthal**](https://myanimelist.net/character.php?q=Oskar%20von%20Reuenthal&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Kiba Inuzuka**](https://myanimelist.net/character.php?q=Kiba%20Inuzuka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
