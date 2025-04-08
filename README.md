@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Conflict is humanity's primal instinct. Eliminating it would mean eliminating humanity itself."
+> "If you ask what life is to me, I'd answer endless days of homework and pain. Why you ask? The amount of homework, it's too much."
 
-&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Han Jee-Han**](https://myanimelist.net/character.php?q=Han%20Jee-Han&cat=character), [**The Gamer**](https://myanimelist.net/search/all?q=The%20Gamer&cat=all)
