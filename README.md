@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past does not exist to remind us that the future cannot be changed. It exists to remind us what the future can be."
+> "Rumors, at times, can be more severe than the truth."
 
-&mdash; [**Hagoromo Ōtsutsuki**](https://myanimelist.net/character.php?q=Hagoromo%20%C5%8Ctsutsuki&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
