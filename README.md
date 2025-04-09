@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whatever I do, I'll always be me. I won't tone myself down to fit in."
+> "Every week, when it is time, they stick to the TV. They watch my actions in the comfort of their families after dinner. Children watch my actions and their hearts leap. They see me stand up to evil spirits and... they know what courage is! Do you understand, boy? With them watching, I can't run away from the enemy"
 
-&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Don Kanonji**](https://myanimelist.net/character.php?q=Don%20Kanonji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
