@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(after Goku moves a huge boulder all by himself) Krillin wants everybody to know he's speechless right now."
+> "HANAJIMA, MY SPEAR! GET ME MY SPEAR!"
 
-&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
