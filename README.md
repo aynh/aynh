@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Does he really believe we would turn around after all that we've been through?"
+> "If you could see everything but couldn't change any of it, or if you could live in freedom in darkness... Which do you think is more fortunate? I think it might not be that bad living in the dark, remembering the light."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Amane**](https://myanimelist.net/character.php?q=Amane&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
