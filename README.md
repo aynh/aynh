@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you could see everything but couldn't change any of it, or if you could live in freedom in darkness... Which do you think is more fortunate? I think it might not be that bad living in the dark, remembering the light."
+> "There must be something wrong with those that are delighted about other people's happiness. Every one of them is either a hypocrite or just scheming something."
 
-&mdash; [**Amane**](https://myanimelist.net/character.php?q=Amane&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Samejima Mirai**](https://myanimelist.net/character.php?q=Samejima%20Mirai&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
