@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A smile is a seed of happiness. Anything can be made with it."
+> "The past does not exist to remind us that the future cannot be changed. It exists to remind us what the future can be."
 
-&mdash; [**Kai**](https://myanimelist.net/character.php?q=Kai&cat=character), [**Neo Angelique Abyss**](https://myanimelist.net/search/all?q=Neo%20Angelique%20Abyss&cat=all)
+&mdash; [**Hagoromo Ōtsutsuki**](https://myanimelist.net/character.php?q=Hagoromo%20%C5%8Ctsutsuki&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
