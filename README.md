@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There must be something wrong with those that are delighted about other people's happiness. Every one of them is either a hypocrite or just scheming something."
+> "It's good to not have any enemies, but it's normal to unintentionally make a few along the way."
 
-&mdash; [**Samejima Mirai**](https://myanimelist.net/character.php?q=Samejima%20Mirai&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
+&mdash; [**Saya Irino**](https://myanimelist.net/character.php?q=Saya%20Irino&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
