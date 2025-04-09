@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People say love can be developed, but in the end the only person they love is themselves, that's why you choose to love someone who can please you the most."
+> "Do you think you're the main character of some kind of sob story? You don't want to see people get hurt, so you cover your eyes and ears. Using your grief to hide the suffering is the easiest path to take. But I won't forgive you if you do. You're a Brave aren't you? Do you intend to live as someone who's always protected by others!? Fight! What will you solve by running away? The ability to keep going forward is strength as well! Physical strength is not all there is to it!"
 
-&mdash; [**Takumi Ichinose**](https://myanimelist.net/character.php?q=Takumi%20Ichinose&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Anastasia**](https://myanimelist.net/character.php?q=Anastasia&cat=character), [**Brave 10**](https://myanimelist.net/search/all?q=Brave%2010&cat=all)
