@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every week, when it is time, they stick to the TV. They watch my actions in the comfort of their families after dinner. Children watch my actions and their hearts leap. They see me stand up to evil spirits and... they know what courage is! Do you understand, boy? With them watching, I can't run away from the enemy"
+> "People say love can be developed, but in the end the only person they love is themselves, that's why you choose to love someone who can please you the most."
 
-&mdash; [**Don Kanonji**](https://myanimelist.net/character.php?q=Don%20Kanonji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Takumi Ichinose**](https://myanimelist.net/character.php?q=Takumi%20Ichinose&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
