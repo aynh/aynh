@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't deny, I don't know very much about Rukia. That's not the point, I might not risk my life for her, but Ichigo wants to save her life and that's all I need to know. What may seem like an unworthy cause to you is more than enough reason for me."
+> "The fact that I’m standing here means that I’m resolved to fight for my guild. I do not need your sympathy. As long as I’m still standing, please come at me with all you’ve got! Please do!"
 
-&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Wendy Marvell**](https://myanimelist.net/character.php?q=Wendy%20Marvell&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
