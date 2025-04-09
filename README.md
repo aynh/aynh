@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who do not fear the sword they wield, have no right to wield a sword at all."
+> "(after Goku moves a huge boulder all by himself) Krillin wants everybody to know he's speechless right now."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
