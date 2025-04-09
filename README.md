@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you destroy the world, the world you wish for won't come."
+> "No matter what, anyone would hate to be weak as they get plundered. But if there's a chance, even if humans fail to get what they want, they can unexpectedly accept such an outcome."
 
-&mdash; [**Cho Hakkai**](https://myanimelist.net/character.php?q=Cho%20Hakkai&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
