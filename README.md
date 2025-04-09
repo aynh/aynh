@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Damn that witch. How am I supposed to be cool when she is all hot and naked like that huh?"
+> "The Other Side of the Other Side of the Other Side would be the Other Side."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
