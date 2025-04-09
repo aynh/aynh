@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "HANAJIMA, MY SPEAR! GET ME MY SPEAR!"
+> "Even if you destroy the world, the world you wish for won't come."
 
-&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Cho Hakkai**](https://myanimelist.net/character.php?q=Cho%20Hakkai&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
