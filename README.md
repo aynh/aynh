@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't you think it's beautiful? That rosy red that spreads only where the body is wounded. Shall I paint you in that lovely red... little boy?"
+> "Damn that witch. How am I supposed to be cool when she is all hot and naked like that huh?"
 
-&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
