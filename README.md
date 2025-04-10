@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The strong use their strength as their weapon. The weak use their weakness as their weapon."
+> "If  you are lookin' back all the time, you'll never get ahead!"
 
-&mdash; [**Mizufa Trudy**](https://myanimelist.net/character.php?q=Mizufa%20Trudy&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
