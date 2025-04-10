@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Heroes and villains both thrive on violence, but we're still categorized. 'You're good.' 'You're evil.' That's how it is!! Symbol of peace? Hah!! In the end you're just a tool for violence, made to keep us down! And violence only breeds more violence."
+> "Fake people have an image to maintain. Real people just don't care."
 
-&mdash; [**Shigaraki Tomura**](https://myanimelist.net/character.php?q=Shigaraki%20Tomura&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
