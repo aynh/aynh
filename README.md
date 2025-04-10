@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[clapping] A beautiful speech, I can see it now, you truly are a prince with the royal blood of a Saiyan."
+> "I’m sorry. But, you know? I'm only human. It's natural that I'll fail on occasion."
 
-&mdash; [**Android 17**](https://myanimelist.net/character.php?q=Android%2017&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Sumeragi Lee Noriega**](https://myanimelist.net/character.php?q=Sumeragi%20Lee%20Noriega&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
