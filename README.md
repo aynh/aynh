@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’m sorry. But, you know? I'm only human. It's natural that I'll fail on occasion."
+> "*points at Black Star* What is that? Some kind of monkey? Yeah...it must be a monkey."
 
-&mdash; [**Sumeragi Lee Noriega**](https://myanimelist.net/character.php?q=Sumeragi%20Lee%20Noriega&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
