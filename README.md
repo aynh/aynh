@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can stand not eating or sleeping, but I absolutely would not be able to live without my computer."
+> "Heroes and villains both thrive on violence, but we're still categorized. 'You're good.' 'You're evil.' That's how it is!! Symbol of peace? Hah!! In the end you're just a tool for violence, made to keep us down! And violence only breeds more violence."
 
-&mdash; [**Kisaragi Shintaro**](https://myanimelist.net/character.php?q=Kisaragi%20Shintaro&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
+&mdash; [**Shigaraki Tomura**](https://myanimelist.net/character.php?q=Shigaraki%20Tomura&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
