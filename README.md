@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Revenge never does anyone any good. Killing the person you hate will never ease the pain. Always look forward! Follow the path of light!"
+> "We'll never win if we don't believe we can."
 
-&mdash; [**Mikage**](https://myanimelist.net/character.php?q=Mikage&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Daichi Sawamura**](https://myanimelist.net/character.php?q=Daichi%20Sawamura&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
