@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is a world where people’s hearts are filled with hatred... where fingers have no purpose other than to pull triggers."
+> "Hughes again? Put him through. It's me. I won't listen if you're going to be bragging about your daughter. *...* Hughes? Hughes... Hey! Hughes! Hughes!!"
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
