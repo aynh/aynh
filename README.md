@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans cannot reject temptation. When they are plunged into the depths of despair, likened to hell, they will hold on to anything that may help them escape from the situation they are in, even if it's merely a spider's thread, no matter what sort of humans they are."
+> "It's fine. I'll work hard on my own."
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
