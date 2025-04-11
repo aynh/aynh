@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "These monsters dare to enter this house built on blood and honor! I will see them all roast in the deepest pits of Hell!"
+> "Sometimes, the questions are complicated - and the answers are simple."
 
-&mdash; [**Integra Hellsing**](https://myanimelist.net/character.php?q=Integra%20Hellsing&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
