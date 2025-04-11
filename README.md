@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hughes again? Put him through. It's me. I won't listen if you're going to be bragging about your daughter. *...* Hughes? Hughes... Hey! Hughes! Hughes!!"
+> "Words are very powerful. That's why you have to watch everything that comes out from your mouth."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
