@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But you're wrong, no one ever has the right to take the life of another person. No one, no one ever has the right to take the life of another. No one. And everyone, everyone deserves a future. Don't you think that's true? Please, please, it's time to stop the fighting now. It's up to us to end the cycle of hatred. If we don't work to end the sorrow this time, then the cycle of pain will just continue on. When we were all born, were any of us made to steal or cause others harm?"
+> "Water brings healing and life. But fire brings only destruction and pain. It forces those of us burdened with its care to walk a razor's edge between humanity and savagery. Eventually, we are torn apart."
 
-&mdash; [**Meryl Stryfe**](https://myanimelist.net/character.php?q=Meryl%20Stryfe&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Jeong Jeong**](https://myanimelist.net/character.php?q=Jeong%20Jeong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
