@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this moment, I am euphoric. Not because of any phony Shinobi's blessing. But because, I'm enlightened by my intelligence."
+> "These monsters dare to enter this house built on blood and honor! I will see them all roast in the deepest pits of Hell!"
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Integra Hellsing**](https://myanimelist.net/character.php?q=Integra%20Hellsing&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
