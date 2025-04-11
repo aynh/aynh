@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To stop or to keep going? The one who decides is yourself."
+> "[naked and smiling at Shinji] Hey Shinji, you idiot! Want to become of one mind and one body?"
 
-&mdash; [**Shōkichi Naruko**](https://myanimelist.net/character.php?q=Sh%C5%8Dkichi%20Naruko&cat=character), [**Yowamushi Pedal**](https://myanimelist.net/search/all?q=Yowamushi%20Pedal&cat=all)
+&mdash; [**Souryuu Asuka Langley**](https://myanimelist.net/character.php?q=Souryuu%20Asuka%20Langley&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
