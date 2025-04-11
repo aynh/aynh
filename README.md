@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I look up, I see a gloomy, cloudy sky. Today is another tiring uphill climb. I get sick of it all. Then... I think of the girl I love, and I put back on those worn down shoes. Her smile is like a ray of light that shines down from in between the clouds and warms up my heart. My girl has the smile of an angel."
+> "In this moment, I am euphoric. Not because of any phony Shinobi's blessing. But because, I'm enlightened by my intelligence."
 
-&mdash; [**Nakagawa Ken**](https://myanimelist.net/character.php?q=Nakagawa%20Ken&cat=character), [**Tenshi Nanka ja Nai**](https://myanimelist.net/search/all?q=Tenshi%20Nanka%20ja%20Nai&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
