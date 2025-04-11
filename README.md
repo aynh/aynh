@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When a dog soils the carpet, its master is responsible."
+> "You think you're special? You're not. Everyone lies, everyone hides things... Nobody makes it through this life being completely honest."
 
-&mdash; [**Cruhteo**](https://myanimelist.net/character.php?q=Cruhteo&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
