@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[naked and smiling at Shinji] Hey Shinji, you idiot! Want to become of one mind and one body?"
+> "This is a world where people’s hearts are filled with hatred... where fingers have no purpose other than to pull triggers."
 
-&mdash; [**Souryuu Asuka Langley**](https://myanimelist.net/character.php?q=Souryuu%20Asuka%20Langley&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
