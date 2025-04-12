@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Admiration is admiration. It's the same as viewing flowers from afar. When you get too close - it becomes like Icarus, who lost his wings and plunged into the earth after flying too close to the Sun. Disaster befalls oneself."
+> "You keep imposing your ideals on them. Don't worry about other people. You only need to do what you think is right."
 
-&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
