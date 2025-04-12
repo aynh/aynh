@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What I want isn't money or pretty dresses, but a place that recognizes me as who I am. Fairy Tail is my other family, and it is a far more warming family than here!"
+> "Now that the rainy season has started, it rains quite a lot. I don't like the rainy season. As the humidity rises, so does the misery. And recently, more things that contribute to my misery have sprung up around me..."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kaname Tsukahara**](https://myanimelist.net/character.php?q=Kaname%20Tsukahara&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
