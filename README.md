@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This area feels weird, it's been throbbing hard since that time. When you told me not to go. When you held me so tight. It won't go away. Your voice is still in my ear. What happened to me? Is this... love?"
+> "The cycle of life goes only one direction, not even alchemy can change that."
 
-&mdash; [**Mashiro Shiina**](https://myanimelist.net/character.php?q=Mashiro%20Shiina&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
