@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is important is to know fear and yet take a step forward."
+> "Admiration is admiration. It's the same as viewing flowers from afar. When you get too close - it becomes like Icarus, who lost his wings and plunged into the earth after flying too close to the Sun. Disaster befalls oneself."
 
-&mdash; [**Rosette Christopher**](https://myanimelist.net/character.php?q=Rosette%20Christopher&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
+&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
