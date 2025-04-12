@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is lucky! Despite of how much I hate the world, I have decided to mend it rather than destroy it."
+> "It's nice not to be alone."
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
