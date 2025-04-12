@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The cycle of life goes only one direction, not even alchemy can change that."
+> "Those who don't fulfill their obligation to others 'ave no right to ask 'em for such privilege..."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Mr. Blouse**](https://myanimelist.net/character.php?q=Mr.%20Blouse&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
