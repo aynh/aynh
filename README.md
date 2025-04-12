@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You keep imposing your ideals on them. Don't worry about other people. You only need to do what you think is right."
+> "Where in this world can a sane man be found? We're the same. We're all the same. None of us understands what it means to love all. Or the meaning of life...Or the meaning of death...Or the meaning of our own battles."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Canute**](https://myanimelist.net/character.php?q=Canute&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
