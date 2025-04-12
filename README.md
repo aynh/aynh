@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Me personally, I like to work and train."
+> "This area feels weird, it's been throbbing hard since that time. When you told me not to go. When you held me so tight. It won't go away. Your voice is still in my ear. What happened to me? Is this... love?"
 
-&mdash; [**Goku**](https://myanimelist.net/character.php?q=Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Mashiro Shiina**](https://myanimelist.net/character.php?q=Mashiro%20Shiina&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
