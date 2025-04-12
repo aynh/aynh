@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In every world, once you die, you're gone."
+> "It's better not to look for more meaning than there is in a name. You'll lose sight of a lot more than you notice."
 
-&mdash; [**Akihiko Kayaba**](https://myanimelist.net/character.php?q=Akihiko%20Kayaba&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
