@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey bitch, get off me! I'm supposed to be on top!"
+> "People cry, not because they're weak. Its because they've been strong for too long."
 
-&mdash; [**Jan Valentine**](https://myanimelist.net/character.php?q=Jan%20Valentine&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
