@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Where in this world can a sane man be found? We're the same. We're all the same. None of us understands what it means to love all. Or the meaning of life...Or the meaning of death...Or the meaning of our own battles."
+> "Why shouldn't you quit, if that's what you really want to do? Everything will work out somehow."
 
-&mdash; [**Canute**](https://myanimelist.net/character.php?q=Canute&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
