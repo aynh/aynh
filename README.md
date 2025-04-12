@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why shouldn't you quit, if that's what you really want to do? Everything will work out somehow."
+> "Legends from the distant past are always exaggerated, but eventually, someone outdoes them... that's when new legends are born!"
 
-&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Shikaku Nara**](https://myanimelist.net/character.php?q=Shikaku%20Nara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
