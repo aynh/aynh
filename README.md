@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who don't fulfill their obligation to others 'ave no right to ask 'em for such privilege..."
+> "A memory is something that is consciously recalled, right? That's why sometimes, it can be mistaken or wrong. It's different from a memory locked deep within your heart."
 
-&mdash; [**Mr. Blouse**](https://myanimelist.net/character.php?q=Mr.%20Blouse&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Tifa Lockhart**](https://myanimelist.net/character.php?q=Tifa%20Lockhart&cat=character), [**Final Fantasy VII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII&cat=all)
