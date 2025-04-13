@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you think it's natural for people to sacrifice their own lives to save others, surely you understand that sometimes a single death can save many lives."
+> "Whether I go or not, I'll die anyway. I have an organ more important than my heart. Although you can't see it, I feel it going through my head down to my feet, and I know it exists within me. It lets me stand on my feet, it lets me walk forward without trembling. If I stop here, I feel like it would break... My soul will break."
 
-&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
