@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether I go or not, I'll die anyway. I have an organ more important than my heart. Although you can't see it, I feel it going through my head down to my feet, and I know it exists within me. It lets me stand on my feet, it lets me walk forward without trembling. If I stop here, I feel like it would break... My soul will break."
+> "Trunks, Bulma, I’m doing this for you. And yes, even for you, Kakarot."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
