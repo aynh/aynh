@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who win are not strong. It is those who lose and crawl back up who are strong."
+> "The world is constantly changing. And you can't expect it to stay the same, even for a second. If that's true, there's no need for you to go on a journey, Kino. Even if you stay in one place, you'll be able to keep experiencing the world."
 
-&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Hermes**](https://myanimelist.net/character.php?q=Hermes&cat=character), [**Kino**](https://myanimelist.net/search/all?q=Kino&cat=all)
