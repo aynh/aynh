@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trunks, Bulma, I’m doing this for you. And yes, even for you, Kakarot."
+> "When a human is victorious is when they're most vulnerable."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
