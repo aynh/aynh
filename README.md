@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love and the human mind can't be analyzed with formulas. It's not so unusual for love to make you forget the sense of care and respect for others. There's no logic. It's an uncontrollable urge. To tell you the truth, it’d be worrisome if you became like that. Your mind is keen, and your character is good. But passion has nothing to do with mind or character."
+> "Do you know how they say that love is like a dream? With a dream, you eventually wake up from it. It's hard to force yourself to wake up."
 
-&mdash; [**Alex Cazellnu**](https://myanimelist.net/character.php?q=Alex%20Cazellnu&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Kumin Tsuyuri**](https://myanimelist.net/character.php?q=Kumin%20Tsuyuri&cat=character), [**Chuunibyou Demo Koi Ga Shitai!**](https://myanimelist.net/search/all?q=Chuunibyou%20Demo%20Koi%20Ga%20Shitai!&cat=all)
