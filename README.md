@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you feel your life's on the line, your true nature surfaces."
+> "Oh, you know... I'm gonna do this, and a little of that... and I'm definitely gonna do THAT...! (to Kyo about Tohru, after calling her Kyo's girlfriend)"
 
-&mdash; [**Shinichi Izumi**](https://myanimelist.net/character.php?q=Shinichi%20Izumi&cat=character), [**Parasyte -the maxim-**](https://myanimelist.net/search/all?q=Parasyte%20-the%20maxim-&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
