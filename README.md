@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That day four years ago... When I wasn't needed by anyone. When nobody cared about me. When I had given up on living and was about to jump off the roof of a building... FB saved me with a single message. I didn't care if it was a joke or not. I was just happy that somebody knew... that I was alive... that it was OK for me to live..."
+> "Yes, I have no reason to take part in the Absurd and Unreasonable real world."
 
-&mdash; [**Moeka Kiryū**](https://myanimelist.net/character.php?q=Moeka%20Kiry%C5%AB&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
