@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Angels banished from heaven have no choice but to become devils."
+> "It looks like they only want me, and that's exactly who they'll get."
 
-&mdash; [**Vicious**](https://myanimelist.net/character.php?q=Vicious&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
