@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Living is important! It is because one lives, one can enjoy things! Everyone has their own designated place and position in life! This man understands the futility of resisting against that fact! You see, not all living things, are born equal!"
+> "What would you ask for if you could have your wishes granted? Would you ask to be rich? Or to have the woman you're in love with be yours?  You can wish for whatever you want, it's your business, but to have one's wishes come true always comes with a price. Every deal has a catch. You'd better be nice and careful."
 
-&mdash; [**Arlong**](https://myanimelist.net/character.php?q=Arlong&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Dante**](https://myanimelist.net/character.php?q=Dante&cat=character), [**Devil May Cry**](https://myanimelist.net/search/all?q=Devil%20May%20Cry&cat=all)
