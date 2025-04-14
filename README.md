@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Weak in order to love, strong in order to protect, both in order to stay at your side."
+> "This is the law of conservation of mass. Somebody's 'happiness' is somebody else's 'unhappiness'. That's why I tried to be a 'rubbish bin' for those guys who played othello on my back using white and black thumbtacks. My crying and screaming meant something, 'cause they were laughing... But I was wrong. It doesn't make sense, does it? If I enjoy being unhappy, that 'happiness' will make someone else 'unhappy'!"
 
-&mdash; [**Elizabeth Midford**](https://myanimelist.net/character.php?q=Elizabeth%20Midford&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Madoka Shishito**](https://myanimelist.net/character.php?q=Madoka%20Shishito&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
