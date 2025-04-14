@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bruises and fractures heal with time, but the wounds in people's hearts do not heal as easily."
+> "Well, I give up. Can't win against fools."
 
-&mdash; [**Rainbow: Nisha Rokubou no Shichinin**](https://myanimelist.net/character.php?q=Rainbow%3A%20Nisha%20Rokubou%20no%20Shichinin&cat=character), [**Rainbow: Nisha Rokubou no Shichinin**](https://myanimelist.net/search/all?q=Rainbow%3A%20Nisha%20Rokubou%20no%20Shichinin&cat=all)
+&mdash; [**Jigo**](https://myanimelist.net/character.php?q=Jigo&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
