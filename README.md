@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm prepared for anything! Up until now, I have been running away from every fight, afraid of losing. But running away is even worse than losing. Unless one continues to fight, without succumbing to the pain of defeat, it is impossible to achieve victory. That is what people I love taught me."
+> "Mankind has no time left."
 
-&mdash; [**Hanyuu**](https://myanimelist.net/character.php?q=Hanyuu&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
+&mdash; [**Shinji Ikari**](https://myanimelist.net/character.php?q=Shinji%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
