@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yes, I have no reason to take part in the Absurd and Unreasonable real world."
+> "Living is important! It is because one lives, one can enjoy things! Everyone has their own designated place and position in life! This man understands the futility of resisting against that fact! You see, not all living things, are born equal!"
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Arlong**](https://myanimelist.net/character.php?q=Arlong&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
