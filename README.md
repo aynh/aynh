@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, I give up. Can't win against fools."
+> "I'm here because I don't like to be tied down. So you should decide for yourself who you want for your friend."
 
-&mdash; [**Jigo**](https://myanimelist.net/character.php?q=Jigo&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Hayabusa Shou**](https://myanimelist.net/character.php?q=Hayabusa%20Shou&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
