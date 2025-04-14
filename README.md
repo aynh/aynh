@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It looks like they only want me, and that's exactly who they'll get."
+> "Weak in order to love, strong in order to protect, both in order to stay at your side."
 
-&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Elizabeth Midford**](https://myanimelist.net/character.php?q=Elizabeth%20Midford&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
