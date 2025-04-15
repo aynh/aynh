@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unfortunately, the real world isn't the same as a fairy tale."
+> "Sometimes opportunity comes in sacrifice."
 
-&mdash; [**Blake Belladonna**](https://myanimelist.net/character.php?q=Blake%20Belladonna&cat=character), [**RWBY**](https://myanimelist.net/search/all?q=RWBY&cat=all)
+&mdash; [**Akane Ryūzōji**](https://myanimelist.net/character.php?q=Akane%20Ry%C5%ABz%C5%8Dji&cat=character), [**Walkure Romanze**](https://myanimelist.net/search/all?q=Walkure%20Romanze&cat=all)
