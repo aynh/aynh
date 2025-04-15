@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is the law of conservation of mass. Somebody's 'happiness' is somebody else's 'unhappiness'. That's why I tried to be a 'rubbish bin' for those guys who played othello on my back using white and black thumbtacks. My crying and screaming meant something, 'cause they were laughing... But I was wrong. It doesn't make sense, does it? If I enjoy being unhappy, that 'happiness' will make someone else 'unhappy'!"
+> "Who a person hangs out with is their choice. And I couldn't care less about rumors. Until I tried talking to them myself, I wouldn't know..."
 
-&mdash; [**Madoka Shishito**](https://myanimelist.net/character.php?q=Madoka%20Shishito&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Shougo Kiryuu**](https://myanimelist.net/character.php?q=Shougo%20Kiryuu&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
