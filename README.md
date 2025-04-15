@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have no parents, and I'm not a product of love. Therefore, I can't understand what a 'good wife' is. Even so... the love he gave me is my entire world. No one can humiliate that."
+> "We ultimately fear what spawns from within us."
 
-&mdash; [**Irisviel von Einzbern**](https://myanimelist.net/character.php?q=Irisviel%20von%20Einzbern&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Shun Aonuma**](https://myanimelist.net/character.php?q=Shun%20Aonuma&cat=character), [**Shinsekai Yori**](https://myanimelist.net/search/all?q=Shinsekai%20Yori&cat=all)
