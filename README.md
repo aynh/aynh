@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "She was stolen away before I even realized I liked her."
+> "But we're alive, aren't we? We don't have any magic power, but we're alive! We have the strength to overcome the weakness and the fear! That's what it means to be alive!"
 
-&mdash; [**Kento Miura**](https://myanimelist.net/character.php?q=Kento%20Miura&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
