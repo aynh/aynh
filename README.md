@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world will always be filled with injustice. If you have time to give up or hold a grudge against that injustice, then use that time to enjoy battling those injustices instead."
+> "Thanks for such a boring time, it was a blast!"
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
