@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anybody want to take the sexy kitty home? She's free."
+> "I never... [chuckles]... laughed this hard in front of my parents.(to Tohru)"
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
