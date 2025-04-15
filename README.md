@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more exciting it was to meet, the sadder it feels to say goodbye, right?"
+> "The biggest idiot is you! So why don't you go back to school or whatever it is that idiots like you do and don't ever bother me again! You piece of shit! (To Yuki)"
 
-&mdash; [**Haruto Kirishima**](https://myanimelist.net/character.php?q=Haruto%20Kirishima&cat=character), [**Kimi no Iru Machi**](https://myanimelist.net/search/all?q=Kimi%20no%20Iru%20Machi&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
