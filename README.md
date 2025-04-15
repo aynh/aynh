@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regretting the past forever won't solve anything."
+> "There isn't a chain in this world for a person to chain down another."
 
-&mdash; [**Shiho Fujimiya**](https://myanimelist.net/character.php?q=Shiho%20Fujimiya&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
+&mdash; [**Moroha Haimura**](https://myanimelist.net/character.php?q=Moroha%20Haimura&cat=character), [**Seiken Tsukai no World Break**](https://myanimelist.net/search/all?q=Seiken%20Tsukai%20no%20World%20Break&cat=all)
