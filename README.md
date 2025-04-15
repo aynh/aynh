@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There isn't a chain in this world for a person to chain down another."
+> "I kiss you!"
 
-&mdash; [**Moroha Haimura**](https://myanimelist.net/character.php?q=Moroha%20Haimura&cat=character), [**Seiken Tsukai no World Break**](https://myanimelist.net/search/all?q=Seiken%20Tsukai%20no%20World%20Break&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
