@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You couldn't save your mom because you... weren't strong enough. I didn't face the Titan... because I wasn't brave enough."
+> "The world will always be filled with injustice. If you have time to give up or hold a grudge against that injustice, then use that time to enjoy battling those injustices instead."
 
-&mdash; [**Hannes**](https://myanimelist.net/character.php?q=Hannes&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
