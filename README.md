@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "May those who accept their fate be granted Happiness, may those who defy their fate be granted Glory."
+> "You are from a world Su will never understand."
 
-&mdash; [**Edel**](https://myanimelist.net/character.php?q=Edel&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
+&mdash; [**Su**](https://myanimelist.net/character.php?q=Su&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
