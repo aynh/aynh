@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Luxury means something with no meaning at all"
+> "I do not fear death. I fear only that my rage will fade over time."
 
-&mdash; [**Souhei Saikawa**](https://myanimelist.net/character.php?q=Souhei%20Saikawa&cat=character), [**Subete ga F ni Naru**](https://myanimelist.net/search/all?q=Subete%20ga%20F%20ni%20Naru&cat=all)
+&mdash; [**Kurapika**](https://myanimelist.net/character.php?q=Kurapika&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
