@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't hesitate to tell the people you care about the feelings you have for them, because they may not be there tomorrow."
+> "May those who accept their fate be granted Happiness, may those who defy their fate be granted Glory."
 
-&mdash; [**Akagi**](https://myanimelist.net/character.php?q=Akagi&cat=character), [**Kantai Collection: KanColle**](https://myanimelist.net/search/all?q=Kantai%20Collection%3A%20KanColle&cat=all)
+&mdash; [**Edel**](https://myanimelist.net/character.php?q=Edel&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
