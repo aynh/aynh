@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never like to work based on trust. It takes hard work to build up trust, but only an instant to lose it. There's no less profitable investment."
+> "*to Aang* Protection and power are overrated. I think you are very wise to choose happiness and love."
 
-&mdash; [**Ushiromiya Kyrie**](https://myanimelist.net/character.php?q=Ushiromiya%20Kyrie&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
