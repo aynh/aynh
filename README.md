@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The stray dog in me is dyed into my bones... All I do is howl at the moon, but I don't have the guts to bite..."
+> "Cut off a wolf's head and it still has the power to bite."
 
-&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Lady Eboshi**](https://myanimelist.net/character.php?q=Lady%20Eboshi&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
