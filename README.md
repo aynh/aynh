@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe we'd fall short. Maybe we'd never even come close. But someone, someday would know we've tried."
+> "I stole a death note."
 
-&mdash; [**Oerba Dia Vanille**](https://myanimelist.net/character.php?q=Oerba%20Dia%20Vanille&cat=character), [**Final Fantasy XIII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20XIII&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
