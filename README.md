@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Cut off a wolf's head and it still has the power to bite."
+> "I have no desire to kill you. In fact, you're not worth killing. Killing you, would only tarnish my blade."
 
-&mdash; [**Lady Eboshi**](https://myanimelist.net/character.php?q=Lady%20Eboshi&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Jin**](https://myanimelist.net/character.php?q=Jin&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
