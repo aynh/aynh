@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Lies are like colours. The more you pile up, the blacker things get."
+> "They don't know that once you lose something, you can never get it back again."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Carly Stratmann**](https://myanimelist.net/character.php?q=Carly%20Stratmann&cat=character), [**Shingeki no Kyojin: Lost Girls**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Lost%20Girls&cat=all)
