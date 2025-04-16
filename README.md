@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Aang* Protection and power are overrated. I think you are very wise to choose happiness and love."
+> "Strength that knows no boundaries is merely violence."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Bismarck Waldstein**](https://myanimelist.net/character.php?q=Bismarck%20Waldstein&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
