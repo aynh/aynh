@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you truly desire greatness, you must first know what makes you weak!"
+> "What are you talking about, Ryu?! That's no damsel, that's a dude!"
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Horohoro**](https://myanimelist.net/character.php?q=Horohoro&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
