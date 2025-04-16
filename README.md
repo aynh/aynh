@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What are you talking about, Ryu?! That's no damsel, that's a dude!"
+> "The stray dog in me is dyed into my bones... All I do is howl at the moon, but I don't have the guts to bite..."
 
-&mdash; [**Horohoro**](https://myanimelist.net/character.php?q=Horohoro&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
