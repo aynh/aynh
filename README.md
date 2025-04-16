@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are from a world Su will never understand."
+> "Lies are like colours. The more you pile up, the blacker things get."
 
-&mdash; [**Su**](https://myanimelist.net/character.php?q=Su&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
