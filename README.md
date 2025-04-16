@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All adults are the same in the end. At first they are kind and sympathetic to make you drop your guard, then they try to kill you if you don't do as they say. That how adults always are. They're losers. The damn bastards!"
+> "An idiot that knows he's an idiot, is even harder to deal with than an idiot that thinks he isn't."
 
-&mdash; [**Jack**](https://myanimelist.net/character.php?q=Jack&cat=character), [**Mayoiga**](https://myanimelist.net/search/all?q=Mayoiga&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
