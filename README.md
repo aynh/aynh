@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Celebrating Mr. Jesus's birthday (Christmas) was fun, why don't we celebrate Buddha's and Muhammad's birthday next time?"
+> "Don't hesitate to tell the people you care about the feelings you have for them, because they may not be there tomorrow."
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Akagi**](https://myanimelist.net/character.php?q=Akagi&cat=character), [**Kantai Collection: KanColle**](https://myanimelist.net/search/all?q=Kantai%20Collection%3A%20KanColle&cat=all)
