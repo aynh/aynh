@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "An idiot that knows he's an idiot, is even harder to deal with than an idiot that thinks he isn't."
+> "There's no knowing how others are feeling unless you ask them. And your feelings can't get through to others unless you tell them directly."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
