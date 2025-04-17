@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In my eyes, there is no difference between wiping away one speck of dust or two."
+> "*To Russia* You were such a cute country when you were born and now your all grown up..."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**France**](https://myanimelist.net/character.php?q=France&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
