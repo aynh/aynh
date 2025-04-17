@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's quite easy for humans to become adults, but to always have a child-like heart that makes everything joyful isn't such an easy task."
+> "Nanao-chan is last place!"
 
-&mdash; [**Hattori Zenzou**](https://myanimelist.net/character.php?q=Hattori%20Zenzou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
