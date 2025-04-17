@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Ty Lee unleashes a furry of jabs into the back of a Kyoshi warrior, dropping her, and unleashes a final taunt] You are not prettier than we are."
+> "There are things you can't have no matter how much you want them. So it's easier to just forget them."
 
-&mdash; [**Ty Lee**](https://myanimelist.net/character.php?q=Ty%20Lee&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
