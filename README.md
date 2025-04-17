@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Orihime] I've repaid my debt to you. Now, you're gonna accompany me on a little errand."
+> "It's quite easy for humans to become adults, but to always have a child-like heart that makes everything joyful isn't such an easy task."
 
-&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Hattori Zenzou**](https://myanimelist.net/character.php?q=Hattori%20Zenzou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
