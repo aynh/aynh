@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Watching TV or playing games alone is more fun. Playing along with your friends' hobbies... Laughing at their jokes when they're not funny... All that does is tire me out."
+> "Someone who can be deceived by others will be deceived again and again."
 
-&mdash; [**Yuzuru Otonashi**](https://myanimelist.net/character.php?q=Yuzuru%20Otonashi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Lelei la Lelena**](https://myanimelist.net/character.php?q=Lelei%20la%20Lelena&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
