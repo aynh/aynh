@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Russia* You were such a cute country when you were born and now your all grown up..."
+> "[To Orihime] I've repaid my debt to you. Now, you're gonna accompany me on a little errand."
 
-&mdash; [**France**](https://myanimelist.net/character.php?q=France&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
