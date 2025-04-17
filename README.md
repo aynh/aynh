@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Living forever means that the suffering of life also continues forever."
+> "I've already made up my mind, to the statement: 'The most important thing in life is money'. I answered 'No'."
 
-&mdash; [**Sakura Hiraga**](https://myanimelist.net/character.php?q=Sakura%20Hiraga&cat=character), [**Masquerade**](https://myanimelist.net/search/all?q=Masquerade&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
