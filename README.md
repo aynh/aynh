@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nanao-chan is last place!"
+> "Whether you like it or not, time will leave you behind. In the same way that your beauty will wither away with time. In order to cling to the glorious past, people achieve peace by hurting others. People know it isn't the right thing to do, but they're unable to stop any of it. Wouldn't you agree that someone needs to teach them a lesson?"
 
-&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ribbons Almark**](https://myanimelist.net/character.php?q=Ribbons%20Almark&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
