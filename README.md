@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things you can't have no matter how much you want them. So it's easier to just forget them."
+> "Living forever means that the suffering of life also continues forever."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Sakura Hiraga**](https://myanimelist.net/character.php?q=Sakura%20Hiraga&cat=character), [**Masquerade**](https://myanimelist.net/search/all?q=Masquerade&cat=all)
