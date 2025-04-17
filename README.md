@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I would be nothing without you."
+> "[Ty Lee unleashes a furry of jabs into the back of a Kyoshi warrior, dropping her, and unleashes a final taunt] You are not prettier than we are."
 
-&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Ty Lee**](https://myanimelist.net/character.php?q=Ty%20Lee&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
