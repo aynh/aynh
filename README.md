@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll get what I want... even if I have to steal it."
+> "In my eyes, there is no difference between wiping away one speck of dust or two."
 
-&mdash; [**Rue Kuroha**](https://myanimelist.net/character.php?q=Rue%20Kuroha&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
