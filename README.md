@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've already made up my mind, to the statement: 'The most important thing in life is money'. I answered 'No'."
+> "Only sadness can counter sadness."
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
