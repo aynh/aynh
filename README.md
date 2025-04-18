@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "42-42-564 whenever you wanna knock on deaths door."
+> "My grandfather's deck has no pathetic cards, Kaiba. But it does contain... the unstoppable Exodia!"
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
