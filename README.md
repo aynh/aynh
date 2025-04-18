@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whenever you fight from this point on, there is one thing you must never do. Which is...to die alone."
+> "I was feeling down, but you distracted me by subjecting me to your selfish whims. There are times when selfishness can save a person."
 
-&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
