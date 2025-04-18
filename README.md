@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm warning you. You so much as bruise what you hold in your hand and I will show you pain. The hue of your soul will cease to matter, because you will not be judged when you die, you will no longer to exist."
+> "I'm used to gettting clobbered by her and all. But damn. A slap on the face hurts so much more."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Ichijou Raku**](https://myanimelist.net/character.php?q=Ichijou%20Raku&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
