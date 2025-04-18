@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm used to gettting clobbered by her and all. But damn. A slap on the face hurts so much more."
+> "Live a pleasant life in the unpleasant world."
 
-&mdash; [**Ichijou Raku**](https://myanimelist.net/character.php?q=Ichijou%20Raku&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Rokka Shimao**](https://myanimelist.net/character.php?q=Rokka%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
