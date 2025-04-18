@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He wouldn't notice if I got a crew cut, shaved my head bald, or even grew an afro!"
+> "The sorrows of life...To not be able to live like yourself. The joys of life...To be able to die like yourself."
 
-&mdash; [**Riku Harada**](https://myanimelist.net/character.php?q=Riku%20Harada&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Karren von Rosewald**](https://myanimelist.net/character.php?q=Karren%20von%20Rosewald&cat=character), [**Tokyo Ghoul:re**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%3Are&cat=all)
