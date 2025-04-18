@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not a matter of a creature's individual worth. It's a matter of a creature's personal feelings."
+> "Whenever you fight from this point on, there is one thing you must never do. Which is...to die alone."
 
-&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
