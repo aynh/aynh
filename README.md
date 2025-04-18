@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only sadness can counter sadness."
+> "I'm warning you. You so much as bruise what you hold in your hand and I will show you pain. The hue of your soul will cease to matter, because you will not be judged when you die, you will no longer to exist."
 
-&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
