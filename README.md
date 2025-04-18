@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Karla, nothing can surpass a human's curiosity."
+> "It's not a matter of a creature's individual worth. It's a matter of a creature's personal feelings."
 
-&mdash; [**Grisha Jaeger**](https://myanimelist.net/character.php?q=Grisha%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
