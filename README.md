@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even though there is life, no one here is living it. Life is overflowing and they are merely drinking their fill. But Dio and all the people I've met on my journey aren't like that... they're.. they're more... they were blazing with fire. They were torches burning with life."
+> "I don't think ignorance is necessarily a bad thing. The more you know, the more problems you have."
 
-&mdash; [**Casshern**](https://myanimelist.net/character.php?q=Casshern&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
