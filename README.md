@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anyone stronger than the god of destruction does not exist."
+> "When you are experienced you can become overly confident and such confidence can prove fatal."
 
-&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
