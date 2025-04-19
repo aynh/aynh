@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My face feels heavy, and I can't walk in these shoes."
+> "A heart's a heavy burden."
 
-&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Sophie Hatter**](https://myanimelist.net/character.php?q=Sophie%20Hatter&cat=character), [**Howl's Moving Castle**](https://myanimelist.net/search/all?q=Howl's%20Moving%20Castle&cat=all)
