@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is just my opinion, but when it comes to teaching somebody discipline... I believe pain is the most effective way."
+> "Perhaps living without sin is a sin in itself."
 
-&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Furude Rika**](https://myanimelist.net/character.php?q=Furude%20Rika&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
