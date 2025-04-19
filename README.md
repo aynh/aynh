@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who can't do what they have to when the time comes for action will find their presence fading in our classroom. An assassin who neglects to sharpen his blade is no assassin at all. He's just a boastful brat swinging around a rusty sword."
+> "According to my master, when you're a kid, just being a fast runner makes you popular. In middle school, it's holding your own in a fight. After that, brains make you popular. Her point seemed to be, 'Run fast, hit hard, and read books.'"
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
