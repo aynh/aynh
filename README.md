@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All the while we've been thinking you were a brilliant strategist when really, you're just a lucky fool."
+> "Yoshii Akihisa-kun, when a person with ability, but is unfairly treated, tries to get back the position he deserves, will you step in to interfere?"
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Takashiro Masaharu**](https://myanimelist.net/character.php?q=Takashiro%20Masaharu&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
