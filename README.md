@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no knowing how others are feeling unless you ask them. And your feelings can’t get through to others unless you tell them directly."
+> "All the while we've been thinking you were a brilliant strategist when really, you're just a lucky fool."
 
-&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
