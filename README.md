@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yoshii Akihisa-kun, when a person with ability, but is unfairly treated, tries to get back the position he deserves, will you step in to interfere?"
+> "All of the Arrancar follow me... because they see me as fearless and the only individual who can actually bring forth the new world... the new future where you can belong. Without me, that dream can't be fulfilled and without me the gotei 13 will destroy you all...  Do you see it now from my point of view?"
 
-&mdash; [**Takashiro Masaharu**](https://myanimelist.net/character.php?q=Takashiro%20Masaharu&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
