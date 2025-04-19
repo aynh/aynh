@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll admit, Black Star makes some dumb calls from time to time, but the important thing is I'm here to back him up no matter how big a fool he is. If we're fools, we're fools together, that's the kind of team we are."
+> "I don't want to see any more things that've changed! It's exhausting!"
 
-&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Hikari Sakishima**](https://myanimelist.net/character.php?q=Hikari%20Sakishima&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
