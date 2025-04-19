@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you are experienced you can become overly confident and such confidence can prove fatal."
+> "There’s no knowing how others are feeling unless you ask them. And your feelings can’t get through to others unless you tell them directly."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
