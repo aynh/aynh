@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There will be some who give up because they are dissatisfied... But some feel unsettled and are lonely. So if... one day we could all laugh freely together... We, who are all in the same circumstances, can help each other... I think that will be more comforting than anything else and will also chase away loneliness."
+> "Anyone stronger than the god of destruction does not exist."
 
-&mdash; [**Yuu Tobita**](https://myanimelist.net/character.php?q=Yuu%20Tobita&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
+&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
