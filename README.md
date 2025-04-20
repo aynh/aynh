@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'To enjoy what one loves to do'. Those words come easily from the mouth. But it's another thing to help them grow."
+> "There’s no reason to pretend to be cool. Let’s show our lame sides. That’s who we really are, after all."
 
-&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Hidenori Tabata**](https://myanimelist.net/character.php?q=Hidenori%20Tabata&cat=character), [**Danshi Koukousei no Nichijou**](https://myanimelist.net/search/all?q=Danshi%20Koukousei%20no%20Nichijou&cat=all)
