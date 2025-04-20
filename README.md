@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fine then, in exchange, you can roam around looking like a cosplayer, violate weapon laws, get arrested by the police, and get interviewed on television."
+> "If you have friends - you'll have a full life. And if you don't, you can still manage somehow."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/character.php?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
