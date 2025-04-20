@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Victory and Glory!"
+> "It's called a miracle because it doesn't happen."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Shiori Misaka**](https://myanimelist.net/character.php?q=Shiori%20Misaka&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
