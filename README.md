@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how much despair awaits them, I wish that at the end of their story, the gentle light of hope will shine on them..."
+> "If you think music is only made of sounds, you're mistaken. Silence is also part of music."
 
-&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Kunio Yaobi**](https://myanimelist.net/character.php?q=Kunio%20Yaobi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
