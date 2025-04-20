@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no need to rush. Sometimes even pointless conversations can teach you a thing or two."
+> "Fool… I belong among the heavens? Yet you would have me trod upon the ground?! Your impudence has guaranteed your death! Mongrel! When I am through with you, nothing will remain of your corpse!"
 
-&mdash; [**Ryou Haruna**](https://myanimelist.net/character.php?q=Ryou%20Haruna&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
