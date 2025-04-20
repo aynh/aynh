@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't know if we chose the right path, brother. But I do know this: I don't want to be in this suit anymore. I want to feel things again. It's strange. We've been right beside each other all this time. But I can't remember what your skin feels like, or how you smell."
+> "There's no need to rush. Sometimes even pointless conversations can teach you a thing or two."
 
-&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Ryou Haruna**](https://myanimelist.net/character.php?q=Ryou%20Haruna&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
