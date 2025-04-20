@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What do you think a truly unusual life would be like? Something really unique. It'd be the kind of life where every single day, nothing new ever happened. Nothing changed. That kind of a life is truly unusual."
+> "I don’t put much trust in words like 'personality' or 'disposition' or 'character.' Those things all change depending on the situation. Looking at it in the long run, what changes people is what situations they get into. People put a lot of faith in consistency, but it’s something more superficial than most people think."
 
-&mdash; [**Anri Sonohara**](https://myanimelist.net/character.php?q=Anri%20Sonohara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Kusonoki**](https://myanimelist.net/character.php?q=Kusonoki&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
