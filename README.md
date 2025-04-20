@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times when all we can do is stand aside and watch."
+> "'To enjoy what one loves to do'. Those words come easily from the mouth. But it's another thing to help them grow."
 
-&mdash; [**Cordelia**](https://myanimelist.net/character.php?q=Cordelia&cat=character), [**Romeo x Juliet**](https://myanimelist.net/search/all?q=Romeo%20x%20Juliet&cat=all)
+&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
