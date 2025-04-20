@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When captured birds grow wiser, they try to open the cage with their beaks. They don't give up, because they want to fly again."
+> "Kagura... Regardless of what your reason was, when you played with me...I was happy. Thanks. (To Kagura)"
 
-&mdash; [**Genma Shiranui**](https://myanimelist.net/character.php?q=Genma%20Shiranui&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
