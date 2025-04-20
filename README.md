@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In romance, you tend to end up looking for someone who resembles you."
+> "What do you think a truly unusual life would be like? Something really unique. It'd be the kind of life where every single day, nothing new ever happened. Nothing changed. That kind of a life is truly unusual."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Koyomimonogatari**](https://myanimelist.net/search/all?q=Koyomimonogatari&cat=all)
+&mdash; [**Anri Sonohara**](https://myanimelist.net/character.php?q=Anri%20Sonohara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
