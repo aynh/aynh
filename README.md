@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you have friends - you'll have a full life. And if you don't, you can still manage somehow."
+> "In romance, you tend to end up looking for someone who resembles you."
 
-&mdash; [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/character.php?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Koyomimonogatari**](https://myanimelist.net/search/all?q=Koyomimonogatari&cat=all)
