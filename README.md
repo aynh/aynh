@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fool… I belong among the heavens? Yet you would have me trod upon the ground?! Your impudence has guaranteed your death! Mongrel! When I am through with you, nothing will remain of your corpse!"
+> "I don't know if we chose the right path, brother. But I do know this: I don't want to be in this suit anymore. I want to feel things again. It's strange. We've been right beside each other all this time. But I can't remember what your skin feels like, or how you smell."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
