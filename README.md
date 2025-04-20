@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kagura... Regardless of what your reason was, when you played with me...I was happy. Thanks. (To Kagura)"
+> "Victory and Glory!"
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
