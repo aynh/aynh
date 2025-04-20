@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you think music is only made of sounds, you're mistaken. Silence is also part of music."
+> "What takes reason a hundred years to build a bridge to only takes the wings of faith a single night to reach."
 
-&mdash; [**Kunio Yaobi**](https://myanimelist.net/character.php?q=Kunio%20Yaobi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
