@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no reason to pretend to be cool. Let’s show our lame sides. That’s who we really are, after all."
+> "It's not the goodbyes that hurt, it's the flashbacks that follow..."
 
-&mdash; [**Hidenori Tabata**](https://myanimelist.net/character.php?q=Hidenori%20Tabata&cat=character), [**Danshi Koukousei no Nichijou**](https://myanimelist.net/search/all?q=Danshi%20Koukousei%20no%20Nichijou&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
