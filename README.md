@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know what's the most important thing about climbing mountains is? It's not about having the courage to challenge it, It's about having the courage to back down."
+> "I've never been victimized for anything. I am just doing what I can for me and my comrades. And right now, you're in my way."
 
-&mdash; [**Nozomi Tōjō**](https://myanimelist.net/character.php?q=Nozomi%20T%C5%8Dj%C5%8D&cat=character), [**Love Live! School idol project**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project&cat=all)
+&mdash; [**Mikazuki Augus**](https://myanimelist.net/character.php?q=Mikazuki%20Augus&cat=character), [**Mobile Suit Gundam: Iron-Blooded Orphans**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%3A%20Iron-Blooded%20Orphans&cat=all)
