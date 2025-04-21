@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you meet Budha - kill him, If you meet the father - kill him. Never be captivated by anyone, just live for yourself."
+> "This is something my master used to say. 'Kids who are too obedient and never think of themselves are the hardest to watch.'"
 
-&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
