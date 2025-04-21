@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dying now, my breath will be erased, okay?"
+> "To believe in someone can be a dangerous thing."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**TimeKeeper**](https://myanimelist.net/character.php?q=TimeKeeper&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
