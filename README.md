@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've never been victimized for anything. I am just doing what I can for me and my comrades. And right now, you're in my way."
+> "I'm gonna slit your stomach, take out your guts, and put them in a bowl. By the time I'm through with you, you're going to wish it was you who was dead."
 
-&mdash; [**Mikazuki Augus**](https://myanimelist.net/character.php?q=Mikazuki%20Augus&cat=character), [**Mobile Suit Gundam: Iron-Blooded Orphans**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%3A%20Iron-Blooded%20Orphans&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
