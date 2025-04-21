@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A temporary defeat is nothing if it leads to ultimate victory!"
+> "Your name sounds like an air conditioner."
 
-&mdash; [**Stephanie Dola**](https://myanimelist.net/character.php?q=Stephanie%20Dola&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
