@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Obeying a superior you can't even believe doesn't make you loyal. You're just fooling yourself."
+> "It is actually more difficult to trust those who have no talent for scheming."
 
-&mdash; [**Olivier Mira Armstrong**](https://myanimelist.net/character.php?q=Olivier%20Mira%20Armstrong&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Lemrina Vers Envers**](https://myanimelist.net/character.php?q=Lemrina%20Vers%20Envers&cat=character), [**Aldnoah.Zero 2nd Season**](https://myanimelist.net/search/all?q=Aldnoah.Zero%202nd%20Season&cat=all)
