@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end, aren't they just a bunch of weaklings?"
+> "If you meet Budha - kill him, If you meet the father - kill him. Never be captivated by anyone, just live for yourself."
 
-&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
