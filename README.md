@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The life of each human is worth one life, that's it. Nothing more, nothing less."
+> "Fear. That is what we live with. And we live it everyday. Only in death are we free of it."
 
-&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Neji Hyuuga**](https://myanimelist.net/character.php?q=Neji%20Hyuuga&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
