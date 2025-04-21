@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fear. That is what we live with. And we live it everyday. Only in death are we free of it."
+> "A temporary defeat is nothing if it leads to ultimate victory!"
 
-&mdash; [**Neji Hyuuga**](https://myanimelist.net/character.php?q=Neji%20Hyuuga&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Stephanie Dola**](https://myanimelist.net/character.php?q=Stephanie%20Dola&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
