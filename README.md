@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not a matter of a creature's individual worth. It's a matter of a creature's personal feelings."
+> "Ninjas are revolting, they stole my idea. I'll have to kill them now."
 
-&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
