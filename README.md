@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you know pain and hardship, it's easier to be kind to others."
+> "We need to stop living for others. From now on...Let's live for ourselves!!"
 
-&mdash; [**Ryoji Kaji**](https://myanimelist.net/character.php?q=Ryoji%20Kaji&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Historia Reiss**](https://myanimelist.net/character.php?q=Historia%20Reiss&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
