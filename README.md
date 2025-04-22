@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you realize you made a mistake with the way you've been living your life, you just have to take the next moment and start over."
+> "For there to be pain, there has to be kindness. For darkness to stand out, there has to be the sun."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
