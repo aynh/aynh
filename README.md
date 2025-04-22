@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Chasing someone is tiring, and being chased is mentally exhausting. But making someone chase you can be fun."
+> "I'm the one who is grateful. That's because you're all willing to be my friends. For that, I'm grateful."
 
-&mdash; [**Ikta Solork**](https://myanimelist.net/character.php?q=Ikta%20Solork&cat=character), [**Alderamin on the Sky**](https://myanimelist.net/search/all?q=Alderamin%20on%20the%20Sky&cat=all)
+&mdash; [**Manato**](https://myanimelist.net/character.php?q=Manato&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
