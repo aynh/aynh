@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can play any character and yet in the end, you yourself are nobody. Your core personality is null. It's empty. That's how you could wear any mask all over your smooth, featureless face and have it fit perfectly."
+> "Well, this blows."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
