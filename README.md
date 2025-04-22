@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm the one who is grateful. That's because you're all willing to be my friends. For that, I'm grateful."
+> "You see, the world will not change through naive talks."
 
-&mdash; [**Manato**](https://myanimelist.net/character.php?q=Manato&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
