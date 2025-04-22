@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We need to stop living for others. From now on...Let's live for ourselves!!"
+> "You can play any character and yet in the end, you yourself are nobody. Your core personality is null. It's empty. That's how you could wear any mask all over your smooth, featureless face and have it fit perfectly."
 
-&mdash; [**Historia Reiss**](https://myanimelist.net/character.php?q=Historia%20Reiss&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
