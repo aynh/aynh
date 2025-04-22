@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People tend to show off their act of kindness. It is not an act of good will, it is a demand because they are expecting a word of grace as a reward."
+> "If today is the worst day ever - tomorrow has to be better."
 
-&mdash; [**Itoshiki Nozomu**](https://myanimelist.net/character.php?q=Itoshiki%20Nozomu&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
+&mdash; [**Ikusaba Marco**](https://myanimelist.net/character.php?q=Ikusaba%20Marco&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
