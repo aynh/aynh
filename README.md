@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If today is the worst day ever - tomorrow has to be better."
+> "I thought that would be the only way I could become the world's strongest man. But you know... It didn't work. Your heart isn't something you can get rid of. If you're trying to get rid of your heart, your heart is making you do it. You can never abandon everything to get stronger. The one thing you can never stop is falling in love with someone!"
 
-&mdash; [**Ikusaba Marco**](https://myanimelist.net/character.php?q=Ikusaba%20Marco&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Adlet Mayer**](https://myanimelist.net/character.php?q=Adlet%20Mayer&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
