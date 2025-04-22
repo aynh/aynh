@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is something my master used to say. 'Kids who are too obedient and never think of themselves are the hardest to watch.'"
+> "In every world, once you die, you're gone."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Akihiko Kayaba**](https://myanimelist.net/character.php?q=Akihiko%20Kayaba&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
