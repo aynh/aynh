@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know love. The convenience store was selling it. For 298 yen."
+> "Only those who do their jobs on the battlefield get the rewards they desire. That's the life of a warrior."
 
-&mdash; [**Mayoi Hachikuji**](https://myanimelist.net/character.php?q=Mayoi%20Hachikuji&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Askeladd**](https://myanimelist.net/character.php?q=Askeladd&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
