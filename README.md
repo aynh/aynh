@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Exactly when did I say that I do this because I am a shinigami? My killing you is no other reason than the fact that you... Pointed your blade [view shifts to Rukia] at my pride."
+> "You see, for as long as we draw breath into our lungs, we shall keep hope alive inside our hearts."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
