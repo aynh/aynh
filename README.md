@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is a world where people’s hearts are filled with hatred... where fingers have no purpose other than to pull triggers."
+> "If we only believe when the odds are with us, then that's not believing at all."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Ousawa Akatsuki**](https://myanimelist.net/character.php?q=Ousawa%20Akatsuki&cat=character), [**Hagure Yuusha No Estetica**](https://myanimelist.net/search/all?q=Hagure%20Yuusha%20No%20Estetica&cat=all)
