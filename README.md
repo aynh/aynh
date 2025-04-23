@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ninjas are revolting, they stole my idea. I'll have to kill them now."
+> "You're you. 'To be like you...' - it's not so ambiguous as that. No matter what you do, no matter how you change, it doesn't mean a thing. you're just you, no matter what."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
