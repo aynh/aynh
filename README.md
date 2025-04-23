@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just...    ...want to make the woman I love happy."
+> "If you follow the rules, there's no way you can outdo them."
 
-&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Motoharu Tsuchimikado**](https://myanimelist.net/character.php?q=Motoharu%20Tsuchimikado&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
