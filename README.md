@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate these horns."
+> "Exactly when did I say that I do this because I am a shinigami? My killing you is no other reason than the fact that you... Pointed your blade [view shifts to Rukia] at my pride."
 
-&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
