@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So she knows how to smile."
+> "I just...    ...want to make the woman I love happy."
 
-&mdash; [**Kento Miura**](https://myanimelist.net/character.php?q=Kento%20Miura&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
