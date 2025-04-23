@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You need someone else to become more disciplined. No matter how hard you try by yourself, there´s a limit."
+> "There's no way of telling what people will do when their entire world gets turned upside down. There are people who selfishly take advantage  of the chaos and nice people who try to help others before even worrying about themselves."
 
-&mdash; [**Ukai Keishin**](https://myanimelist.net/character.php?q=Ukai%20Keishin&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
+&mdash; [**Rika Suzuki**](https://myanimelist.net/character.php?q=Rika%20Suzuki&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
