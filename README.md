@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you were in this situation, what would you have done? You would run after Byakuya...And then kick him in the butt, right? No matter how one captain complains, the Central Government won't change their decision for one person. But if it was you, you would still run around appealing to save Kuchiki...No. You would probably do something completely different. You always chose the path that lead to the most danger. Am I right...Kaien?"
+> "A person is very strong when he seeks to protect something."
 
-&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Akihiko Kayaba**](https://myanimelist.net/character.php?q=Akihiko%20Kayaba&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
