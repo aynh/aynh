@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "God is emotional bullshit."
+> "A beautiful speech, I can see it now, you truly are a prince with the royal blood of a Saiyan."
 
-&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
+&mdash; [**Android 17**](https://myanimelist.net/character.php?q=Android%2017&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
