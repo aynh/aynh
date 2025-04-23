@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're you. 'To be like you...' - it's not so ambiguous as that. No matter what you do, no matter how you change, it doesn't mean a thing. you're just you, no matter what."
+> "God is emotional bullshit."
 
-&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
