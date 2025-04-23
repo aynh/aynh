@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You see, for as long as we draw breath into our lungs, we shall keep hope alive inside our hearts."
+> "I know love. The convenience store was selling it. For 298 yen."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Mayoi Hachikuji**](https://myanimelist.net/character.php?q=Mayoi%20Hachikuji&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
