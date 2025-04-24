@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how sturdy something appears, it should have some weakness."
+> "I've been looking out at the world through windows I've opened across the net. It's an extremely close-minded and twisted world."
 
-&mdash; [**Susanoo**](https://myanimelist.net/character.php?q=Susanoo&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
