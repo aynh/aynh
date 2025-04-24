@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay if you don't understand, just stay with me, watch me, and slowly come to understand."
+> "Hurry up! You can make it! Oh, run to her and hug her tight!"
 
-&mdash; [**Agata Katsuhira**](https://myanimelist.net/character.php?q=Agata%20Katsuhira&cat=character), [**Kiznaiver**](https://myanimelist.net/search/all?q=Kiznaiver&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
