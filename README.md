@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "WHO ARE YOU CALLING SO SMALL YOU WANNA CRUSH LIKE AN ANT?!"
+> "Dreams, ambition, love, hope; in this world, could the glories of a youthful heart be.. forbidden?"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Berserk**](https://myanimelist.net/character.php?q=Berserk&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
