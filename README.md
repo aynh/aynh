@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Orihime] Your heart? You humans say that word so lightly. As if it were something one can hold in the palm of one's hand. But my eye sees everything -- Nothing can escape it. What it doesn't see doesn't exist. That's how I've always fought. That's how I've always lived."
+> "[to Yuzu] Ah! It's okay, Yuzu, don't cry! Daddy will show you something really hilarious!"
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
