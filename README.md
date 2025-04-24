@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Children don't grow up looking at perfect parents. Rather, using their imperfect parents as anti-teachers, children nourish a spirit of independence."
+> "No matter how sturdy something appears, it should have some weakness."
 
-&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Susanoo**](https://myanimelist.net/character.php?q=Susanoo&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
