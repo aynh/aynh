@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hurry up! You can make it! Oh, run to her and hug her tight!"
+> "You don't know anything. What the hell is up with you? Trying to be the hero? Feel like some all-powerful main character? So annoying! Why? When? Where? What? How will you do and just who will you become? You're just pretending by spouting your ideals! You have nothing! You won't become someone."
 
-&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Lawless**](https://myanimelist.net/character.php?q=Lawless&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
