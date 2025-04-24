@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someone who can be deceived by others will be deceived again and again."
+> "It's frightening that there's no guarantee that I'll ever be loved."
 
-&mdash; [**Lelei la Lelena**](https://myanimelist.net/character.php?q=Lelei%20la%20Lelena&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Akito Sohma**](https://myanimelist.net/character.php?q=Akito%20Sohma&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
