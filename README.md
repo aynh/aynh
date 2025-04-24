@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Any technique is worthless before my eyes."
+> "It's okay if you don't understand, just stay with me, watch me, and slowly come to understand."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Agata Katsuhira**](https://myanimelist.net/character.php?q=Agata%20Katsuhira&cat=character), [**Kiznaiver**](https://myanimelist.net/search/all?q=Kiznaiver&cat=all)
