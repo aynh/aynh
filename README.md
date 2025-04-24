@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things that you can only learn by facing the unknown, be it a different species, different values, or upbringing."
+> "Being weak means that there is a room to grow."
 
-&mdash; [**Yoshiyuki Nakajima**](https://myanimelist.net/character.php?q=Yoshiyuki%20Nakajima&cat=character), [**Silver Spoon**](https://myanimelist.net/search/all?q=Silver%20Spoon&cat=all)
+&mdash; [**Ittetsu Takeda**](https://myanimelist.net/character.php?q=Ittetsu%20Takeda&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
