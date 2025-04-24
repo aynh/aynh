@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You need to learn how to make mistakes before you grow up. When you are young, you can recover quickly when hurt. When you get older it's harder to make mistakes. The more responsibilities, the less mistakes you are allowed to make."
+> "Any technique is worthless before my eyes."
 
-&mdash; [**Junko Kaname**](https://myanimelist.net/character.php?q=Junko%20Kaname&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
