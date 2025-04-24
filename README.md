@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Edward* So, you hooked up with your mechanic, huh? Not too shabby, sprout."
+> "There are things that you can only learn by facing the unknown, be it a different species, different values, or upbringing."
 
-&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Yoshiyuki Nakajima**](https://myanimelist.net/character.php?q=Yoshiyuki%20Nakajima&cat=character), [**Silver Spoon**](https://myanimelist.net/search/all?q=Silver%20Spoon&cat=all)
