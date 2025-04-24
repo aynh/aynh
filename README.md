@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The final curtain falls at the very moment a person gives up."
+> "Just because of your angry, childish actions, do you know how many will suffer from it? Don't you go thinking that lives are not connected, you idiotic brat!"
 
-&mdash; [**Miwa Ichigen**](https://myanimelist.net/character.php?q=Miwa%20Ichigen&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
