@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just because of your angry, childish actions, do you know how many will suffer from it? Don't you go thinking that lives are not connected, you idiotic brat!"
+> "Every single one of them died while furiously giving off the light that resided within them and that light is then inherited by the next person where it will go on to shine with an even greater radiance. And thus people are connected together... allowing us to work towards a better tomorrow."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Ei Sei**](https://myanimelist.net/character.php?q=Ei%20Sei&cat=character), [**Kingdom**](https://myanimelist.net/search/all?q=Kingdom&cat=all)
