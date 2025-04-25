@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The longer you live... The more you realize that reality is just made of pain, suffering and emptiness..."
+> "They say that in hard times, you'll never in your life forget the person who gave you a cup of water."
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Yumiko Sakaki**](https://myanimelist.net/character.php?q=Yumiko%20Sakaki&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
