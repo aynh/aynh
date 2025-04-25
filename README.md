@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Rejection is a part of any man’s life. If you can’t accept and move past rejection, or at least use it as writing material - you’re not a real man."
+> "People are such strange beings. The sad memories seem to just fade away, until all a person is left with are the happier ones. People are certainly designed so conveniently."
 
-&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Eva Heinemann**](https://myanimelist.net/character.php?q=Eva%20Heinemann&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
