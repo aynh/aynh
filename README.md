@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People are such strange beings. The sad memories seem to just fade away, until all a person is left with are the happier ones. People are certainly designed so conveniently."
+> "You won't survive if you just let your boiling blood dictate your actions."
 
-&mdash; [**Eva Heinemann**](https://myanimelist.net/character.php?q=Eva%20Heinemann&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Bulat**](https://myanimelist.net/character.php?q=Bulat&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
