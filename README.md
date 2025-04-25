@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This world would be in darkness without a sense of duty."
+> "I do...want to be with you...I want to be with you...! (To Tohru and Arisa)"
 
-&mdash; [**Kasumi Fuu**](https://myanimelist.net/character.php?q=Kasumi%20Fuu&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Saki Hanajima**](https://myanimelist.net/character.php?q=Saki%20Hanajima&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
