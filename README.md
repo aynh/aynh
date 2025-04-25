@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say that in hard times, you'll never in your life forget the person who gave you a cup of water."
+> "If it's this world behind the eyelids, anybody can become the person I imagine them to be."
 
-&mdash; [**Yumiko Sakaki**](https://myanimelist.net/character.php?q=Yumiko%20Sakaki&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
+&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
