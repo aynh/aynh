@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I do...want to be with you...I want to be with you...! (To Tohru and Arisa)"
+> "Some lies are necessary for giving children dreams."
 
-&mdash; [**Saki Hanajima**](https://myanimelist.net/character.php?q=Saki%20Hanajima&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Shimura Tae**](https://myanimelist.net/character.php?q=Shimura%20Tae&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
