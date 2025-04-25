@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Some lies are necessary for giving children dreams."
+> "She's been like that ever since I bought a box of donuts and had one more than her."
 
-&mdash; [**Shimura Tae**](https://myanimelist.net/character.php?q=Shimura%20Tae&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
