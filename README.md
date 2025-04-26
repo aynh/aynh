@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[about the inefficacy of his attack against Tsunade] Did it not penetrate deep enough because of her fat breasts?"
+> "It doesn't matter who your parents were. Everyone is a child of the sea."
 
-&mdash; [**Kabuto Yakushi**](https://myanimelist.net/character.php?q=Kabuto%20Yakushi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Whitebeard**](https://myanimelist.net/character.php?q=Whitebeard&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
