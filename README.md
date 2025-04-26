@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unfortunately, I don't have a nice eyeball like you, that can see this and that. All I can do to pursue one thing in front of me. So whether it's the abyss of death or an empty void, I won't fight for the manju offered to my grave. I'll fight for tomorrow's breakfast. That's all."
+> "I won't give up, I will fight til the bitter end, cause there's no way I will back down after what you did to my friends. They are what made me the person I am today, that's why I'll keep fighting... For my friends!"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
