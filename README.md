@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One day I'd like to become something precious to others."
+> "You came without fear. Don't have any regrets, no matter what happens. This is the duel you wanted."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
