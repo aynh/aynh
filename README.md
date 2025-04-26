@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One face is given to us by God. The other - we make ourselves."
+> "*mockingly* That's amazing, Mikuru! We're counting on you! The Earth is in your-- *breaks into uncontrollable and hysterical laughter*"
 
-&mdash; [**Skull Man**](https://myanimelist.net/character.php?q=Skull%20Man&cat=character), [**The Skull Man**](https://myanimelist.net/search/all?q=The%20Skull%20Man&cat=all)
+&mdash; [**Tsuruya**](https://myanimelist.net/character.php?q=Tsuruya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
