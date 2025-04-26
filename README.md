@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I look up, I see a gloomy, cloudy sky. Today is another tiring uphill climb. I get sick of it all. Then... I think of the girl I love, and I put back on those worn down shoes. Her smile is like a ray of light that shines down from in between the clouds and warms up my heart. My girl has the smile of an angel."
+> "I do love Akito... I love her then... I still do now."
 
-&mdash; [**Nakagawa Ken**](https://myanimelist.net/character.php?q=Nakagawa%20Ken&cat=character), [**Tenshi Nanka ja Nai**](https://myanimelist.net/search/all?q=Tenshi%20Nanka%20ja%20Nai&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
