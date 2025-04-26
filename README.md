@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You were wrong on two counts. Even the hardest substance can be broken, when crashed into itself. And the ability to feel pain is not a weakness. It’s a strength. Pain tells a creature its vulnerabilities, and not you expose them to attack. Your robot is dead. And so, I’m afraid, are you."
+> "For a second there I thought the floor was going to--AAAAAAAAAAAAAAAAAAAAAA!! Where'd the ground go?"
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
