@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For a second there I thought the floor was going to--AAAAAAAAAAAAAAAAAAAAAA!! Where'd the ground go?"
+> "One day I'd like to become something precious to others."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
