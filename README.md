@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I won't give up, I will fight til the bitter end, cause there's no way I will back down after what you did to my friends. They are what made me the person I am today, that's why I'll keep fighting... For my friends!"
+> "What is truly good about a person can't be expressed in words, that it can not. What matters is the feeling of trust one gets after spending time with him."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
