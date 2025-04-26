@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am known as Valentinez Alkalinella Xifax Sicidabohertz Gombigobilla Blue Stradivari Talentrent Pierre Andri Charton-Haymoss Ivanovici Baldeus George Doitzel Kaiser III. Don't hesitate to call."
+> "If they find out what you did there, a lot of people will say a lot of things to you. Some will say you did the right thing. And some will say you did the wrong thing. But that's not what matters. No matter what anyone says, you don't have to worry. Because you didn't do the right thing, and you didn't do the wrong thing. It was all part of being young."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
