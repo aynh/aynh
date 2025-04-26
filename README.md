@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Athrun] What is it you believe in? What is it you're fighting for now? Is it for that medal you received? Or your father's orders?"
+> "A true warrior would never beg someone for his life."
 
-&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Kira Izuru**](https://myanimelist.net/character.php?q=Kira%20Izuru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
