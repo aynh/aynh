@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just because you want other people to think of you as someone who'd literally die for another... dragging someone else to his death just for that... only a bad girl would do that, right?"
+> "Levels are just numbers. In this world, strength is just an illusion. There are more important things."
 
-&mdash; [**Ymir**](https://myanimelist.net/character.php?q=Ymir&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
