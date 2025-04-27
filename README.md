@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You hit me with everything you had, so I decided I could trust you with everything I had."
+> "Just because you want other people to think of you as someone who'd literally die for another... dragging someone else to his death just for that... only a bad girl would do that, right?"
 
-&mdash; [**Konno Yuuki**](https://myanimelist.net/character.php?q=Konno%20Yuuki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
+&mdash; [**Ymir**](https://myanimelist.net/character.php?q=Ymir&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
