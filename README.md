@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I realized once again that my life is stuck on hard mode."
+> "You hit me with everything you had, so I decided I could trust you with everything I had."
 
-&mdash; [**Kazunari Usa**](https://myanimelist.net/character.php?q=Kazunari%20Usa&cat=character), [**Bokura wa Minna Kawaisou**](https://myanimelist.net/search/all?q=Bokura%20wa%20Minna%20Kawaisou&cat=all)
+&mdash; [**Konno Yuuki**](https://myanimelist.net/character.php?q=Konno%20Yuuki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
