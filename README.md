@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now that just looks horrible. It's like some feudal society. If that's what it takes to make friends in this world, forever alone is fine by me."
+> "Regardless of what happens our lives are finite. We all know that we will grow old and that someday our lives will end. That's why we try so hard to live each day to the fullest. That's why we keep stumbling on by trial and error. But it isn't just for ourselves, it's so we can leave some signposts for the people following in our foot steps. To cowards who cling to where they are and who have given up on trying to move forward there is no way to see how bright the future is even though it's just around the corner!"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Meia Gisborn**](https://myanimelist.net/character.php?q=Meia%20Gisborn&cat=character), [**Vandread**](https://myanimelist.net/search/all?q=Vandread&cat=all)
