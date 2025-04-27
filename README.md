@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anyway, here's my point. Trivial setbacks like yours and mine are nothing but common occurrences in everyday life! Getting hung up over pointless crap like that shows that you're a joke! A complete and utter joke!"
+> "Hey! Shorty's a lot cooler than I thought."
 
-&mdash; [**Seiya Kanie**](https://myanimelist.net/character.php?q=Seiya%20Kanie&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
+&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
