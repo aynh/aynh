@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is truly good about a person can't be expressed in words, that it can not. What matters is the feeling of trust one gets after spending time with him."
+> "[to Athrun] I bet your head is like a hamster running in its wheel right about now."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Cagalli Yula Athha**](https://myanimelist.net/character.php?q=Cagalli%20Yula%20Athha&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
