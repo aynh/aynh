@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Athrun] I bet your head is like a hamster running in its wheel right about now."
+> "I've never seen a man with a screw sticking out of his head before. I don't know how I'm supposed to deal with a guy like that!"
 
-&mdash; [**Cagalli Yula Athha**](https://myanimelist.net/character.php?q=Cagalli%20Yula%20Athha&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
