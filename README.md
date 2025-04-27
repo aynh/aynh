@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't think I'll learn anything if I don't try to do something about it on my own."
+> "When the world is filled with red lights signaling danger, the world is safer than usual. But when it's filled with green lights signaling safety, it creates a place more dangerous than anywhere."
 
-&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Ougi Oshino**](https://myanimelist.net/character.php?q=Ougi%20Oshino&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
