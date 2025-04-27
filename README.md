@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For you I will go deeper than mountains, and higher than sea."
+> "You guys are a team, you have to work together if you want to do anything! One person can't make a decision without the other, you decide together and you fight together!"
 
-&mdash; [**Apachai**](https://myanimelist.net/character.php?q=Apachai&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
+&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
