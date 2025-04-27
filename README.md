@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A person is very strong when he seeks to protect something."
+> "There's nothing more repulsive than being touched by a guy you don't like."
 
-&mdash; [**Akihiko Kayaba**](https://myanimelist.net/character.php?q=Akihiko%20Kayaba&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Natsume Asako**](https://myanimelist.net/character.php?q=Natsume%20Asako&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
