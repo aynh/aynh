@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everybody makes a wrong turn once in a while."
+> "Then let me ask you, do gods of death love apples?"
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
