@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sooo... Korra. There they go, here we are, all alone in the gym... just you and me... TWO, alone people. Together. Alone."
+> "When you get anxious about the future, it is better not to think about it. The more you think about it the more anxious you'll get. Of course it's important to think about what lies ahead, too, but if you only look at what's down the road, you'll get tangled by the 'laundry' by your feet and fall, won't you? You see, it's also important to think about what you can do now. What you can do today, and if you keep washing things one at a time, you'll be done before you know it. Sometimes the anxiety will start to well up, but when it does... take a little break. Read a book, watch tv, or eat soumen with everyone."
 
-&mdash; [**Bolin**](https://myanimelist.net/character.php?q=Bolin&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
