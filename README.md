@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life will someday extinguish. Why don't you start burning it now?"
+> "Don't tell people to disappear like it's nothing! Words can hurt people! You can't ever take them back! Even if you regret it, you can never take them back!"
 
-&mdash; [**Scorpio Kardia**](https://myanimelist.net/character.php?q=Scorpio%20Kardia&cat=character), [**Saint Seiya: The Lost Canvas**](https://myanimelist.net/search/all?q=Saint%20Seiya%3A%20The%20Lost%20Canvas&cat=all)
+&mdash; [**Naruse Jun**](https://myanimelist.net/character.php?q=Naruse%20Jun&cat=character), [**Kokoro ga Sakebitagatterunda.**](https://myanimelist.net/search/all?q=Kokoro%20ga%20Sakebitagatterunda.&cat=all)
