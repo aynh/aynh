@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Teachings that do not speak of pain have no meaning, for humankind cannot gain anything in return."
+> "You're not supposed to find yourself, you're supposed to choose yourself!"
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Grizzly-san**](https://myanimelist.net/character.php?q=Grizzly-san&cat=character), [**Polar Bear's Café**](https://myanimelist.net/search/all?q=Polar%20Bear's%20Caf%C3%A9&cat=all)
