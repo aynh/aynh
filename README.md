@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if my left arm can transform into a monstrous claw and can destroy Akuma, im just a normal person with a promise..."
+> "Sorry I'm late. You wouldn't believe the traffic."
 
-&mdash; [**Allen Walker**](https://myanimelist.net/character.php?q=Allen%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
