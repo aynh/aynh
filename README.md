@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no such thing as 'truth' or 'lies' in this world; there never has been. There are only plain, hard facts. And yet, all beings who exist in this world acknowledge only those 'facts' that are convenient to them, and take them to be the 'truth'. They do so because they know no other way of living. However, for those powerless beings who comprise the majority of this world's population, inconvenient facts that affirm their very existence, are their only truth."
+> "There is no such thing as luck in this world. Rules, prerequisites, psychological states... There are any number of invisible factors that combine to produce an unpredictable, but inevitable result. The winner of each game is decided before it even begins. Chance is never a factor."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
