@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll show you a real assassination. No... Maybe you won't even be able to see it."
+> "Frustrations will not last forever. Nobody can keep on going without some measure of reward."
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Hidehiro Harada**](https://myanimelist.net/character.php?q=Hidehiro%20Harada&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
