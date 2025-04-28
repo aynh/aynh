@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Different conclusions are reached when one fact is viewed from two separate points of view. When that happens, there is no immediate way to judge which point of view is the correct one. There is no way to conclude one's own conclusion is the correct one. But for that exact reason, it is also premature to decide one's own conclusion is wrong."
+> "Life will someday extinguish. Why don't you start burning it now?"
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Scorpio Kardia**](https://myanimelist.net/character.php?q=Scorpio%20Kardia&cat=character), [**Saint Seiya: The Lost Canvas**](https://myanimelist.net/search/all?q=Saint%20Seiya%3A%20The%20Lost%20Canvas&cat=all)
