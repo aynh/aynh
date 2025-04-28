@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Frustrations will not last forever. Nobody can keep on going without some measure of reward."
+> "Kindness can bring you even bigger troubles."
 
-&mdash; [**Hidehiro Harada**](https://myanimelist.net/character.php?q=Hidehiro%20Harada&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
