@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's fine. Everyone makes mistakes. You just need to make an effort not to make the same mistake again."
+> "Everybody makes a wrong turn once in a while."
 
-&mdash; [**Ainz Ooal Gown**](https://myanimelist.net/character.php?q=Ainz%20Ooal%20Gown&cat=character), [**Overlord**](https://myanimelist.net/search/all?q=Overlord&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
