@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've fought a valiant duel, my friend, and this is the hardest move I've ever had to make. But this ends now!"
+> "Leave her out of this... who we let in this house is really none of your concern. You're the one who doesn't belong here. (to Kyo)"
 
-&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
