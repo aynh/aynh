@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, well. No matter what path they take, people without guts have nothing ahead of them."
+> "There is no such thing as 'truth' or 'lies' in this world; there never has been. There are only plain, hard facts. And yet, all beings who exist in this world acknowledge only those 'facts' that are convenient to them, and take them to be the 'truth'. They do so because they know no other way of living. However, for those powerless beings who comprise the majority of this world's population, inconvenient facts that affirm their very existence, are their only truth."
 
-&mdash; [**Hiruma Youichi**](https://myanimelist.net/character.php?q=Hiruma%20Youichi&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
