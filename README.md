@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People have the strength to overcome their obstacles – everyone can."
+> "Bearing the sins of the children of earth, the moon begins to consume its light."
 
-&mdash; [**Belldandy**](https://myanimelist.net/character.php?q=Belldandy&cat=character), [**Aah! Megami-Sama**](https://myanimelist.net/search/all?q=Aah!%20Megami-Sama&cat=all)
+&mdash; [**Bertha**](https://myanimelist.net/character.php?q=Bertha&cat=character), [**Darker than Black**](https://myanimelist.net/search/all?q=Darker%20than%20Black&cat=all)
