@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I won’t accept it! I want to have a choice, too! I don’t want to write poems about regret."
+> "Don't beg for things, get them yourself or else you won't get anything."
 
-&mdash; [**Sumire Hanano**](https://myanimelist.net/character.php?q=Sumire%20Hanano&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Renton Thurston**](https://myanimelist.net/character.php?q=Renton%20Thurston&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
