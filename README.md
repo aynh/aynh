@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bearing the sins of the children of earth, the moon begins to consume its light."
+> "Do we really have to fight, Yama-jii?"
 
-&mdash; [**Bertha**](https://myanimelist.net/character.php?q=Bertha&cat=character), [**Darker than Black**](https://myanimelist.net/search/all?q=Darker%20than%20Black&cat=all)
+&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
