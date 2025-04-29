@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say that we should love ourselves first, before other people learn to love us, but it's not as easy as it seems. Sometimes, we need someone to accept us and love us first, then we would learn to see ourselves through that person's eyes and learn to love our-self."
+> "People have many different ways of thinking. Even if you make a mistake, if you realize it was a mistake, You can always fix it. Then if you turn around, you will see the future. This must be realized by oneself."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
