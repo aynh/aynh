@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyday was the same. Deep down, I felt bored. But it wasn't the days that felt boring. It was being just like everyone else."
+> "Human memories are too vague. Thinking something has color when it doesn't, making things more dramatic than they really are, glorifying things... It gives new greater meaning than was actually there. That's why I don't believe any of this talk about 'beautiful memories'."
 
-&mdash; [**Sorata Kanda**](https://myanimelist.net/character.php?q=Sorata%20Kanda&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Motoharu Yano**](https://myanimelist.net/character.php?q=Motoharu%20Yano&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
