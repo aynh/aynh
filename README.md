@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is an adult? Does coolly drinking black coffee and spouting logic make you an adult?! If that's the case, I'll stay a kid that likes drinking orange juice."
+> "Everyday was the same. Deep down, I felt bored. But it wasn't the days that felt boring. It was being just like everyone else."
 
-&mdash; [**Shirota Mahiru**](https://myanimelist.net/character.php?q=Shirota%20Mahiru&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
+&mdash; [**Sorata Kanda**](https://myanimelist.net/character.php?q=Sorata%20Kanda&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
