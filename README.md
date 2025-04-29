@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as you do not give up, nothing is over."
+> "Poetry over philosophy. Embroidery rather than cooking. Dance instead of chess. Be an unknowing angel. Every girl born in the country of roses is raised by these three words."
 
-&mdash; [**Yuzuki Eba**](https://myanimelist.net/character.php?q=Yuzuki%20Eba&cat=character), [**Kimi no Iru Machi**](https://myanimelist.net/search/all?q=Kimi%20no%20Iru%20Machi&cat=all)
+&mdash; [**Elizabeth Midford**](https://myanimelist.net/character.php?q=Elizabeth%20Midford&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
