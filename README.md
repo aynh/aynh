@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human memories are too vague. Thinking something has color when it doesn't, making things more dramatic than they really are, glorifying things... It gives new greater meaning than was actually there. That's why I don't believe any of this talk about 'beautiful memories'."
+> "Once the revenge is dealt, you are required to pay the compensation."
 
-&mdash; [**Motoharu Yano**](https://myanimelist.net/character.php?q=Motoharu%20Yano&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
