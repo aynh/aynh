@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Poetry over philosophy. Embroidery rather than cooking. Dance instead of chess. Be an unknowing angel. Every girl born in the country of roses is raised by these three words."
+> "What is an adult? Does coolly drinking black coffee and spouting logic make you an adult?! If that's the case, I'll stay a kid that likes drinking orange juice."
 
-&mdash; [**Elizabeth Midford**](https://myanimelist.net/character.php?q=Elizabeth%20Midford&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Shirota Mahiru**](https://myanimelist.net/character.php?q=Shirota%20Mahiru&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
