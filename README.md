@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People have many different ways of thinking. Even if you make a mistake, if you realize it was a mistake, You can always fix it. Then if you turn around, you will see the future. This must be realized by oneself."
+> "I understood that killing people was a crime. There was no other way! The world had to be fixed! A purpose given to me! Only I could do it. Who else could have done it, and come this far? Would they have kept going? The only one who can create a new world is me."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
