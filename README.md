@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once the revenge is dealt, you are required to pay the compensation."
+> "And now it's time for formal introductions. Eliza, my darling, meet Yoh Asakura. Yoh Asakura, meet your doom!"
 
-&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
+&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
