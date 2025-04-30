@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The crowd of people looks just like pixels in a picture to me. A single pixel is meaningless. But add two, three and four... They pile up rapidly until they ultimately form a picture. But I've never seen that picture."
+> "The souls that God has given us, our spirits. Our spirits, which found a way to swim through the immense network and live in the infinity of space. Is not the human body a mere shell? A form of existence all too small and weak for consciousness with such vast reach and potential."
 
-&mdash; [**Narumi Fujishima**](https://myanimelist.net/character.php?q=Narumi%20Fujishima&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Londes**](https://myanimelist.net/character.php?q=Londes&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
