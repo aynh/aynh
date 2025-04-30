@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those three are best friends.  They have their respective secrets.  And they're deliberately trying not to give themselves away.  But neither Orihara or Shizuo had any secrets whatsoever.  And that resulted in the complete opposite kind of personal relationship."
+> "If you're here, can you prove you're really here?"
 
-&mdash; [**Shinra Kishitani**](https://myanimelist.net/character.php?q=Shinra%20Kishitani&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Mei Misaki**](https://myanimelist.net/character.php?q=Mei%20Misaki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
