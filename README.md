@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Real love... if such a thing existed, would not be something as stupid as a woman's looks or the size of her bust."
+> "A life with no changes can’t be called life. You can only call it experience."
 
-&mdash; [**Ludwig Kakumei**](https://myanimelist.net/character.php?q=Ludwig%20Kakumei&cat=character), [**Ludwig Kakumei**](https://myanimelist.net/search/all?q=Ludwig%20Kakumei&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
