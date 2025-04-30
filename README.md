@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The souls that God has given us, our spirits. Our spirits, which found a way to swim through the immense network and live in the infinity of space. Is not the human body a mere shell? A form of existence all too small and weak for consciousness with such vast reach and potential."
+> "You never thought to kill, or fight for revenge. Only to test your limits, and to push yourself beyond them, to become the strongest you could possibly be. How can a Saiyan fight like that, and at the same time be so gentle that he wouldn't hurt a fly? It makes me angry just thinking about it. But perhaps it is my anger that has made me blind to the truth for so long. I see it now. This day has made it all too clear. You're better than me, Kakarot. You are the best..."
 
-&mdash; [**Londes**](https://myanimelist.net/character.php?q=Londes&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
