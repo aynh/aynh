@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay to make mistakes. In fact, you should. Making mistakes is how you learn to do it right. Getting a good result isn't the only thing. What matters is that you play your best during the game."
+> "You said I should have forgotten everything and lived as a human, but... there's no way I could do that. At that time, Teresa was everything to me. Everything I lost... my life, my voice, even my joy in living... Teresa gave those back to me. Teresa gave me everything. So I had no choice but to move forward. I wasn't strong enough to forget all that and continue living."
 
-&mdash; [**Soujuu Matsushita**](https://myanimelist.net/character.php?q=Soujuu%20Matsushita&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
+&mdash; [**Clare**](https://myanimelist.net/character.php?q=Clare&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
