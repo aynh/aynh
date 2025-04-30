@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you helping because you're a doctor? Or is it because you're a Witch?"
+> "Tell me, what do you think is the ultimate fear? I really thought I'd already reached the darkest of the dark, but then, ahead of me, I beheld a darkness even greater still."
 
-&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
