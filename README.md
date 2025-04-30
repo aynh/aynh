@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether you're alive, dead, or living dead... Loneliness is still loneliness... It's the same thing... Nothing changes. There are no different categories of loneliness. It's just loneliness."
+> "Real love... if such a thing existed, would not be something as stupid as a woman's looks or the size of her bust."
 
-&mdash; [**Kurosu Etsurou**](https://myanimelist.net/character.php?q=Kurosu%20Etsurou&cat=character), [**Ana Satsujin**](https://myanimelist.net/search/all?q=Ana%20Satsujin&cat=all)
+&mdash; [**Ludwig Kakumei**](https://myanimelist.net/character.php?q=Ludwig%20Kakumei&cat=character), [**Ludwig Kakumei**](https://myanimelist.net/search/all?q=Ludwig%20Kakumei&cat=all)
