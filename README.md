@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've only seen one of my dances."
+> "Are you helping because you're a doctor? Or is it because you're a Witch?"
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
