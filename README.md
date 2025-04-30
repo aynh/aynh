@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I mean, think about it. If someone pointed to a classmate of yours and asked you what they meant to you, how would you answer? What would you say?"
+> "It's not that I missed. I missed on purpose."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Kouta Hirano**](https://myanimelist.net/character.php?q=Kouta%20Hirano&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
