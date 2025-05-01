@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry, I saw an opening that just screamed 'ATTACK,' so I did, ha!"
+> "This whole world is nothing but lies, lies! Lemme show you what I like to call the truth, the truth called despair!"
 
-&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Hazama**](https://myanimelist.net/character.php?q=Hazama&cat=character), [**BlazBlue: Alter Memory**](https://myanimelist.net/search/all?q=BlazBlue%3A%20Alter%20Memory&cat=all)
