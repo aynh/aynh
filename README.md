@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who don't fulfill their obligation to others 'ave no right to ask 'em for such privilege..."
+> "Never give up without even trying. Do what you can, no matter how small the effect it may have!"
 
-&mdash; [**Mr. Blouse**](https://myanimelist.net/character.php?q=Mr.%20Blouse&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Ōnoki**](https://myanimelist.net/character.php?q=%C5%8Cnoki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
