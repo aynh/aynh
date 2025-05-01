@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone's the same, no exceptions.  All of them, equal before god."
+> "Pika Pika!"
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Pikachu**](https://myanimelist.net/character.php?q=Pikachu&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
