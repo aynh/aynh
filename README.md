@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This whole world is nothing but lies, lies! Lemme show you what I like to call the truth, the truth called despair!"
+> "The closer you get to the sun, the darker your shadow will be."
 
-&mdash; [**Hazama**](https://myanimelist.net/character.php?q=Hazama&cat=character), [**BlazBlue: Alter Memory**](https://myanimelist.net/search/all?q=BlazBlue%3A%20Alter%20Memory&cat=all)
+&mdash; [**Aria Link**](https://myanimelist.net/character.php?q=Aria%20Link&cat=character), [**Tegami Bachi**](https://myanimelist.net/search/all?q=Tegami%20Bachi&cat=all)
