@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Risa is a bitch."
+> "Beautiful night, isn't it, Police Girl? It's especially beautiful, of course, if you're a bloodsucker."
 
-&mdash; [**Krad**](https://myanimelist.net/character.php?q=Krad&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
