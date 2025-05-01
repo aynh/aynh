@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Zealotry and prejudice more than anything, bring harm to the people of the land."
+> "Everyone's the same, no exceptions.  All of them, equal before god."
 
-&mdash; [**Arslan**](https://myanimelist.net/character.php?q=Arslan&cat=character), [**The Heroic Legend of Arslan**](https://myanimelist.net/search/all?q=The%20Heroic%20Legend%20of%20Arslan&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
