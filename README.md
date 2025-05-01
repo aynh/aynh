@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pika Pika!"
+> "Ichigo... I hate the rain. Rain falls in this world, too. When your heart is in chaos, this sky becomes clouded. When you are sad, rain falls so terribly easy. Can you understand...the horrible feeling of being pelted by rain when you're all alone in this solitary world? If only to stop that rain, I shall lend you any strength. If you trust in me, I won't let a single drop of rain fall from that sky. Ichigo, trust me...you are not fighting alone."
 
-&mdash; [**Pikachu**](https://myanimelist.net/character.php?q=Pikachu&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Zangetsu**](https://myanimelist.net/character.php?q=Zangetsu&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
