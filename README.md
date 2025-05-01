@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn’t matter how much we see each other, but how much we think of each other."
+> "Those who don't fulfill their obligation to others 'ave no right to ask 'em for such privilege..."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**Kingdom Hearts**](https://myanimelist.net/search/all?q=Kingdom%20Hearts&cat=all)
+&mdash; [**Mr. Blouse**](https://myanimelist.net/character.php?q=Mr.%20Blouse&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
