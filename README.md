@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are all farsighted, we give importance to those things that are far from us, while neglecting the things that are close to us... only to realize their value later, when they are out-of-reach again."
+> "On that day, mankind received a grim reminder. We lived in fear of the titans, and were disgraced to live in these cages we called walls."
 
-&mdash; [**Kawamura Sachiko**](https://myanimelist.net/character.php?q=Kawamura%20Sachiko&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
