@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can take a picture of something and it never does it justice... I think about that sometimes when I see a picture of you."
+> "Teresa had plenty of chances to kill Priscilla. The reason she didn't was that after being with you, Teresa's heart lost the toughness of a warrior. The Teresa I knew would have dispatched Priscilla without hesitation at their first encounter. After she met you, she was no longer fit for battle. That's why she died. That's the truth. But I think Teresa was happy."
 
-&mdash; [**Mikako Nagamine**](https://myanimelist.net/character.php?q=Mikako%20Nagamine&cat=character), [**Voices of a Distant Star**](https://myanimelist.net/search/all?q=Voices%20of%20a%20Distant%20Star&cat=all)
+&mdash; [**Irene**](https://myanimelist.net/character.php?q=Irene&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
