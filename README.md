@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We're hunting after a legendary sword. Finding a fairy or two shouldn't be surprising."
+> "Looking at your own memories is recognizing the parts of you that you don't want to face."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Rinne Higaki**](https://myanimelist.net/character.php?q=Rinne%20Higaki&cat=character), [**Katanagatari**](https://myanimelist.net/search/all?q=Katanagatari&cat=all)
