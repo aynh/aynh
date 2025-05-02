@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Karla, nothing can surpass a human's curiosity."
+> "Being good guys for once would be super-dupulous!"
 
-&mdash; [**Grisha Jaeger**](https://myanimelist.net/character.php?q=Grisha%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
