@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't try to find a reason for somebody's love!!"
+> "I think Monster Beast Doughnut is a perfect name."
 
-&mdash; [**Sengoku the Buddha**](https://myanimelist.net/character.php?q=Sengoku%20the%20Buddha&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
