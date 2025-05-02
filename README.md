@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hmm... you can go anywhere you want? Cuz' I'll go... anywhere with you, y'know. (To Kureno)"
+> "Those who close their eyes to the past, become blind to the future."
 
-&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Juzo Okita**](https://myanimelist.net/character.php?q=Juzo%20Okita&cat=character), [**Space Battleship Yamato**](https://myanimelist.net/search/all?q=Space%20Battleship%20Yamato&cat=all)
