@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’m not going to apologize. This is an absurd, unfair world."
+> "Mayama, if you can't be with her on every festival, then you have no right to say anything."
 
-&mdash; [**Yahiro Samukawa**](https://myanimelist.net/character.php?q=Yahiro%20Samukawa&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Takumi Nomiya**](https://myanimelist.net/character.php?q=Takumi%20Nomiya&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
