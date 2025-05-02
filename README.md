@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "London bridge is falling down dude!"
+> "I don't know what this boy means to you, Gai, but I shouldn't have to tell you that we never bring our personal feelings into play. I didn't think you were capable of it."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
