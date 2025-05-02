@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Looking at your own memories is recognizing the parts of you that you don't want to face."
+> "What do you think killed the most people in history? It wasn't explosives or drugs. It was information. To know is to die."
 
-&mdash; [**Rinne Higaki**](https://myanimelist.net/character.php?q=Rinne%20Higaki&cat=character), [**Katanagatari**](https://myanimelist.net/search/all?q=Katanagatari&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
