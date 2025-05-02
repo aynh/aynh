@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am ME. No matter, what I say or do, I'm still ME. The things I feel, the things I do, being a vampire, being a man, being betrayed by my mother. When all those things come together, they make up ME. But I'm none of these things taken separately."
+> "You.... Could it be that you're just an idiot? *to Senjougahara*"
 
-&mdash; [**Touma Kyohei**](https://myanimelist.net/character.php?q=Touma%20Kyohei&cat=character), [**Midnight Secretary**](https://myanimelist.net/search/all?q=Midnight%20Secretary&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
