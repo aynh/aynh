@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mayama, if you can't be with her on every festival, then you have no right to say anything."
+> "Karla, nothing can surpass a human's curiosity."
 
-&mdash; [**Takumi Nomiya**](https://myanimelist.net/character.php?q=Takumi%20Nomiya&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Grisha Jaeger**](https://myanimelist.net/character.php?q=Grisha%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
