@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What do you think killed the most people in history? It wasn't explosives or drugs. It was information. To know is to die."
+> "London bridge is falling down dude!"
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
