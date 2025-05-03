@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A life with no changes can’t be called life. You can only call it experience."
+> "If you can no longer believe in the person you love, then test him until you are satisfied."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Bianchi**](https://myanimelist.net/character.php?q=Bianchi&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
