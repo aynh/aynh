@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never wanted anybody to hate me. I don't belong to any groups, and I have to fight and struggle to build myself up. In the end, all I want is just to not be hated by everyone."
+> "Kindness is not a crime. But sometimes it awakens the weakness and greed in others."
 
-&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
+&mdash; [**Su-won**](https://myanimelist.net/character.php?q=Su-won&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
