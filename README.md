@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A victor must speak not of the current state of the world, but of how it should rightfully be."
+> "[thinking] I only take family as patients and I still get worked to death."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
