@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Vegeta's last thought before he dies fighting Majin Buu] Bulma, Trunks. This is for you."
+> "A victor must speak not of the current state of the world, but of how it should rightfully be."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
