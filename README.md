@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Wanting to be loved, for that sole obstinate reason, people can even go this far."
+> "*referring to Azula* She can shoot all the lightning she wants at me, I'm not going into that wall sludge juice. [shudders]"
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Mai**](https://myanimelist.net/character.php?q=Mai&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
