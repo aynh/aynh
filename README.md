@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nobody thinks they're cuter than others unless they're conceited."
+> "{TO NARUTO} Oh, by the way... I'm a boy"
 
-&mdash; [**Maki Nishikino**](https://myanimelist.net/character.php?q=Maki%20Nishikino&cat=character), [**Love Live! School idol project TV 2/2014**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project%20TV%202%2F2014&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
