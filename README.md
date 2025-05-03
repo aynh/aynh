@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One face is given to us by God. The other - we make ourselves."
+> "You don’t waste your time following someone around unless you like him. Stalking is a sign of love."
 
-&mdash; [**Skull Man**](https://myanimelist.net/character.php?q=Skull%20Man&cat=character), [**The Skull Man**](https://myanimelist.net/search/all?q=The%20Skull%20Man&cat=all)
+&mdash; [**Aoi Yamada**](https://myanimelist.net/character.php?q=Aoi%20Yamada&cat=character), [**Working!!**](https://myanimelist.net/search/all?q=Working!!&cat=all)
