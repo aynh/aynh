@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I might be the ugly duckling of the group, but I'll make sure that I'll protect all of you with all my might."
+> "The only one who can beat me, is me!"
 
-&mdash; [**Zeno**](https://myanimelist.net/character.php?q=Zeno&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Daiki Aomine**](https://myanimelist.net/character.php?q=Daiki%20Aomine&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
