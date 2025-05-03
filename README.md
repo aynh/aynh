@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "{TO NARUTO} Oh, by the way... I'm a boy"
+> "Dummy. I'm not gonna dwell on what happened forever. All that junk... it's the furthest thing on my mind. You should especially quit worrying about it and get some more sleep. Hurry up and get rid of your Panda eyes, got it?"
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
