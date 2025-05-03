@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[thinking] I only take family as patients and I still get worked to death."
+> "Belief in others is an illusion concocted by the clever to exploit the stupid."
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Shin Hyuga Shaing**](https://myanimelist.net/character.php?q=Shin%20Hyuga%20Shaing&cat=character), [**Code Geass: Akito the Exiled**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Akito%20the%20Exiled&cat=all)
