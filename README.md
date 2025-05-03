@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In essence, language accounts for a mere 30% of human communication. The other 70% is made up of information collected from eye movements and other body language. With that, even a loner who never takes part in conversation can pull off 70% of what we consider communication."
+> "I had a dream where I fell into a surreal world with a girl I knew, and then ended up kissing her! A dream so easy to understand that even Sigmund Freud would laugh out loud."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
