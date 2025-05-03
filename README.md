@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A beautiful speech, I can see it now, you truly are a prince with the royal blood of a Saiyan."
+> "[Vegeta's last thought before he dies fighting Majin Buu] Bulma, Trunks. This is for you."
 
-&mdash; [**Android 17**](https://myanimelist.net/character.php?q=Android%2017&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
