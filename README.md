@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can no longer believe in the person you love, then test him until you are satisfied."
+> "One face is given to us by God. The other - we make ourselves."
 
-&mdash; [**Bianchi**](https://myanimelist.net/character.php?q=Bianchi&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Skull Man**](https://myanimelist.net/character.php?q=Skull%20Man&cat=character), [**The Skull Man**](https://myanimelist.net/search/all?q=The%20Skull%20Man&cat=all)
