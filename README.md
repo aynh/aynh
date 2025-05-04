@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The time is almost here. Go and lay the groundwork. A world where only true pirates can survive will soon be upon us. Those without power, flee while you can. The tide will bring those of unmatched power and the New Era will begin!"
+> "Being alone is more painful than getting hurt."
 
-&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
