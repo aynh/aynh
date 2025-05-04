@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We think the flower on the precipice is beautiful, because our fear makes our feet stop at its edge, instead of stepping forward into the sky, like that flower."
+> "Yeah, I know there's no right answer. All I know for sure is that time keeps on flowing like a river, and a river eventually leads to the ocean. Maybe I will try swimming against the current."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
