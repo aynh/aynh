@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everybody's weak. That's why we rely on others. We live by helping one another. We can say, we need one another. I've been able to survive because I have you and the others."
+> "By exchanging notes, you get to know one another, to understand one another. As if your souls were connected and your hearts were overlapping. It's a conversation through instruments. A miracle that creates harmony. In that moment, music transcends words."
 
-&mdash; [**Hibiki Kuze**](https://myanimelist.net/character.php?q=Hibiki%20Kuze&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
