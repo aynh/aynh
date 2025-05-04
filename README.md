@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No autographs!"
+> "Either way, the only ones who can die tomorrow are those who survive today."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Dusty Attenborough**](https://myanimelist.net/character.php?q=Dusty%20Attenborough&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
