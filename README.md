@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To be sure, love can kill, but always remember, hate can never save. Never!"
+> "Accept that your life will be painful, bite back your grief and find the power to stand again."
 
-&mdash; [**Odette Bouquet**](https://myanimelist.net/character.php?q=Odette%20Bouquet&cat=character), [**Noir**](https://myanimelist.net/search/all?q=Noir&cat=all)
+&mdash; [**Nakiami**](https://myanimelist.net/character.php?q=Nakiami&cat=character), [**Bounen No Zamned**](https://myanimelist.net/search/all?q=Bounen%20No%20Zamned&cat=all)
