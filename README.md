@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not bad enough they buried us alive in the oversized dung heap, but now they're stealing our chakra. You gotta give these guys credit for thoroughness!"
+> "But there's nothing wrong about worrying. It's like a wall you need to overcome, to make it to the next level. If you're running up against that wall, it means you're moving forward. I wonder how many walls I've broken up until now, but if you won't move yourself, you will never get anywhere."
 
-&mdash; [**Kiba Inuzuka**](https://myanimelist.net/character.php?q=Kiba%20Inuzuka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Aiko Mutō**](https://myanimelist.net/character.php?q=Aiko%20Mut%C5%8D&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
