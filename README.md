@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has their own reasons to fight! Sometimes, you have to settle it yourself or there's no way forward!"
+> "I've got nowhere to go back to. So all I can do is move forward."
 
-&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
