@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Accept that your life will be painful, bite back your grief and find the power to stand again."
+> "My soul wave length just got taken away. I'm gonna miss it."
 
-&mdash; [**Nakiami**](https://myanimelist.net/character.php?q=Nakiami&cat=character), [**Bounen No Zamned**](https://myanimelist.net/search/all?q=Bounen%20No%20Zamned&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
