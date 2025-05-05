@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will acknowledge you as my enemy and destroy you."
+> "[to Renji] I assure you, my gratitude is sincere."
 
-&mdash; [**Acnologia**](https://myanimelist.net/character.php?q=Acnologia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
