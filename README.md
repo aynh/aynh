@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love, passion, why do we get caught up by such troublesome feelings? The mind couldn't ever get things straight, and you lose control to know what is sensible. Deep down it's all so vexing."
+> "The night is in its darkest just before dawn. But keep your eyes open. If you avert your eyes from the dark, you'll be blinded by the rays of a new day. So keep your eyes open, no matter how dark the night ahead may be."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
