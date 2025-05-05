@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, guilds are organizations where wizards gather to share information and find work. You can't be considered a full-fledged wizard unless you're in a guild."
+> "Because people don't have wings... We look for ways to fly."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Ukai Keishin**](https://myanimelist.net/character.php?q=Ukai%20Keishin&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
