@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The always naughty woodpecker. Today, too, you open holes and ruin the forest. The angry wood god turned your beak to poison. Poor woodpecker, your nest has been poisoned. Your food has been poisoned. If you touch your friends, they all die. The sad little woodpecker. Your tears of poison sparkle brightly..."
+> "There are two things people fear... those are death and embarrassment. Those who try to overcome death are just idiots, but I won't laugh at those who try to overcome their embarrassment. I like those kind of idiots."
 
-&mdash; [**Shiro**](https://myanimelist.net/character.php?q=Shiro&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
