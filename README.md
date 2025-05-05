@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's so fun about firing at targets that aren't moving?"
+> "If we continue on the same path, we are likely to meet again."
 
-&mdash; [**Yzak Joule**](https://myanimelist.net/character.php?q=Yzak%20Joule&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Handa Seishū**](https://myanimelist.net/character.php?q=Handa%20Seish%C5%AB&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
