@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't get to choose who you fall for. The heart doesn't always work the way you want it to. You should just follow your feelings honestly. You'll be happier that way."
+> "Things would have been so much better back then... If we had heard each other's voices. I hate myself. I was selfish, and I never thought about anyone else's feelings. Since then, my classmates have all looked down on me. I've lived for seventeen years, and I haven't lived one of them as a good person. The only time I heard your voice was when we got into that fight. And what pisses me off the most is the fact that I haven't changed at all since back then! But.,. But now, I think I can understand what you were saying... Nishimiya. Me and you... Can we be... friends? Shit!! I went way too far!! I was just gonna apologize and get out of here! Why the hell did I end up asking her to be friends?... Why did I even say that?! Jeez, that's so embarrassing! How can you even say that?"
 
-&mdash; [**Ayumi Sanda**](https://myanimelist.net/character.php?q=Ayumi%20Sanda&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
+&mdash; [**Shouya Ishida**](https://myanimelist.net/character.php?q=Shouya%20Ishida&cat=character), [**Koe no Katachi**](https://myanimelist.net/search/all?q=Koe%20no%20Katachi&cat=all)
