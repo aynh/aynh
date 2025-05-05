@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Holding in your own feelings like that... ye think tha' no one's gonna get hurt since ye're not lettin' it show to anyone? Tha's just the same as goin' 'round hurting everyone anyway!! What ye're doin' isn't ye keepin' everyone dear to ye!! Ye're just protectin' yerself!!! Ye're just 'fraid of gettin' hurt! Losin' yer nerve! Ye're just scared!!"
+> "I study too, you know. How could I teach anyone if I didn't grow and learn day by day. Now let's get rid of this dangerous cloth. Experiencing my Absolute Defense Form over summer vacation taught me yet another skill: compressing not my whole body, but a portion of my tentacles to release a burst of energy. Remember this Itona, I say assassination is education. The assassination classrooms teacher will get stronger every time he teaches!"
 
-&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
