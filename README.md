@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are two things people fear... those are death and embarrassment. Those who try to overcome death are just idiots, but I won't laugh at those who try to overcome their embarrassment. I like those kind of idiots."
+> "Don't be frightened by the waves. If we read the flow of the waves and accept them, we can overcome it. There's no wave that can't be overcome!!"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Sinbad**](https://myanimelist.net/character.php?q=Sinbad&cat=character), [**Magi: Adventure of Sinbad**](https://myanimelist.net/search/all?q=Magi%3A%20Adventure%20of%20Sinbad&cat=all)
