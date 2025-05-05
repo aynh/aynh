@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're not the only one who draws power from the moon. (Hama is shocked that Katara managed to resist her bloodbending) My bending Hama, is more powerful than yours. Your technique is useless on me! (draws water from the ground and forms a ring around herself before directing it at Hama)"
+> "If you run now, you will be running for the rest of your life."
 
-&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Reborn**](https://myanimelist.net/character.php?q=Reborn&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
