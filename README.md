@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I heard that when things were painful for her, she'd cover her ears with headphones and escape to the world of music. I tried it too. It was like everything was blown away. The vocals screamed for me. They grieved for me. The ones who put on the act of common sense were wrong. Those who cried were right. We, the lonely were more human. They screamed at the absurd, beat it down, and destroyed it. They saved me."
+> "Fear is freedom! Subjugation is liberation! Contradiction is truth! These are the truths of this world! Surrender to those truths, you pigs who fawn over clothing!"
 
-&mdash; [**Iwasawa**](https://myanimelist.net/character.php?q=Iwasawa&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Satsuki Kiryuuin**](https://myanimelist.net/character.php?q=Satsuki%20Kiryuuin&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
