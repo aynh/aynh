@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you hurt someone, you must be prepared to receive the same amount in return."
+> "The difference in judgement between you and me, originates from different rules derived from past experience."
 
-&mdash; [**Mana Ouma**](https://myanimelist.net/character.php?q=Mana%20Ouma&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
