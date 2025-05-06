@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I envy you just for having someone who's worried about you."
+> "If your failing, then keep trying until you don't."
 
-&mdash; [**Mayu**](https://myanimelist.net/character.php?q=Mayu&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Kintarō Tōyama**](https://myanimelist.net/character.php?q=Kintar%C5%8D%20T%C5%8Dyama&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
