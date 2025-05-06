@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If your failing, then keep trying until you don't."
+> "That's right! Whatever the tragedy or the blunder is, only the things that actually happened are written in stone!"
 
-&mdash; [**Kintarō Tōyama**](https://myanimelist.net/character.php?q=Kintar%C5%8D%20T%C5%8Dyama&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
