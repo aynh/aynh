@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Renji] I assure you, my gratitude is sincere."
+> "I'm the one who's in the wrong, so if you really want to break someone's nose, break mine."
 
-&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
