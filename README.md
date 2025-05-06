@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anyway, here's my point. Trivial setbacks like yours and mine are nothing but common occurrences in everyday life! Getting hung up over pointless crap like that shows that you're a joke! A complete and utter joke!"
+> "Maybe humans are capable of committing far more shameless acts than they imagine they are. If they hadn’t faced adversity, they might have gone without discovering such ugly facets of themselves."
 
-&mdash; [**Seiya Kanie**](https://myanimelist.net/character.php?q=Seiya%20Kanie&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
+&mdash; [**Hildegard von Mariendorf**](https://myanimelist.net/character.php?q=Hildegard%20von%20Mariendorf&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
