@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The time is almost here. Go and lay the groundwork. A world where only true pirates can survive will soon be upon us. Those without power, flee while you can. The tide will bring those of unmatched power and the New Era will begin!"
+> "Anyway, here's my point. Trivial setbacks like yours and mine are nothing but common occurrences in everyday life! Getting hung up over pointless crap like that shows that you're a joke! A complete and utter joke!"
 
-&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Seiya Kanie**](https://myanimelist.net/character.php?q=Seiya%20Kanie&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
