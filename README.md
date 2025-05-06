@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's right! Whatever the tragedy or the blunder is, only the things that actually happened are written in stone!"
+> "Chakras, chakras, everybody loves chakras! Chakras, chakras! Chakra sandwich tastes good! Yum!"
 
-&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Pathik**](https://myanimelist.net/character.php?q=Pathik&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
