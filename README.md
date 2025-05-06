@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fear is freedom! Subjugation is liberation! Contradiction is truth! These are the truths of this world! Surrender to those truths, you pigs who fawn over clothing!"
+> "The strong one doesn't win. The one who wins is strong."
 
-&mdash; [**Satsuki Kiryuuin**](https://myanimelist.net/character.php?q=Satsuki%20Kiryuuin&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
