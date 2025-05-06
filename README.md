@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Have you ever thought about why you're so good and your parents are so bad? If you'd so kindly let me give away the answer; it's because even if you're cheating on someone or you're being cheated on, everyone laughs at bad jokes and eats over-sweet boiled vegetables."
+> "I heard that when things were painful for her, she'd cover her ears with headphones and escape to the world of music. I tried it too. It was like everything was blown away. The vocals screamed for me. They grieved for me. The ones who put on the act of common sense were wrong. Those who cried were right. We, the lonely were more human. They screamed at the absurd, beat it down, and destroyed it. They saved me."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Iwasawa**](https://myanimelist.net/character.php?q=Iwasawa&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
