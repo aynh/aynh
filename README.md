@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We do not live in a fairy-tale world. We cannot simply take revenge on those who have betrayed us and say 'the end'. We have to live on after this. And taking revenge for betrayal only invites more revenge."
+> "I'm on TV! I gotta call my folks!"
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
