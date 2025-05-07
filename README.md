@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One victory greedily demands the next set of victories from the victor, until his death."
+> "I like fish, biiiig FISH. I also have a crap haircut, kinda like Naruto."
 
-&mdash; [**Legend of the Galactic Heroes**](https://myanimelist.net/character.php?q=Legend%20of%20the%20Galactic%20Heroes&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Umibouzu**](https://myanimelist.net/character.php?q=Umibouzu&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
