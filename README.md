@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's human nature. We have regrets, and go on blaming ourselves forever."
+> "Is there... somebody precious to you?"
 
-&mdash; [**Kazuki Kuwanomi**](https://myanimelist.net/character.php?q=Kazuki%20Kuwanomi&cat=character), [**Plastic Memories**](https://myanimelist.net/search/all?q=Plastic%20Memories&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
