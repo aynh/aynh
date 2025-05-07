@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How about I gently shove my foot down your throat?"
+> "No matter what, anyone would hate to be weak as they get plundered. But if there's a chance, even if humans fail to get what they want, they can unexpectedly accept such an outcome."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
