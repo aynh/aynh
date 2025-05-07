@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter what the essence of it is. The truth is what's hidden inside."
+> "If I wasn't prepared to be flexible as the situations demands, I wouldn't have become a teacher."
 
-&mdash; [**Hiro Hirono**](https://myanimelist.net/character.php?q=Hiro%20Hirono&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
