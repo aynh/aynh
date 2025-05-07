@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Shut up you! What's with that TV drama attitude?!"
+> "*to Katara* Try to understand. I need to capture him to restore something I've lost. [Katara jerks her head away from Zuko] Perhaps in exchange, I can restore something you've lost."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
