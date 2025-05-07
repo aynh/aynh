@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Memories. They are recollections of the heart. If those who are not human come to possess memories, people begin to fear the result."
+> "I shouldn't think about losing before the match has even begun."
 
-&mdash; [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/character.php?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Eiichirou Maruo**](https://myanimelist.net/character.php?q=Eiichirou%20Maruo&cat=character), [**Baby Steps**](https://myanimelist.net/search/all?q=Baby%20Steps&cat=all)
