@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what, anyone would hate to be weak as they get plundered. But if there's a chance, even if humans fail to get what they want, they can unexpectedly accept such an outcome."
+> "We do not live in a fairy-tale world. We cannot simply take revenge on those who have betrayed us and say 'the end'. We have to live on after this. And taking revenge for betrayal only invites more revenge."
 
-&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
