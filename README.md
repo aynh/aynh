@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I shouldn't think about losing before the match has even begun."
+> "One victory greedily demands the next set of victories from the victor, until his death."
 
-&mdash; [**Eiichirou Maruo**](https://myanimelist.net/character.php?q=Eiichirou%20Maruo&cat=character), [**Baby Steps**](https://myanimelist.net/search/all?q=Baby%20Steps&cat=all)
+&mdash; [**Legend of the Galactic Heroes**](https://myanimelist.net/character.php?q=Legend%20of%20the%20Galactic%20Heroes&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
