@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I like fish, biiiig FISH. I also have a crap haircut, kinda like Naruto."
+> "Shut up you! What's with that TV drama attitude?!"
 
-&mdash; [**Umibouzu**](https://myanimelist.net/character.php?q=Umibouzu&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
