@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more battles we fought, the more our confidence grew. We weren't afraid of anything back then. But the difference between victory and defeat is paper-thin. We didn't realize this and were arrogant."
+> "Before the heart of truth, there is no need for words."
 
-&mdash; [**Hayashi**](https://myanimelist.net/character.php?q=Hayashi&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Nico Robin**](https://myanimelist.net/character.php?q=Nico%20Robin&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
