@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's fine, I'll come to save you as much as you want. I'll make you fall for me as much as you wish. Leave this to your master."
+> "Then, if he accepts who you are, it doesn't matter if you're perfect for him or not. Rather, he may prefer you just the way you are now."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Tanaka**](https://myanimelist.net/character.php?q=Tanaka&cat=character), [**Tanaka-kun wa Itsumo Kedaruge**](https://myanimelist.net/search/all?q=Tanaka-kun%20wa%20Itsumo%20Kedaruge&cat=all)
