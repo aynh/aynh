@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You need to decide where you belong before anything else. If you can do that, you can decide what you want to do."
+> "*spits out his juice* I don't think so, pops! Do I look like a clown to you?!"
 
-&mdash; [**Jin Mitaka**](https://myanimelist.net/character.php?q=Jin%20Mitaka&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
