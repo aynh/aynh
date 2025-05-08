@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You guys sure are a worthless bunch. If you wanna wallow in your tears, save it for after you've done everything you can!"
+> "If history repeats itself, and moves in a circular path, then believing that whatever force is turning it is perfect, is all we can do as we move ahead. Pushed along by forces beyond our control, waiting, for the blade to be swung."
 
-&mdash; [**Seiya Kanie**](https://myanimelist.net/character.php?q=Seiya%20Kanie&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
+&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
