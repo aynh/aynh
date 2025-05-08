@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You keep your nerves on edge and you're always ready to lash out. You distance yourself from everyone. It's because you are afraid of people. YOU are the weakest person in this village."
+> "I'm going to become the best manga editor anyone's ever seen! And then you can kiss your job goodbye!"
 
-&mdash; [**Takuan Sōhō**](https://myanimelist.net/character.php?q=Takuan%20S%C5%8Dh%C5%8D&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
+&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
