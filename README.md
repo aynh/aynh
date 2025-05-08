@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to become a man who treasures his friends."
+> "It's called a miracle because it doesn't happen."
 
-&mdash; [**Rogue Cheney**](https://myanimelist.net/character.php?q=Rogue%20Cheney&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Shiori Misaka**](https://myanimelist.net/character.php?q=Shiori%20Misaka&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
