@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The choices we make in life have unlimited possibilities."
+> "I wish for a heart. A heart of the man whom I'll never allow to forget me."
 
-&mdash; [**Rem Saverem**](https://myanimelist.net/character.php?q=Rem%20Saverem&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
