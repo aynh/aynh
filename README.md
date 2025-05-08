@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*spits out his juice* I don't think so, pops! Do I look like a clown to you?!"
+> "You keep your nerves on edge and you're always ready to lash out. You distance yourself from everyone. It's because you are afraid of people. YOU are the weakest person in this village."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Takuan Sōhō**](https://myanimelist.net/character.php?q=Takuan%20S%C5%8Dh%C5%8D&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
