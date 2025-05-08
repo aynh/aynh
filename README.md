@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what the world, the god of that world creates the rules. In truth, you have been defeated by the rules I created. And as punishment for defying the God of the new world, you will die..."
+> "Are you looking at the stars?.. In the middle of the city? Even though the only stars you can see from here are fake?"
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Shinoda Chiaki**](https://myanimelist.net/character.php?q=Shinoda%20Chiaki&cat=character), [**Darker than Black**](https://myanimelist.net/search/all?q=Darker%20than%20Black&cat=all)
