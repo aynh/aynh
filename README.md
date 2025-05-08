@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can worry about things all you want, but it doesn't mean you'll always get an answer. What's important to remember, is that when it's all said and done and you got through it all somehow, are you the person you wanted to be?"
+> "No matter what the world, the god of that world creates the rules. In truth, you have been defeated by the rules I created. And as punishment for defying the God of the new world, you will die..."
 
-&mdash; [**Hibiki Tokai**](https://myanimelist.net/character.php?q=Hibiki%20Tokai&cat=character), [**Vandread**](https://myanimelist.net/search/all?q=Vandread&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
