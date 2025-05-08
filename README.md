@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wish for a heart. A heart of the man whom I'll never allow to forget me."
+> "You guys sure are a worthless bunch. If you wanna wallow in your tears, save it for after you've done everything you can!"
 
-&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Seiya Kanie**](https://myanimelist.net/character.php?q=Seiya%20Kanie&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
