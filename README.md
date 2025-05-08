@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you looking at the stars?.. In the middle of the city? Even though the only stars you can see from here are fake?"
+> "Rules exist to make the game more interesting. You, who don't know basic things like that, have no right to create the systems people play by."
 
-&mdash; [**Shinoda Chiaki**](https://myanimelist.net/character.php?q=Shinoda%20Chiaki&cat=character), [**Darker than Black**](https://myanimelist.net/search/all?q=Darker%20than%20Black&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
