@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Watch it, or I'll take your soul!"
+> "You're horrible! Commenting on my appearance like that! I don't have to listen to this from you! It's sexual harassment!"
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
