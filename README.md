@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Rules exist to make the game more interesting. You, who don't know basic things like that, have no right to create the systems people play by."
+> "You need to decide where you belong before anything else. If you can do that, you can decide what you want to do."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Jin Mitaka**](https://myanimelist.net/character.php?q=Jin%20Mitaka&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
