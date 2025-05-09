@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It’s because we help out when they’re in trouble that we can count on them to come running when we need it."
+> "You have yet to see what form your soul has taken. That's what it actually means when you claim that you lack joy in your life."
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
