@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "First it was that sewer-face and now I'm up against a superhero."
+> "Magic is not meant to be used to kill people... but without power we can't even protect the ones we love..."
 
-&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
