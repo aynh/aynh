@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Magic is not meant to be used to kill people... but without power we can't even protect the ones we love..."
+> "What repulsive creature makes my eardrums bleed?"
 
-&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
