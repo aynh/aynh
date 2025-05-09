@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The truth has power because it's the truth. And because it is the truth, that makes it just. It's persuasive, isn't it? Don't you want truth like that?"
+> "I'll always love you. (To Yuki)"
 
-&mdash; [**Taro**](https://myanimelist.net/character.php?q=Taro&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
