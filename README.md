@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have yet to see what form your soul has taken. That's what it actually means when you claim that you lack joy in your life."
+> "I don't like lectures from someone who plays fixed matches."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Ryoma Echizen**](https://myanimelist.net/character.php?q=Ryoma%20Echizen&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
