@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One day I'd like to become something precious to others."
+> "I am content with just being a flower, blooming and withering away… that’s all I ever needed."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Dune**](https://myanimelist.net/character.php?q=Dune&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
