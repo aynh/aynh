@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am not going to kill you - I am going to break you."
+> "A picture of you sleeping with a stupid look on your face totally oblivious to the dangers of this trip serves as a warning to future generations!"
 
-&mdash; [**Naraku**](https://myanimelist.net/character.php?q=Naraku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
