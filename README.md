@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A picture of you sleeping with a stupid look on your face totally oblivious to the dangers of this trip serves as a warning to future generations!"
+> "The thing I hate the most is to trample on other people's good will."
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
