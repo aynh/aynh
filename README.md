@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[in front of an execution squad] I don't give a rat's ass about going to hell. Guess I feel like I'm already there. What I do mind is the thought of being killed by you ugly bastards. I've gone my whole life without being helped by anyone else, and I'll be damned if I'm gonna let you help me into my grave."
+> "I have two rules: First, I'm never wrong. Second, if I'm wrong... back to the first rule."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
