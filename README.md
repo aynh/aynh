@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe worrying about the future partings so much that you miss out on happiness in the present is a waste."
+> "Only those who have suffered long, can see the light within the shadows"
 
-&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
