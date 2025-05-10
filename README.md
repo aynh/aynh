@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Fuu passed out after one drink and is asleep] Sleeping so carelessly. I could do something to you so easily."
+> "My mom always says, strangers are just friends you haven't met yet."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Jaune Arc**](https://myanimelist.net/character.php?q=Jaune%20Arc&cat=character), [**RWBY**](https://myanimelist.net/search/all?q=RWBY&cat=all)
