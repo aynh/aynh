@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only those who have suffered long, can see the light within the shadows"
+> "Urushibara Ruka. The mannerisms and voice of a woman... No. More feminine than ANY woman. But he's a guy. Taller than Mayuri, but so very thin... But he's a guy. Looks great in a miko outfit... But he's a guy. It's already twilight and yet, it's so hot. The cicadas are crying. But... He's a guy."
 
-&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
