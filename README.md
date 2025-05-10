@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't judge me unless you have looked through my eyes, experienced what I went through and cried as many tears as me. Until then back-off, cause you have no idea."
+> "If we had spent more time together, maybe I would have seen another side of him. I wish I knew him more. I wish I knew more about what kind of person he was. I wanted more time. If we had more time, we would've gone through things together. Maybe we would've gotten annoyed at each other and fight. Maybe we would've disliked each other, or liked each other more."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
