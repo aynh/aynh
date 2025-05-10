@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm alright. All I did was lose a love. Even without George, this city is still overflowing with people. My days are busy. Nothing will change. But... why do the lights look like they're in black-and-white? Just because one person isn't here."
+> "In this world, there are very few people who actually trust each other."
 
-&mdash; [**Yukari Hayasaka**](https://myanimelist.net/character.php?q=Yukari%20Hayasaka&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
