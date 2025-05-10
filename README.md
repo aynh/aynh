@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am content with just being a flower, blooming and withering away… that’s all I ever needed."
+> "But your kindess doesn't come from being a Coordinator... it's because of who you are Mr. Yamato"
 
-&mdash; [**Dune**](https://myanimelist.net/character.php?q=Dune&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
+&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
