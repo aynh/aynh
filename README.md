@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We do have a lot in common. The same earth, the same air, the same sky. Maybe if we started looking at what's the same, instead of always looking at what is different... well, who knows?"
+> "The disturbance in the stitch, is a disturbance in the heart."
 
-&mdash; [**Nyarth**](https://myanimelist.net/character.php?q=Nyarth&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Anissina von Karbelnikoff**](https://myanimelist.net/character.php?q=Anissina%20von%20Karbelnikoff&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
