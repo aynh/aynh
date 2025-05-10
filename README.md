@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will hunt down Kikyou's killer and avenge her death"
+> "Maybe worrying about the future partings so much that you miss out on happiness in the present is a waste."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
