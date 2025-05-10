@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how hurt someone is, they're meant to overcome it and try to go forward."
+> "I'm alright. All I did was lose a love. Even without George, this city is still overflowing with people. My days are busy. Nothing will change. But... why do the lights look like they're in black-and-white? Just because one person isn't here."
 
-&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Yukari Hayasaka**](https://myanimelist.net/character.php?q=Yukari%20Hayasaka&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
