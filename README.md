@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The thing I hate the most is to trample on other people's good will."
+> "Things learned as a child stay with you forever."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Cosette Sara**](https://myanimelist.net/character.php?q=Cosette%20Sara&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
