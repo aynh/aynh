@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Things learned as a child stay with you forever."
+> "Don't judge me unless you have looked through my eyes, experienced what I went through and cried as many tears as me. Until then back-off, cause you have no idea."
 
-&mdash; [**Cosette Sara**](https://myanimelist.net/character.php?q=Cosette%20Sara&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
