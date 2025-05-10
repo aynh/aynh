@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love and Peace!"
+> "We do have a lot in common. The same earth, the same air, the same sky. Maybe if we started looking at what's the same, instead of always looking at what is different... well, who knows?"
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Nyarth**](https://myanimelist.net/character.php?q=Nyarth&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
