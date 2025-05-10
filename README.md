@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, there are very few people who actually trust each other."
+> "[Fuu passed out after one drink and is asleep] Sleeping so carelessly. I could do something to you so easily."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
