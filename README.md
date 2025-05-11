@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If she lost because of a difference in ability, it can’t be helped. If she worked hard and didn’t get what she wants, she can just work harder next time. If she gave her all for this, it’s acceptable even if she lost."
+> "If you can't understand the darkness in your opponent's heart, you will never comprehend the pain and suffering of others."
 
-&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
