@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Never forget who you are, for surely the world won't."
+> "Looking back on the past is a dangerous thing. It's nothing more than an attachment."
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Fukase**](https://myanimelist.net/character.php?q=Fukase&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
