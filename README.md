@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being too rigid makes you fragile. You'll end up breaking yourself and those around you."
+> "Killing others is never justice, no matter what kind of noble cause one upholds."
 
-&mdash; [**Yukina Himeragi**](https://myanimelist.net/character.php?q=Yukina%20Himeragi&cat=character), [**Strike the Blood**](https://myanimelist.net/search/all?q=Strike%20the%20Blood&cat=all)
+&mdash; [**Seishin Muroi**](https://myanimelist.net/character.php?q=Seishin%20Muroi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
