@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Killing others is never justice, no matter what kind of noble cause one upholds."
+> "Wrong, holy man. All we want is to get our bodies normal again. See, we don't lie about what's possible. We didn't start a cult."
 
-&mdash; [**Seishin Muroi**](https://myanimelist.net/character.php?q=Seishin%20Muroi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
