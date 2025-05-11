@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We'll worry about the future once we get there."
+> "Someone told me this: 'Nothing is 'forever' in human relationships'. That might be true, but it sounds awfully lonely. But I realized today... If there really is no such thing as 'forever'... Then having someone important is the happiest thing one can attain in life."
 
-&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Yukino Miyashita**](https://myanimelist.net/character.php?q=Yukino%20Miyashita&cat=character), [**Octave**](https://myanimelist.net/search/all?q=Octave&cat=all)
