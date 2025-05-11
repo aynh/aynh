@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Idiot! Don't spit while you talk! Your virginity might be contagious!"
+> "The final curtain falls at the very moment a person gives up."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Miwa Ichigen**](https://myanimelist.net/character.php?q=Miwa%20Ichigen&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
