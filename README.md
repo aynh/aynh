@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you are afraid to get hurt, you won't obtain what you really desire."
+> "No matter what bonds you forge with others, time will tear them apart. Well... Doesn't thinking about it make you sick?"
 
-&mdash; [**Tsukimori Youko**](https://myanimelist.net/character.php?q=Tsukimori%20Youko&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
+&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
