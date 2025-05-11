@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Looking back on the past is a dangerous thing. It's nothing more than an attachment."
+> "I'm not fighting because I want to win. I'm fighting because I have to win."
 
-&mdash; [**Fukase**](https://myanimelist.net/character.php?q=Fukase&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
