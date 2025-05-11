@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what bonds you forge with others, time will tear them apart. Well... Doesn't thinking about it make you sick?"
+> "I can't just leave a crying girl alone and go home. I'm too wimpy to carry you, but I can lend you a shoulder, and get you down the stairs."
 
-&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Ooga Kazuomi**](https://myanimelist.net/character.php?q=Ooga%20Kazuomi&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
