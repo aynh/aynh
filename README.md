@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is there truly any human who is not arrogant?"
+> "If you are afraid to get hurt, you won't obtain what you really desire."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Tsukimori Youko**](https://myanimelist.net/character.php?q=Tsukimori%20Youko&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
