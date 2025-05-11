@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not fighting because I want to win. I'm fighting because I have to win."
+> "I now have things that I don't want to forget, and things that I shouldn't forget. And I don't plan to ever forget those things, as long as I live."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
