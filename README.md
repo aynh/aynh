@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are creatures that dream. Different from others, they want to be special. They want to be adored by others, just like the heroes in comics and games, achieving great things with unique powers. Of course, no one ever believes deep down it will happen. Everyone knows there's no magic in this world."
+> "Is there truly any human who is not arrogant?"
 
-&mdash; [**Yoshiyuki Sakurai**](https://myanimelist.net/character.php?q=Yoshiyuki%20Sakurai&cat=character), [**Da Capo II**](https://myanimelist.net/search/all?q=Da%20Capo%20II&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
