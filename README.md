@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They are your words! This is your heart! Our desire to help our friends belongs to us!"
+> "As long as I don't admit defeat, then it'll never be a loss!"
 
-&mdash; [**Happy**](https://myanimelist.net/character.php?q=Happy&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
