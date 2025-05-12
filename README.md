@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Lend me 100 yen since I'm beautiful."
+> "Even if you put aside regret, you´ll end up feeling it anyway. Right now, you need to make sure you grasp this good feeling and never forget it."
 
-&mdash; [**Aisa Himegami**](https://myanimelist.net/character.php?q=Aisa%20Himegami&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Ryūnosuke Tanaka**](https://myanimelist.net/character.php?q=Ry%C5%ABnosuke%20Tanaka&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
