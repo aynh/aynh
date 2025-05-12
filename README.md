@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As a human, what kind of achievements will you leave behind?  I bet you'll leave behind a legacy as a psychotic killer, and that thrills me!"
+> "A fake with more power than the real thing is more dangerous than the real thing."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!×2**](https://myanimelist.net/search/all?q=Durarara!!%C3%972&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
