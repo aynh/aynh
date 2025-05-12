@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can't understand the darkness in your opponent's heart, you will never comprehend the pain and suffering of others."
+> "Change is never easy in this world. I can't even change one friend, let alone a whole country."
 
-&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
