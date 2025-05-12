@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A man's come all the way out to the end of the North to ask for my help. Wouldn't it be rude to wait to hear what he wanted?"
+> "I don't want to lie anymore. The words 'I believe in you' is a curse. No, it's a spell. If the one who hears it feels cursed, they are."
 
-&mdash; [**William Massachusetts**](https://myanimelist.net/character.php?q=William%20Massachusetts&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Watanuki Sakuya**](https://myanimelist.net/character.php?q=Watanuki%20Sakuya&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
