@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're always away during the important times and all you do is call. There are times when you are finally here, but then you disappear unexpectedly. Every time... every time... always, always, leaving me behind alone. What do you think I am? I love you Shinichi!"
+> "But being optimistic isn't a bad thing, is it? It's not like you're doing anything bad. It's also not like you're cheating either."
 
-&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
