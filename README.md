@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Change is never easy in this world. I can't even change one friend, let alone a whole country."
+> "It's one of the basics... So I will teach you. A shinigami at the rank of Captain can control the size of his zanpakuto got it? Otherwise everyone'd carry around ginormous swords... just like you. Remember this well. You can't fathom the power of your rival simply from the size of his zanpakuto. You shouldn't give lectures about Shinigami until you understand that."
 
-&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
