@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are weak. For every cure found, another disease is uncovered. It's a game of chase."
+> "The weak always cling to words, and those with power die for those without it."
 
-&mdash; [**Kazutaka Muraki**](https://myanimelist.net/character.php?q=Kazutaka%20Muraki&cat=character), [**Yami no Matsuei**](https://myanimelist.net/search/all?q=Yami%20no%20Matsuei&cat=all)
+&mdash; [**Claymore**](https://myanimelist.net/character.php?q=Claymore&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
