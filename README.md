@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People started growing crops because going hunting without knowing if you'd catch anything was a pain. People dug wells because going all the way to the river was a pain. Laziness is the mother of human progress."
+> "It's stupid to talk about things you're not. Be yourself and you'll be fine."
 
-&mdash; [**Ikta Solork**](https://myanimelist.net/character.php?q=Ikta%20Solork&cat=character), [**Alderamin on the Sky**](https://myanimelist.net/search/all?q=Alderamin%20on%20the%20Sky&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
