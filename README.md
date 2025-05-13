@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Welcome. Welcome to my cave young ones. Please forgive the belated salutations I am the holy sword Excalibur!"
+> "'I long to see someone who died', 'I want to be rich', 'I want women', 'I want to protect the world'... They're all desires. In other words, wishes. If you ask me, there's neither 'right' or 'wrong' when it comes to greed. You humans go around ranking certain types of greed in order from good to bad, which makes you so hard to understand."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
