@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you lose your uniqueness for fear of being disliked, then no one will ever love you."
+> "If things were to change, do you think you could ever fall in love with me? Or fulfill a dream for which I long? The world is about to change. That's why I'm here now. I've come and this will mean a new beginning for my life."
 
-&mdash; [**Yuuki Aito**](https://myanimelist.net/character.php?q=Yuuki%20Aito&cat=character), [**The Comic Artist and His Assistants**](https://myanimelist.net/search/all?q=The%20Comic%20Artist%20and%20His%20Assistants&cat=all)
+&mdash; [**Morgan Le Fay**](https://myanimelist.net/character.php?q=Morgan%20Le%20Fay&cat=character), [**Ah! My Goddess: The Movie**](https://myanimelist.net/search/all?q=Ah!%20My%20Goddess%3A%20The%20Movie&cat=all)
