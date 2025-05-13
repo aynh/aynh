@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Come on let's dance... aw yeah don't be afraid."
+> "The Commander-General's rather violent today, wouldn't you say?"
 
-&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
