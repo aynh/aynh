@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*thinking* Normally, one would call an ambulance or ask for help from one of the nearby residents, but this particular boy decided to carry the unconscious, innocent girl... and where the hell are you taking her, bastard?"
+> "Humans are weak. For every cure found, another disease is uncovered. It's a game of chase."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Kazutaka Muraki**](https://myanimelist.net/character.php?q=Kazutaka%20Muraki&cat=character), [**Yami no Matsuei**](https://myanimelist.net/search/all?q=Yami%20no%20Matsuei&cat=all)
