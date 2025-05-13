@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The weak always cling to words, and those with power die for those without it."
+> "Everything you've been taught is based on theories and logic. Soon you will likely come to realize how pointless they are in the world we live in."
 
-&mdash; [**Claymore**](https://myanimelist.net/character.php?q=Claymore&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Tomomi Masaoka**](https://myanimelist.net/character.php?q=Tomomi%20Masaoka&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
