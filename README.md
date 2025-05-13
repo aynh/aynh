@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, I really can't stand it when guys pick on people weaker than them...but I guess I'll do it to you anyway!"
+> "Rules exist to make the game more interesting. You, who don't know basic things like that, have no right to create the systems people play by."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
