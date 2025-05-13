@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Men don't get touchy-feely with each other."
+> "You know, I really can't stand it when guys pick on people weaker than them...but I guess I'll do it to you anyway!"
 
-&mdash; [**Taichi Mashima**](https://myanimelist.net/character.php?q=Taichi%20Mashima&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
