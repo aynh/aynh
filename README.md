@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Phones, the internet - having the means alone doesn't lead to communication."
+> "Sooo... Korra. There they go, here we are, all alone in the gym... just you and me... TWO, alone people. Together. Alone."
 
-&mdash; [**Saitō-sensei**](https://myanimelist.net/character.php?q=Sait%C5%8D-sensei&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
+&mdash; [**Bolin**](https://myanimelist.net/character.php?q=Bolin&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
