@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If things were to change, do you think you could ever fall in love with me? Or fulfill a dream for which I long? The world is about to change. That's why I'm here now. I've come and this will mean a new beginning for my life."
+> "Matsu, you said that people and fireworks bloom like beautiful flowers for an instant and then fade away. That may be true, but Matsu, even if it's only for a moment, I want you to bloom by my side and when you fade away... do so at my side. In return, I will... make beautiful flowers bloom by your side again and again."
 
-&mdash; [**Morgan Le Fay**](https://myanimelist.net/character.php?q=Morgan%20Le%20Fay&cat=character), [**Ah! My Goddess: The Movie**](https://myanimelist.net/search/all?q=Ah!%20My%20Goddess%3A%20The%20Movie&cat=all)
+&mdash; [**Matsu's Husband**](https://myanimelist.net/character.php?q=Matsu's%20Husband&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
