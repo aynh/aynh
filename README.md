@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's stupid to talk about things you're not. Be yourself and you'll be fine."
+> "If you lose your uniqueness for fear of being disliked, then no one will ever love you."
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Yuuki Aito**](https://myanimelist.net/character.php?q=Yuuki%20Aito&cat=character), [**The Comic Artist and His Assistants**](https://myanimelist.net/search/all?q=The%20Comic%20Artist%20and%20His%20Assistants&cat=all)
