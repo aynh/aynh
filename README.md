@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'I long to see someone who died', 'I want to be rich', 'I want women', 'I want to protect the world'... They're all desires. In other words, wishes. If you ask me, there's neither 'right' or 'wrong' when it comes to greed. You humans go around ranking certain types of greed in order from good to bad, which makes you so hard to understand."
+> "Come on let's dance... aw yeah don't be afraid."
 
-&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
