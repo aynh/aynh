@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sincerity with respect to yourself! No matter what your objective... no matter who you are... if you are going to do something or not do something, that is a promise to yourself. And the one who keeps the promise, or breaks the promise, is you. No one else can be burdened with holding you to a promise that's made to yourself."
+> "Our names are given to us by God. I have betrayed God, and so I no longer have a name."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Scar**](https://myanimelist.net/character.php?q=Scar&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
