@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I'm away from you, even though I can't be around crowds, I want to go see you."
+> "Now I feel that maybe knowing who I actually am is the key to reach perfection. Because that means knowing what I can and cannot do."
 
-&mdash; [**Gin**](https://myanimelist.net/character.php?q=Gin&cat=character), [**Hotarubi no Mori e**](https://myanimelist.net/search/all?q=Hotarubi%20no%20Mori%20e&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
