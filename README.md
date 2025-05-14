@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "An apple a day keeps any one away, if you throw it hard enough!"
+> "I don't know which is more pathetic; the fool, or those who follow him."
 
-&mdash; [**Marie Mjolnir**](https://myanimelist.net/character.php?q=Marie%20Mjolnir&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Jirobou**](https://myanimelist.net/character.php?q=Jirobou&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
