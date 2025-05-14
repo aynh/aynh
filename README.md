@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't know which is more pathetic; the fool, or those who follow him."
+> "This guy's a special kind of stupid."
 
-&mdash; [**Jirobou**](https://myanimelist.net/character.php?q=Jirobou&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
