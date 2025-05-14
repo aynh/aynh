@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When people are faced with a situation they don't understand, it's easy for fear to take hold."
+> "Wouldn't it be nice to have a strong mind, one that can get rid of the fear you feel?"
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Little Demon**](https://myanimelist.net/character.php?q=Little%20Demon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
