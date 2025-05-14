@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Wouldn't it be nice to have a strong mind, one that can get rid of the fear you feel?"
+> "When a person lies, what is important is not the lie itself. No, it is their reason. Their why."
 
-&mdash; [**Little Demon**](https://myanimelist.net/character.php?q=Little%20Demon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
