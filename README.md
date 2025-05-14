@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Smiles are what connect people! It allows them to communicate through their souls! Connected souls will never lose to the strength that only relies on control! Dueling is the same! Only strength alone doesn't speak to anyone's soul!"
+> "Willpower alone isn't enough in battle."
 
-&mdash; [**Yuzu Hiiragi**](https://myanimelist.net/character.php?q=Yuzu%20Hiiragi&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
