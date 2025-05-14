@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Such words are wasted on someone like me."
+> "A city far away from my homeland.  There, after becoming acquainted with strangers, have I changed, perhaps?  That uncontrollable impulse I harbored within me...Has it faded away now, I wonder? What exactly am I doing here in this city?"
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Vorona**](https://myanimelist.net/character.php?q=Vorona&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
