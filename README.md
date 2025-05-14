@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you've got energy to spend on feeling guilty, then use it to show your gratitude."
+> "An apple a day keeps any one away, if you throw it hard enough!"
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Meikyuu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Meikyuu&cat=all)
+&mdash; [**Marie Mjolnir**](https://myanimelist.net/character.php?q=Marie%20Mjolnir&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
