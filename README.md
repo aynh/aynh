@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Never show your stupid self in public."
+> "When people are faced with a situation they don't understand, it's easy for fear to take hold."
 
-&mdash; [**Kanade Maki**](https://myanimelist.net/character.php?q=Kanade%20Maki&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
