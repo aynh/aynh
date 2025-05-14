@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Miracles aren't free. When you wish for hope, it creates an equivalent despair. That's how the balance of this world is preserved."
+> "My happiness can only be made by my own hands. My happiness doesn't depend on anyone but me!"
 
-&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
