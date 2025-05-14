@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't cry. It will make your face even uglier."
+> "Never show your stupid self in public."
 
-&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Kanade Maki**](https://myanimelist.net/character.php?q=Kanade%20Maki&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
