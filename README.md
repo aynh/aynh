@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The true power of us human beings is that we can change ourselves on our own."
+> "I must protect my fledging Utopia."
 
-&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One-Punch Man**](https://myanimelist.net/search/all?q=One-Punch%20Man&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
