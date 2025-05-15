@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The idea that you can't die yet because you still have something to protect... that is the foolish illusion of the weak."
+> "Do you know the truth of the battlefield? Kill a man normally, and it's considered a crime. But kill many on the battlefield and you become a hero!"
 
-&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Luciano Bradley**](https://myanimelist.net/character.php?q=Luciano%20Bradley&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
