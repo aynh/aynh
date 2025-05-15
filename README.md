@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was going to let you go. After all, there aren't many of us out there, but you're just such a pain in the ass."
+> "Leave her out of this... who we let in this house is really none of your concern. You're the one who doesn't belong here. (to Kyo)"
 
-&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
