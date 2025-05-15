@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How weak the mind is when it wants to forget. Maybe you didn't forget. Maybe you're lying. Is it a lie you tell everyone around you, or perhaps a lie you tell yourself?"
+> "I was going to let you go. After all, there aren't many of us out there, but you're just such a pain in the ass."
 
-&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
