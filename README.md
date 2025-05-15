@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "From the moment I first saw you, you’ve looked so sad. Your face shows so much pain. Your eyes were like mine. They looked so sad, so hurt, so lonely… as if you couldn’t stand it."
+> "Don't succumb to panic. Only those who see the bigger picture win."
 
-&mdash; [**Claymore**](https://myanimelist.net/character.php?q=Claymore&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
