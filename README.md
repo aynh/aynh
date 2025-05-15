@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Leave her out of this... who we let in this house is really none of your concern. You're the one who doesn't belong here. (to Kyo)"
+> "If the only way to be granted life in this world is to surrender my body and soul to insanity, then I shall choose to meet my doom!"
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Keigo Oonishi**](https://myanimelist.net/character.php?q=Keigo%20Oonishi&cat=character), [**Texhnolyze**](https://myanimelist.net/search/all?q=Texhnolyze&cat=all)
