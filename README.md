@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[thinking] I only take family as patients and I still get worked to death."
+> "Being able to cry for his companion. I was thinking you couldn't cry, nor did you have a heart. But in that case why... even a little... don't you share that feeling... with all the people you kill !!"
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Gon Freecss**](https://myanimelist.net/character.php?q=Gon%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
