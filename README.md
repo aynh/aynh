@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't succumb to panic. Only those who see the bigger picture win."
+> "The world offers up a choice to live or die. The survival of the fittest that's the only governing law this world recognizes."
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
