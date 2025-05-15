@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's ridiculous. People usually have a stereotypical idea, or an assumption like that and that's what creates a blind spot"
+> "The true power of us human beings is that we can change ourselves on our own."
 
-&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One-Punch Man**](https://myanimelist.net/search/all?q=One-Punch%20Man&cat=all)
