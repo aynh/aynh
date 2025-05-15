@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why didn't you take me with you!? Yoruichi?"
+> "Senpai, take me to the art museum again. Next time, I'll carefully listen to what you say. Please feed me worms!"
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Noda Megumi**](https://myanimelist.net/character.php?q=Noda%20Megumi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
