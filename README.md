@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I'm protecting someone, I won't let her die, and if I'm attacking, I'll cut you."
+> "The idea that you can't die yet because you still have something to protect... that is the foolish illusion of the weak."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
