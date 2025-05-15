@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Senpai, take me to the art museum again. Next time, I'll carefully listen to what you say. Please feed me worms!"
+> "I have not changed at all. There were two of me to begin with. It was merely a swap between us. I have no intent on hiding this. Whether or not you believe it is up to you, Tetsuya. However, if you want to call it a 'change', then that was because it was necessary. The team did not change because I had changed. I changed because the team had changed."
 
-&mdash; [**Noda Megumi**](https://myanimelist.net/character.php?q=Noda%20Megumi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
+&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko's Basketball TV 3**](https://myanimelist.net/search/all?q=Kuroko's%20Basketball%20TV%203&cat=all)
