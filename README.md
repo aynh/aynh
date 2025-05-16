@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Isn’t it fine as long as you find it? Isn’t it fine as long as you find the next fun and happy moments again?"
+> "One can evoke 'extraordinary' abilities if one focuses all energy on just one point."
 
-&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Shindo Iroha**](https://myanimelist.net/character.php?q=Shindo%20Iroha&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
