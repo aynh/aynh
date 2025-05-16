@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Alucard* Demons do not cry... You became a demon, because you couldn't cry anymore, right? Humans cry, and when their tears finally run dry, there is nothing left, but a demon, nor a monster, and one finally prayer for death..."
+> "People are beings where a love of what's right goes hand in hand with a desire to do all manner of evil acts."
 
-&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Yuuki Shinjuurou**](https://myanimelist.net/character.php?q=Yuuki%20Shinjuurou&cat=character), [**Un-Go**](https://myanimelist.net/search/all?q=Un-Go&cat=all)
