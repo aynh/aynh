@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If anybody's out there, you can come out. And if you're a monster or a ghost, you can stay where you are, and we won't bother you."
+> "It's been a while... Byakuya-bo."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
