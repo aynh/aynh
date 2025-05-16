@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I can't even manage a polite smile, I'll be in trouble in the real world."
+> "Who falls for who depends completely on the person. If there are a hundred people, there are a hundred ways to love... There never is one absolute form of love."
 
-&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Nenji Kashiwazaki**](https://myanimelist.net/character.php?q=Nenji%20Kashiwazaki&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
