@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let those who seek death find it."
+> "I have told you before, I'm an avenger. I don't care about this test, Chunin or whatever. 'Am I strong?' that's the answer I want."
 
-&mdash; [**Father Willibald**](https://myanimelist.net/character.php?q=Father%20Willibald&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
