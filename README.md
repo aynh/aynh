@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you are miserable, you need something that is even more miserable than you to feel good about yourself."
+> "When a human is victorious is when they're most vulnerable."
 
-&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
