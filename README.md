@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's been a while... Byakuya-bo."
+> "Isn’t it fine as long as you find it? Isn’t it fine as long as you find the next fun and happy moments again?"
 
-&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
