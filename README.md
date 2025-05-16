@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One can evoke 'extraordinary' abilities if one focuses all energy on just one point."
+> "If I can't even manage a polite smile, I'll be in trouble in the real world."
 
-&mdash; [**Shindo Iroha**](https://myanimelist.net/character.php?q=Shindo%20Iroha&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
