@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will defeat him. It may cost my life to do it. However, if I survive, I'll make a promise. The same promise as that time, on the same thing as that time."
+> "My motto is to be stronger than yesterday, if I have to I'll be stronger than half a day ago, even a minute ago!"
 
-&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Rock Lee**](https://myanimelist.net/character.php?q=Rock%20Lee&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
