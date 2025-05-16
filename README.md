@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't exactly fight a war with a big smile on my face."
+> "Let those who seek death find it."
 
-&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Father Willibald**](https://myanimelist.net/character.php?q=Father%20Willibald&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
