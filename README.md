@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The true mind can weather all lies and illusions without being lost. The true heart can touch the poison of hatred without being harmed. From beginningless time, darkness thrives in the void, but always yields to purifying light."
+> "*to Alucard* Demons do not cry... You became a demon, because you couldn't cry anymore, right? Humans cry, and when their tears finally run dry, there is nothing left, but a demon, nor a monster, and one finally prayer for death..."
 
-&mdash; [**Lion Turtle**](https://myanimelist.net/character.php?q=Lion%20Turtle&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
