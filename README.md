@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was feeling down, but you distracted me by subjecting me to your selfish whims. There are times when selfishness can save a person."
+> "Human potential for evolution is limitless."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Netero**](https://myanimelist.net/character.php?q=Netero&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
