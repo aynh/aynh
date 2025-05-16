@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who falls for who depends completely on the person. If there are a hundred people, there are a hundred ways to love... There never is one absolute form of love."
+> "When you are miserable, you need something that is even more miserable than you to feel good about yourself."
 
-&mdash; [**Nenji Kashiwazaki**](https://myanimelist.net/character.php?q=Nenji%20Kashiwazaki&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
