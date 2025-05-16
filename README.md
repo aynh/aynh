@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So, you don't like to get hit, huh? Well, you're about to have a very bad day."
+> "Life isn't about counting all the things you've lost, It's about increasing the number of important things in it."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Tsukamoto Tsukushi**](https://myanimelist.net/character.php?q=Tsukamoto%20Tsukushi&cat=character), [**Days TV**](https://myanimelist.net/search/all?q=Days%20TV&cat=all)
