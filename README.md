@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My motto is to be stronger than yesterday, if I have to I'll be stronger than half a day ago, even a minute ago!"
+> "I can't exactly fight a war with a big smile on my face."
 
-&mdash; [**Rock Lee**](https://myanimelist.net/character.php?q=Rock%20Lee&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
