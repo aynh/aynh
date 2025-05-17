@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They have no faces, no mouths... Their slimy bodies are completely hairless! They are... the skinned chickens!... Or you could just say they're chickens."
+> "My mom told me, it's better to trust people than to doubt them. She said that people aren't born with kind hearts. When we're born, all we have are desires for food and material things. Selfish instincts, I guess. But she said that kindness is something that grows inside of each person's body, but it's up to us to nurture that kindness in our hearts. That's why kindness is different for every person."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
