@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Atone for my sins? [...] I have no sins to atone for, nor have I forced such a meaningless concept on anyone."
+> "When something impossible happens, there are only two possibilities. Either your assumptions are wrong, or you have gone crazy."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Kougami Shinya**](https://myanimelist.net/character.php?q=Kougami%20Shinya&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
