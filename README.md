@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My mom told me, it's better to trust people than to doubt them. She said that people aren't born with kind hearts. When we're born, all we have are desires for food and material things. Selfish instincts, I guess. But she said that kindness is something that grows inside of each person's body, but it's up to us to nurture that kindness in our hearts. That's why kindness is different for every person."
+> "When you notice an insect on the ground, do you stop to consider it a fool? The life of an insect is so beneath you that it would be a waste of your time to even consider judging it. That would be an accurate summation of my feelings towards you, humans."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Father**](https://myanimelist.net/character.php?q=Father&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
