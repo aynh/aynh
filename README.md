@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't be stupid. You're just a human. So back off, shut up, and butt out. *to Kagome*"
+> "I would rather be a brainless monkey than a heartless monster. (To Frieza)"
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
