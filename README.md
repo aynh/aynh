@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At times, I feel as though the whole world is gray, as though time is standing still. But time never stops. It moves forward endlessly, as surely as bodies buried in the ground will one day become white bones. Listen, it's always you who stops time. If you stop in fear of the future - you gain nothing, and nothing begins. You spend your life as though already dead. Whether you wish it to or not - time never stops. That's why there is nothing more interesting than this world. Don't be too negative. You haven't become ashes just yet. You have your flesh and blood, and your bones are supporting you."
+> "Do you have enough swords, King of Heroes?"
 
-&mdash; [**Sakurako Kujō**](https://myanimelist.net/character.php?q=Sakurako%20Kuj%C5%8D&cat=character), [**Sakurako-san no Ashioto ni wa Shitai ga Umatteiru**](https://myanimelist.net/search/all?q=Sakurako-san%20no%20Ashioto%20ni%20wa%20Shitai%20ga%20Umatteiru&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
