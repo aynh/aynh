@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you have enough swords, King of Heroes?"
+> "They have no faces, no mouths... Their slimy bodies are completely hairless! They are... the skinned chickens!... Or you could just say they're chickens."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
