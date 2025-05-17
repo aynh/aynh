@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Survivability takes priority."
+> "You got away with just physical damage, but I'm going to take CRITICAL MENTAL DAMAGE!"
 
-&mdash; [**Misato Katsuragi**](https://myanimelist.net/character.php?q=Misato%20Katsuragi&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Ooyama**](https://myanimelist.net/character.php?q=Ooyama&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
