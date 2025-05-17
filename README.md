@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now you're suddenly in a big rush to go? What's the point in hurrying, we're already three hours late."
+> "We as humans have the power to do such, but whether we grab on to the thread or not is a choice we make."
 
-&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
