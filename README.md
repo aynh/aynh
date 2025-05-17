@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When something impossible happens, there are only two possibilities. Either your assumptions are wrong, or you have gone crazy."
+> "A wall's a wall and there's no wall I can't punch a hole through!"
 
-&mdash; [**Kougami Shinya**](https://myanimelist.net/character.php?q=Kougami%20Shinya&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Kiba Inuzuka**](https://myanimelist.net/character.php?q=Kiba%20Inuzuka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
