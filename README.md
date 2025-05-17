@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You got away with just physical damage, but I'm going to take CRITICAL MENTAL DAMAGE!"
+> "You can die anytime, but living takes true courage."
 
-&mdash; [**Ooyama**](https://myanimelist.net/character.php?q=Ooyama&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
