@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Levels are just numbers. In this world, strength is just an illusion. There are more important things."
+> "[looking at a porno magazine] Geez, doing it with a squid."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
