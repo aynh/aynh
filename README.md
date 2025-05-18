@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The word 'ignorant' has a nice ring to it, so I don't mind being called that, but 'incompetent' is going just a bit too far..."
+> "The natural enemy of the strong is the weak, but the natural enemy of the weak is not the strong - it is the ones that are even weaker."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
