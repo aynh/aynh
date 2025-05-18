@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There has never been a report about a stomach ache or any other related medical trauma from swallowing your pride."
+> "There's only one certainty in life. A strong man stands above and conquers all!"
 
-&mdash; [**Daisuke Aramaki**](https://myanimelist.net/character.php?q=Daisuke%20Aramaki&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
