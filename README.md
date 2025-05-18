@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, in the end, people come home to the people they love most."
+> "To believe in someone can be a dangerous thing."
 
-&mdash; [**Karan**](https://myanimelist.net/character.php?q=Karan&cat=character), [**No.6**](https://myanimelist.net/search/all?q=No.6&cat=all)
+&mdash; [**TimeKeeper**](https://myanimelist.net/character.php?q=TimeKeeper&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
