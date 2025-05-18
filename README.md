@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think that 'truth' is something that is covered up most of the time."
+> "The word 'ignorant' has a nice ring to it, so I don't mind being called that, but 'incompetent' is going just a bit too far..."
 
-&mdash; [**Lloyd Asplund**](https://myanimelist.net/character.php?q=Lloyd%20Asplund&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
