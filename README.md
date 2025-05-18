@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you fall in love with someone, you want everything from them. Its only natural to feel that way... but real love can only happen when you want what's best for the other person and never ask for anything in return."
+> "Nothing can remain the same forever, because if you don't change you can't improve... Facing this inescapable ''reality'' if you don't grow... You'll be crushed... For everyone to ascend and accomplish their dreams. They must grow."
 
-&mdash; [**Nobuo Terashima**](https://myanimelist.net/character.php?q=Nobuo%20Terashima&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
