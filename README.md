@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm Black Star. I'm on a whole different level than you. I'm a big man! I beat death! Who else can say that?!"
+> "NEEDLENOGGIN!"
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
