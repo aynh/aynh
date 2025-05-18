@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humming and the nightly news share a very tight connection indeed."
+> "Levels are just numbers. In this world, strength is just an illusion. There are more important things."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
