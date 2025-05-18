@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You said I should have forgotten everything and lived as a human, but... there's no way I could do that. At that time, Teresa was everything to me. Everything I lost... my life, my voice, even my joy in living... Teresa gave those back to me. Teresa gave me everything. So I had no choice but to move forward. I wasn't strong enough to forget all that and continue living."
+> "These monsters dare to enter this house built on blood and honor! I will see them all roast in the deepest pits of Hell!"
 
-&mdash; [**Clare**](https://myanimelist.net/character.php?q=Clare&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Integra Hellsing**](https://myanimelist.net/character.php?q=Integra%20Hellsing&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
