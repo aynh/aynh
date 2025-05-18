@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who lack resolve are incapable of even wiping away their own tears."
+> "I think that 'truth' is something that is covered up most of the time."
 
-&mdash; [**Satsuki Kiryuuin**](https://myanimelist.net/character.php?q=Satsuki%20Kiryuuin&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
+&mdash; [**Lloyd Asplund**](https://myanimelist.net/character.php?q=Lloyd%20Asplund&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
