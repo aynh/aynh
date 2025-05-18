@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A wall's a wall and there's no wall I can't punch a hole through!"
+> "You said I should have forgotten everything and lived as a human, but... there's no way I could do that. At that time, Teresa was everything to me. Everything I lost... my life, my voice, even my joy in living... Teresa gave those back to me. Teresa gave me everything. So I had no choice but to move forward. I wasn't strong enough to forget all that and continue living."
 
-&mdash; [**Kiba Inuzuka**](https://myanimelist.net/character.php?q=Kiba%20Inuzuka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Clare**](https://myanimelist.net/character.php?q=Clare&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
