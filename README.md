@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To believe in someone can be a dangerous thing."
+> "It's something that appear on the chests of illegal contractees."
 
-&mdash; [**TimeKeeper**](https://myanimelist.net/character.php?q=TimeKeeper&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
+&mdash; [**Gilbert Nightray**](https://myanimelist.net/character.php?q=Gilbert%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
