@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I do intend to pay you for your services."
+> "I'm Black Star. I'm on a whole different level than you. I'm a big man! I beat death! Who else can say that?!"
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
