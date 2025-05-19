@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look, you.  All this talk about monsters...that's what people have called me ever since I was a kid.  I've snapped and lost sight of everything around me, and I've made trouble for Celty more than once or twice.  Even so, she still heard me out, without interrupting.  And so now it's my turn to hear her out, all right?"
+> "Why do people lie? It isn't only because they struggle against each other, it's also because there is something that they're seeking."
 
-&mdash; [**Shizuo Heiwajima**](https://myanimelist.net/character.php?q=Shizuo%20Heiwajima&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
