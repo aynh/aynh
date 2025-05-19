@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We can't waste time worrying about the what-if's. Rukia's execution date has been changed to noon tomorrow. So what? If the deadline has been changed to tomorrow... I'll just have to finish today!"
+> "Look, you.  All this talk about monsters...that's what people have called me ever since I was a kid.  I've snapped and lost sight of everything around me, and I've made trouble for Celty more than once or twice.  Even so, she still heard me out, without interrupting.  And so now it's my turn to hear her out, all right?"
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Shizuo Heiwajima**](https://myanimelist.net/character.php?q=Shizuo%20Heiwajima&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
