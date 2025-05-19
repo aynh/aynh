@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh right, most talented artists become famous after they're dead, I'll make you great by taking you to the cemetery called prison!"
+> "Although my life hasn't been very fortunate until now, I'm glad if I caught your eye because of that misfortune..."
 
-&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
