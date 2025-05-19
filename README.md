@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The present will always be different from the past. That's what makes life good and at the same time sad. That sadness in turn gives our everyday life some flavor. Just like coffee."
+> "If we understood how other people felt, then nobody would ever start wars!"
 
-&mdash; [**Tamako Love Story**](https://myanimelist.net/character.php?q=Tamako%20Love%20Story&cat=character), [**Tamako Love Story**](https://myanimelist.net/search/all?q=Tamako%20Love%20Story&cat=all)
+&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
