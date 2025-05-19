@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someday... no matter how cold it is now... the snow will melt. Without fail."
+> "To kill is an action which overflows in everyday life. In actuality the more you try to be accepted, the more you kill your unrestrained self."
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
