@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It looked like it was going to be germ warfare, but the Bacterian fight got me ready for that."
+> "Only two kinds of people exist in this world, those who steal and those who are stolen from."
 
-&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
