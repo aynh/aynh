@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Agh, it penetrates my brain!"
+> "Oh right, most talented artists become famous after they're dead, I'll make you great by taking you to the cemetery called prison!"
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
