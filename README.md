@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Country of birth, time period, parents, location... various factors make people's lives unequal from the very beginning."
+> "You know, isn't it said that life has its ups and downs? It's fun because downs come after ups, but if life was full of downs, wouldn't it get boring?"
 
-&mdash; [**Death Parade**](https://myanimelist.net/character.php?q=Death%20Parade&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
