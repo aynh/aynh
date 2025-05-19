@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want you to understand something. If you should lose, not only does your future end, but also the future of the one you are trying to protect. Defeat isn't an option for the sword that protects others. You should keep that thought engraved in your heart."
+> "Country of birth, time period, parents, location... various factors make people's lives unequal from the very beginning."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Death Parade**](https://myanimelist.net/character.php?q=Death%20Parade&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
