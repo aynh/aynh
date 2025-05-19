@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So, are you stupid enough to fall for such a stupid trap that such stupid people set up?"
+> "What people seek when the depths of despair and death are upon them, may be the silhouettes of the ones they love."
 
-&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Casshern**](https://myanimelist.net/character.php?q=Casshern&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
