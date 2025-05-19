@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I like you. I came here to get rejected properly. To end this, so I can move forward. To make me convinced of this broken heart, I want to get rejected properly."
+> "Those who get fooled are partially at fault."
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
