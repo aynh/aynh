@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I like you. I came here to get rejected properly. To end this, so I can move forward. To make me convinced of this broken heart, I want to get rejected properly."
+> "[To Kira] You are the dream of humanity, the Ultimate Coordinator. It was in pursuit of that dream that Dr. Hibiki created the artificial womb. And you are the only viable child it ever produced. For that result, a very large number of your siblings were sacrificed."
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
