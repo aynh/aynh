@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wanted to hurt you, make you suffer, and make sure that you'd never forget me."
+> "Someday... no matter how cold it is now... the snow will melt. Without fail."
 
-&mdash; [**Miu Asakura**](https://myanimelist.net/character.php?q=Miu%20Asakura&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
