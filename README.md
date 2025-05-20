@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop coming after the jewel. I do not wish to waste more arrows."
+> "I wanted to hurt you, make you suffer, and make sure that you'd never forget me."
 
-&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Miu Asakura**](https://myanimelist.net/character.php?q=Miu%20Asakura&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
