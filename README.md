@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey bitch, get off me! I'm supposed to be on top!"
+> "Before meeting you, I didn't know what it was like to feel lonely. I never even considered myself to be alone. That's because when you feel lonely, it means that there is someone for you to miss."
 
-&mdash; [**Jan Valentine**](https://myanimelist.net/character.php?q=Jan%20Valentine&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
