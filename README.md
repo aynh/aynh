@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A former teacher of mine, Okabe-sensei, was always saying this to me: 'To believe people is to doubt them.'... meaning if you keep doubting people and searching what's inside them, sooner or later you're bound to understand something about them. And when you do, you'll be able to entrust something to them. That is what it means to trust and believe."
+> "Whenever I get up in the morning, I always think to myself, 'Am I really the same person I was yesterday?' For example, just as a computer loads its OS into memory and boots up each time it restarts, is it possible I'm just booting up the person called 'Saikawa Sohuei' each morning and trying to play that role?"
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Souhei Saikawa**](https://myanimelist.net/character.php?q=Souhei%20Saikawa&cat=character), [**Subete ga F ni Naru**](https://myanimelist.net/search/all?q=Subete%20ga%20F%20ni%20Naru&cat=all)
