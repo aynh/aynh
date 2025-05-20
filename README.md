@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I felt like I was watching a dream I'd never wake up from. Before I knew it, the dream was all over."
+> "I like you. I came here to get rejected properly. To end this, so I can move forward. To make me convinced of this broken heart, I want to get rejected properly."
 
-&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
