@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you act only on what you should do without heed for what you want to do, you're nothing more than a machine, a phenomenon."
+> "Sometimes your biggest effort will be ignored, but your smallest mistake will be judged."
 
-&mdash; [**Kaminski Natalia**](https://myanimelist.net/character.php?q=Kaminski%20Natalia&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
