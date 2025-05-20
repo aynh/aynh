@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes your biggest effort will be ignored, but your smallest mistake will be judged."
+> "A former teacher of mine, Okabe-sensei, was always saying this to me: 'To believe people is to doubt them.'... meaning if you keep doubting people and searching what's inside them, sooner or later you're bound to understand something about them. And when you do, you'll be able to entrust something to them. That is what it means to trust and believe."
 
-&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
