@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I pushed him away and hurt him yet he still stood by my side.  It's not a sane relationship. To be saved by seeing his hurt expression."
+> "I felt like I was watching a dream I'd never wake up from. Before I knew it, the dream was all over."
 
-&mdash; [**Rika Harada**](https://myanimelist.net/character.php?q=Rika%20Harada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
