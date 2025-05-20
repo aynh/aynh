@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "AHA-HA-HA! Alchemists are scientists. We don't believe in unprovable concepts like 'God'. *Rose looks angry* We strive to uncover the principles of creation in the matter of the world, to pursue truth... *gazes at Leto statue* it's ironic that we scientists... who don't believe in God... are in a sense the closest things to him."
+> "The words you've said cannot be taken back. So you must take action to paint over what you have already said."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Dyne Woodwonder**](https://myanimelist.net/character.php?q=Dyne%20Woodwonder&cat=character), [**Overlord**](https://myanimelist.net/search/all?q=Overlord&cat=all)
