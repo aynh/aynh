@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment people come to know love, they run the risk of carrying hate."
+> "Shining brightly even for a split second is better than living a dull-grey life for eternity."
 
-&mdash; [**Obito Uchiha**](https://myanimelist.net/character.php?q=Obito%20Uchiha&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
+&mdash; [**Jing**](https://myanimelist.net/character.php?q=Jing&cat=character), [**Jing: King of Bandits**](https://myanimelist.net/search/all?q=Jing%3A%20King%20of%20Bandits&cat=all)
