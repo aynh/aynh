@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Kira] You are the dream of humanity, the Ultimate Coordinator. It was in pursuit of that dream that Dr. Hibiki created the artificial womb. And you are the only viable child it ever produced. For that result, a very large number of your siblings were sacrificed."
+> "Once you taste poison, you might as well finish the meal. If it comes to that you would make as fine a dish as any."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
