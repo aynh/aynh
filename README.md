@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Shining brightly even for a split second is better than living a dull-grey life for eternity."
+> "We fail. We make mistakes. But each time we do, I think we become stronger."
 
-&mdash; [**Jing**](https://myanimelist.net/character.php?q=Jing&cat=character), [**Jing: King of Bandits**](https://myanimelist.net/search/all?q=Jing%3A%20King%20of%20Bandits&cat=all)
+&mdash; [**Kyouka Katagiri**](https://myanimelist.net/character.php?q=Kyouka%20Katagiri&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
