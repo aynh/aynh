@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you taste poison, you might as well finish the meal. If it comes to that you would make as fine a dish as any."
+> "Stop coming after the jewel. I do not wish to waste more arrows."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
