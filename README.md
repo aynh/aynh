@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Komamura] Don't make me laugh. Aizen-sama has given me something far more powerful than a bankai."
+> "If you act only on what you should do without heed for what you want to do, you're nothing more than a machine, a phenomenon."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kaminski Natalia**](https://myanimelist.net/character.php?q=Kaminski%20Natalia&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
