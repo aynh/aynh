@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "These girls are pixels. Data. I know that. So how would you describe the girl you like? Protein? Calcium? A pointless argument. What’s important is that there’s love. Isn’t that what you people always say?"
+> "[to Komamura] Don't make me laugh. Aizen-sama has given me something far more powerful than a bankai."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
