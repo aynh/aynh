@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Before meeting you, I didn't know what it was like to feel lonely. I never even considered myself to be alone. That's because when you feel lonely, it means that there is someone for you to miss."
+> "I'm not stupid. I'm just too lazy to show how smart I am."
 
-&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
