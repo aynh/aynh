@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I put a propulsion engine under your seat just in case you messed up."
+> "If you pity my existence, please eat me."
 
-&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Loaf**](https://myanimelist.net/character.php?q=Loaf&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
