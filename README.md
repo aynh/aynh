@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Friendship might begin with getting picked, but I don't think that you can stop picking for yourself either. But in order to choose, there are things you need to know. And in order to get picked, you need them to know certain things."
+> "Friends are connected by heart! You can't just rinse off something that's stained on your soul!"
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Ling Yao**](https://myanimelist.net/character.php?q=Ling%20Yao&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
