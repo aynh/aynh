@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The human heart is the source of all our power... We fight with the power of our hearts."
+> "The world runs on power. Everything is determined by the superior power. You are weak. That is why you lose."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Ayato Kirishima**](https://myanimelist.net/character.php?q=Ayato%20Kirishima&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
