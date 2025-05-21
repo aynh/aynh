@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Friends are connected by heart! You can't just rinse off something that's stained on your soul!"
+> "I wasn’t scared that I’d be rejected, I was scared that if I said how I felt, all of our relationships would change."
 
-&mdash; [**Ling Yao**](https://myanimelist.net/character.php?q=Ling%20Yao&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Chisaki Hiradaira**](https://myanimelist.net/character.php?q=Chisaki%20Hiradaira&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
