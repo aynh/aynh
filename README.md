@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You think you're special? You're not. Everyone lies, everyone hides things... Nobody makes it through this life being completely honest."
+> "Although my heart may be weak, it’s not alone. It’s grom with each new experience. And it’s found a home with all the friends I’ve made. I’ve become a part of their heart, just as they’ve become part of mine. And if they think of me now and then, if they don’t forget me, then our hearts will be one. I don’t need a weapon. My friends are my power!"
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**Kingdom Hearts**](https://myanimelist.net/search/all?q=Kingdom%20Hearts&cat=all)
