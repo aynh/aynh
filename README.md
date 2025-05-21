@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The death of a culture, is the death of a people."
+> "Trunks, I never hugged you as a baby... let me hug you."
 
-&mdash; [**Miles**](https://myanimelist.net/character.php?q=Miles&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
