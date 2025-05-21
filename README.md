@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wasn’t scared that I’d be rejected, I was scared that if I said how I felt, all of our relationships would change."
+> "The death of a culture, is the death of a people."
 
-&mdash; [**Chisaki Hiradaira**](https://myanimelist.net/character.php?q=Chisaki%20Hiradaira&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
+&mdash; [**Miles**](https://myanimelist.net/character.php?q=Miles&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
