@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The words you've said cannot be taken back. So you must take action to paint over what you have already said."
+> "Friendship might begin with getting picked, but I don't think that you can stop picking for yourself either. But in order to choose, there are things you need to know. And in order to get picked, you need them to know certain things."
 
-&mdash; [**Dyne Woodwonder**](https://myanimelist.net/character.php?q=Dyne%20Woodwonder&cat=character), [**Overlord**](https://myanimelist.net/search/all?q=Overlord&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
