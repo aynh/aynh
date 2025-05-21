@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To lose the woman you loved, not even being able to grieve… if not a tragedy, what is it?"
+> "That kid's good point is that he feels he doesn't have much skill. It's this kind of person that will keep on improving."
 
-&mdash; [**Hakaze Kusaribe**](https://myanimelist.net/character.php?q=Hakaze%20Kusaribe&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Mizuno Tatsuya**](https://myanimelist.net/character.php?q=Mizuno%20Tatsuya&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
