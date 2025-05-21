@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People make a lot of mistakes, and strength is necessary to straighten those out."
+> "Life and death are like light and shadow. They're both always there. But people don't like thinking about death, so subconsciously, they always look away from it."
 
-&mdash; [**Yahiro Samukawa**](https://myanimelist.net/character.php?q=Yahiro%20Samukawa&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
