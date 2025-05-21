@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Although my heart may be weak, it’s not alone. It’s grom with each new experience. And it’s found a home with all the friends I’ve made. I’ve become a part of their heart, just as they’ve become part of mine. And if they think of me now and then, if they don’t forget me, then our hearts will be one. I don’t need a weapon. My friends are my power!"
+> "I put a propulsion engine under your seat just in case you messed up."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**Kingdom Hearts**](https://myanimelist.net/search/all?q=Kingdom%20Hearts&cat=all)
+&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
