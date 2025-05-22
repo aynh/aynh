@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you truly desire greatness, you must first know what makes you weak!"
+> "You don't dress stylishly or put on makeup to impress guys. You do it to keep other girls in their place."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Rika Yoshitake**](https://myanimelist.net/character.php?q=Rika%20Yoshitake&cat=character), [**Genshiken: Second Generation**](https://myanimelist.net/search/all?q=Genshiken%3A%20Second%20Generation&cat=all)
