@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We have walked through the darkness of this world, that’s why we are able to see even a sliver of light."
+> "After all this time, after being by your side and always looking after you I failed to make a place for myself deep within your heart."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Masafumi Takeuchi**](https://myanimelist.net/character.php?q=Masafumi%20Takeuchi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
