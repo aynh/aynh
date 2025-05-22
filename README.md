@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Goodbye' is the word that I've come to hate the most."
+> "Does this man look like the legendary gunman Vash the Stampede? That droopy-eyed, weak-looking, bristle-headed, promiscuous-looking donut freak of a man?"
 
-&mdash; [**Goro Shigeno**](https://myanimelist.net/character.php?q=Goro%20Shigeno&cat=character), [**Major**](https://myanimelist.net/search/all?q=Major&cat=all)
+&mdash; [**Meryl Stryfe**](https://myanimelist.net/character.php?q=Meryl%20Stryfe&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
