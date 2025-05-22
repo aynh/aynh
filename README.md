@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To live is to die, to die is to live. Pure is unpure, unpure is pure."
+> "You sicko...I knew you were depraved, but I never imagined how low you could sink! (to shigure)"
 
-&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
