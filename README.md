@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't be too negative. You haven't become ashes just yet. You have your flesh and blood, and your bones are supporting you."
+> "Like God, you mean? That might be pleasurable in its own way, but unfortunately I'm not into being an umpire or a referee, as I can't genuinely enjoy the game unless I'm part of it. And I love this game that people call 'life' from the bottom of my heart. That's why I'd like to continue to participate in it as a player, forever and ever."
 
-&mdash; [**Sakurako Kujō**](https://myanimelist.net/character.php?q=Sakurako%20Kuj%C5%8D&cat=character), [**Sakurako-san no Ashioto ni wa Shitai ga Umatteiru**](https://myanimelist.net/search/all?q=Sakurako-san%20no%20Ashioto%20ni%20wa%20Shitai%20ga%20Umatteiru&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
