@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans don’t see what they don’t want to see. No one wants to be put down. That’s why people do nothing even when they do know something is happening."
+> "You're a team player, a save-the-day superhero... I hate people like you."
 
-&mdash; [**Kouta Hirano**](https://myanimelist.net/character.php?q=Kouta%20Hirano&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
