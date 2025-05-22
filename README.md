@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world runs on power. Everything is determined by the superior power. You are weak. That is why you lose."
+> "Look around you, and all you will see are people the world would be better off without."
 
-&mdash; [**Ayato Kirishima**](https://myanimelist.net/character.php?q=Ayato%20Kirishima&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
