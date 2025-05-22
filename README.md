@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After all this time, after being by your side and always looking after you I failed to make a place for myself deep within your heart."
+> "To live is to die, to die is to live. Pure is unpure, unpure is pure."
 
-&mdash; [**Masafumi Takeuchi**](https://myanimelist.net/character.php?q=Masafumi%20Takeuchi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
