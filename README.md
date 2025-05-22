@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Can it be that I'm afraid or is it merely I know not my own limit?"
+> "Magic is anything you can think of. It can be felt in infinite ways... As light, as darkness, as red, as blue. It is living freely, together along side Fairy Tail."
 
-&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
