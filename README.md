@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Like God, you mean? That might be pleasurable in its own way, but unfortunately I'm not into being an umpire or a referee, as I can't genuinely enjoy the game unless I'm part of it. And I love this game that people call 'life' from the bottom of my heart. That's why I'd like to continue to participate in it as a player, forever and ever."
+> "'Goodbye' is the word that I've come to hate the most."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Goro Shigeno**](https://myanimelist.net/character.php?q=Goro%20Shigeno&cat=character), [**Major**](https://myanimelist.net/search/all?q=Major&cat=all)
