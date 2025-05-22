@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not knowing everything in this world is fun."
+> "All meetings must end with partings."
 
-&mdash; [**Akise Aru**](https://myanimelist.net/character.php?q=Akise%20Aru&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Dera Mochimazzi**](https://myanimelist.net/character.php?q=Dera%20Mochimazzi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
