@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’d rather have my physical pain exceed my mental pain than the other way around. By hurting myself just enough, I could turn my attention to that."
+> "Get over here, Zuko. Being part of the group also means being part of group hugs."
 
-&mdash; [**Kusonoki**](https://myanimelist.net/character.php?q=Kusonoki&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
+&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
