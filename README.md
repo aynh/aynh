@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Forty thousand brothers could not, with all their quantity of love, make up my sum."
+> "Don't bother coming to the darkness that you don't need to see... I don't want to show you the darkness that doesn't belong to you... Don't let yourself be hurt so much anymore... Rather, let me be your strength."
 
-&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Natsume Hyuuga**](https://myanimelist.net/character.php?q=Natsume%20Hyuuga&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
