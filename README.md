@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Get over here, Zuko. Being part of the group also means being part of group hugs."
+> "The voice, the smile that still remains in his heart... all of it was a long time ago. Humans live such short lives."
 
-&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
