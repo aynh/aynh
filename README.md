@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I described him in one word, it'd be di*k[beep]!"
+> "The words you've said cannot be taken back. So you must take action to paint over what you have already said."
 
-&mdash; [**Chika Akatsuki**](https://myanimelist.net/character.php?q=Chika%20Akatsuki&cat=character), [**Zombie-Loan**](https://myanimelist.net/search/all?q=Zombie-Loan&cat=all)
+&mdash; [**Dyne Woodwonder**](https://myanimelist.net/character.php?q=Dyne%20Woodwonder&cat=character), [**Overlord**](https://myanimelist.net/search/all?q=Overlord&cat=all)
