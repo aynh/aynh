@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Besides, miracles don't exist in this world. There are only inevitabilities and accidents, and what you're going to do. That's it."
+> "I wonder... isn't it that when you become an adult, you have freedom to explore such a large world. I wonder why is it I feel that the world is so constricted at this moment."
 
-&mdash; [**Himura Yuu**](https://myanimelist.net/character.php?q=Himura%20Yuu&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Yoh Miyagi**](https://myanimelist.net/character.php?q=Yoh%20Miyagi&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
