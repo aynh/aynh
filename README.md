@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Having feelings for someone just brings sorrow to someone else. Someone always gets sacrificed and suffers. If this is what it means to fall in love, then falling in love is terrible."
+> "Skin him. Now. Barbeque the bastard!! (referring to Ayame)"
 
-&mdash; [**Hikari Sakishima**](https://myanimelist.net/character.php?q=Hikari%20Sakishima&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
