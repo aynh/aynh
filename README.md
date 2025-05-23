@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder... isn't it that when you become an adult, you have freedom to explore such a large world. I wonder why is it I feel that the world is so constricted at this moment."
+> "It may seem like we're all playing the same game, but in our minds, it is totally different."
 
-&mdash; [**Yoh Miyagi**](https://myanimelist.net/character.php?q=Yoh%20Miyagi&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Sonora Kashima**](https://myanimelist.net/character.php?q=Sonora%20Kashima&cat=character), [**Stella Jogakuin Koutou-ka C³-bu**](https://myanimelist.net/search/all?q=Stella%20Jogakuin%20Koutou-ka%20C%C2%B3-bu&cat=all)
