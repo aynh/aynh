@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you think too hard when you don't have a brain, you're going to hurt your head."
+> "I really don't get it. Why don't you tell her how you feel if you care for her so much? Why would you lie like that and keep yourself from pursuing her?"
 
-&mdash; [**Tooru Oikawa**](https://myanimelist.net/character.php?q=Tooru%20Oikawa&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Soutarou Kanou**](https://myanimelist.net/character.php?q=Soutarou%20Kanou&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
