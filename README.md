@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who'd want to date girls that talk smack about your friends?"
+> "I won’t accept it! I want to have a choice, too! I don’t want to write poems about regret."
 
-&mdash; [**Makoto Sunakawa**](https://myanimelist.net/character.php?q=Makoto%20Sunakawa&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
+&mdash; [**Sumire Hanano**](https://myanimelist.net/character.php?q=Sumire%20Hanano&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
