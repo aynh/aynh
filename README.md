@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No, not yet, now that you've made me this serious. Regret as much as you damn well want!!"
+> "Forty thousand brothers could not, with all their quantity of love, make up my sum."
 
-&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
