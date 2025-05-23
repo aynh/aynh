@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Therefore let me inform you...All of your dreams are to be thrown away."
+> "If you wanna make people dream, you've gotta start by believing in that dream yourself!"
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Seiya Kanie**](https://myanimelist.net/character.php?q=Seiya%20Kanie&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
