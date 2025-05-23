@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if it’s a coincidence, it’s wonderful when someone understands how you feel."
+> "Therefore let me inform you...All of your dreams are to be thrown away."
 
-&mdash; [**Norie Okazaki**](https://myanimelist.net/character.php?q=Norie%20Okazaki&cat=character), [**Tamayura**](https://myanimelist.net/search/all?q=Tamayura&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
