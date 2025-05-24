@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I prefer to be a humble dreamer, with visions to be realized, rather than the ruler of people with no dreams or desires."
+> "(thinking) I can't stand up...on my own. I can't go...any further. Not...all by myself."
 
-&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
