@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not sure what you're talking about, but to atone for that you got mad and decided to do this alone? Rem... Super slap! For starters, are you dumb? No, you are dumb! Listen, where I'm from there's a saying, '3 heads are better than 1.' Wait, is it 2 heads? Whatever, the point is, 3 heads, thinking together are harder to break than only 1 arrow. It means you should rely on those around you instead of thinking about stuff alone!"
+> "You remind me so much of myself from the past. I also used to think that perseveration had some credits, that it was the best way to change the world... but with that alone you cannot accomplish anything. Without power, you're doomed to become dependent on others, that's the way the world works."
 
-&mdash; [**Subaru Natsuki**](https://myanimelist.net/character.php?q=Subaru%20Natsuki&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
+&mdash; [**Akio Ohtori**](https://myanimelist.net/character.php?q=Akio%20Ohtori&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
