@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is what's inside your heart right now. A sky that has become this lovely, will not always remain sunny. There will be times when rain will fall and storms will carry on. The scenery will change, but if it is left alone, it will stay changed forever. For that, you must continue to fight, because that is to live. To live is to fight."
+> "No matter how painful, no matter how much solitary struggle awaits us, because we have joyous moments like this, we can face the challenges over and over again."
 
-&mdash; [**Shinku**](https://myanimelist.net/character.php?q=Shinku&cat=character), [**Rozen Maiden**](https://myanimelist.net/search/all?q=Rozen%20Maiden&cat=all)
+&mdash; [**Chiaki Shinichi**](https://myanimelist.net/character.php?q=Chiaki%20Shinichi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
