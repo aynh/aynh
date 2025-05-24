@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one knows what’s going to happen to the world. But I believe we have the ability to deal with that. Although we cannot change the past - we can change the future. We can change it into the world we desire."
+> "There are days when nothing goes right. There are days when you stumble and fall. There are days when you just want to cry. To cry a lot. To sleep a lot. Or even eat a lot. It's alright, as long as you pick yourself up again."
 
-&mdash; [**Saji Crossroad**](https://myanimelist.net/character.php?q=Saji%20Crossroad&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Yuki Takeya**](https://myanimelist.net/character.php?q=Yuki%20Takeya&cat=character), [**Gakkou Gurashi!**](https://myanimelist.net/search/all?q=Gakkou%20Gurashi!&cat=all)
