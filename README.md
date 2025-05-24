@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do exactly as you like. That is the true meaning of pleasure. Pleasure leads to joy and joy leads to happiness. Your path is now clear, Kirei. So clear there is no longer any need to hesitate."
+> "It's called a miracle because it doesn't happen."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Shiori Misaka**](https://myanimelist.net/character.php?q=Shiori%20Misaka&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
