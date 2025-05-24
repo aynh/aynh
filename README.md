@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are days when nothing goes right. There are days when you stumble and fall. There are days when you just want to cry. To cry a lot. To sleep a lot. Or even eat a lot. It's alright, as long as you pick yourself up again."
+> "I'm so happy I think I might die."
 
-&mdash; [**Yuki Takeya**](https://myanimelist.net/character.php?q=Yuki%20Takeya&cat=character), [**Gakkou Gurashi!**](https://myanimelist.net/search/all?q=Gakkou%20Gurashi!&cat=all)
+&mdash; [**Misaki Takahashi**](https://myanimelist.net/character.php?q=Misaki%20Takahashi&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
