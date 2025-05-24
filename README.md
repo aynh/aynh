@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how painful, no matter how much solitary struggle awaits us, because we have joyous moments like this, we can face the challenges over and over again."
+> "As long as I exist, I don't care if there's hell, or if only suffering exists there."
 
-&mdash; [**Chiaki Shinichi**](https://myanimelist.net/character.php?q=Chiaki%20Shinichi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
