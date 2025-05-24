@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop Whining! All I did was cut off your stupid legs! Summon your demons! Transform yourself! Regenerate your legs! Stand up! Pick up your gun and attack me! Do something! The night is still so young, and the real fun is yet to start! Hurry, hurry, hurry, HURRY!!!"
+> "I'm not sure what you're talking about, but to atone for that you got mad and decided to do this alone? Rem... Super slap! For starters, are you dumb? No, you are dumb! Listen, where I'm from there's a saying, '3 heads are better than 1.' Wait, is it 2 heads? Whatever, the point is, 3 heads, thinking together are harder to break than only 1 arrow. It means you should rely on those around you instead of thinking about stuff alone!"
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Subaru Natsuki**](https://myanimelist.net/character.php?q=Subaru%20Natsuki&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
