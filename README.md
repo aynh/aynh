@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being free can mean many different things, but I think it's truest meaning is having a free heart that can't be bound by anything. So no matter what choice you make, as long as you remain who you are, you will forever be free."
+> "Night is good. Appearances lose their meaning and get swallowed up by the darkness."
 
-&mdash; [**Rei Ryugazaki**](https://myanimelist.net/character.php?q=Rei%20Ryugazaki&cat=character), [**Free! Eternal Summer**](https://myanimelist.net/search/all?q=Free!%20Eternal%20Summer&cat=all)
+&mdash; [**Yoite**](https://myanimelist.net/character.php?q=Yoite&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
