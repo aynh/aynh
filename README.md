@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as I exist, I don't care if there's hell, or if only suffering exists there."
+> "I prefer to be a humble dreamer, with visions to be realized, rather than the ruler of people with no dreams or desires."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
