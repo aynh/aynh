@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not an issue of what you should do, it's an issue of what you want to do."
+> "A little bit of trouble keeps life from being boring."
 
-&mdash; [**Yamamoto Tsuyoshi**](https://myanimelist.net/character.php?q=Yamamoto%20Tsuyoshi&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
