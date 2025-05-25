@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The best way to write a realistic romance is to first be in love. Everyone can write a love story from their life."
+> "I finally get a bouquet and it's a goodbye present. That's depressing."
 
-&mdash; [**Lida Ayano**](https://myanimelist.net/character.php?q=Lida%20Ayano&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Chihiro Ogino**](https://myanimelist.net/character.php?q=Chihiro%20Ogino&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
