@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I really do like you. You pissed me off, so I considered giving up for a minute, but I'd never lie about my feelings. So I won't quit. Even if you don't believe me now, I'll keep saying it until you do! I'll keep trying! This isn't over!"
+> "Whether we die or not, isn't really that big a deal."
 
-&mdash; [**Erika Shinohara**](https://myanimelist.net/character.php?q=Erika%20Shinohara&cat=character), [**Wolf Girl & Black Prince**](https://myanimelist.net/search/all?q=Wolf%20Girl%20%26%20Black%20Prince&cat=all)
+&mdash; [**Juuzou Suzuya**](https://myanimelist.net/character.php?q=Juuzou%20Suzuya&cat=character), [**Tokyo Ghoul √A**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%20%E2%88%9AA&cat=all)
