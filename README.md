@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dammit, is that how you greet your son who went out of his way to help a ghost on the way home?!"
+> "As a rule, they say humans haunted by a shinigami have nothing but misfortune."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
