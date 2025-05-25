@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Perhaps in this universe, there exists a solitary, absolute truth. Perhaps it clarifies every question. But that’s beyond the reach of these short hands."
+> "Dammit, is that how you greet your son who went out of his way to help a ghost on the way home?!"
 
-&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
