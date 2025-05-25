@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As a rule, they say humans haunted by a shinigami have nothing but misfortune."
+> "I despise you with my last breath. My spirit will not forget that all consuming hatred.  So long that you live, my spirit can not be free. *to Inuyasha*"
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
