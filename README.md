@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are creatures that dream. Different from others, they want to be special. They want to be adored by others, just like the heroes in comics and games, achieving great things with unique powers. Of course, no one ever believes deep down it will happen. Everyone knows there's no magic in this world."
+> "Revenge that involves unrelated people isn’t valid at all. All he’s doing is hiding his vengeful hate with the title of God’s representative and acting sublime."
 
-&mdash; [**Yoshiyuki Sakurai**](https://myanimelist.net/character.php?q=Yoshiyuki%20Sakurai&cat=character), [**Da Capo II**](https://myanimelist.net/search/all?q=Da%20Capo%20II&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
