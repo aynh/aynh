@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether we die or not, isn't really that big a deal."
+> "I don't mind losing to someone, but I won't be beaten by myself."
 
-&mdash; [**Juuzou Suzuya**](https://myanimelist.net/character.php?q=Juuzou%20Suzuya&cat=character), [**Tokyo Ghoul √A**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%20%E2%88%9AA&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
