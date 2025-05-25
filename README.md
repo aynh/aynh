@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's fine. Everyone makes mistakes. You just need to make an effort not to make the same mistake again."
+> "Going against the flow... takes a lot of courage. I respect that. Maybe people who can do it are just stupid, but... Well... What I'm sure of is that people like that are rare. So you can't call them common. You can't call them normal, either. People like you... get called special."
 
-&mdash; [**Ainz Ooal Gown**](https://myanimelist.net/character.php?q=Ainz%20Ooal%20Gown&cat=character), [**Overlord**](https://myanimelist.net/search/all?q=Overlord&cat=all)
+&mdash; [**Annie Leonhardt**](https://myanimelist.net/character.php?q=Annie%20Leonhardt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
