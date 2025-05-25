@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's only natural for the girl you're crushing on to be in love with someone else. Since you're in love with her, she sparkles in your eyes. That's why people fall so irrationally in love."
+> "It seems like the small leaves in the Village of Konoha have inherited that 'will of fire' you spoke of, Third. The fire on the leaves will eventually burn greater and stronger... It will flash its light and protect this village."
 
-&mdash; [**Watari Ryouta**](https://myanimelist.net/character.php?q=Watari%20Ryouta&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
