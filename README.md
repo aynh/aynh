@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can't get along without putting someone else down, it can't be real friendship."
+> "The best way to write a realistic romance is to first be in love. Everyone can write a love story from their life."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Lida Ayano**](https://myanimelist.net/character.php?q=Lida%20Ayano&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
