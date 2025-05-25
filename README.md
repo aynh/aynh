@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Revenge that involves unrelated people isn’t valid at all. All he’s doing is hiding his vengeful hate with the title of God’s representative and acting sublime."
+> "It's fine. Everyone makes mistakes. You just need to make an effort not to make the same mistake again."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Ainz Ooal Gown**](https://myanimelist.net/character.php?q=Ainz%20Ooal%20Gown&cat=character), [**Overlord**](https://myanimelist.net/search/all?q=Overlord&cat=all)
