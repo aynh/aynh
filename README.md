@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't mind losing to someone, but I won't be beaten by myself."
+> "Humans are creatures that dream. Different from others, they want to be special. They want to be adored by others, just like the heroes in comics and games, achieving great things with unique powers. Of course, no one ever believes deep down it will happen. Everyone knows there's no magic in this world."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Yoshiyuki Sakurai**](https://myanimelist.net/character.php?q=Yoshiyuki%20Sakurai&cat=character), [**Da Capo II**](https://myanimelist.net/search/all?q=Da%20Capo%20II&cat=all)
