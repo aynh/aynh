@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A little bit of trouble keeps life from being boring."
+> "Perhaps in this universe, there exists a solitary, absolute truth. Perhaps it clarifies every question. But that’s beyond the reach of these short hands."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
+&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
