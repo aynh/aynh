@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Alright then! Come here! Come over here, Black Star's giving you a big hug!"
+> "The opposite of love isn't hate, it’s apathy."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kyouko Houin**](https://myanimelist.net/character.php?q=Kyouko%20Houin&cat=character), [**Kodomo no Jikan**](https://myanimelist.net/search/all?q=Kodomo%20no%20Jikan&cat=all)
