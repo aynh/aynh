@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I want to do something, I do it, regardless of the rest of the world. When I don't, I don't, and that's that."
+> "It looks like you're wishing you had died instead of someone else, but... isn't it wrong to think that way? No one can take the place of another. Each person has his own destiny."
 
-&mdash; [**Femt**](https://myanimelist.net/character.php?q=Femt&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Momo**](https://myanimelist.net/character.php?q=Momo&cat=character), [**Shinigami no Ballad**](https://myanimelist.net/search/all?q=Shinigami%20no%20Ballad&cat=all)
