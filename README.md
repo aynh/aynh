@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because my time is limited, I don't have any time to waste hesitating. That is why I can walk straight ahead. That is why I never stop."
+> "When I want to do something, I do it, regardless of the rest of the world. When I don't, I don't, and that's that."
 
-&mdash; [**Rosette Christopher**](https://myanimelist.net/character.php?q=Rosette%20Christopher&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
+&mdash; [**Femt**](https://myanimelist.net/character.php?q=Femt&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
