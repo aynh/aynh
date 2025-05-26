@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The beating of a heart is the first source of music!"
+> "Yeah, if I saw her smiling to herself while reading this, I might think it was creepy. But there's something wrong with people who talk trash and laugh behind another's back, too."
 
-&mdash; [**Shining Saotome**](https://myanimelist.net/character.php?q=Shining%20Saotome&cat=character), [**Uta no Prince-sama**](https://myanimelist.net/search/all?q=Uta%20no%20Prince-sama&cat=all)
+&mdash; [**Shougo Kiryuu**](https://myanimelist.net/character.php?q=Shougo%20Kiryuu&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
