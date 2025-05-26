@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because nothing makes one happier than being with the one you love."
+> "Help can come from unexpected corners."
 
-&mdash; [**Isla**](https://myanimelist.net/character.php?q=Isla&cat=character), [**Plastic Memories**](https://myanimelist.net/search/all?q=Plastic%20Memories&cat=all)
+&mdash; [**Kokoro Yome**](https://myanimelist.net/character.php?q=Kokoro%20Yome&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
