@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I finally get a bouquet and it's a goodbye present. That's depressing."
+> "...There are two ways to change a country. Destroy it from the outside, or correct it from the inside."
 
-&mdash; [**Chihiro Ogino**](https://myanimelist.net/character.php?q=Chihiro%20Ogino&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
+&mdash; [**Run**](https://myanimelist.net/character.php?q=Run&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
