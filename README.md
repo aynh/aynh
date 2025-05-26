@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay, cool guys see naked women all the time, I'm totally used to it."
+> "There is no greater accomplishment in life than pushing yourself to the limit, always! Isn’t that so? That’s all there is to it!"
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kiyotaka Ishimaru**](https://myanimelist.net/character.php?q=Kiyotaka%20Ishimaru&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
