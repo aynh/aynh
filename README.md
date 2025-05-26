@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The longer you live... The more you realize that reality is just made of pain, suffering and emptiness..."
+> "Alright then! Come here! Come over here, Black Star's giving you a big hug!"
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
