@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Come down here and face me, you third-rate fraud. I'll show you there's no comparison between us!"
+> "Humans always pursue things they can’t reach. Doesn’t it single-heartedly symbolize such yearnings?"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Legend of the Galactic Heroes**](https://myanimelist.net/character.php?q=Legend%20of%20the%20Galactic%20Heroes&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
