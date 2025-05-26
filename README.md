@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I shall cleanse away thy bitterness..."
+> "There are things you can't turn back, even if you want to."
 
-&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
+&mdash; [**Jūdai Yūki**](https://myanimelist.net/character.php?q=J%C5%ABdai%20Y%C5%ABki&cat=character), [**Yu-Gi-Oh! GX**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20GX&cat=all)
