@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you act only on what you should do without heed for what you want to do, you're nothing more than a machine, a phenomenon."
+> "I shall cleanse away thy bitterness..."
 
-&mdash; [**Kaminski Natalia**](https://myanimelist.net/character.php?q=Kaminski%20Natalia&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
