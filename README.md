@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...There are two ways to change a country. Destroy it from the outside, or correct it from the inside."
+> "Come down here and face me, you third-rate fraud. I'll show you there's no comparison between us!"
 
-&mdash; [**Run**](https://myanimelist.net/character.php?q=Run&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
