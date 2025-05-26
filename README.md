@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was just dreaming a little. About my old world. It's strange. In the dream, I wondered if everything here, in Aincard, if everything that had happened with you, was only a dream. I was really scared. I'm happy this wasn't a dream."
+> "It's okay, cool guys see naked women all the time, I'm totally used to it."
 
-&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
