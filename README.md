@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans always pursue things they can’t reach. Doesn’t it single-heartedly symbolize such yearnings?"
+> "If you act only on what you should do without heed for what you want to do, you're nothing more than a machine, a phenomenon."
 
-&mdash; [**Legend of the Galactic Heroes**](https://myanimelist.net/character.php?q=Legend%20of%20the%20Galactic%20Heroes&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Kaminski Natalia**](https://myanimelist.net/character.php?q=Kaminski%20Natalia&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
