@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder if the flowers themselves are happy, being forced to last so long. Eternity doesn't exist in this world, does it? It's just that one could think that a heart that longs for eternity is beautiful."
+> "I'm always alone. Other people don't factor into what I do. The things that happen in front of me are parts of my life and my life alone."
 
-&mdash; [**Mamiya Chida**](https://myanimelist.net/character.php?q=Mamiya%20Chida&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
