@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You hide a tree by putting it in a forest; you hide a person among other people!"
+> "Sometimes the best way to solve your own problems is to help someone else."
 
-&mdash; [**Sarasvati**](https://myanimelist.net/character.php?q=Sarasvati&cat=character), [**Kore wa Zombie Desu ka? of the Dead**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F%20of%20the%20Dead&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
