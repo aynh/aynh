@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Canaan. You're a victim whose past was taken away by war. And she's a defeated person who lost her past in a power struggle. Soldiers who are born within destruction, take hatred as their weapon. Even though you and her became soldiers for the same reason, you both live differently. Listen Canaan, you cannot counter hatred with hatred... ever."
+> "A samurai doesn't need a reason to do what's right. If you want to protect her, you must draw your sword."
 
-&mdash; [**Siam**](https://myanimelist.net/character.php?q=Siam&cat=character), [**CANAAN**](https://myanimelist.net/search/all?q=CANAAN&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
