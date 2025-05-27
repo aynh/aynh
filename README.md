@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes the best way to solve your own problems is to help someone else."
+> "Now, now, these things happen to everyone... EXCEPT ME!!!!! That's for making fun of my masterpiece! If there's one thing I hate, it's criticism!"
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
+&mdash; [**Kenji Harima**](https://myanimelist.net/character.php?q=Kenji%20Harima&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
