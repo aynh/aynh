@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The future isn’t written yet. There’s still time for things to change!"
+> "I'll be back."
 
-&mdash; [**Yūsei Fudō**](https://myanimelist.net/character.php?q=Y%C5%ABsei%20Fud%C5%8D&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
