@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now, now, these things happen to everyone... EXCEPT ME!!!!! That's for making fun of my masterpiece! If there's one thing I hate, it's criticism!"
+> "A student who is too loyal to his master has no chance of surpassing that master... A mutinous spirit is the source of independence."
 
-&mdash; [**Kenji Harima**](https://myanimelist.net/character.php?q=Kenji%20Harima&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
+&mdash; [**Boris Konev**](https://myanimelist.net/character.php?q=Boris%20Konev&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
