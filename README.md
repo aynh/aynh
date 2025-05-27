@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A samurai doesn't need a reason to do what's right. If you want to protect her, you must draw your sword."
+> "Despair… It hides away propagates, expands, and finally explodes."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
