@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can stand not eating or sleeping, but I absolutely would not be able to live without my computer."
+> "I started crying. It was the first time in my life that I felt forgiven. Like I was saved. Like the frozen snow that's melted by spring, the tears wouldn't stop."
 
-&mdash; [**Kisaragi Shintaro**](https://myanimelist.net/character.php?q=Kisaragi%20Shintaro&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
