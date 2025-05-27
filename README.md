@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A good book is always good, no matter how many times you’ve already read it."
+> "I can stand not eating or sleeping, but I absolutely would not be able to live without my computer."
 
-&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
+&mdash; [**Kisaragi Shintaro**](https://myanimelist.net/character.php?q=Kisaragi%20Shintaro&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
