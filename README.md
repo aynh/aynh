@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if the clothes are too large in the beginning, they’ll fill out as you grow. The same goes for courage… The secret of not getting killed by the enemy is to underestimate life’s difficulties."
+> "Canaan. You're a victim whose past was taken away by war. And she's a defeated person who lost her past in a power struggle. Soldiers who are born within destruction, take hatred as their weapon. Even though you and her became soldiers for the same reason, you both live differently. Listen Canaan, you cannot counter hatred with hatred... ever."
 
-&mdash; [**Olivier Poplan**](https://myanimelist.net/character.php?q=Olivier%20Poplan&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Siam**](https://myanimelist.net/character.php?q=Siam&cat=character), [**CANAAN**](https://myanimelist.net/search/all?q=CANAAN&cat=all)
