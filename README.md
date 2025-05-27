@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The fear of interacting with people...even I understand that one."
+> "A good book is always good, no matter how many times you’ve already read it."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
