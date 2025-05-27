@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Illegal contractees kill people to be able to change the past."
+> "I see...since I am no longer going to be Lord Orochimaru's vessel, my duty is to protect the vessel."
 
-&mdash; [**Gilbert Nightray**](https://myanimelist.net/character.php?q=Gilbert%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
