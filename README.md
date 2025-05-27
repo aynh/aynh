@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I started crying. It was the first time in my life that I felt forgiven. Like I was saved. Like the frozen snow that's melted by spring, the tears wouldn't stop."
+> "I wonder if the flowers themselves are happy, being forced to last so long. Eternity doesn't exist in this world, does it? It's just that one could think that a heart that longs for eternity is beautiful."
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Mamiya Chida**](https://myanimelist.net/character.php?q=Mamiya%20Chida&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
