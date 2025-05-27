@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether here or in the real world, you can cry when it hurts. There's no rule that you can't show feelings just because it's a game."
+> "The future isn’t written yet. There’s still time for things to change!"
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Yūsei Fudō**](https://myanimelist.net/character.php?q=Y%C5%ABsei%20Fud%C5%8D&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
