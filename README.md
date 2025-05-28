@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To realize a mistake. To not lie. To love one another. To not kill. Those are very simple things, but these times won't allow for them. There is no green on this planet, even though we want it... though we want it so badly. A place where we can live peaceful days with no wars nor stealing. A sacred place where people can live as people. Yes there, that place is called Paradise."
+> "It's just that... It's just that not being able to fight with everyone makes me feel lonely...!! But what would make me feel worse than being lonely is getting in everyone's way... that would make me feel worse!! If it means getting in the way of Kurosaki-kun and everyone... then I would rather be lonely, very lonely."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
