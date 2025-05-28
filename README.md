@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let's calm down. The enemy is shooting at us."
+> "To realize a mistake. To not lie. To love one another. To not kill. Those are very simple things, but these times won't allow for them. There is no green on this planet, even though we want it... though we want it so badly. A place where we can live peaceful days with no wars nor stealing. A sacred place where people can live as people. Yes there, that place is called Paradise."
 
-&mdash; [**Itsuki Koizumi**](https://myanimelist.net/character.php?q=Itsuki%20Koizumi&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
