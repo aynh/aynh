@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I might be the ugly duckling of the group, but I'll make sure that I'll protect all of you with all my might."
+> "Drop ink on the finest snow-white paper and it will inevitably absorb into black. Its purity demands it. Tainted men have immunities. Black does not absorb black."
 
-&mdash; [**Zeno**](https://myanimelist.net/character.php?q=Zeno&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Shinobu Sensui**](https://myanimelist.net/character.php?q=Shinobu%20Sensui&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
