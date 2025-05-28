@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Losing something is sad. Even when I lose something as tiny as a worn-out eraser, I feel pretty down for a day or two. That's why I'm looking for him."
+> "[After Gin offers to kill some Arrancars] No thanks, for that would be boring."
 
-&mdash; [**Komari Kamikita**](https://myanimelist.net/character.php?q=Komari%20Kamikita&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
