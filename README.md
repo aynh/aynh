@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Shut up! I did what I had to do. People lie to survive. No one is blameless."
+> "To me, death is not the scariest thing at all."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Mikan Sakura**](https://myanimelist.net/character.php?q=Mikan%20Sakura&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
