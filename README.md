@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Duke Nightray* You've let your own son die for the honor of your household and other such rubbish. You've lost almost all of your family, and yet all you can think of is your own interests."
+> "I might be the ugly duckling of the group, but I'll make sure that I'll protect all of you with all my might."
 
-&mdash; [**Vincent Nightray**](https://myanimelist.net/character.php?q=Vincent%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Zeno**](https://myanimelist.net/character.php?q=Zeno&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
