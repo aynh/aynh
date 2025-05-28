@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[about Ulquiorra Cifer, after he takes out Ichigo] I'll teach him what happens when you steal someone else's prey."
+> "Advantages and disadvantages come hand in hand. That is inevitable"
 
-&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Dio Brando**](https://myanimelist.net/character.php?q=Dio%20Brando&cat=character), [**JoJo's Bizarre Adventure: Stardust Crusaders**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Stardust%20Crusaders&cat=all)
