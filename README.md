@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[After Gin offers to kill some Arrancars] No thanks, for that would be boring."
+> "Now I got some common sense for you,if I wore a tie, it wouldn't change who I am, if I had no piercings it wouldn't mean I'm nice, and if my hair was black it wouldn't stop me from kicking your ass!"
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
