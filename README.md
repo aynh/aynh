@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's just that... It's just that not being able to fight with everyone makes me feel lonely...!! But what would make me feel worse than being lonely is getting in everyone's way... that would make me feel worse!! If it means getting in the way of Kurosaki-kun and everyone... then I would rather be lonely, very lonely."
+> "We didn’t give up on our dreams! We changed our dreams into your dream! That’s what parents do! That’s what a family does!"
 
-&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Furukawa Akio**](https://myanimelist.net/character.php?q=Furukawa%20Akio&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
