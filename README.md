@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Advantages and disadvantages come hand in hand. That is inevitable"
+> "It hasn't withered. I won't let it wither. We might just be little branches, but if the branches break off, the tree really will wither. That's why I won't break off. Even if winter comes and the leaves fall off, even if the wind comes and all the other little branches break off... Even if I am the last branch left, I won't break off. I'm sure we'll be together till the end."
 
-&mdash; [**Dio Brando**](https://myanimelist.net/character.php?q=Dio%20Brando&cat=character), [**JoJo's Bizarre Adventure: Stardust Crusaders**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Stardust%20Crusaders&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
