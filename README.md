@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We didn’t give up on our dreams! We changed our dreams into your dream! That’s what parents do! That’s what a family does!"
+> "Losing something is sad. Even when I lose something as tiny as a worn-out eraser, I feel pretty down for a day or two. That's why I'm looking for him."
 
-&mdash; [**Furukawa Akio**](https://myanimelist.net/character.php?q=Furukawa%20Akio&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Komari Kamikita**](https://myanimelist.net/character.php?q=Komari%20Kamikita&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
