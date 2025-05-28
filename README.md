@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if armed with hundreds of weapons... there are times when you just can't beat a man with a spear of conviction in his gut."
+> "You've really got to hold on to what's important to you."
 
-&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Kazuya Kujō**](https://myanimelist.net/character.php?q=Kazuya%20Kuj%C5%8D&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
