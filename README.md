@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just look at it Liz, Patti, just look at how the clouds are! Flowing right towards the sun! It's so beautiful, even the sky is symmetrical!"
+> "I... Despise the way you fight. Without ever lifting your own hand... To steal bonds of camraderie and torture opponents is the height of cowardice. It is a lack of shame deserving of death. I am here. Strike me down. I shall kill you and cast you aside... Before you finish swinging your blade."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
