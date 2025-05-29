@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the shinobi world, those that break the written and unwritten rules are deemed trash... but be that as it may... Those that would desregard their comrades so easily are even worse than trash. And those who don't have the decency to respect the memories of their comrades are the worst."
+> "Men select women based on emotion. Even if there's a reason, it's only secondary. However, women select men based on reason. Either by something like his class ranking or his standing in society."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Makina**](https://myanimelist.net/character.php?q=Makina&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
