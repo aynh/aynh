@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why does everything you say makes me wanna bash your face in?"
+> "You are right. I am not a detective, but a thief. And stealing is what thieves do best, even if it's a persons heart."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
