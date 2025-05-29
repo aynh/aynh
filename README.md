@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As a rule, they say humans haunted by a shinigami have nothing but misfortune."
+> "A symphony can not be created using common sense and probabilities. It is already written in the fate of the composer. No... that's not it. A symphony is the inevitable result of a bad childhood, deafness, and too many beans eaten after a certain time of day."
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
