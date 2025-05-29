@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Riku* At least I'm the cute one!!"
+> "There comes a time when we can no longer tell the invaders from the invaded. That is what we call “War”."
 
-&mdash; [**Risa Harada**](https://myanimelist.net/character.php?q=Risa%20Harada&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
