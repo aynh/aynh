@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There comes a time when we can no longer tell the invaders from the invaded. That is what we call “War”."
+> "Eat until you can't anymore, play until you drop, sleep the day away, it's okay to laugh, cry or yell, just live, live, live!"
 
-&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
+&mdash; [**Saiyuki**](https://myanimelist.net/character.php?q=Saiyuki&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
