@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just as water runs downhill, the human heart also tends to revert to its basest instincts."
+> "It's arrogant to think just saying things out loud is enough. Self-gratifying on the part of the speaker, and conceited on the part of the listener. You won't always come to an understanding by talking things out."
 
-&mdash; [**Hideo Kuze**](https://myanimelist.net/character.php?q=Hideo%20Kuze&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
