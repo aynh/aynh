@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A symphony can not be created using common sense and probabilities. It is already written in the fate of the composer. No... that's not it. A symphony is the inevitable result of a bad childhood, deafness, and too many beans eaten after a certain time of day."
+> "I despise you with my last breath. My spirit will not forget that all consuming hatred.  So long that you live, my spirit can not be free. *to Inuyasha*"
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
