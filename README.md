@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I really am... shinobi trash. But the one thing I still learned is this. That void is something that everyone helps you fill. Just because you face adversity and hardships, is no reason to give up on this world. A person willing to throw away all those memories... of their friends and comrades, will never find peace of mind. Resorting to something like that isn't going to bury that hole. If you persevere and endure, someone will be there to support you!"
+> "Suppose someone said 'humans are foolish'... Obviously, that person would be talking about themselves as well. If you want to understand human beings, you need to do more than just watch them. You need to pay attention to what they themselves are watching. What are you watching? You are the ones who I'm watching. It may be hard to believe, but I like you guys. You know what they say... The opposite of love is not hatred, but indifference. An indifferent person would lack the drive to kill or hurt. My mind keeps jumping around. Am I nervous...? Did I underestimate my enemy so much that I stepped in too deep...? ...What a silly thought."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
