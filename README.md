@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I... Despise the way you fight. Without ever lifting your own hand... To steal bonds of camraderie and torture opponents is the height of cowardice. It is a lack of shame deserving of death. I am here. Strike me down. I shall kill you and cast you aside... Before you finish swinging your blade."
+> "Just as water runs downhill, the human heart also tends to revert to its basest instincts."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Hideo Kuze**](https://myanimelist.net/character.php?q=Hideo%20Kuze&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
