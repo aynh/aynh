@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Good women flow like water."
+> "The point of life isn't to be perfect. It's to do what you want to do. To be who you want to be."
 
-&mdash; [**Sakurai Tomozo**](https://myanimelist.net/character.php?q=Sakurai%20Tomozo&cat=character), [**Sora no Otoshimono: Forte**](https://myanimelist.net/search/all?q=Sora%20no%20Otoshimono%3A%20Forte&cat=all)
+&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
