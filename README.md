@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The ones who suffer from the loss of the game, become stronger. They will challenge us by throwing away everything like their pride and past glories."
+> "I guess I'm a girl who lacks self-awareness as one, or just too manly, eh?"
 
-&mdash; [**Tezuka Kunimitsu**](https://myanimelist.net/character.php?q=Tezuka%20Kunimitsu&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Misaki Ayuzawa**](https://myanimelist.net/character.php?q=Misaki%20Ayuzawa&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
