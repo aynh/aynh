@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I strive for something beyond the strongest, that challenging me would be the most ridiculous thought ever, that fighting me would be a sin! *To Imouto 10032*"
+> "It's impossible for humans to forget their emotions."
 
-&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Wolfgang Grimmer**](https://myanimelist.net/character.php?q=Wolfgang%20Grimmer&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
