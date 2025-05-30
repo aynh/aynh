@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I no longer pay attention to other people’s skills. It doesn’t matter; at the end of the day, you can only do your best."
+> "Even if I die, you keep living okay? Live to see the end of this world, and to see why it was born. Live to see why a weak girl like me ended up here. And the reason you and I met."
 
-&mdash; [**Usui Haruaki**](https://myanimelist.net/character.php?q=Usui%20Haruaki&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Sachi**](https://myanimelist.net/character.php?q=Sachi&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
