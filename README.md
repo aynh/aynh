@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You cannot understand that which you do not know, and that misunderstanding breeds hatred."
+> "I just want the weak, who do get swept along with the flow, be considered human too."
 
-&mdash; [**Sehara**](https://myanimelist.net/character.php?q=Sehara&cat=character), [**One thousand and one nights**](https://myanimelist.net/search/all?q=One%20thousand%20and%20one%20nights&cat=all)
+&mdash; [**Annie Leonhardt**](https://myanimelist.net/character.php?q=Annie%20Leonhardt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
