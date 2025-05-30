@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the limited time we have between our births and our deaths, we live life with everything we've got."
+> "If you want to do damage to the other ship you have to ram them in the middle! Now do it again!"
 
-&mdash; [**Ushiromiya Battler**](https://myanimelist.net/character.php?q=Ushiromiya%20Battler&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
