@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I die, you keep living okay? Live to see the end of this world, and to see why it was born. Live to see why a weak girl like me ended up here. And the reason you and I met."
+> "Man, kids these days. They think it's a competition to have the most friends. One is enough. Find someone completely unique."
 
-&mdash; [**Sachi**](https://myanimelist.net/character.php?q=Sachi&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
