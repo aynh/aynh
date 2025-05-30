@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death and pain are just a small price to pay for the enjoyment of battle!"
+> "I want to hear it again, yet I don't want to hear it again. I want to see her, yet I don't want to see her. What do you call this kind of feeling again?"
 
-&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
