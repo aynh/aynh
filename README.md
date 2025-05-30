@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who think that they can make up their past follies with regret, cannot be forgiven."
+> "The ones who suffer from the loss of the game, become stronger. They will challenge us by throwing away everything like their pride and past glories."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Tezuka Kunimitsu**](https://myanimelist.net/character.php?q=Tezuka%20Kunimitsu&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
