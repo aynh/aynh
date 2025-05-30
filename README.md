@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The truth is unattainable. It will always be shrouded in fog. Though you reach the murk and the gloom to grasp something, you have no means to know it is the truth. In which case, why...? What sense is there in yearning for the truth? Close your eyes. Lie to yourself. Live in blissful ignorance... it is a much smarter way to exist."
+> "I strive for something beyond the strongest, that challenging me would be the most ridiculous thought ever, that fighting me would be a sin! *To Imouto 10032*"
 
-&mdash; [**Teddie**](https://myanimelist.net/character.php?q=Teddie&cat=character), [**Persona 4**](https://myanimelist.net/search/all?q=Persona%204&cat=all)
+&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
