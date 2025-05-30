@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The probability of you remaining yourself until the day you die is extremely low. The hopeless spark you have now will be corrupted and in the most awful way there is."
+> "Death and pain are just a small price to pay for the enjoyment of battle!"
 
-&mdash; [**Hampnie Hambart**](https://myanimelist.net/character.php?q=Hampnie%20Hambart&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
+&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
