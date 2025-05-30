@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Killing for your own ideas... even a bandit could do that if it's killing a complete stranger. However, it's a completely different thing when it comes to killing a relative or a friend. Desire alone isn't enough. You need indomitable will and unwavering beliefs."
+> "'Never trust anyone too much... Remember the devil was once an angel...'"
 
-&mdash; [**Ichijiku Chisato**](https://myanimelist.net/character.php?q=Ichijiku%20Chisato&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul √A**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%20%E2%88%9AA&cat=all)
