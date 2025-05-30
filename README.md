@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Man, kids these days. They think it's a competition to have the most friends. One is enough. Find someone completely unique."
+> "Whenever humans encounter the unknown, they tend to lose perspective."
 
-&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Knov**](https://myanimelist.net/character.php?q=Knov&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
