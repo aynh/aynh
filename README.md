@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, who you love depends on the person. Isn't everything fine as long as it's someone who's fun to be with? Being with someone doesn't require any permission as long as the two people accept each other. If you worry about your parents or your family, then you lose. Don't forget that. You can't go out with someone with incomplete feelings."
+> "The truth is unattainable. It will always be shrouded in fog. Though you reach the murk and the gloom to grasp something, you have no means to know it is the truth. In which case, why...? What sense is there in yearning for the truth? Close your eyes. Lie to yourself. Live in blissful ignorance... it is a much smarter way to exist."
 
-&mdash; [**Ushiromiya Battler**](https://myanimelist.net/character.php?q=Ushiromiya%20Battler&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Teddie**](https://myanimelist.net/character.php?q=Teddie&cat=character), [**Persona 4**](https://myanimelist.net/search/all?q=Persona%204&cat=all)
