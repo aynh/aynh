@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I'm getting in trouble no matter what I do, I may as well make a grand frontal assault and fight to my last breath."
+> "We simply cannot see the world as it is. The world people see is nothing more than how our brains translate it. In other words, it's subjective."
 
-&mdash; [**Yuuko Aioi**](https://myanimelist.net/character.php?q=Yuuko%20Aioi&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
+&mdash; [**Alis Color**](https://myanimelist.net/character.php?q=Alis%20Color&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
