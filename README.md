@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I coulda been a contendah..."
+> "When do you think people die? When they are shot through the heart by the bullet of a pistol? No. When they are ravaged by an incurable disease? No. When they drink a soup made from a poisonous mushroom!? No! It’s when... they are forgotten."
 
-&mdash; [**Joey Wheeler**](https://myanimelist.net/character.php?q=Joey%20Wheeler&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Dr hiluluk**](https://myanimelist.net/character.php?q=Dr%20hiluluk&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
