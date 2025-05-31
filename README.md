@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fear is 'evil', it tells your weakness. If you can know your weakness, people become strong and gentle."
+> "Stories where love and courage win in the end always turn out like that, you know? When I think about it, I became a magical girl because I always loved those stories."
 
-&mdash; [**Gildarts Clive**](https://myanimelist.net/character.php?q=Gildarts%20Clive&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
