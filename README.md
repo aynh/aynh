@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, it's necessary to look back at the past in order to move on to the future."
+> "Humans and spirits. We're indeed different beings, but that is why understanding each other is meaningful."
 
-&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Tatara Phoron**](https://myanimelist.net/character.php?q=Tatara%20Phoron&cat=character), [**Shinkyoku Soukai Polyphonica**](https://myanimelist.net/search/all?q=Shinkyoku%20Soukai%20Polyphonica&cat=all)
