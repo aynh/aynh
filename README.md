@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The root of all your evil is in always relying on one of your other possibilities to get your wish. You must accept that you are the person here, now, and that you cannot become anyone else other than that person."
+> "Fear is 'evil', it tells your weakness. If you can know your weakness, people become strong and gentle."
 
-&mdash; [**Higuchi Seitarou**](https://myanimelist.net/character.php?q=Higuchi%20Seitarou&cat=character), [**Yojouhan Shinwa Taikei**](https://myanimelist.net/search/all?q=Yojouhan%20Shinwa%20Taikei&cat=all)
+&mdash; [**Gildarts Clive**](https://myanimelist.net/character.php?q=Gildarts%20Clive&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
