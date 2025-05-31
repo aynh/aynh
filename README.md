@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whenever humans encounter the unknown, they tend to lose perspective."
+> "STOP IMAGINING ME!"
 
-&mdash; [**Knov**](https://myanimelist.net/character.php?q=Knov&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
