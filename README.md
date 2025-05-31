@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stories where love and courage win in the end always turn out like that, you know? When I think about it, I became a magical girl because I always loved those stories."
+> "Survival of the fittest' is just a pretty lie that they tell you. A lie to make weak people believe that if they try their best, they can come out on top. Truth is, it isn't the weak that get eaten. It's not about strength, it's about numbers. The ones who stand at the top of the food chain are the brainless dolts. The loudmouths. Because there are so, so many of them. You know it's true. Everybody does. You all just turn a blind eye and pretend not to notice."
 
-&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Riruka Dokugamine**](https://myanimelist.net/character.php?q=Riruka%20Dokugamine&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
