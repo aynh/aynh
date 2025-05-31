@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A clever retreat? Throw that to the dogs! Once you've dived into the battlefield, you can only devote yourself to the fight, regardless of your opponent!"
+> "If a person you love doesn't love you back, you're worthless. That's what I always told myself."
 
-&mdash; [**Kuroyukihime**](https://myanimelist.net/character.php?q=Kuroyukihime&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
+&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
