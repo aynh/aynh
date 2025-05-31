@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I pity you. You just don't get it at all... there's not a thing I don't cherish!"
+> "Sometimes, it's necessary to look back at the past in order to move on to the future."
 
-&mdash; [**Cloud Strife**](https://myanimelist.net/character.php?q=Cloud%20Strife&cat=character), [**Final Fantasy VII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII&cat=all)
+&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
