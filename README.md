@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If a person you love doesn't love you back, you're worthless. That's what I always told myself."
+> "If I were to compare a human’s heart with the ocean, the water would be stagnant. If I were to name the ripples on the water surface….Would it be happiness? Or anger? No. For this ocean, such a description is too shallow. If I want to know what lies upon the deep ocean floors… I would have to open my eyes in the stagnant water. Then swim downwards while enduring the icy deep kicking through the cold and heavy ocean waters. If I truly want to know the human known as myself….even if.. there is nothing there."
 
-&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Kou Ichinomiya**](https://myanimelist.net/character.php?q=Kou%20Ichinomiya&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
