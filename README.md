@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Rei Miyamoto* I'd be an actor if I could look happy right now."
+> "I coulda been a contendah..."
 
-&mdash; [**Takashi Komuro**](https://myanimelist.net/character.php?q=Takashi%20Komuro&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Joey Wheeler**](https://myanimelist.net/character.php?q=Joey%20Wheeler&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
