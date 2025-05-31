@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Shinpachi, just remember this... We aren't friends with justice or even your sister. We're YOUR friends."
+> "Why did he smile? Why? Did he know he would be saved? No. In that instant, he must have understood that his life was going to end. Death. He accepted it. He was fully prepared for it and smiled."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Smoker**](https://myanimelist.net/character.php?q=Smoker&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
