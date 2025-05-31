@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If fighting could provide us with the truth, nobody would make any mistakes in their lives. A person's life is not that easy. The truth you must learn from yourself, from how you live your life."
+> "*to Rei Miyamoto* I'd be an actor if I could look happy right now."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Takashi Komuro**](https://myanimelist.net/character.php?q=Takashi%20Komuro&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
