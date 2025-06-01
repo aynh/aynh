@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This brings us to number 278 of the 1,000 provisions you must observe. I hate carrots. Never even think about putting them in my food, you get it?"
+> "Before meeting you, I didn't know what it was like to feel lonely. I never even considered myself to be alone. That's because when you feel lonely, it means that there is someone for you to miss."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
