@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kurosaki Ichigo, those are the words of someone who does not know true despair. So I will show you. This is what true despair looks like."
+> "On the day we left, we burned down the family home and all the familiar things inside. Because some memories aren't meant to leave traces."
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
