@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "His stupidity is 50% above normal levels."
+> "This brings us to number 278 of the 1,000 provisions you must observe. I hate carrots. Never even think about putting them in my food, you get it?"
 
-&mdash; [**Masahiro**](https://myanimelist.net/character.php?q=Masahiro&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
