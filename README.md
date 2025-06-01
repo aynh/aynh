@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe, just maybe, there is no purpose in life... but if you linger a while longer in this world, you might discover something of value in it."
+> "I don't think I'll learn anything if I don't try to do something about it on my own."
 
-&mdash; [**Orochimaru**](https://myanimelist.net/character.php?q=Orochimaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
