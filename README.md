@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ichigo...We can't...Watch any longer...Eachother's backs...I just can't...I just can't help you out anymore."
+> "I might seem to be on the losing side to you, but I'm still fighting... Not all battles happen in the brightest, flashiest spots."
 
-&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Saeki Ryutaro**](https://myanimelist.net/character.php?q=Saeki%20Ryutaro&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
