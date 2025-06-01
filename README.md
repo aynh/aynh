@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I thought clowns made everyone else laugh."
+> "Kurosaki Ichigo, those are the words of someone who does not know true despair. So I will show you. This is what true despair looks like."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
