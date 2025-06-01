@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You'll always stand by the light. That is your basketball."
+> "If we all reacted the same way, we'd be predictable, and there's always more than one way to view a situation. What's true for the group is also true for the individual. It's simple: overspecialize, and you breed in weakness. It's slow death."
 
-&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Motoko Kusanagi**](https://myanimelist.net/character.php?q=Motoko%20Kusanagi&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
