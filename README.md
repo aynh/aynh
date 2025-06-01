@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "On the day we left, we burned down the family home and all the familiar things inside. Because some memories aren't meant to leave traces."
+> "I'm just letting you know, I'm not telling you this because I want your pity! I'm just fed up with humans, that's all! They tell lie after lie, only accepting people who are the same as they are! Humans are such hypocrites!"
 
-&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Rachnera Arachnera**](https://myanimelist.net/character.php?q=Rachnera%20Arachnera&cat=character), [**Monster Musume no Iru Nichijou**](https://myanimelist.net/search/all?q=Monster%20Musume%20no%20Iru%20Nichijou&cat=all)
