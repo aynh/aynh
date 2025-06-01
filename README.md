@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The city is changing. Our surroundings, and even ourselves. And then one day, just about everything will change…"
+> "An earnest failure has meaning."
 
-&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Mutta Namba**](https://myanimelist.net/character.php?q=Mutta%20Namba&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
