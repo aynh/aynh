@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Emiya Shirou! Listen, you are not 'one who fights'. You are nothing more than 'one who creates'. Don't think of irrelevant things. There is only one thing you can do, master that one thing. Do not forget. The thing you image is always 'your strongest self.' You don't need any other enemies. The opponent you have to fight is none other than 'your own image'."
+> "I haven't lived all that long yet, but there is something I firmly believe in. The people who have the ability to change something in this world, all without exception, have the guts to abandon things important to them if they have to. They are those who can abandon even their humanity."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
