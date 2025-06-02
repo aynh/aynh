@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Jack* If you accept everything you're told without question, you'll lose your ability to think. Even if you reached the same conclusion, it would still be worth analyzing the reasons behind it."
+> "So maybe I can't defend against attacks from multiple angles, but sometimes a good defense is just kicking ass!"
 
-&mdash; [**Lacie Baskerville**](https://myanimelist.net/character.php?q=Lacie%20Baskerville&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
