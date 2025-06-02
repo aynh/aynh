@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you have any idea how stupid we are? Don't underestimate us!!!"
+> "People have to save themselves. One person saving another is impossible."
 
-&mdash; [**Gintama**](https://myanimelist.net/character.php?q=Gintama&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
