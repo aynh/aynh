@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Riku* At least I'm the cute one!!"
+> "Is it painful to be the person who waits? Or is it more painful to be the person who makes others wait? Either way, there's no need to wait anymore. That's what is most painful."
 
-&mdash; [**Risa Harada**](https://myanimelist.net/character.php?q=Risa%20Harada&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Takada**](https://myanimelist.net/character.php?q=Takada&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
