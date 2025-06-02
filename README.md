@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So he killed my father and murdered my people. That means nothing to me. Strength is the only thing that matters in this world. Everything else is just a delusion for the weak."
+> "*to Jack* If you accept everything you're told without question, you'll lose your ability to think. Even if you reached the same conclusion, it would still be worth analyzing the reasons behind it."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Lacie Baskerville**](https://myanimelist.net/character.php?q=Lacie%20Baskerville&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
