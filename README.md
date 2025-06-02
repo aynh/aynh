@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So shut up about 'destiny' and...how people can't change! 'Cause... unlike me... you're not a 'failure'."
+> "Symmetry is what makes the world beautiful."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
