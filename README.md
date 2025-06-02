@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The final door is about to open! And I am the one opening it! Then the world that we know of will come to an end! This world of insatiable desires will end!"
+> "Do you think everyone can make their dreams come true through hard work? Hard work isn't always rewarded."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Atsushi Murasakibara**](https://myanimelist.net/character.php?q=Atsushi%20Murasakibara&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
