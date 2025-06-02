@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Using a simple method to accomplish something impressive, far outshines using a complex method to achieve the same thing."
+> "Mere scores do not measure a person’s worth."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Aoi Yamada**](https://myanimelist.net/character.php?q=Aoi%20Yamada&cat=character), [**Working!!**](https://myanimelist.net/search/all?q=Working!!&cat=all)
