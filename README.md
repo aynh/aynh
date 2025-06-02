@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Becoming an adult is such a sad thing. If you have something dear to protect, you may end up at odds with yourself."
+> "A bratty little midget."
 
-&mdash; [**Cthuko**](https://myanimelist.net/character.php?q=Cthuko&cat=character), [**Haiyore! Nyaruko-san**](https://myanimelist.net/search/all?q=Haiyore!%20Nyaruko-san&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
