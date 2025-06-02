@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Growl, Haineko!"
+> "So shut up about 'destiny' and...how people can't change! 'Cause... unlike me... you're not a 'failure'."
 
-&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
