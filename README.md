@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mere scores do not measure a person’s worth."
+> "You were ready to kill another creature, yet you’re scared of being killed yourself. Don’t you think that is strange? When you point a gun at a living thing… this is what that act means."
 
-&mdash; [**Aoi Yamada**](https://myanimelist.net/character.php?q=Aoi%20Yamada&cat=character), [**Working!!**](https://myanimelist.net/search/all?q=Working!!&cat=all)
+&mdash; [**Kurumi Tokisaki**](https://myanimelist.net/character.php?q=Kurumi%20Tokisaki&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
