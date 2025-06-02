@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Symmetry is what makes the world beautiful."
+> "Becoming an adult is such a sad thing. If you have something dear to protect, you may end up at odds with yourself."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Cthuko**](https://myanimelist.net/character.php?q=Cthuko&cat=character), [**Haiyore! Nyaruko-san**](https://myanimelist.net/search/all?q=Haiyore!%20Nyaruko-san&cat=all)
