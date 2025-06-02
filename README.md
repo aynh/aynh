@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anyone who points a gun at me dies. Got it? Point a gun at me, you die."
+> "I'm as normal as they come and this is a contest of freaks! What do you want me to do, shoot my slingshot at him?"
 
-&mdash; [**Nishi Joichiro**](https://myanimelist.net/character.php?q=Nishi%20Joichiro&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
