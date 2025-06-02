@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regretting the past forever won't solve anything."
+> "Anyone who points a gun at me dies. Got it? Point a gun at me, you die."
 
-&mdash; [**Shiho Fujimiya**](https://myanimelist.net/character.php?q=Shiho%20Fujimiya&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
+&mdash; [**Nishi Joichiro**](https://myanimelist.net/character.php?q=Nishi%20Joichiro&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
