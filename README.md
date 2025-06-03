@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You trusted me, so I'll trust you too. That's what being friends means, doesn't it?"
+> "It is not justice that can oppose evil. It is an absolute evil that overpowers evil itself."
 
-&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Tendou Kisara**](https://myanimelist.net/character.php?q=Tendou%20Kisara&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
