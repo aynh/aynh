@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't beg for things, get them yourself or else you won't get anything."
+> "I've been trying so hard... Even though you rejected me, I've been trying my best. But if I go on liking you like this then nothing will change."
 
-&mdash; [**Renton Thurston**](https://myanimelist.net/character.php?q=Renton%20Thurston&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
