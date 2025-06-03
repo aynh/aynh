@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is not justice that can oppose evil. It is an absolute evil that overpowers evil itself."
+> "What do you think killed the most people in history? It wasn't explosives or drugs. It was information. To know is to die."
 
-&mdash; [**Tendou Kisara**](https://myanimelist.net/character.php?q=Tendou%20Kisara&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
