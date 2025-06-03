@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The root of all your evil is in always relying on one of your other possibilities to get your wish. You must accept that you are the person here, now, and that you cannot become anyone else other than that person."
+> "If you were to turn into a snake tomorrow and began devouring humans, and from the same mouth you devoured humans, you cried out to me, 'I Love You!' Would I still be able to say 'I Love You,' the same way I do today?"
 
-&mdash; [**Higuchi Seitarou**](https://myanimelist.net/character.php?q=Higuchi%20Seitarou&cat=character), [**Yojouhan Shinwa Taikei**](https://myanimelist.net/search/all?q=Yojouhan%20Shinwa%20Taikei&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
