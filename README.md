@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how much this world may change, I shall always remain myself."
+> "You trusted me, so I'll trust you too. That's what being friends means, doesn't it?"
 
-&mdash; [**Jurai Andou**](https://myanimelist.net/character.php?q=Jurai%20Andou&cat=character), [**Inou-Battle wa Nichijou-kei no Naka de**](https://myanimelist.net/search/all?q=Inou-Battle%20wa%20Nichijou-kei%20no%20Naka%20de&cat=all)
+&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
