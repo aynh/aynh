@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you were to turn into a snake tomorrow and began devouring humans, and from the same mouth you devoured humans, you cried out to me, 'I Love You!' Would I still be able to say 'I Love You,' the same way I do today?"
+> "The toilet is a wonder of civilization. It is a grand invention. It preserves human dignity."
 
-&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
