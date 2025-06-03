@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mere scores do not measure a person’s worth."
+> "The root of all your evil is in always relying on one of your other possibilities to get your wish. You must accept that you are the person here, now, and that you cannot become anyone else other than that person."
 
-&mdash; [**Aoi Yamada**](https://myanimelist.net/character.php?q=Aoi%20Yamada&cat=character), [**Working!!**](https://myanimelist.net/search/all?q=Working!!&cat=all)
+&mdash; [**Higuchi Seitarou**](https://myanimelist.net/character.php?q=Higuchi%20Seitarou&cat=character), [**Yojouhan Shinwa Taikei**](https://myanimelist.net/search/all?q=Yojouhan%20Shinwa%20Taikei&cat=all)
