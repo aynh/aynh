@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So maybe I can't defend against attacks from multiple angles, but sometimes a good defense is just kicking ass!"
+> "I don't even know the real names of the two... no, three that I killed back then. I just close my eyes, put my hands over my ears and tried to forget it all."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
