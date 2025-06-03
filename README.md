@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you’ve got time to point fingers, then how about using your head to figure out what you want to do about it?"
+> "Then just become stronger. I have my ambition, you have your ambition too. Which means you should just keep walking forward towards that goal."
 
-&mdash; [**Karma Akabane**](https://myanimelist.net/character.php?q=Karma%20Akabane&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
