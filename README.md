@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People are crazy for believing that these walls will protect us forever. Even though the walls have been intact for the past 100 years, there’s nothing that can guarantee they won’t be broken down today…"
+> "It’s dangerous for them to grow up without experiencing true competition. Because they’ll keep whining, even without taking the matter seriously. For those with a high level of aptitude... The sooner they know the frustration of defeat, the greater their growth will be."
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
