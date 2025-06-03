@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It’s dangerous for them to grow up without experiencing true competition. Because they’ll keep whining, even without taking the matter seriously. For those with a high level of aptitude... The sooner they know the frustration of defeat, the greater their growth will be."
+> "Perhaps the souls of those we couldn't save, will eventually find their way to my sister. If they do, could they relay a message for me? That I promise to live for her too. And even if she feels a little lonely, just wait there for me for a little while longer."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Ikoma**](https://myanimelist.net/character.php?q=Ikoma&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
