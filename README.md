@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "DYNAMIC ENTRY!"
+> "I already lost this life. I do not intend to stretch it out at the cost of my honor."
 
-&mdash; [**Might Guy**](https://myanimelist.net/character.php?q=Might%20Guy&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Jean**](https://myanimelist.net/character.php?q=Jean&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
