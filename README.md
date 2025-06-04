@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want nothing more than to be a bayonet; a bayonet wielded by the hand of God. I would have been happy to be born a storm, or a divine threat; a mighty explosion or even a terrible hurricane. A divine force of nature without heart or pity. And if this relic can transform me into such a thing...then I am happy to abandon my humanity."
+> "DYNAMIC ENTRY!"
 
-&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
+&mdash; [**Might Guy**](https://myanimelist.net/character.php?q=Might%20Guy&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
