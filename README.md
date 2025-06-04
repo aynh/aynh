@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even a dim star is sending light somewhere."
+> "If you want to do damage to the other ship you have to ram them in the middle! Now do it again!"
 
-&mdash; [**Imizu Asuhi**](https://myanimelist.net/character.php?q=Imizu%20Asuhi&cat=character), [**Mikagura School Suite**](https://myanimelist.net/search/all?q=Mikagura%20School%20Suite&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
