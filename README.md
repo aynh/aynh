@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mistaking lust for love shows that you're caught in an inflationary spiral of sexual frustration."
+> "I think it's good if someone smiles when you smile at them. The beauty of voluntary acts can foster goodwill in the hearts of others. Love which doesn't ask for collateral gives us respect as people. However it's wrong to sustain that. In time, the strain will bloom into the flower called Lie...the thorny flower which hurts people."
 
-&mdash; [**Tsukihi Araragi**](https://myanimelist.net/character.php?q=Tsukihi%20Araragi&cat=character), [**Nekomonogatari: Kuro**](https://myanimelist.net/search/all?q=Nekomonogatari%3A%20Kuro&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
