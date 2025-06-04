@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If anyone does not love the Lord Jesus Christ, let them be accursed at His coming. God save you from your fate. Amen!"
+> "Your blade will never be able to touch me. Ever."
 
-&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
