@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The person that needs to be as far away from the H-bomb switch as possible in all of Japan, is right here."
+> "Fear is proof that your imagination is functioning. Frankly, I feel bad for anyone who can't feel fear. Without imagination, you can never deduce which action to take next."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Kyōko Kirigiri**](https://myanimelist.net/character.php?q=Ky%C5%8Dko%20Kirigiri&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
