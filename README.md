@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think it's good if someone smiles when you smile at them. The beauty of voluntary acts can foster goodwill in the hearts of others. Love which doesn't ask for collateral gives us respect as people. However it's wrong to sustain that. In time, the strain will bloom into the flower called Lie...the thorny flower which hurts people."
+> "I want nothing more than to be a bayonet; a bayonet wielded by the hand of God. I would have been happy to be born a storm, or a divine threat; a mighty explosion or even a terrible hurricane. A divine force of nature without heart or pity. And if this relic can transform me into such a thing...then I am happy to abandon my humanity."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
