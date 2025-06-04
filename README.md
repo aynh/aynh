@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I already lost this life. I do not intend to stretch it out at the cost of my honor."
+> "The person that needs to be as far away from the H-bomb switch as possible in all of Japan, is right here."
 
-&mdash; [**Jean**](https://myanimelist.net/character.php?q=Jean&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
