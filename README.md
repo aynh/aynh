@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to do damage to the other ship you have to ram them in the middle! Now do it again!"
+> "Come on, scribbles on the bathroom wall, please show me the path that I must follow!"
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Excel**](https://myanimelist.net/character.php?q=Excel&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
