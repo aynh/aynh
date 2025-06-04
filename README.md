@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm no expert, but I think people mope when their expectations are too high. It's tiring when you always have to overachieve. Don't overdo it. Just work on achieving what you can."
+> "Even a dim star is sending light somewhere."
 
-&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Imizu Asuhi**](https://myanimelist.net/character.php?q=Imizu%20Asuhi&cat=character), [**Mikagura School Suite**](https://myanimelist.net/search/all?q=Mikagura%20School%20Suite&cat=all)
