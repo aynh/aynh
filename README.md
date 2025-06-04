@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I would solve a friend's problem... then also find a way to keep them from ending up with a new one."
+> "I'm no expert, but I think people mope when their expectations are too high. It's tiring when you always have to overachieve. Don't overdo it. Just work on achieving what you can."
 
-&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
