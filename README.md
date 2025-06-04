@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end, aren't they just a bunch of weaklings?"
+> "Broadly speaking, there are two reasons a person feels the desire to teach something: Either he wants to pass on his successes or he wants to pass on his failures."
 
-&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
