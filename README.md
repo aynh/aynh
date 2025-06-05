@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The cold tears of a vampire, whose body is without warmth..."
+> "No human beings, regardless of who they might be, want to look directly at their own shortcomings."
 
-&mdash; [**Yuuki Natsuno**](https://myanimelist.net/character.php?q=Yuuki%20Natsuno&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Satou Tatsuhiro**](https://myanimelist.net/character.php?q=Satou%20Tatsuhiro&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
