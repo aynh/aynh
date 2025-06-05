@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Laws aren't perfect, because humans who created laws aren't perfect. It's impossible to be perfect. However, the laws are evidence of the human's struggle to be righteous."
+> "We shouldn't blame ourselves for bad things that happened to us. Sometimes, no matter what we do, we are victims of the circumstances. We should just have to pull ourselves out."
 
-&mdash; [**Soichiro Yagami**](https://myanimelist.net/character.php?q=Soichiro%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
