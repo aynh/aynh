@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, the blood rushes to my head and I feel like, if I run, I'll lose something important."
+> "I should use a cheerful joke to lighten the mood. Would you like a snack? Or, maybe I should snack on you instead?"
 
-&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
