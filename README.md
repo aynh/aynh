@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no way I'm dying before you do, you morally bankrupt Colonel with a God complex."
+> "Even if everyone calls you a liar, even if you hate yourself, I’ll be on your side."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Inori Yuzuriha**](https://myanimelist.net/character.php?q=Inori%20Yuzuriha&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
