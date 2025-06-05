@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't have to be reasonable when you're in love."
+> "I think that every day the sun rises, it may be the last time I bask in the sun."
 
-&mdash; [**Emi Yusa**](https://myanimelist.net/character.php?q=Emi%20Yusa&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
