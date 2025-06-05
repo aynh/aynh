@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You’re too kind. Remember this and take it to heart: kindness sometimes leads to even greater tragedy."
+> "Sometimes, the blood rushes to my head and I feel like, if I run, I'll lose something important."
 
-&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
