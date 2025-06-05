@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Shinpachi* When your friend is crying, cry with him. When your friend is worried, you should worry with him. And when your friend has an awkward bowel movement, then you must have an awkward bowel movement too, Shin-chan. If you are a friend, you should be able to share the other's pain, no matter what. And Shin-chan, if your friend goes down the wrong path... Then, you must stop your friend, even if it ruins your friendship. That is true samurai friendship."
+> "The cold tears of a vampire, whose body is without warmth..."
 
-&mdash; [**Shimura Tae**](https://myanimelist.net/character.php?q=Shimura%20Tae&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Yuuki Natsuno**](https://myanimelist.net/character.php?q=Yuuki%20Natsuno&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
