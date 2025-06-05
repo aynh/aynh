@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are a few things that people can't avoid while they live. People can't avoid misfortune. There are lots of hard things in life. There might even be times when you want to die."
+> "People aren't born social. Sure it comes easier to some people... but most people, like you, need to work at it. Some more than others. You're just inexperienced. For example, as a martial artist, you have the strength to break the table with your fist. But you also have the self-control to stop your fist right before it hits the table. You weren't born with that control, were you? You had to refine it. It's the same as interacting with people. But training for that isn't in the mountains - it has to be in town where people live. Mingling with people, hurting them, getting hurt by them. That's how you learn about people and about yourself. If you don't, you'll never care about anyone but yourself. You may be a black belt fighter, but you're still a white belt in dealing with people. For the sake of the girl who will one day tell you she loves you... Don't turn away. Keep training."
 
-&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
