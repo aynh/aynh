@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's odd, isn't it? People die everyday and the world goes on like nothing happened."
+> "Do you know what a scientist fears most in this world above all else? It's oblivion, my friend. A scientist measures our lives in the ways we develop and expand our knowledge through myriad variations. Nothing can take its place. It's our very soul. I have done the worst thing one scientist can do to another: I have altered your thought process. When my drug takes effect, you will find your mind has lost the ability to think."
 
-&mdash; [**Kyōko Kirigiri**](https://myanimelist.net/character.php?q=Ky%C5%8Dko%20Kirigiri&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
