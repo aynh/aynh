@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know what a scientist fears most in this world above all else? It's oblivion, my friend. A scientist measures our lives in the ways we develop and expand our knowledge through myriad variations. Nothing can take its place. It's our very soul. I have done the worst thing one scientist can do to another: I have altered your thought process. When my drug takes effect, you will find your mind has lost the ability to think."
+> "It's truly infuriating... I despise people like you who put their own lives in jeopardy for some glorious, hopeless cause."
 
-&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
