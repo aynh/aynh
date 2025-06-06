@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's truly infuriating... I despise people like you who put their own lives in jeopardy for some glorious, hopeless cause."
+> "This isn’t a situation where you can stand on principle. If there’s something you want to protect, get your hands dirty."
 
-&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**L-elf Karlstein**](https://myanimelist.net/character.php?q=L-elf%20Karlstein&cat=character), [**Valvrave the Liberator**](https://myanimelist.net/search/all?q=Valvrave%20the%20Liberator&cat=all)
