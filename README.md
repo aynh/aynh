@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time gives us happiness, but it can also take everything away from us."
+> "I want you to please understand the scales of my heart will always be swaying back and forth. But there is something you should know. I will never lean to one side or the other due to the weight of gold coins."
 
-&mdash; [**Conrad Weller**](https://myanimelist.net/character.php?q=Conrad%20Weller&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
