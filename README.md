@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You, who've taken on his name, have managed – well, nothing."
+> "If you don't like how things turned out, then try to change it. And then if it still doesn't work out, that's when you can be depressed."
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Nanana Ryuugajou**](https://myanimelist.net/character.php?q=Nanana%20Ryuugajou&cat=character), [**Ryuugajou Nanana No Maizoukin**](https://myanimelist.net/search/all?q=Ryuugajou%20Nanana%20No%20Maizoukin&cat=all)
