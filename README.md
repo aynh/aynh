@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think you've got me all wrong. My motives aren't so sophisticated as 'revenge' or 'honor' or any of that... The reason I killed all of those men... was because I could. It's that simple."
+> "I was reckless when I was young. I educated myself by cursing the heartlessness of the world. The world was cruel - so I made myself more heartless and used that as a weapon, trying to follow through on my ideals."
 
-&mdash; [**Solf J. Kimblee**](https://myanimelist.net/character.php?q=Solf%20J.%20Kimblee&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
