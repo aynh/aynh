@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unless someone makes the first move, nothing will happen."
+> "I think you've got me all wrong. My motives aren't so sophisticated as 'revenge' or 'honor' or any of that... The reason I killed all of those men... was because I could. It's that simple."
 
-&mdash; [**Misa Amane**](https://myanimelist.net/character.php?q=Misa%20Amane&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Solf J. Kimblee**](https://myanimelist.net/character.php?q=Solf%20J.%20Kimblee&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
