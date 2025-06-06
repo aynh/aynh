@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This isn’t a situation where you can stand on principle. If there’s something you want to protect, get your hands dirty."
+> "Unless someone makes the first move, nothing will happen."
 
-&mdash; [**L-elf Karlstein**](https://myanimelist.net/character.php?q=L-elf%20Karlstein&cat=character), [**Valvrave the Liberator**](https://myanimelist.net/search/all?q=Valvrave%20the%20Liberator&cat=all)
+&mdash; [**Misa Amane**](https://myanimelist.net/character.php?q=Misa%20Amane&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
