@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Before meeting you, I didn't know what it was like to feel lonely. I never even considered myself to be alone. That's because when you feel lonely, it means that there is someone for you to miss."
+> "You can't just run away, especially from the things you want to forget!"
 
-&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
