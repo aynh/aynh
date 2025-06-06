@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love and the human mind can't be analyzed with formulas. It's not so unusual for love to make you forget the sense of care and respect for others. There's no logic. It's an uncontrollable urge. To tell you the truth, it’d be worrisome if you became like that. Your mind is keen, and your character is good. But passion has nothing to do with mind or character."
+> "Yes, I saw it over and over... Meaningless massacres. Meaningless suffering. Meaningless happiness! I was forced to watch it all. Even when I refused to look, it surrounded me. That isn't what I wished for! I didn't become a Guardian for this!"
 
-&mdash; [**Alex Cazellnu**](https://myanimelist.net/character.php?q=Alex%20Cazellnu&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
