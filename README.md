@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is absurd to divide people into good and bad. People are either charming or tedious."
+> "{TO NARUTO} Oh, by the way... I'm a boy"
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
