@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "{TO NARUTO} Oh, by the way... I'm a boy"
+> "Then just become stronger. I have my ambition, you have your ambition too. Which means you should just keep walking forward towards that goal."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
