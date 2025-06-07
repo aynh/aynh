@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Then just become stronger. I have my ambition, you have your ambition too. Which means you should just keep walking forward towards that goal."
+> "[to Katara] If you want to be a bender, you have to let go of fear."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
