@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pum, Pum, Pum, Pum. I always get what I want, so just give it to me. Pum, Pum, Pum, Pum. I'm a beauty, beautiful pretty lady. But you know, you know I've got a secret yes I do. Pumpkins, Pum, Pum, Pumpkins. Pum, Pum, Pumpkins because that's my magic spell. Pum, Pum, Pumpkins, Pum, Pum, Pumpkins yeah!"
+> "I heard that when things were painful for her, she'd cover her ears with headphones and escape to the world of music. I tried it too. It was like everything was blown away. The vocals screamed for me. They grieved for me. The ones who put on the act of common sense were wrong. Those who cried were right. We, the lonely were more human. They screamed at the absurd, beat it down, and destroyed it. They saved me."
 
-&mdash; [**Blair**](https://myanimelist.net/character.php?q=Blair&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Iwasawa**](https://myanimelist.net/character.php?q=Iwasawa&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
