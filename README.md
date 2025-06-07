@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Katara] If you want to be a bender, you have to let go of fear."
+> "[sounding like Marlon Brando] I'm the Godfather of Games. Capsice?"
 
-&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Joey Wheeler**](https://myanimelist.net/character.php?q=Joey%20Wheeler&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
