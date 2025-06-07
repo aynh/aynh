@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When people get close to death they change."
+> "If you do evil out of a hatred for evil, that rage and hate will merely birth new conflict."
 
-&mdash; [**Jin-Ie Kwon**](https://myanimelist.net/character.php?q=Jin-Ie%20Kwon&cat=character), [**The Breaker**](https://myanimelist.net/search/all?q=The%20Breaker&cat=all)
+&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
