@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[sounding like Marlon Brando] I'm the Godfather of Games. Capsice?"
+> "You keep working HARD in order to win and you get better little by little. To IMMERSE yourself in something you like, that's what it means to enjoy something fully."
 
-&mdash; [**Joey Wheeler**](https://myanimelist.net/character.php?q=Joey%20Wheeler&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
