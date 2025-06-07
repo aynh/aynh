@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I heard that when things were painful for her, she'd cover her ears with headphones and escape to the world of music. I tried it too. It was like everything was blown away. The vocals screamed for me. They grieved for me. The ones who put on the act of common sense were wrong. Those who cried were right. We, the lonely were more human. They screamed at the absurd, beat it down, and destroyed it. They saved me."
+> "There's nothing unusual here… The appropriate one stands in the appropriate place after the inappropriate ones have collapsed to the ground, defeated. There is nothing unexpected or odd about it. Because this is reality. Not one shred of uncertainty exists here. Not even fear, of course…"
 
-&mdash; [**Iwasawa**](https://myanimelist.net/character.php?q=Iwasawa&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Asura**](https://myanimelist.net/character.php?q=Asura&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
