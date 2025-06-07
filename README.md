@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Evil doesn't always seep out. It's possible to hide it if you’re careful and skilled."
+> "Pum, Pum, Pum, Pum. I always get what I want, so just give it to me. Pum, Pum, Pum, Pum. I'm a beauty, beautiful pretty lady. But you know, you know I've got a secret yes I do. Pumpkins, Pum, Pum, Pumpkins. Pum, Pum, Pumpkins because that's my magic spell. Pum, Pum, Pumpkins, Pum, Pum, Pumpkins yeah!"
 
-&mdash; [**Dog**](https://myanimelist.net/character.php?q=Dog&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
+&mdash; [**Blair**](https://myanimelist.net/character.php?q=Blair&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
