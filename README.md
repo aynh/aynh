@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once my stomach settles down... You better be prepared, 'cause we'll really give you something to cry about in the mat... ugh... ch... uughh..."
+> "The little man is having trouble holding his sword. *to Inuyasha*"
 
-&mdash; [**Shōyō Hinata**](https://myanimelist.net/character.php?q=Sh%C5%8Dy%C5%8D%20Hinata&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
