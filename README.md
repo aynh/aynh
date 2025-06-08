@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's only natural for the girl you're crushing on to be in love with someone else. Since you're in love with her, she sparkles in your eyes. That's why people fall so irrationally in love."
+> "*To Android 19* Just as I thought... you're nothing. Silly robot, you really think you have a chance against a super saiyan like me? Your brain must be malfunctioning. Fresh out of the factory with no warranty and already broken. What a pity."
 
-&mdash; [**Watari Ryouta**](https://myanimelist.net/character.php?q=Watari%20Ryouta&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
