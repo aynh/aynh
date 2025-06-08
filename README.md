@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sure I'm okay. Because that's how I was built, after all."
+> "What would you ask a grave, which can never reply? What do you pray for? Saying anything after someone's death is far too late."
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
