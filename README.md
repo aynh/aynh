@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Android 19* Just as I thought... you're nothing. Silly robot, you really think you have a chance against a super saiyan like me? Your brain must be malfunctioning. Fresh out of the factory with no warranty and already broken. What a pity."
+> "Listen up, I don't care what you punks do around the universe. But with this, my sword… anywhere it can reach, is part of my country! Asses who blunder in and violate my things… whether it be a Shogun, whether it be space pirates, whether it be a meteorite - I'll destroy them!!"
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
