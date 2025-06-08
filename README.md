@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I suddenly showed up, would I bother him? Surprise him? There’s no way we could meet. But what if we did? What should I do? Would I annoy him? Would it be awkward? Or maybe… He’d be a bit glad to see me?"
+> "It's only natural for the girl you're crushing on to be in love with someone else. Since you're in love with her, she sparkles in your eyes. That's why people fall so irrationally in love."
 
-&mdash; [**Mitsuha Miyamizu**](https://myanimelist.net/character.php?q=Mitsuha%20Miyamizu&cat=character), [**Kimi no Na wa**](https://myanimelist.net/search/all?q=Kimi%20no%20Na%20wa&cat=all)
+&mdash; [**Watari Ryouta**](https://myanimelist.net/character.php?q=Watari%20Ryouta&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
