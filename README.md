@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our lives become a reality through the most meticulous calculations. Doing our best to continue living is a resolution ingrained in all of us. And this shapes the right future for us. You could say it is life’s greatest mystery. I want to observe the destination reached by the many lives that are created."
+> "The past isn't something you can just throw away. It stays with us forever. It's the same for everyone. We must live on, and carry the burdens of the past with us. That's why it's important that you carry the burden of what you do now and how you've decided to live your life today."
 
-&mdash; [**Akari**](https://myanimelist.net/character.php?q=Akari&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
+&mdash; [**Train Heartnet**](https://myanimelist.net/character.php?q=Train%20Heartnet&cat=character), [**Black Cat**](https://myanimelist.net/search/all?q=Black%20Cat&cat=all)
