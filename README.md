@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If someone you care for is ever in the eyes of danger, don't hesitate to save himher."
+> "Um well Miss Maka? Can you do me a favor and help me out with your father? I can't get him off my leg."
 
-&mdash; [**Aoi Toori**](https://myanimelist.net/character.php?q=Aoi%20Toori&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
+&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
