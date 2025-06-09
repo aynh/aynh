@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if your heart feels like it's been stabbed, it won't bleed or leave a scar behind. There'll be someone who'll help you bear the pain. It'll all work out, so don't brood over it. No matter how much it seems to hurt, it's all just a trick of the mind."
+> "If it's not enough to believe in justice, then I will become justice. I will seek out all evil in this world and wipe them out like the clouds in the sky. I swear I will...For justice."
 
-&mdash; [**Saya Irino**](https://myanimelist.net/character.php?q=Saya%20Irino&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
