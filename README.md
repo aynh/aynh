@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Um well Miss Maka? Can you do me a favor and help me out with your father? I can't get him off my leg."
+> "You should know. Your wish will not come true unless there is a clear evil. Even if it's not something you approve of, a hero of justice requires a villain to defeat."
 
-&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
