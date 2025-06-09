@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Zuko* You're looking at the rare white dragon bush. It's leaves make a tea sooo delicious, it's heartbreaking... THAT, or it's the white jade bush, which is poisonous."
+> "Our lives become a reality through the most meticulous calculations. Doing our best to continue living is a resolution ingrained in all of us. And this shapes the right future for us. You could say it is life’s greatest mystery. I want to observe the destination reached by the many lives that are created."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Akari**](https://myanimelist.net/character.php?q=Akari&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
