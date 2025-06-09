@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's so special about studying? Every problem has an answer. How hard can it be?"
+> "Charm is reserved for dealing with people with more power than you."
 
-&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Chihayafuru 2**](https://myanimelist.net/character.php?q=Chihayafuru%202&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
