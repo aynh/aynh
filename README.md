@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'd be lying if I said things are going according to my plan... but beggars can't be choosers, right?"
+> "If you can't give up one, learn to balance both at the same time. Why does it have to be all or nothing?"
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Kenji Yamaguchi**](https://myanimelist.net/character.php?q=Kenji%20Yamaguchi&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
