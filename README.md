@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You should know. Your wish will not come true unless there is a clear evil. Even if it's not something you approve of, a hero of justice requires a villain to defeat."
+> "What's so special about studying? Every problem has an answer. How hard can it be?"
 
-&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
