@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once, there was a tiger striped cat. This cat, died a million deaths, revived and lived a million lives. And he had various owners that he didn't really care about, the cat wasn't afraid to die. Then ONE day, he met a white female cat, the two of them fell in love and lived together happily. Well, the years went by and the white female cat got old and passed away. The Tiger Striped cat cried a million times, then he also died. But this time.....he didn't come back."
+> "Even if your heart feels like it's been stabbed, it won't bleed or leave a scar behind. There'll be someone who'll help you bear the pain. It'll all work out, so don't brood over it. No matter how much it seems to hurt, it's all just a trick of the mind."
 
-&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Saya Irino**](https://myanimelist.net/character.php?q=Saya%20Irino&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
