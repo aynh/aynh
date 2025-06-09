@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past isn't something you can just throw away. It stays with us forever. It's the same for everyone. We must live on, and carry the burdens of the past with us. That's why it's important that you carry the burden of what you do now and how you've decided to live your life today."
+> "A king must live a life more vivid than any other and be figure for all to admire! The king is the one who collects the envy of all his heroes and stands as their guide! Therefore, the king is not alone! For his will equals that of all his followers combined!"
 
-&mdash; [**Train Heartnet**](https://myanimelist.net/character.php?q=Train%20Heartnet&cat=character), [**Black Cat**](https://myanimelist.net/search/all?q=Black%20Cat&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
