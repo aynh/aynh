@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can't give up one, learn to balance both at the same time. Why does it have to be all or nothing?"
+> "Those who win are not strong. It is those who lose and crawl back up who are strong."
 
-&mdash; [**Kenji Yamaguchi**](https://myanimelist.net/character.php?q=Kenji%20Yamaguchi&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
