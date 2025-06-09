@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even innocent foolish children will grow up in the face of pain, until their thoughts and beliefs are the same as their doubts."
+> "I'd be lying if I said things are going according to my plan... but beggars can't be choosers, right?"
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
