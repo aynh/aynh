@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A man's come all the way out to the end of the North to ask for my help. Wouldn't it be rude to wait to hear what he wanted?"
+> "None of you will ever escape the curse, as I could not. Residents of the boxes like you could never gain anything. You will all simply disappear without leaving anything behind in this world. You won't even leave a fleck of dust behind - you will never be happy!"
 
-&mdash; [**William Massachusetts**](https://myanimelist.net/character.php?q=William%20Massachusetts&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Sanetoshi Watase**](https://myanimelist.net/character.php?q=Sanetoshi%20Watase&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
