@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Keep fighting on, even if it ain't worth much."
+> "I am a god with a heart, but there’s one thing I cannot tolerate… people who don’t pay their proper respect to others."
 
-&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
