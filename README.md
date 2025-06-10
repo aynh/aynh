@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But I want to play around before some noisy people come!"
+> "I had a lot of dreams as a child. I wanted many people to listen to the piano. I wanted to fly. I wanted to communicate with animals. Those dreams have all pretty much come true. Right now, I have a different dream. What mankind can imagine is what mankind can make into a reality. The imagination is a weapon. It is far superior than anything else in the world."
 
-&mdash; [**Kankuro**](https://myanimelist.net/character.php?q=Kankuro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Licht Jekylland Todoroki**](https://myanimelist.net/character.php?q=Licht%20Jekylland%20Todoroki&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
