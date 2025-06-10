@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey hun! I’ve got a great idea, let’s trade! Yo take my spot and I’ll fight Hercule!"
+> "Keep fighting on, even if it ain't worth much."
 
-&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
