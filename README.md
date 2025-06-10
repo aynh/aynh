@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I choose my own battlefields. Not by my blood, but by my heart! I stand on the battlefield to protect what's important to me. And if anyone stands in my way, I don't care if it's one of my kind, my brother or anyone else… I'll crush them all!"
+> "Gekokujou."
 
-&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Wakashi Hiyoshi**](https://myanimelist.net/character.php?q=Wakashi%20Hiyoshi&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
