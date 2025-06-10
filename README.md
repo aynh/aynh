@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I haven't said anything about letting them commit murder...yet."
+> "No, things can change. But things don't have to change. Whatever is fine."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Hikari Sakishima**](https://myanimelist.net/character.php?q=Hikari%20Sakishima&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
