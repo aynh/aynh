@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I finally remembered why I'm here to begin with. I'll kill you, you shitbag! I won't let you play your trump card! I'll blow you away and get a happy ending."
+> "Wasted effort is one of the privileges of the youth."
 
-&mdash; [**Subaru Natsuki**](https://myanimelist.net/character.php?q=Subaru%20Natsuki&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
+&mdash; [**Undertaker**](https://myanimelist.net/character.php?q=Undertaker&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
