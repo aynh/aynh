@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, nothing in life is ever certain."
+> "This isn't divine jugdement. It's the work of some childish killer who's playing at divine retribution. That's all."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
