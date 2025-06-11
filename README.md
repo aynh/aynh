@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe everything you wish for won't become stars, but if you have a dream to believe in, they'll be thousands of the most glittering jewels in the night sky."
+> "Well, nothing in life is ever certain."
 
-&mdash; [**Ichinose Hayato**](https://myanimelist.net/character.php?q=Ichinose%20Hayato&cat=character), [**Uta no Prince-sama**](https://myanimelist.net/search/all?q=Uta%20no%20Prince-sama&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
