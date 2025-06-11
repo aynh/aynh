@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Aang, who is playing around] Stop! Stop it right now! What's wrong with you? We don't have time for fun and games with the war going on."
+> "Maybe everything you wish for won't become stars, but if you have a dream to believe in, they'll be thousands of the most glittering jewels in the night sky."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Ichinose Hayato**](https://myanimelist.net/character.php?q=Ichinose%20Hayato&cat=character), [**Uta no Prince-sama**](https://myanimelist.net/search/all?q=Uta%20no%20Prince-sama&cat=all)
