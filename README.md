@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Keep fighting on, even if it ain't worth much."
+> "There isn't anyone who doesn't feel regret or sadness."
 
-&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Lavi**](https://myanimelist.net/character.php?q=Lavi&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
