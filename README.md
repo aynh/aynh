@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let me tell you something... Real sin is something you can never atone for."
+> "Oh right, most talented artists become famous after they're dead, I'll make you great by taking you to the cemetery called prison!"
 
-&mdash; [**Ban**](https://myanimelist.net/character.php?q=Ban&cat=character), [**The Seven Deadly Sins**](https://myanimelist.net/search/all?q=The%20Seven%20Deadly%20Sins&cat=all)
+&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
