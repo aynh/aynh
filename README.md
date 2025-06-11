@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A choice isn't something someone gives you, it's something you make for yourself."
+> "Oh, well. No matter what path they take, people without guts have nothing ahead of them."
 
-&mdash; [**Papillon**](https://myanimelist.net/character.php?q=Papillon&cat=character), [**Busou Renkin**](https://myanimelist.net/search/all?q=Busou%20Renkin&cat=all)
+&mdash; [**Hiruma Youichi**](https://myanimelist.net/character.php?q=Hiruma%20Youichi&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
