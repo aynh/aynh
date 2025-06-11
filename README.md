@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I can get my target to move as I want, I've succeeded as a Hunter."
+> "Let me tell you something... Real sin is something you can never atone for."
 
-&mdash; [**Ging Freecss**](https://myanimelist.net/character.php?q=Ging%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Ban**](https://myanimelist.net/character.php?q=Ban&cat=character), [**The Seven Deadly Sins**](https://myanimelist.net/search/all?q=The%20Seven%20Deadly%20Sins&cat=all)
