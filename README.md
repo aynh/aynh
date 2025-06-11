@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I had a lot of dreams as a child. I wanted many people to listen to the piano. I wanted to fly. I wanted to communicate with animals. Those dreams have all pretty much come true. Right now, I have a different dream. What mankind can imagine is what mankind can make into a reality. The imagination is a weapon. It is far superior than anything else in the world."
+> "If you believe it was destined to happen it is most likely to happen, if you believe nothing has been decided then most likely nothing has been decided."
 
-&mdash; [**Licht Jekylland Todoroki**](https://myanimelist.net/character.php?q=Licht%20Jekylland%20Todoroki&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
