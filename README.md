@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What if, and this is strictly hypothetical, what if you could reload your save data to change your previous choice, like in a game? Would it change your life? The answer is a resounding no."
+> "When you fall in love with someone, you want everything from them. Its only natural to feel that way... but real love can only happen when you want what's best for the other person and never ask for anything in return."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Nobuo Terashima**](https://myanimelist.net/character.php?q=Nobuo%20Terashima&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
