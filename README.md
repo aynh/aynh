@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't care how pathetic or embarassing I look in front of everyone. My love for him...only that...is my bitter sweet treasure."
+> "I... the society I was in- says that if you don't have anything you want to do, then you're no good. That if you don't have dreams, you're no good. If you don't win, you're no good. If you can't get a nice life... if you can't accumulate a lot... then you aren't happy, they said. And yet... and yet, mom... I... I just wanted you to say that I'm fine how I am. That's all."
 
-&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Sei**](https://myanimelist.net/character.php?q=Sei&cat=character), [**Suicide Island**](https://myanimelist.net/search/all?q=Suicide%20Island&cat=all)
