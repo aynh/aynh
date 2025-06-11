@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't need some ring or some throne! If it means that I won't lose you... I would throw everything away!"
+> "[to Aang, who is playing around] Stop! Stop it right now! What's wrong with you? We don't have time for fun and games with the war going on."
 
-&mdash; [**Livius Orvinus Ifrikia**](https://myanimelist.net/character.php?q=Livius%20Orvinus%20Ifrikia&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
