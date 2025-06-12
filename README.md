@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Skin him. Now. Barbeque the bastard!! (referring to Ayame)"
+> "They say that fools learn from their experiences, while the wise learn from history. I hope you're not a fool."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
