@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A girlfriend isn't something you get just because you want one. You meet someone you like, and you want to spend time together. That's why you'd want that person as your girlfriend, right?"
+> "Skin him. Now. Barbeque the bastard!! (referring to Ayame)"
 
-&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
