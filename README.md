@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You trusted me, so I'll trust you too. That's what being friends means, doesn't it?"
+> "Having my fate decided for me from the time I was born goes against my view of beauty."
 
-&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Jae-ha**](https://myanimelist.net/character.php?q=Jae-ha&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
