@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Protecting a man’s pride… is a woman’s duty."
+> "A miracle something like that won't come if you're waiting for it. A miracle is something you work for!"
 
-&mdash; [**Saeko Busujima**](https://myanimelist.net/character.php?q=Saeko%20Busujima&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Taro Raimon**](https://myanimelist.net/character.php?q=Taro%20Raimon&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
