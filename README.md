@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say that fools learn from their experiences, while the wise learn from history. I hope you're not a fool."
+> "You can't ever win if you're always on the defensive. To win, you have to attack!"
 
-&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
