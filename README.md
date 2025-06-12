@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Actually... Ponytails turn me on... that ponytail you had back then, it looked so good it was criminal!"
+> "Protecting a man’s pride… is a woman’s duty."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Saeko Busujima**](https://myanimelist.net/character.php?q=Saeko%20Busujima&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
