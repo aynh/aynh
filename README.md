@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dictatorship itself isn't absolutely evil, it's just another form of government. The point is how you can run it for the benefit of society."
+> "Up until now, have you not faced the same enemies as I? That means you are my friend! So hold your chest high, and consider yourself my equal."
 
-&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
