@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A miracle something like that won't come if you're waiting for it. A miracle is something you work for!"
+> "What does it mean to be a winner? Is it the last one standing? It means to climb over a mountain of corpses to get to the top. By no means is it a glorious sight to behold, in fact, it is extremely cruel. Even so, if you still wish to seek victory... then you must become a devil."
 
-&mdash; [**Taro Raimon**](https://myanimelist.net/character.php?q=Taro%20Raimon&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
+&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
