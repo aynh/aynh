@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've decided to take this unrequited love, and quietly put it away in a corner of my heart as a bittersweet page of my youth."
+> "Gilbert, I know everything about you... because we are connected by an extremely deep bond. No matter how far apart we are, we will surely return to the same place. Because that is our fate!"
 
-&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Vincent Nightray**](https://myanimelist.net/character.php?q=Vincent%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
