@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Up until now, have you not faced the same enemies as I? That means you are my friend! So hold your chest high, and consider yourself my equal."
+> "Whether doing good or evil, I will be the boss."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
