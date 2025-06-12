@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether doing good or evil, I will be the boss."
+> "You have the strongest armour, because you are the weakest!"
 
-&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
