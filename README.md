@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have the strongest armour, because you are the weakest!"
+> "I've decided to take this unrequited love, and quietly put it away in a corner of my heart as a bittersweet page of my youth."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
