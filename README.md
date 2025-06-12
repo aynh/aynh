@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past is just the past. There's no inherent value in getting over it or catching up to it."
+> "A girlfriend isn't something you get just because you want one. You meet someone you like, and you want to spend time together. That's why you'd want that person as your girlfriend, right?"
 
-&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
