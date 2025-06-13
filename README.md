@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who am I? One name you might have for me is the world, or you might call me the universe, or perhaps God, or perhaps the Truth. I am All, and I am One. So, of course, this also means that I am you. I am the truth of your despair, the inescapable price of your boastfulness. And now, I will bestow upon you the despair you deserve."
+> "You should quake in fear of your impending death."
 
-&mdash; [**Truth**](https://myanimelist.net/character.php?q=Truth&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
