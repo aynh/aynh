@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let me tell you something. Humans don't even have the patience to wait even ten minutes for something!"
+> "Jomy is still young, he doesn't know that there will be problems that he can't overcome with just will."
 
-&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Soldier Blue**](https://myanimelist.net/character.php?q=Soldier%20Blue&cat=character), [**Terra E**](https://myanimelist.net/search/all?q=Terra%20E&cat=all)
