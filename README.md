@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But even though she's gone... she's not really gone, right? That the light won't go on in that apartment... is a lie, right?"
+> "Re-explaining my memories through words made good memories easier to savor, and bad memories easier to accept."
 
-&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kusonoki**](https://myanimelist.net/character.php?q=Kusonoki&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
