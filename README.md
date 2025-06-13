@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing can stay unchanged. Fun things… Happy things… They can’t possibly remain the same."
+> "Suna, maybe people all have a hot, molten core inside their hearts, but they just live their lives, never showing it to the world, as if nothing is really going on."
 
-&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Takeo Gouda**](https://myanimelist.net/character.php?q=Takeo%20Gouda&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
