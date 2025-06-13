@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I always knew you were no mere mortal... but I had no idea that you were a cat."
+> "Nothing can stay unchanged. Fun things… Happy things… They can’t possibly remain the same."
 
-&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
