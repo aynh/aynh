@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because of the existence of love - sacrifice is born. As well as hate. Then one comprehends... one knows PAIN."
+> "Who am I? One name you might have for me is the world, or you might call me the universe, or perhaps God, or perhaps the Truth. I am All, and I am One. So, of course, this also means that I am you. I am the truth of your despair, the inescapable price of your boastfulness. And now, I will bestow upon you the despair you deserve."
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Truth**](https://myanimelist.net/character.php?q=Truth&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
