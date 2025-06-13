@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Having my fate decided for me from the time I was born goes against my view of beauty."
+> "In ages past, dragons and men were one. Those who lusted after wealth chose the land and the sea and became men. Those who cherished freedom, became dragons and chose wind and fire."
 
-&mdash; [**Jae-ha**](https://myanimelist.net/character.php?q=Jae-ha&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Root**](https://myanimelist.net/character.php?q=Root&cat=character), [**Tales from Earthsea**](https://myanimelist.net/search/all?q=Tales%20from%20Earthsea&cat=all)
