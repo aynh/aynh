@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Jomy is still young, he doesn't know that there will be problems that he can't overcome with just will."
+> "You see everyone wants everything, that's the way the world is. But I just might actually get it."
 
-&mdash; [**Soldier Blue**](https://myanimelist.net/character.php?q=Soldier%20Blue&cat=character), [**Terra E**](https://myanimelist.net/search/all?q=Terra%20E&cat=all)
+&mdash; [**Jigo**](https://myanimelist.net/character.php?q=Jigo&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
