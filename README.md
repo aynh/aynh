@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Suna, maybe people all have a hot, molten core inside their hearts, but they just live their lives, never showing it to the world, as if nothing is really going on."
+> "I wonder what sort of criteria you use to divide people into good and evil."
 
-&mdash; [**Takeo Gouda**](https://myanimelist.net/character.php?q=Takeo%20Gouda&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
