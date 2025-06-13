@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In ages past, dragons and men were one. Those who lusted after wealth chose the land and the sea and became men. Those who cherished freedom, became dragons and chose wind and fire."
+> "Because of the existence of love - sacrifice is born. As well as hate. Then one comprehends... one knows PAIN."
 
-&mdash; [**Root**](https://myanimelist.net/character.php?q=Root&cat=character), [**Tales from Earthsea**](https://myanimelist.net/search/all?q=Tales%20from%20Earthsea&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
