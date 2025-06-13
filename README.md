@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'If I do this, I can stop the rebellion”, “if I do that, I can stop the rebellion”... Open your eyes, princess! Your zealous idealism disgusts me! Ideals can only be spoken by those powerful enough to carry them out. And that excludes you!"
+> "Let me tell you something. Humans don't even have the patience to wait even ten minutes for something!"
 
-&mdash; [**Crocodile**](https://myanimelist.net/character.php?q=Crocodile&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
