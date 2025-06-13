@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Re-explaining my memories through words made good memories easier to savor, and bad memories easier to accept."
+> "A normal guy like me isn't going to be part of some 'believe it or not' episode with nutcases like you guys!"
 
-&mdash; [**Kusonoki**](https://myanimelist.net/character.php?q=Kusonoki&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
