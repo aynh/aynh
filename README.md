@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Naruto... Just so you know, there will be a war to protect the Eight-Tails and Nine-Tails. In other words - you. For the sake of the ninja world and as the Kazekage, I will guard you with my life. If as a member of Akatsuki, Sasuke Uchiha stands in the way of the ninja coalition... I will show him no mercy."
+> "“Your hard work will be rewarded.” What kind of idiot came up with that nonsense?"
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Hyuuga Junpei**](https://myanimelist.net/character.php?q=Hyuuga%20Junpei&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
