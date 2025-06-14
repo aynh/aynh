@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Does it hurt? Relish the taste, because it is going to be the last sensation you feel in this life."
+> "If I have to win through underhanded means, I'd rather just stand right here until I die."
 
-&mdash; [**Asakura Ryouko**](https://myanimelist.net/character.php?q=Asakura%20Ryouko&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Hayabusa Shou**](https://myanimelist.net/character.php?q=Hayabusa%20Shou&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
