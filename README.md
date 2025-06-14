@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've fought a valiant duel, my friend, and this is the hardest move I've ever had to make. But this ends now!"
+> "I'm no man's burden! I want to be of use!"
 
-&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Shizuku Tsukishima**](https://myanimelist.net/character.php?q=Shizuku%20Tsukishima&cat=character), [**Mimi wo Sumaseba**](https://myanimelist.net/search/all?q=Mimi%20wo%20Sumaseba&cat=all)
