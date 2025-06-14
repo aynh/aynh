@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The heart may be weak and sometimes it may even give in, but I've learned that deep down, there's a light that never goes out!"
+> "Does it hurt? Relish the taste, because it is going to be the last sensation you feel in this life."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**Kingdom Hearts**](https://myanimelist.net/search/all?q=Kingdom%20Hearts&cat=all)
+&mdash; [**Asakura Ryouko**](https://myanimelist.net/character.php?q=Asakura%20Ryouko&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
