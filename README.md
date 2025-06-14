@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you've been loved once and have loved once, you cannot forget it."
+> "In the end, people are all alone, and no matter how close they cling together, they can never be one. It's impossible to make someone belong to you."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Yasushi Takagi**](https://myanimelist.net/character.php?q=Yasushi%20Takagi&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
