@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "True, I've given up on the real world. However, I haven't given up on myself."
+> "The heart may be weak and sometimes it may even give in, but I've learned that deep down, there's a light that never goes out!"
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**Kingdom Hearts**](https://myanimelist.net/search/all?q=Kingdom%20Hearts&cat=all)
