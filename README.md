@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether you like it or not, time will leave you behind. In the same way that your beauty will wither away with time. In order to cling to the glorious past, people achieve peace by hurting others. People know it isn't the right thing to do, but they're unable to stop any of it. Wouldn't you agree that someone needs to teach them a lesson?"
+> "True, I've given up on the real world. However, I haven't given up on myself."
 
-&mdash; [**Ribbons Almark**](https://myanimelist.net/character.php?q=Ribbons%20Almark&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
