@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's the point of something that disappears as soon as it's born?"
+> "I don't intentionally ignore anyone. Their words simply don't resonate with me."
 
-&mdash; [**Sasori**](https://myanimelist.net/character.php?q=Sasori&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Asaba Yuki**](https://myanimelist.net/character.php?q=Asaba%20Yuki&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
