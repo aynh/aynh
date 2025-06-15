@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes the truth can hurt others more than a lie."
+> "They don't call me Greed for nothing! I want money, I want women, status and power! I want everything this world's selling and eternity's topping the list!"
 
-&mdash; [**Nonomiya**](https://myanimelist.net/character.php?q=Nonomiya&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
+&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
