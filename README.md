@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Music speaks louder than words."
+> "It's never been 'The one who becomes Hokage will be acknowledge by everyone', it's 'The one who is acknowledge by everyone, becomes the Hokage'."
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
