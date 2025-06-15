@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What does someone who´s lost their standing want the most? That's simple. They want someone to find them, where they're standing."
+> "Everyone lives their own way. Whether you live for yourself or live for others... that is your own decision. A life of earnestly protecting and tending to someone isn't bad either. Though it's not that glorious of a life."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Naoto Inaba**](https://myanimelist.net/character.php?q=Naoto%20Inaba&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
