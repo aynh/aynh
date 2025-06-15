@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let me tell you an incomprehensible story! What is it for the actions of men to be incomprehensible? It would seem to me that if it can't be comprehended, one should not even bother trying. It is useless to even think about it, I think. That said, I don't know exactly what's going on but may we continue fighting please?"
+> "Music speaks louder than words."
 
-&mdash; [**Graham Specter**](https://myanimelist.net/character.php?q=Graham%20Specter&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
