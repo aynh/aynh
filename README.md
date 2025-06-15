@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's something you can't see unless you're standing at the top, to experience that for the first time, I'm struggling to a higher place than anyone else, isn't that what freedom is?"
+> "It's all right to grieve over your defeat. It's important to admit when you've lost. Not being able to do so makes it impossible for you to climb back up after a fall, and even more impossible, for you to move forward. So go on ahead and grieve to your heart's extent. But after you're done grieving, be sure to set your eyes upon your next goal and move towards it."
 
-&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Yoshii Akira**](https://myanimelist.net/character.php?q=Yoshii%20Akira&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
