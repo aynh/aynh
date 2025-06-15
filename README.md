@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Have you been out on the window ledge all this time, in plain sight? What if the neighbors report a silver haired elementary student burglar?"
+> "Hey, why does this situation look like something at the end of a shonen manga?!"
 
-&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
