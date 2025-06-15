@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end, people are all alone, and no matter how close they cling together, they can never be one. It's impossible to make someone belong to you."
+> "Have you been out on the window ledge all this time, in plain sight? What if the neighbors report a silver haired elementary student burglar?"
 
-&mdash; [**Yasushi Takagi**](https://myanimelist.net/character.php?q=Yasushi%20Takagi&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
