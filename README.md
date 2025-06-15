@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death no longer terrifies man, the smell of blood is as common as the smell of white plums. So, he creates slavery and savagery... which surpasses the horror of dying."
+> "To everything that comes near you, I am jealous."
 
-&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
