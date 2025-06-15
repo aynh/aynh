@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The things that are most important aren't written in books. You have to learn them by experiencing them yourself."
+> "What's the point of something that disappears as soon as it's born?"
 
-&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sasori**](https://myanimelist.net/character.php?q=Sasori&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
