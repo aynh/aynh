@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is just another word for the things you value around you, right? That's something I've had since I was born. If you tell me to rule such a world, I already rule it."
+> "There's an airbender in our presence and not just any airbender, the Avatar! Now what do you have to say for yourself, Mr. Pipinpadaloxicopolis?!"
 
-&mdash; [**Tohsaka Rin**](https://myanimelist.net/character.php?q=Tohsaka%20Rin&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**King Bumi**](https://myanimelist.net/character.php?q=King%20Bumi&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
