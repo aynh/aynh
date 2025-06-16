@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If  you are lookin' back all the time, you'll never get ahead!"
+> "Kyo-kun! Kyo-kun! I do love you, Kyo-kun! I love you!!!"
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
