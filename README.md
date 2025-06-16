@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't just mindlessly judge people as you please."
+> "Become an idol who can laugh through the bitterness. If you do that, you can make everyone happy."
 
-&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Johnny Beppu**](https://myanimelist.net/character.php?q=Johnny%20Beppu&cat=character), [**Aikatsu!**](https://myanimelist.net/search/all?q=Aikatsu!&cat=all)
