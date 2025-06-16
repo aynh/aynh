@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To take responsibility is to take the pain onto yourself. It means to bear more pain than what others felt because of your mistake."
+> "We humans can indeed lose again something we've lost already."
 
-&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
