@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll back off for now. Next time I won't hesitate to destroy you. Take this time to make your tombstone..."
+> "If  you are lookin' back all the time, you'll never get ahead!"
 
-&mdash; [**Yuki Nagato**](https://myanimelist.net/character.php?q=Yuki%20Nagato&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
