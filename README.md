@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has their own talents, and strong wills that won't lose to anyone else."
+> "I already lost this life. I do not intend to stretch it out at the cost of my honor."
 
-&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Jean**](https://myanimelist.net/character.php?q=Jean&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
