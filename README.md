@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What are you talking about, Ryu?! That's no damsel, that's a dude!"
+> "You might be able to do it if you try. But if you don't try, you definitely can't."
 
-&mdash; [**Horohoro**](https://myanimelist.net/character.php?q=Horohoro&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Inori Yuzuriha**](https://myanimelist.net/character.php?q=Inori%20Yuzuriha&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
