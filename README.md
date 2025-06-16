@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I already lost this life. I do not intend to stretch it out at the cost of my honor."
+> "Don't just mindlessly judge people as you please."
 
-&mdash; [**Jean**](https://myanimelist.net/character.php?q=Jean&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
