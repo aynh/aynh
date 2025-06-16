@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So, are you stupid enough to fall for such a stupid trap that such stupid people set up?"
+> "I'll back off for now. Next time I won't hesitate to destroy you. Take this time to make your tombstone..."
 
-&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Yuki Nagato**](https://myanimelist.net/character.php?q=Yuki%20Nagato&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
