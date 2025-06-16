@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's wrong Frieza? Is your brain another one of your weak and under used muscles?"
+> "But being optimistic isn't a bad thing, is it? It's not like you're doing anything bad. It's also not like you're cheating either."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
