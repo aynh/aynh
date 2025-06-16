@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We humans can indeed lose again something we've lost already."
+> "It's not justice if you don't go overboard."
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Myouri Unzen**](https://myanimelist.net/character.php?q=Myouri%20Unzen&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
