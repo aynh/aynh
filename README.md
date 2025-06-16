@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wanted to hurt you, make you suffer, and make sure that you'd never forget me."
+> "The world is just another word for the things you value around you, right? That's something I've had since I was born. If you tell me to rule such a world, I already rule it."
 
-&mdash; [**Miu Asakura**](https://myanimelist.net/character.php?q=Miu%20Asakura&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
+&mdash; [**Tohsaka Rin**](https://myanimelist.net/character.php?q=Tohsaka%20Rin&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
