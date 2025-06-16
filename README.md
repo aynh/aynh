@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You might be able to do it if you try. But if you don't try, you definitely can't."
+> "What's wrong Frieza? Is your brain another one of your weak and under used muscles?"
 
-&mdash; [**Inori Yuzuriha**](https://myanimelist.net/character.php?q=Inori%20Yuzuriha&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
