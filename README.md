@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You should just steal the things you want."
+> "Every school story has to have a maid character!"
 
-&mdash; [**Five**](https://myanimelist.net/character.php?q=Five&cat=character), [**Terror in Resonance**](https://myanimelist.net/search/all?q=Terror%20in%20Resonance&cat=all)
+&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
