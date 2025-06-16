@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Become an idol who can laugh through the bitterness. If you do that, you can make everyone happy."
+> "A sixth sense cannot make up for a total lack of common sense."
 
-&mdash; [**Johnny Beppu**](https://myanimelist.net/character.php?q=Johnny%20Beppu&cat=character), [**Aikatsu!**](https://myanimelist.net/search/all?q=Aikatsu!&cat=all)
+&mdash; [**Saki Hanajima**](https://myanimelist.net/character.php?q=Saki%20Hanajima&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
