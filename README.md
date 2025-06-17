@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kakarot… please… destroy Frieza… He made me what I am. Don’t… let him… do it… to anyone else. Whatever it take… Stop him… Please."
+> "There's no knowing how others are feeling unless you ask them. And your feelings can't get through to others unless you tell them directly."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
