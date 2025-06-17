@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey mister, I am mad scientist. It's SO COOOOOL!!! Sonovabitch."
+> "Just like humans, approve killing animals in society, we, approve the killing of humans."
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Mutou Tohru**](https://myanimelist.net/character.php?q=Mutou%20Tohru&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
