@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When pressured, people tend to choose the decision that is best fitted to the situation, but they usually realize later on, that it was a mistake."
+> "I envy you. You've been betrayed and hurt, yet you can still forgive each other. I envy you for having such a great friend."
 
-&mdash; [**Tezuka Kunimitsu**](https://myanimelist.net/character.php?q=Tezuka%20Kunimitsu&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Kuroyukihime**](https://myanimelist.net/character.php?q=Kuroyukihime&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
