@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the being casting judgment is perfect, then it has to judge itself as well."
+> "There are stars and planets floating around me. I don't think I could handle astronomy right now."
 
-&mdash; [**Jouji Saiga**](https://myanimelist.net/character.php?q=Jouji%20Saiga&cat=character), [**Psycho-Pass 2**](https://myanimelist.net/search/all?q=Psycho-Pass%202&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
