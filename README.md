@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, I'd better get back to my seat. The unmarried woman with her unmarried face is about to come to start the unmarried homeroom."
+> "I am a scientist, I have to act on my own theory. I can't let my emotions get in the way. But it's impossible to forget everything... because I've known you for longer than we've lived. This is reality. This is the world."
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
