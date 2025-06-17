@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once I'm dead, I won't even be able to remember you. So I'll win, no matter what. I'll live, no matter what!"
+> "Chastity and grace - traditional virtues that have been lost. They comprise the educational ideology of Ousou Academy. They're priorities that are not valued in boys, only in girls. After having them instilled in us, we're shipped out as brand-name product, refined, sheltered maidens, and purchased by men who seek a classic piece of furniture called 'a good wife and mother' in a formality known as marriage. Students in this school are all components that will be processed into an artwork called 'the lady'. They are rough stones waiting to be polished and finished up. They live sad and boring lives, even though there are many other possible ways they could bloom."
 
-&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Oryou Rikako**](https://myanimelist.net/character.php?q=Oryou%20Rikako&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
