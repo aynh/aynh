@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just like humans, approve killing animals in society, we, approve the killing of humans."
+> "For you I will go deeper than mountains, and higher than sea."
 
-&mdash; [**Mutou Tohru**](https://myanimelist.net/character.php?q=Mutou%20Tohru&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Apachai**](https://myanimelist.net/character.php?q=Apachai&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
