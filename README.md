@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The beauty of the stars never changes. However, stars that change are beautiful as well."
+> "When pressured, people tend to choose the decision that is best fitted to the situation, but they usually realize later on, that it was a mistake."
 
-&mdash; [**Eucliwood Hellscythe**](https://myanimelist.net/character.php?q=Eucliwood%20Hellscythe&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
+&mdash; [**Tezuka Kunimitsu**](https://myanimelist.net/character.php?q=Tezuka%20Kunimitsu&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
