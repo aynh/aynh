@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life will someday extinguish. Why don't you start burning it now?"
+> "Who can gaze into the mirror without becoming evil? The mirror does not reflect evil, but creates it."
 
-&mdash; [**Scorpio Kardia**](https://myanimelist.net/character.php?q=Scorpio%20Kardia&cat=character), [**Saint Seiya: The Lost Canvas**](https://myanimelist.net/search/all?q=Saint%20Seiya%3A%20The%20Lost%20Canvas&cat=all)
+&mdash; [**Motoko Kusanagi**](https://myanimelist.net/character.php?q=Motoko%20Kusanagi&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
