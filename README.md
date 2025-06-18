@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will fight for my friends than watching them get hurt, I will fight for those I love."
+> "If you use your head, you won't get fat even if you eat sweets."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
