@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Men who can't wipe away the tears from a women's eyes, aren't real men."
+> "A heaven that only watches has no meaning."
 
-&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Su-won**](https://myanimelist.net/character.php?q=Su-won&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
