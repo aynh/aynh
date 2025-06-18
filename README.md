@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hinata... this is the unalterable difference in strength... the distinction that separates the elite from the failure. This is the unchangeable reality. From the moment you said you wouldn't run, your defeat was inevitable. The only possible outcome was your present despair... Withdraw!"
+> "It's not a crime if no one knows about it."
 
-&mdash; [**Neji Hyuuga**](https://myanimelist.net/character.php?q=Neji%20Hyuuga&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Nyaruko**](https://myanimelist.net/character.php?q=Nyaruko&cat=character), [**Haiyore! Nyaruko-san**](https://myanimelist.net/search/all?q=Haiyore!%20Nyaruko-san&cat=all)
