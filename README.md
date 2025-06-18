@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The power of imagination is what changes everything."
+> "Men who can't wipe away the tears from a women's eyes, aren't real men."
 
-&mdash; [**Shinsekai Yori**](https://myanimelist.net/character.php?q=Shinsekai%20Yori&cat=character), [**Shinsekai Yori**](https://myanimelist.net/search/all?q=Shinsekai%20Yori&cat=all)
+&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
