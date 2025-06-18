@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you want to tell him and want to be with him, sometimes, that's not enough."
+> "Life will someday extinguish. Why don't you start burning it now?"
 
-&mdash; [**Tateyama Ayano**](https://myanimelist.net/character.php?q=Tateyama%20Ayano&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
+&mdash; [**Scorpio Kardia**](https://myanimelist.net/character.php?q=Scorpio%20Kardia&cat=character), [**Saint Seiya: The Lost Canvas**](https://myanimelist.net/search/all?q=Saint%20Seiya%3A%20The%20Lost%20Canvas&cat=all)
