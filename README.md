@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Surely there must be limits to which one may sink."
+> "Even if you want to tell him and want to be with him, sometimes, that's not enough."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Tateyama Ayano**](https://myanimelist.net/character.php?q=Tateyama%20Ayano&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
