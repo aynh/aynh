@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I show people how weak I am, they won't need me anymore."
+> "I will fight for my friends than watching them get hurt, I will fight for those I love."
 
-&mdash; [**Himeko Inaba**](https://myanimelist.net/character.php?q=Himeko%20Inaba&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
