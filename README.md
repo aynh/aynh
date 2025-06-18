@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who do not fear the sword they wield, have no right to wield a sword at all."
+> "After spending most of my life trying to live as someone else wanted, I’d apparently forgotten who I was."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
