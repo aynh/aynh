@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This scheme of yours is beneath me.  Should it fail, Jaken, you will die."
+> "If you really want to be strong... Stop caring about what your surrounding thinks of you!"
 
-&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
