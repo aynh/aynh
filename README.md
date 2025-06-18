@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I'm with Iruka-sensei, I think if that's what having a father is like... *to Sasuke* When I'm with you, I think if that's what having a brother is like."
+> "You talk big yet you're nothing but Akito's toy! (To Yuki)"
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
