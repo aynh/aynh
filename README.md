@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We could drive them off the entire earth if we had your strength, Gintoki!"
+> "Making his presence felt on his favorite piece of work - this is an oppurtunity no otaku would miss."
 
-&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
