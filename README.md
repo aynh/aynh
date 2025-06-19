@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Old man, everyone!! And you.. Luffy. Even though I've been good for nothing my whole life, even though I have the blood of a demon within me... You guys still loved me! Thank you so much!!"
+> "In this world, there are crimes too depraved to ever be forgiven."
 
-&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Tomio Ookawa**](https://myanimelist.net/character.php?q=Tomio%20Ookawa&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
