@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, there are crimes too depraved to ever be forgiven."
+> "Whether we live or die isn't a big issue. If you focus on being alive, you develop fear. Your eyes get clouded. But if you have no such feelings... you are capable of fighting right to the end of the world."
 
-&mdash; [**Tomio Ookawa**](https://myanimelist.net/character.php?q=Tomio%20Ookawa&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
