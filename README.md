@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "From the time I was born, till the day I die...The only side I am on, is my own."
+> "No matter how small the problem is, how small the thing is, it always affects the people around you."
 
-&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
