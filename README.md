@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You guys sure are a worthless bunch. If you wanna wallow in your tears, save it for after you've done everything you can!"
+> "If you were in this situation, what would you have done? You would run after Byakuya...And then kick him in the butt, right? No matter how one captain complains, the Central Government won't change their decision for one person. But if it was you, you would still run around appealing to save Kuchiki...No. You would probably do something completely different. You always chose the path that lead to the most danger. Am I right...Kaien?"
 
-&mdash; [**Seiya Kanie**](https://myanimelist.net/character.php?q=Seiya%20Kanie&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
+&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
