@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It might be for the better if there are amusing people around me. Because any tragedy may seem a comedy, as long as I am with them."
+> "But still... Not trying to undo misunderstandings is the same as telling a lie."
 
-&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Yotsugi Ononoki**](https://myanimelist.net/character.php?q=Yotsugi%20Ononoki&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
