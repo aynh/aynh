@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life perpetuates itself through diversity, and this includes the ability to sacrifice itself when necessary. Cells repeat the process of degeneration and regeneration until one day they die, obliterating an entire set of memory and information. Only genes remain. Why continually repeat this cycle? Simply to survive by avoiding the weaknesses of an unchanging system."
+> "You guys sure are a worthless bunch. If you wanna wallow in your tears, save it for after you've done everything you can!"
 
-&mdash; [**Puppet Master**](https://myanimelist.net/character.php?q=Puppet%20Master&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Seiya Kanie**](https://myanimelist.net/character.php?q=Seiya%20Kanie&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
