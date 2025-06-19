@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you smile once when you’re feeling down, you begin to feel better and become more cheerful."
+> "...Have I... Stumbled upon a brand new shitty game again...?"
 
-&mdash; [**Rito Yuuki**](https://myanimelist.net/character.php?q=Rito%20Yuuki&cat=character), [**To Love-Ru**](https://myanimelist.net/search/all?q=To%20Love-Ru&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
