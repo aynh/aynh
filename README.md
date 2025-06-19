@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being alive...is a sign of strength!"
+> "It's still too early for you to win against me."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Fuji Shuusuke**](https://myanimelist.net/character.php?q=Fuji%20Shuusuke&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
