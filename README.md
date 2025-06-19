@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate butterflies. I hate them for being pretty. I hate them for being easy to catch. And having pins stuck through their body and being turned into specimens is what I hate most."
+> "Only idiots start fights they can't win."
 
-&mdash; [**Agatsuma Soubi**](https://myanimelist.net/character.php?q=Agatsuma%20Soubi&cat=character), [**Loveless**](https://myanimelist.net/search/all?q=Loveless&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
