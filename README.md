@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But still... Not trying to undo misunderstandings is the same as telling a lie."
+> "From the time I was born, till the day I die...The only side I am on, is my own."
 
-&mdash; [**Yotsugi Ononoki**](https://myanimelist.net/character.php?q=Yotsugi%20Ononoki&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
