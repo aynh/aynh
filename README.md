@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’ve been in your shoes. I was also given a chance. There’s no rush. You’ll get better very soon."
+> "If you smile once when you’re feeling down, you begin to feel better and become more cheerful."
 
-&mdash; [**Tsutomu Komano**](https://myanimelist.net/character.php?q=Tsutomu%20Komano&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Rito Yuuki**](https://myanimelist.net/character.php?q=Rito%20Yuuki&cat=character), [**To Love-Ru**](https://myanimelist.net/search/all?q=To%20Love-Ru&cat=all)
