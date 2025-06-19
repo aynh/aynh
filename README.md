@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Making his presence felt on his favorite piece of work - this is an oppurtunity no otaku would miss."
+> "If I described him in one word, it'd be di*k[beep]!"
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Chika Akatsuki**](https://myanimelist.net/character.php?q=Chika%20Akatsuki&cat=character), [**Zombie-Loan**](https://myanimelist.net/search/all?q=Zombie-Loan&cat=all)
