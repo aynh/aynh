@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you were in this situation, what would you have done? You would run after Byakuya...And then kick him in the butt, right? No matter how one captain complains, the Central Government won't change their decision for one person. But if it was you, you would still run around appealing to save Kuchiki...No. You would probably do something completely different. You always chose the path that lead to the most danger. Am I right...Kaien?"
+> "I’ve been in your shoes. I was also given a chance. There’s no rush. You’ll get better very soon."
 
-&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tsutomu Komano**](https://myanimelist.net/character.php?q=Tsutomu%20Komano&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
