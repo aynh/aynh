@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Killing one man won't change anything. Kill every last person in the world. If you could do that, it might be possible."
+> "Hurt me with the truth. But never comfort me with a lie."
 
-&mdash; [**Kaminski Natalia**](https://myanimelist.net/character.php?q=Kaminski%20Natalia&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
