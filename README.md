@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "First you must decide, then you must follow through. I believe that’s the only way you can get anything accomplished."
+> "Losing sight of who you really are... that can be pretty scary."
 
-&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Michiru Kinushima**](https://myanimelist.net/character.php?q=Michiru%20Kinushima&cat=character), [**Plastic Memories**](https://myanimelist.net/search/all?q=Plastic%20Memories&cat=all)
