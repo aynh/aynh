@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This has nothing to do with will. There is neither an egg that refuses to hatch nor a seed that evades it's eventual sprouting."
+> "Here, my armies once rode across the land. The place all the heroes who stood with me, through joy and sorrow, will never forget. I can make this world real because it still exists within our hearts! Behold my endless armies! Their bodies destroyed, and their souls offered to the world as Heroic Spirits. And still, these legendary heroes pledge their loyalty to me! My bond with them is my greatest treasure, my path of kingship! The ultimate Noble Phantasm that I, Iskandar, possess. Ionian Hetairoi!"
 
-&mdash; [**Scythe Master**](https://myanimelist.net/character.php?q=Scythe%20Master&cat=character), [**Phantom: Requiem For The Phantom**](https://myanimelist.net/search/all?q=Phantom%3A%20Requiem%20For%20The%20Phantom&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
