@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't face each other with honesty, what kind of family is this?"
+> "Shadow and light are two sides of the same coin... One cannot exist without another."
 
-&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Princess Zelda**](https://myanimelist.net/character.php?q=Princess%20Zelda&cat=character), [**The Legend Of Zelda**](https://myanimelist.net/search/all?q=The%20Legend%20Of%20Zelda&cat=all)
