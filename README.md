@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Girls could never understand the passionate bonds that we men share. Male friendship is a bond that runs thicker than blood!"
+> "It's okay, cool guys see naked women all the time, I'm totally used to it."
 
-&mdash; [**Kiyotaka Ishimaru**](https://myanimelist.net/character.php?q=Kiyotaka%20Ishimaru&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
