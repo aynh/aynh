@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death is like being born, but backwards. It only hurts for a little while, then a new life begins. A life with no sorrow, no pain, a glorious new beginning. A beginning that will last an eternity."
+> "There's no point in incapable people pushing themselves. You're better off calling for an expert in the field."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
