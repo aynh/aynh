@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And now it's time for formal introductions. Eliza, my darling, meet Yoh Asakura. Yoh Asakura, meet your doom!"
+> "Death is like being born, but backwards. It only hurts for a little while, then a new life begins. A life with no sorrow, no pain, a glorious new beginning. A beginning that will last an eternity."
 
-&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
