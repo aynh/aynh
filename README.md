@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hurt me with the truth. But never comfort me with a lie."
+> "True happiness comes from overcoming suffering. No one can shoulder your burdens for you."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Labrador**](https://myanimelist.net/character.php?q=Labrador&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
