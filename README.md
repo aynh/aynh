@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Vegeta's last thought before he dies fighting Majin Buu] Bulma, Trunks. This is for you."
+> "I love chocolates."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
