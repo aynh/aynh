@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay, cool guys see naked women all the time, I'm totally used to it."
+> "First you must decide, then you must follow through. I believe that’s the only way you can get anything accomplished."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
