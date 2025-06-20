@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not killing people is really hard. Clean living is tough."
+> "[Vegeta's last thought before he dies fighting Majin Buu] Bulma, Trunks. This is for you."
 
-&mdash; [**Killua Zoldyck**](https://myanimelist.net/character.php?q=Killua%20Zoldyck&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
