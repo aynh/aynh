@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Shadow and light are two sides of the same coin... One cannot exist without another."
+> "Nanao-chan is last place!"
 
-&mdash; [**Princess Zelda**](https://myanimelist.net/character.php?q=Princess%20Zelda&cat=character), [**The Legend Of Zelda**](https://myanimelist.net/search/all?q=The%20Legend%20Of%20Zelda&cat=all)
+&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
