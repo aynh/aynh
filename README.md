@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we make it back to the real world, I'll find you. And fall in love with you all over again."
+> "It's okay not to feel 'whole'. Even if you feel only partly complete, if you repeat that enough, it'll eventually be 'whole'. A part... is better than zero."
 
-&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Elhaym Van Houten**](https://myanimelist.net/character.php?q=Elhaym%20Van%20Houten&cat=character), [**Xenogears**](https://myanimelist.net/search/all?q=Xenogears&cat=all)
