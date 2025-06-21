@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Success is harder than failure for many things in this world."
+> "I believe you have the potential to bloom into something even more beautiful than the cosmos."
 
-&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
+&mdash; [**Ino Yamanaka**](https://myanimelist.net/character.php?q=Ino%20Yamanaka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
