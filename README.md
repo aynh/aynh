@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Kira] You are the dream of humanity, the Ultimate Coordinator. It was in pursuit of that dream that Dr. Hibiki created the artificial womb. And you are the only viable child it ever produced. For that result, a very large number of your siblings were sacrificed."
+> "Genius is 1% inspiration and 99% perspiration! In other words, believe in your inspiration and fight to the end! Perspiration without inspiration is worthless! No matter what others say ignore them! Trust your talent! Follow your own path!"
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Suiboku Kuroki**](https://myanimelist.net/character.php?q=Suiboku%20Kuroki&cat=character), [**R-15**](https://myanimelist.net/search/all?q=R-15&cat=all)
