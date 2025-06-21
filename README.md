@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the only way to be granted life in this world is to surrender my body and soul to insanity, then I shall choose to meet my doom!"
+> "Life is built upon the taking of another life. If you have the resolve to kill, then you have the obligation to eat."
 
-&mdash; [**Keigo Oonishi**](https://myanimelist.net/character.php?q=Keigo%20Oonishi&cat=character), [**Texhnolyze**](https://myanimelist.net/search/all?q=Texhnolyze&cat=all)
+&mdash; [**Usagi Yuzuha**](https://myanimelist.net/character.php?q=Usagi%20Yuzuha&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
