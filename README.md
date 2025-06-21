@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is built upon the taking of another life. If you have the resolve to kill, then you have the obligation to eat."
+> "Success is harder than failure for many things in this world."
 
-&mdash; [**Usagi Yuzuha**](https://myanimelist.net/character.php?q=Usagi%20Yuzuha&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
+&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
