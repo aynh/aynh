@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay not to feel 'whole'. Even if you feel only partly complete, if you repeat that enough, it'll eventually be 'whole'. A part... is better than zero."
+> "On this hand, imagine that these four fingers represent the animals, and the thumb represents plants. Then let's say people are here... On the tip of the middle finger, farthest from the heart."
 
-&mdash; [**Elhaym Van Houten**](https://myanimelist.net/character.php?q=Elhaym%20Van%20Houten&cat=character), [**Xenogears**](https://myanimelist.net/search/all?q=Xenogears&cat=all)
+&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
