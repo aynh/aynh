@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "God, just how long are they going to squabble over such pointless things? They are all the same in my eyes. Nothing but a bunch of trash. Light and Darkness. Good and Evil. Poison and Antidote. Winning and Losing. Strength and Weakness. Black and White. Success and Failure. Happiness or Sorrow... They're all the same after all. Why hasn't everyone realized this already..."
+> "In my memory, I link fragments of the past when we were together, to create a clear image of him in my mind. But I no longer know if that image is really him. The moment I see in my mind, may have never existed."
 
-&mdash; [**Najimi Ajimu**](https://myanimelist.net/character.php?q=Najimi%20Ajimu&cat=character), [**Medaka Box Abnormal**](https://myanimelist.net/search/all?q=Medaka%20Box%20Abnormal&cat=all)
+&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
