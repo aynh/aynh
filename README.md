@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You really don't know what happened, do you? It doesn't matter. By all means, stay in this cozy coffin of yours and continue to play prince. But I have to go now. She's not gone at all, she merely vanished form your world. Farewell."
+> "[To Kira] You are the dream of humanity, the Ultimate Coordinator. It was in pursuit of that dream that Dr. Hibiki created the artificial womb. And you are the only viable child it ever produced. For that result, a very large number of your siblings were sacrificed."
 
-&mdash; [**Anthy Himemiya**](https://myanimelist.net/character.php?q=Anthy%20Himemiya&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
