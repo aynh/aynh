@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you think music is only made of sounds, you're mistaken. Silence is also part of music."
+> "God, just how long are they going to squabble over such pointless things? They are all the same in my eyes. Nothing but a bunch of trash. Light and Darkness. Good and Evil. Poison and Antidote. Winning and Losing. Strength and Weakness. Black and White. Success and Failure. Happiness or Sorrow... They're all the same after all. Why hasn't everyone realized this already..."
 
-&mdash; [**Kunio Yaobi**](https://myanimelist.net/character.php?q=Kunio%20Yaobi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
+&mdash; [**Najimi Ajimu**](https://myanimelist.net/character.php?q=Najimi%20Ajimu&cat=character), [**Medaka Box Abnormal**](https://myanimelist.net/search/all?q=Medaka%20Box%20Abnormal&cat=all)
