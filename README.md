@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just how many times must I strain my voice before it will reach you? And yet, nowhere in this world can there be anyone who knows me better than you."
+> "Neither God nor the Devil can give aid to those without the will to fight…"
 
-&mdash; [**Zangetsu**](https://myanimelist.net/character.php?q=Zangetsu&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
