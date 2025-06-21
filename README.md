@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Genius is 1% inspiration and 99% perspiration! In other words, believe in your inspiration and fight to the end! Perspiration without inspiration is worthless! No matter what others say ignore them! Trust your talent! Follow your own path!"
+> "I thought that, if I could shorten the distance between us, and if you would like me back, then the me that ran away - the dirty me - would be washed away. (To Kyo)"
 
-&mdash; [**Suiboku Kuroki**](https://myanimelist.net/character.php?q=Suiboku%20Kuroki&cat=character), [**R-15**](https://myanimelist.net/search/all?q=R-15&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
