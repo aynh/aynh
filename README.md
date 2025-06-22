@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's past is past. I cannot redo it, nor go back to it. I have escaped from that scene and still continue to live. All I can do is look forward."
+> "Is fighting right, or wrong? Does winning in the end mean justice? Truthfully, I don't know. But I know we must fight this battle! Or we will never save the world."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Haru Glory**](https://myanimelist.net/character.php?q=Haru%20Glory&cat=character), [**Rave Master**](https://myanimelist.net/search/all?q=Rave%20Master&cat=all)
