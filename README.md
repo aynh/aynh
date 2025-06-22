@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There were many times I felt on the verge of giving up… And many times when I met with big trouble, and met with some really tough opponents… But during that time, he would always be there. And so would everyone else from the guild. Crying together, laughing together, so many of these things. Well, a lot of things really did take place… I’m sure that’s the way it should be… I’m sure that everybody carries a certain burden of their own. But even then, everyone tries their best to keep moving forward. That’s what makes Fairy Tail what it is. I really joined the best guild ever."
+> "What's past is past. I cannot redo it, nor go back to it. I have escaped from that scene and still continue to live. All I can do is look forward."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
