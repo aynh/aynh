@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes you have days like this. Days where the most trivial little thing... Ends up getting you wrapped up in some big, annoying trouble."
+> "So don't be afraid to open your hearts to others. It's pointless to keep testing people. All you're doing is hurting yourselves."
 
-&mdash; [**Annie Leonhardt**](https://myanimelist.net/character.php?q=Annie%20Leonhardt&cat=character), [**Shingeki no Kyojin: Lost Girls**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Lost%20Girls&cat=all)
+&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
