@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is fighting right, or wrong? Does winning in the end mean justice? Truthfully, I don't know. But I know we must fight this battle! Or we will never save the world."
+> "There are things you can only share with someone by fighting. For instance, how serious you are."
 
-&mdash; [**Haru Glory**](https://myanimelist.net/character.php?q=Haru%20Glory&cat=character), [**Rave Master**](https://myanimelist.net/search/all?q=Rave%20Master&cat=all)
+&mdash; [**Konno Yuuki**](https://myanimelist.net/character.php?q=Konno%20Yuuki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
