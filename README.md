@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Envy] Now I see. You're Jealous. You're jealous of humans, aren't you? According to you, humans are supposed to be a lot weaker than Homunculi. And yet, even if they get discouraged after being beaten, and even if they get close to falling down after losing their paths, they continue to get up and fight. Everyone around them helps them get back up. And you're envious of that."
+> "There were many times I felt on the verge of giving up… And many times when I met with big trouble, and met with some really tough opponents… But during that time, he would always be there. And so would everyone else from the guild. Crying together, laughing together, so many of these things. Well, a lot of things really did take place… I’m sure that’s the way it should be… I’m sure that everybody carries a certain burden of their own. But even then, everyone tries their best to keep moving forward. That’s what makes Fairy Tail what it is. I really joined the best guild ever."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
