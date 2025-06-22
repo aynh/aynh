@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A normal person looks away from what they don't want to see even though they know there are things they can only acquire if they face the things they hate."
+> "I wonder how long... How long will I remain anchored at this harbor known as battle?"
 
-&mdash; [**Sorata Kanda**](https://myanimelist.net/character.php?q=Sorata%20Kanda&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
