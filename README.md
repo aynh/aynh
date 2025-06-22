@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So don't be afraid to open your hearts to others. It's pointless to keep testing people. All you're doing is hurting yourselves."
+> "Whether fairies have tails or not, or whether they even exist, nobody knows for sure. So it's like an eternal mystery, an eternal adventure."
 
-&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
