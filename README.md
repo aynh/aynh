@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I thought that, if I could shorten the distance between us, and if you would like me back, then the me that ran away - the dirty me - would be washed away. (To Kyo)"
+> "Real power is forged from the desire smoldering in the heart. It fans into a flame and begins to burn with an intensity scarcely imagined to be possible."
 
-&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Orochimaru**](https://myanimelist.net/character.php?q=Orochimaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
