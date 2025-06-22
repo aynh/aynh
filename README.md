@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Scatter, Senbonzakura."
+> "Though we had to part, though we could never be together again. We had no regrets. Even if she returned to her world, married another man and had children with him. If the woman I loved was happy, then I could be happy. And I am. Our hearts had joined and so, even if she lived in a different world, that time, we really were together always, always. I would never let go of this feeling, or my love for her."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Syaoran Li**](https://myanimelist.net/character.php?q=Syaoran%20Li&cat=character), [**Cardcaptor Sakura**](https://myanimelist.net/search/all?q=Cardcaptor%20Sakura&cat=all)
