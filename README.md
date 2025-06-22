@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A database can't draw conclusions."
+> "The truth has power because it's the truth. And because it is the truth, that makes it just. It's persuasive, isn't it? Don't you want truth like that?"
 
-&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Taro**](https://myanimelist.net/character.php?q=Taro&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
