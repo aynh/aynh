@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Zuko* You know, father blames uncle for the loss of north pole... and he considers YOU a miserable failure for not finding the avatar."
+> "To force obedience by the sword now will only invite bloody rebellion later."
 
-&mdash; [**Azula**](https://myanimelist.net/character.php?q=Azula&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Hakuei Ren**](https://myanimelist.net/character.php?q=Hakuei%20Ren&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
