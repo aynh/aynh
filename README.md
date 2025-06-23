@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe I was lonely. Maybe I've just... always... been lonely."
+> "My legend dates back to the 12th Century you see. My legend is quite old. The 12th Century was a long time ago."
 
-&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
