@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To force obedience by the sword now will only invite bloody rebellion later."
+> "Grown-ups are idiots. If they really want to bring an end to this endless fighting, they need to sit down with one another and reach a truce."
 
-&mdash; [**Hakuei Ren**](https://myanimelist.net/character.php?q=Hakuei%20Ren&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
+&mdash; [**Tobirama Senju**](https://myanimelist.net/character.php?q=Tobirama%20Senju&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
