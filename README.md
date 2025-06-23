@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Assassination — It's the family trade. We all take it up. My folks see me as an exceptional prospect. But I don't see that I should have to live up to their expectations."
+> "You shouldn't judge people by how they look."
 
-&mdash; [**Killua Zoldyck**](https://myanimelist.net/character.php?q=Killua%20Zoldyck&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
