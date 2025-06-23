@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What a lovely voice! But I have to wonder though... is that voice a result of fiddling around with her genes?"
+> "When do you think people die? When they are shot through the heart by the bullet of a pistol? No. When they are ravaged by an incurable disease? No. When they drink a soup made from a poisonous mushroom!? No! It’s when... they are forgotten."
 
-&mdash; [**Sai Argyle**](https://myanimelist.net/character.php?q=Sai%20Argyle&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Dr hiluluk**](https://myanimelist.net/character.php?q=Dr%20hiluluk&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
