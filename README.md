@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Can you stop guessing if they got the question right based on the amount of time left when they cut to commercial!?"
+> "Fulfilled people are just an urban legend."
 
-&mdash; [**Kagami Hiiragi**](https://myanimelist.net/character.php?q=Kagami%20Hiiragi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
+&mdash; [**Shiro**](https://myanimelist.net/character.php?q=Shiro&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
