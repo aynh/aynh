@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unwavering Faith and Resilient Bonds will bring even miracles to your side."
+> "If you want to do something and have the power for it, then do it!"
 
-&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
