@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen, even if someone is suffering before you, the kind of person that can take up arms without hesitation to shoot down the villain is no better than a villain himself. The kind that doesn’t care about others, doesn’t give 2nd chances; someone that kills if given a reason, is definitely not a hero. You don’t have to become that kind of person. That’s my specialty. Only I have to go through that."
+> "In the end, aren't they just a bunch of weaklings?"
 
-&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
