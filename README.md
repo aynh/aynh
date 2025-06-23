@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things you can only share with someone by fighting. For instance, how serious you are."
+> "What a lovely voice! But I have to wonder though... is that voice a result of fiddling around with her genes?"
 
-&mdash; [**Konno Yuuki**](https://myanimelist.net/character.php?q=Konno%20Yuuki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
+&mdash; [**Sai Argyle**](https://myanimelist.net/character.php?q=Sai%20Argyle&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
