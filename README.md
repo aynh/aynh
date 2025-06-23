@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I was a child, whenever it snowed, I would play and make snowballs. When you start rolling a snowball, someone will always appear out of nowhere and help you make it bigger and in the end, everyone goes home satisfied. It was then that I suddenly thought “This is what I want to grow up to be like”."
+> "Maybe I was lonely. Maybe I've just... always... been lonely."
 
-&mdash; [**Alicia Florence**](https://myanimelist.net/character.php?q=Alicia%20Florence&cat=character), [**Aria The Natural**](https://myanimelist.net/search/all?q=Aria%20The%20Natural&cat=all)
+&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
