@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Killing for your own ideas... even a bandit could do that if it's killing a complete stranger. However, it's a completely different thing when it comes to killing a relative or a friend. Desire alone isn't enough. You need indomitable will and unwavering beliefs."
+> "When you get anxious about the future, it is better not to think about it. The more you think about it the more anxious you'll get. Of course it's important to think about what lies ahead, too, but if you only look at what's down the road, you'll get tangled by the 'laundry' by your feet and fall, won't you? You see, it's also important to think about what you can do now. What you can do today, and if you keep washing things one at a time, you'll be done before you know it. Sometimes the anxiety will start to well up, but when it does... take a little break. Read a book, watch tv, or eat soumen with everyone."
 
-&mdash; [**Ichijiku Chisato**](https://myanimelist.net/character.php?q=Ichijiku%20Chisato&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
