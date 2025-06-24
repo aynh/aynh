@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not a fighter of good. I just hate people who are bad."
+> "Killing for your own ideas... even a bandit could do that if it's killing a complete stranger. However, it's a completely different thing when it comes to killing a relative or a friend. Desire alone isn't enough. You need indomitable will and unwavering beliefs."
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Ichijiku Chisato**](https://myanimelist.net/character.php?q=Ichijiku%20Chisato&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
