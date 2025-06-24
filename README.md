@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's nothing known for certain. Adolescence is like that anyway. It's like a train ride with no destination and nobody. There's no destination and outside everything is flashing by so you can't see anything."
+> "Songs move people's hearts and make them passionate."
 
-&mdash; [**Choi Yool**](https://myanimelist.net/character.php?q=Choi%20Yool&cat=character), [**Gaussian Blur**](https://myanimelist.net/search/all?q=Gaussian%20Blur&cat=all)
+&mdash; [**Haruka Nanami**](https://myanimelist.net/character.php?q=Haruka%20Nanami&cat=character), [**Uta no Prince-sama**](https://myanimelist.net/search/all?q=Uta%20no%20Prince-sama&cat=all)
