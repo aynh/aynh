@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Songs move people's hearts and make them passionate."
+> "(Her dad) He'd always tell me that family isn't about being related by blood. Living under the same roof and caring for each other is what family is all about."
 
-&mdash; [**Haruka Nanami**](https://myanimelist.net/character.php?q=Haruka%20Nanami&cat=character), [**Uta no Prince-sama**](https://myanimelist.net/search/all?q=Uta%20no%20Prince-sama&cat=all)
+&mdash; [**Charunee Kusakabe**](https://myanimelist.net/character.php?q=Charunee%20Kusakabe&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
