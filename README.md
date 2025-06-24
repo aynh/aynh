@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe that 'I could have done something' is the most frustrating regret of them all."
+> "There's nothing known for certain. Adolescence is like that anyway. It's like a train ride with no destination and nobody. There's no destination and outside everything is flashing by so you can't see anything."
 
-&mdash; [**Kazuki Kazami**](https://myanimelist.net/character.php?q=Kazuki%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Choi Yool**](https://myanimelist.net/character.php?q=Choi%20Yool&cat=character), [**Gaussian Blur**](https://myanimelist.net/search/all?q=Gaussian%20Blur&cat=all)
