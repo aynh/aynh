@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All truths are easy to understand once they are discovered. The point is to discover them."
+> "I believe that 'I could have done something' is the most frustrating regret of them all."
 
-&mdash; [**Galilei**](https://myanimelist.net/character.php?q=Galilei&cat=character), [**Galilei Donna**](https://myanimelist.net/search/all?q=Galilei%20Donna&cat=all)
+&mdash; [**Kazuki Kazami**](https://myanimelist.net/character.php?q=Kazuki%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
