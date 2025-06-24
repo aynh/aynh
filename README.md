@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People live in order to be satisfied. And they hope to die while still satisfied. So, not knowing how to make yourself become satisfied is very tough."
+> "Did you not understand? All dreams eventually disappear when the dreamers wake."
 
-&mdash; [**Ushiromiya Ange**](https://myanimelist.net/character.php?q=Ushiromiya%20Ange&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
