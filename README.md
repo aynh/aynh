@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Grown-ups are idiots. If they really want to bring an end to this endless fighting, they need to sit down with one another and reach a truce."
+> "Having happy and beautiful memories won't always bring you salvation. The more beautiful a memory is, the more painful it can become. It can even become terrifying. Both for the one who's leaving... And for the one left behind."
 
-&mdash; [**Tobirama Senju**](https://myanimelist.net/character.php?q=Tobirama%20Senju&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Isla**](https://myanimelist.net/character.php?q=Isla&cat=character), [**Plastic Memories**](https://myanimelist.net/search/all?q=Plastic%20Memories&cat=all)
