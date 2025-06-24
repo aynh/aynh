@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[in front of an execution squad] I don't give a rat's ass about going to hell. Guess I feel like I'm already there. What I do mind is the thought of being killed by you ugly bastards. I've gone my whole life without being helped by anyone else, and I'll be damned if I'm gonna let you help me into my grave."
+> "I'm not a fighter of good. I just hate people who are bad."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
