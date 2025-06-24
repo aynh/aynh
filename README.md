@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How far can you kill? Things like ants, spiders, and other bugs, we can squish without much thought, right? But if it's a fish, we feel a little reluctant when killing it. We begin to feel pressures of taking a life. It gets worse if the fish is replaced by an amphibian, and even more so if the amphibian becomes a reptile. The pressure is worse if the reptile becomes a bird, and even worse when the bird becomes a mammal. The higher up the chain we move towards the more advanced creatures, the more we hate to kill them. And eventually we hit a hurdle too high to overcome. We're unable to kill anything beyond that point. I think the highest hurdle would be... people."
+> "All truths are easy to understand once they are discovered. The point is to discover them."
 
-&mdash; [**Reika**](https://myanimelist.net/character.php?q=Reika&cat=character), [**Nani made nara Koroseru**](https://myanimelist.net/search/all?q=Nani%20made%20nara%20Koroseru&cat=all)
+&mdash; [**Galilei**](https://myanimelist.net/character.php?q=Galilei&cat=character), [**Galilei Donna**](https://myanimelist.net/search/all?q=Galilei%20Donna&cat=all)
