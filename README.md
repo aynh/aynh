@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The person you like the most, likes you back the most. It seems so simple. But why is it? It feels like it will never come together...forever like this..."
+> "If you don't know what state you wounds are in, of where you're hurting if you don't know that for yourself, there's no point in trying to share it with others, is there?"
 
-&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Hisomu Yoshiharu**](https://myanimelist.net/character.php?q=Hisomu%20Yoshiharu&cat=character), [**Kiznaiver**](https://myanimelist.net/search/all?q=Kiznaiver&cat=all)
