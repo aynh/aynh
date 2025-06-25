@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We really are weak creatures, but that's why we can strive to become stronger. Even if you feel it's useless, each step we take leads to something great. That's why I'm sure we'll be able to change. Because we're weak... and because death is inevitable. Humans try their best to live and end up becoming stronger."
+> "Not knowing everything in this world is fun."
 
-&mdash; [**Trisha Elric**](https://myanimelist.net/character.php?q=Trisha%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Akise Aru**](https://myanimelist.net/character.php?q=Akise%20Aru&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
