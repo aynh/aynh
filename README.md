@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end, there is no greater motivation than revenge."
+> "Isn't chasing our dream our job right now?"
 
-&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Minako Kanou**](https://myanimelist.net/character.php?q=Minako%20Kanou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
