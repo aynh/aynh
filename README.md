@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Reim* Like I said before!! To me, being blind is nothing! It's only because I had just woken up, that's why Oz found out. Give me 3 more days. By then, I'll have assimilated. Then I'll be recovered and everything will be like normal. Even if I were thrown in a midst of Pandora members, I have faith that I will be able to kill them all!"
+> "All the people I saw from my cage...All the things I saw from my cage, that was the whole world to me. At first, all I could sense was the hostility of the people looking at me from outside...And their feelings of fear. Piercing gazes, hurled stones, whips, sticks...Everything outside the cage was frightening, a source of pain...But eventually I began to realize something. I began to see their other emotions, not just their hostility and fear of me. They were the emotions of families, lovers, and friends who came to the sideshow...Emotions meant for each other."
 
-&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Kuklo**](https://myanimelist.net/character.php?q=Kuklo&cat=character), [**Shingeki no Kyojin: Before the Fall**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Before%20the%20Fall&cat=all)
