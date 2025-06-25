@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[thinking at the grave of Tosen's friend] O' anonymous friend of Tousen... If you had been there...What would you have said to stop him?"
+> "To turn someone down and to be turned down by someone... To be hurt by someone and to hurt someone... A love where no one gets hurt doesn't exist."
 
-&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
