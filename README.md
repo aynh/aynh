@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The ones who suffer from the loss of the game, become stronger. They will challenge us by throwing away everything like their pride and past glories."
+> "I'll keep my promise, I'll save the world."
 
-&mdash; [**Tezuka Kunimitsu**](https://myanimelist.net/character.php?q=Tezuka%20Kunimitsu&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
