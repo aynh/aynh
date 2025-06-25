@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you know pain and hardship, it's easier to be kind to others."
+> "Humans must think about living on. And, must also understand death. Most important, we must learn to understand the truth."
 
-&mdash; [**Ryoji Kaji**](https://myanimelist.net/character.php?q=Ryoji%20Kaji&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
