@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People say love can be developed, but in the end the only person they love is themselves, that's why you choose to love someone who can please you the most."
+> "Ah... Everything is such a bother. Even living."
 
-&mdash; [**Takumi Ichinose**](https://myanimelist.net/character.php?q=Takumi%20Ichinose&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka? of the Dead**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F%20of%20the%20Dead&cat=all)
