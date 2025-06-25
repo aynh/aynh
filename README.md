@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the first place, the logic that says 'those who play games are kids' is itself an allusion, therefore one might say that shoehorning reality into your stubborn dualism is already a criticism of the self. In short, humans can only recognize reality through the filter called 'me' and so they are unable to escape the constraints of their uncanny existence."
+> "The person you like the most, likes you back the most. It seems so simple. But why is it? It feels like it will never come together...forever like this..."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
