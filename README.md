@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'M﻿ NOT AN ELEMENTARY STUDENT!!!"
+> "I knew it. The Earth Forces' new mobile weapons. Father, I knew you'd betray us all!"
 
-&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Cagalli Yula Athha**](https://myanimelist.net/character.php?q=Cagalli%20Yula%20Athha&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
