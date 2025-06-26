@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I won't be defeated because I know how awful it feels to lose after doing my very best!"
+> "I don't think much of you for sending a girl your age to the place where a wierd man lives."
 
-&mdash; [**Shō Kazamatsuri**](https://myanimelist.net/character.php?q=Sh%C5%8D%20Kazamatsuri&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
+&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
