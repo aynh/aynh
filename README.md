@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Sophie* You're wearing that hat? After all the magic I used to make your dress pretty?"
+> "Told you, Rose. Get too close to the sun, and you'll burn."
 
-&mdash; [**Howl**](https://myanimelist.net/character.php?q=Howl&cat=character), [**Howl's Moving Castle**](https://myanimelist.net/search/all?q=Howl's%20Moving%20Castle&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
