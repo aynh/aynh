@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't think much of you for sending a girl your age to the place where a wierd man lives."
+> "Looking at your own memories is recognizing the parts of you that you don't want to face."
 
-&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Rinne Higaki**](https://myanimelist.net/character.php?q=Rinne%20Higaki&cat=character), [**Katanagatari**](https://myanimelist.net/search/all?q=Katanagatari&cat=all)
