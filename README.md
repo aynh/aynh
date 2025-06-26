@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not about being right or being wrong. There are more important things than that. That's why apologies and forgiveness become necessary."
+> "The human heart is the source of all our power... We fight with the power of our hearts."
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
