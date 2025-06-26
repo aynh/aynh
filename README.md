@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how much despair awaits them, I wish that at the end of their story, the gentle light of hope will shine on them..."
+> "I'M﻿ NOT AN ELEMENTARY STUDENT!!!"
 
-&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
