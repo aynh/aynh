@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ribbit."
+> "It's not about being right or being wrong. There are more important things than that. That's why apologies and forgiveness become necessary."
 
-&mdash; [**Eruka Frog**](https://myanimelist.net/character.php?q=Eruka%20Frog&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
