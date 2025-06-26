@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not about being right or being wrong. There are more important things than that. That's why apologies and forgiveness become necessary."
+> "None of that will ever happen. I hate myself! But still, I have to keep these fantasies going! If I have a thousand of them, at least one of them might come true one day. If you stop fantasizing, you have no choice but to be crushed by reality."
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Kidou Eita**](https://myanimelist.net/character.php?q=Kidou%20Eita&cat=character), [**Ore no Kanojo to Osananajimi ga Shuraba Sugiru**](https://myanimelist.net/search/all?q=Ore%20no%20Kanojo%20to%20Osananajimi%20ga%20Shuraba%20Sugiru&cat=all)
