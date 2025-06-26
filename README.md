@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ah... what a beautiful sound. It doesn't get any better than that. I can feel it deep in my bones, like a part of me I never noticed before. That sound is an extension of my being. And this land - this land that's governed by death - I will paint it red with this shard of destruction."
+> "Now it’s not just your heart, but also your breathing, your brain, your nervous system, and everything else… See, the human body is in some way always moving from the time they were in their mother’s womb until the last moments of their life. Even when someone is asleep, fainted, or unconscious, their body never stops. In other words, the concept of stopping is precisely how humans are able to perceive death."
 
-&mdash; [**Solf J. Kimblee**](https://myanimelist.net/character.php?q=Solf%20J.%20Kimblee&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Crow**](https://myanimelist.net/character.php?q=Crow&cat=character), [**Sugar Dark**](https://myanimelist.net/search/all?q=Sugar%20Dark&cat=all)
