@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I thought that I was, to a certain degree, an intelligent person. When I realized I was an idiot, I was really shocked!"
+> "This is your life right? Then decide for yourself! If you want to protect everything with your hands then do so, if you want to abandon everything then do so. But, what do you yourself want to do right now? Can you really be satisfied giving someone else that you don’t really understand your most important thing?"
 
-&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
