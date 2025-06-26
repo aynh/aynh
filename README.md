@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I knew it. The Earth Forces' new mobile weapons. Father, I knew you'd betray us all!"
+> "I'll ward off the water from above, can you handle the water on the ground? We'll work together, it's a good thing there are two of us here. This plan would be impossible alone. Quite an obstacle."
 
-&mdash; [**Cagalli Yula Athha**](https://myanimelist.net/character.php?q=Cagalli%20Yula%20Athha&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
