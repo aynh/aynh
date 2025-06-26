@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's right! Whatever the tragedy or the blunder is, only the things that actually happened are written in stone!"
+> "Be Yourself because an Original is worth more than a Copy"
 
-&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
