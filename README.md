@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your happiness is in a much more vast world. Look for it. Find it. (to Hatsuharu)"
+> "I thought that I was, to a certain degree, an intelligent person. When I realized I was an idiot, I was really shocked!"
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
