@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't know what's happened to you, but you shouldn't suppress your feelings if you're angry or sad. It's okay to let it all out."
+> "Is there truly any human who is not arrogant?"
 
-&mdash; [**Rea Sanka**](https://myanimelist.net/character.php?q=Rea%20Sanka&cat=character), [**Sankarea**](https://myanimelist.net/search/all?q=Sankarea&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
