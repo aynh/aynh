@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who don't give up no matter how many walls they run into, those are the ones who'll make their dreams come true."
+> "I don't know what's happened to you, but you shouldn't suppress your feelings if you're angry or sad. It's okay to let it all out."
 
-&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Rea Sanka**](https://myanimelist.net/character.php?q=Rea%20Sanka&cat=character), [**Sankarea**](https://myanimelist.net/search/all?q=Sankarea&cat=all)
