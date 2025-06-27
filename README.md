@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Making someone I hate suffer feels really great!!"
+> "Seeing them as the same is wrong. It's a touchy subject, but the weight of something you bear with your own power and with someone else's are different."
 
-&mdash; [**Megumi Shimizu**](https://myanimelist.net/character.php?q=Megumi%20Shimizu&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
