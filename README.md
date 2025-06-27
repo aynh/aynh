@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I despise you with my last breath. My spirit will not forget that all consuming hatred.  So long that you live, my spirit can not be free. *to Inuyasha*"
+> "Blaming others isn't going to resolve anything. There'll be a lot of things that are injust throughout your life. You will have to stand up by yourself."
 
-&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Kazuichi Arai**](https://myanimelist.net/character.php?q=Kazuichi%20Arai&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
