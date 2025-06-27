@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Seeing them as the same is wrong. It's a touchy subject, but the weight of something you bear with your own power and with someone else's are different."
+> "If one side was just, it would be called a defense or a suppression. But this is war. And wars happen because both sides are just."
 
-&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Kajoumaru Hidetomo**](https://myanimelist.net/character.php?q=Kajoumaru%20Hidetomo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
