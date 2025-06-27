@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not just a tool for you to use in order to solve your puzzles, you know!"
+> "If all life is so important, then the most evil of all beings on this earth are without a doubt humans. If there weren't any people on earth, the environment and conditions that all living things live in would be drastically better. Even if there were no school to teach us the stuff we know, it would still be obvious to everyone, wouldn't it? Just think of all that's happened to the earth due to our desires and ego."
 
-&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kai**](https://myanimelist.net/character.php?q=Kai&cat=character), [**Suicide Island**](https://myanimelist.net/search/all?q=Suicide%20Island&cat=all)
