@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's why Kagome sent me, so I can protect you from being protected by him."
+> "Yes, we have no destiny. Only those swallowed up by ignorance and fear who take false steps, shall plunge us into the waters called “destiny”."
 
-&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Kisuke Urahara**](https://myanimelist.net/character.php?q=Kisuke%20Urahara&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
