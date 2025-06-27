@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The day when you'll finally understand me... will never come."
+> "Because of the existence of love - sacrifice is born. As well as hate. Then one comprehends... one knows PAIN."
 
-&mdash; [**Saruhiko Fushimi**](https://myanimelist.net/character.php?q=Saruhiko%20Fushimi&cat=character), [**K**](https://myanimelist.net/search/all?q=K&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
