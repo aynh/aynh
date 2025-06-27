@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If all life is so important, then the most evil of all beings on this earth are without a doubt humans. If there weren't any people on earth, the environment and conditions that all living things live in would be drastically better. Even if there were no school to teach us the stuff we know, it would still be obvious to everyone, wouldn't it? Just think of all that's happened to the earth due to our desires and ego."
+> "Choose the best thing you can do now, in order to get a step closer to your dream."
 
-&mdash; [**Kai**](https://myanimelist.net/character.php?q=Kai&cat=character), [**Suicide Island**](https://myanimelist.net/search/all?q=Suicide%20Island&cat=all)
+&mdash; [**Tsukitachi**](https://myanimelist.net/character.php?q=Tsukitachi&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
