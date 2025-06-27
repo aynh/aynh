@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yes, we have no destiny. Only those swallowed up by ignorance and fear who take false steps, shall plunge us into the waters called “destiny”."
+> "I'm not just a tool for you to use in order to solve your puzzles, you know!"
 
-&mdash; [**Kisuke Urahara**](https://myanimelist.net/character.php?q=Kisuke%20Urahara&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
