@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're always away during the important times and all you do is call. There are times when you are finally here, but then you disappear unexpectedly. Every time... every time... always, always, leaving me behind alone. What do you think I am? I love you Shinichi!"
+> "It's not a matter of real or fake. These avatars are idols on the net. in other words - icons. Icons cannot solely exist through their own will. Neither Hayama nor Sugawara established their status on their own. They were able to become Talsiman and Spooky Boogie because their fans idolized them based on their own distorted perceptions. Their true feelings and colors are not the same as the ideals their characters represents. It's not surprising that a fan could do a better job than the real owners of playing the idol the fans expect to see."
 
-&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Kougami Shinya**](https://myanimelist.net/character.php?q=Kougami%20Shinya&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
