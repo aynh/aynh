@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The weaker person is the more he gets hung up on other people's pain and then he self-destructs"
+> "Making someone I hate suffer feels really great!!"
 
-&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Megumi Shimizu**](https://myanimelist.net/character.php?q=Megumi%20Shimizu&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
