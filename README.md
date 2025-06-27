@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I do not fear this new challenge, rather like a true warrior I will rise to meet it."
+> "Those who don't give up no matter how many walls they run into, those are the ones who'll make their dreams come true."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
