@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone's gonna die. It's a natural part of life. But if life has no purpose, you're dead already."
+> "You're horrible! Commenting on my appearance like that! I don't have to listen to this from you! It's sexual harassment!"
 
-&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
