@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A drama has a progressive thought, an emotional climax and a resolution, but our lives aren't like that. All we get day after day, are a bunch of vague anxieties that are never really resolved."
+> "Every living person is bound to have embarrassing memories and things that they want to keep secret."
 
-&mdash; [**Kaoru Yamazaki**](https://myanimelist.net/character.php?q=Kaoru%20Yamazaki&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
+&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
