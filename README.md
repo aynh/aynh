@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's too bad I don't think of you as anything. If you get in my way... I'll kill you."
+> "You ain't gonna know unless you climb up yerself. Ain't no way to look if you don't try."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kotoishi Naru**](https://myanimelist.net/character.php?q=Kotoishi%20Naru&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
