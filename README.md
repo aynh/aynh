@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Examined from another angle, your faults and weaknesses can be weapons."
+> "When a man faces fear, his soul is tested. What he was born to seek... what he was born to achieve... his true nature will become clear."
 
-&mdash; [**Nagisa Shiota**](https://myanimelist.net/character.php?q=Nagisa%20Shiota&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
