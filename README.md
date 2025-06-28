@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're horrible! Commenting on my appearance like that! I don't have to listen to this from you! It's sexual harassment!"
+> "I felt like I was watching a dream I'd never wake up from. Before I knew it, the dream was all over."
 
-&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
