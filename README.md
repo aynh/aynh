@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You ain't gonna know unless you climb up yerself. Ain't no way to look if you don't try."
+> "I hate humans. I find the thought that I'm from the same species to be depressing."
 
-&mdash; [**Kotoishi Naru**](https://myanimelist.net/character.php?q=Kotoishi%20Naru&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
+&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
