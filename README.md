@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moon peers down on a diseased world... There is no cure for the disease, an entire race walks mindlessly into destruction. Not even a man of colossal power, would be able to prevent the inevitable."
+> "Having someone saying you're okay as you are and being needed by that person... It was nice to have someone like that."
 
-&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
