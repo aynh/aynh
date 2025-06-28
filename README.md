@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hatred and sorrow are power; they are yours to control. All you have to do is turn them into strength, and use that strength to move forward."
+> "Criticism of yourself as you're observed by others doesn't matter. If your existence is firmly acknowledged by you yourself, that's enough. If you can live with confidence in yourself, surely you can accept any kind of lifestyle."
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Ushiromiya Ange**](https://myanimelist.net/character.php?q=Ushiromiya%20Ange&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
