@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If one side was just, it would be called a defense or a suppression. But this is war. And wars happen because both sides are just."
+> "[upon arriving at Szayel Aporro Grantz's location] Arrancar, Arrancar, Arrancar... Espada! Hueco Mundo is quite the treasure trove."
 
-&mdash; [**Kajoumaru Hidetomo**](https://myanimelist.net/character.php?q=Kajoumaru%20Hidetomo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
