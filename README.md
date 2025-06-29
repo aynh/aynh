@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the shinobi world, those that break the written and unwritten rules are deemed trash... but be that as it may... Those that would desregard their comrades so easily are even worse than trash. And those who don't have the decency to respect the memories of their comrades are the worst."
+> "I am the shadow that has overcome the light."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
