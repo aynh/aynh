@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Thumbtacks in my shoes would stick into my feet whenever I tried to walk. It would hurt. I don't think I could deal with that really."
+> "Hey Kaiba, maybe we should duel sometimes."
 
-&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Joey Wheeler**](https://myanimelist.net/character.php?q=Joey%20Wheeler&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
