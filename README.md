@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't care if no one likes me. I wasn't created in this world to entertain everyone."
+> "What do I have to live for now that I know Cain won't come back? You tell me that, Ed!"
 
-&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Winry Rockbell**](https://myanimelist.net/character.php?q=Winry%20Rockbell&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
