@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But maybe life isn't about counting all the things you've lost."
+> "You know the power of my zanpakuto, Suzumebachi. If someone gets hit twice in the same spot... They die!"
 
-&mdash; [**Tsukamoto Tsukushi**](https://myanimelist.net/character.php?q=Tsukamoto%20Tsukushi&cat=character), [**Days TV**](https://myanimelist.net/search/all?q=Days%20TV&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
