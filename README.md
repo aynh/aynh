@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are saying that innately, all people are good, and if they were to just assume their nature, this organization wouldn't be so rotten, right? But in my opinion, the structure of the organization, the way it is set up is what provides insight into what the true human nature really is."
+> "Thumbtacks in my shoes would stick into my feet whenever I tried to walk. It would hurt. I don't think I could deal with that really."
 
-&mdash; [**Annie Leonhardt**](https://myanimelist.net/character.php?q=Annie%20Leonhardt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
