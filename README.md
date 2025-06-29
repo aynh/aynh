@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I would rather be a brainless monkey than a heartless monster."
+> "So everyone just pretends to understand... and pretends to be understood."
 
-&mdash; [**Goku**](https://myanimelist.net/character.php?q=Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
