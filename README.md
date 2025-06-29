@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Courage is the magic that turns dreams into reality."
+> "I would rather be a brainless monkey than a heartless monster."
 
-&mdash; [**Richter Abend**](https://myanimelist.net/character.php?q=Richter%20Abend&cat=character), [**Tales Of Symphonia**](https://myanimelist.net/search/all?q=Tales%20Of%20Symphonia&cat=all)
+&mdash; [**Goku**](https://myanimelist.net/character.php?q=Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
