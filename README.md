@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know the power of my zanpakuto, Suzumebachi. If someone gets hit twice in the same spot... They die!"
+> "A real man never goes back on his words!"
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Taiyou Natsuki**](https://myanimelist.net/character.php?q=Taiyou%20Natsuki&cat=character), [**Seishun Forget!**](https://myanimelist.net/search/all?q=Seishun%20Forget!&cat=all)
