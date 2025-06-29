@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Loathe me, o fierce deity. Accept and awaken to your maelstrom of hate...god of calamity, Yato!"
+> "I don’t put much trust in words like 'personality' or 'disposition' or 'character.' Those things all change depending on the situation. Looking at it in the long run, what changes people is what situations they get into. People put a lot of faith in consistency, but it’s something more superficial than most people think."
 
-&mdash; [**Rabō**](https://myanimelist.net/character.php?q=Rab%C5%8D&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Kusonoki**](https://myanimelist.net/character.php?q=Kusonoki&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
