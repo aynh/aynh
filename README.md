@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What do I have to live for now that I know Cain won't come back? You tell me that, Ed!"
+> "Courage is the magic that turns dreams into reality."
 
-&mdash; [**Winry Rockbell**](https://myanimelist.net/character.php?q=Winry%20Rockbell&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Richter Abend**](https://myanimelist.net/character.php?q=Richter%20Abend&cat=character), [**Tales Of Symphonia**](https://myanimelist.net/search/all?q=Tales%20Of%20Symphonia&cat=all)
