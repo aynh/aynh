@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Forget about revenge, and live on."
+> "Most people are irresponsible, changing their opinions easily based on unconfirmed information or convenient rumors."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Saki Morimi**](https://myanimelist.net/character.php?q=Saki%20Morimi&cat=character), [**Eden of the East**](https://myanimelist.net/search/all?q=Eden%20of%20the%20East&cat=all)
