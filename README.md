@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone gets help from someone else at some point in their lives. So someday, you should help someone too."
+> "They say time and a people’s heart are inversely proportional. The more it passes, the more they grow apart. It seems there are some rare exceptions though."
 
-&mdash; [**Suzuha Amane**](https://myanimelist.net/character.php?q=Suzuha%20Amane&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
