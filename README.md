@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's the problem... to being different? Even if Vincent-sama is a Baskerville, as you say, even if he is completely different from me, it doesn't matter. I don't care if we're different! And if he really is that different, that's just one more reason to try to understand him!"
+> "Next time I really am going to kill you Medusa ribbit!"
 
-&mdash; [**Ada Vessalius**](https://myanimelist.net/character.php?q=Ada%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Eruka Frog**](https://myanimelist.net/character.php?q=Eruka%20Frog&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
