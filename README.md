@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Obeying a superior you can't even believe doesn't make you loyal. You're just fooling yourself."
+> "My only ambition is simply to kill as many people as humanly possible."
 
-&mdash; [**Olivier Mira Armstrong**](https://myanimelist.net/character.php?q=Olivier%20Mira%20Armstrong&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Bankotsu**](https://myanimelist.net/character.php?q=Bankotsu&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
