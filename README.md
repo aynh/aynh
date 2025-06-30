@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm just a guy who's a hero for fun."
+> "Obeying a superior you can't even believe doesn't make you loyal. You're just fooling yourself."
 
-&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Olivier Mira Armstrong**](https://myanimelist.net/character.php?q=Olivier%20Mira%20Armstrong&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
