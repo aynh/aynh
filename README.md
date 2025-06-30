@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Can it be that I'm afraid or is it merely I know not my own limit?"
+> "I'm sure there's a reason that, even after I stopped being lost, I stayed here. I won't leave until I know what that reason is."
 
-&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Mayoi Hachikuji**](https://myanimelist.net/character.php?q=Mayoi%20Hachikuji&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
