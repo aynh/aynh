@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(to Kiritsugu) I shall not let you die easily. I shall use healing magic to regenerate your heart and lungs, while I rend every inch of your flesh. In pain and despair, you will die as you suffer. And while you die, you will curse them... You will curse the cowardice of those who hired you! You will curse the Einzbern's for disgracing the Holy Grail War!"
+> "They've been exposed to the outside world, up close and personal. They've had that fear planted in them. And they've endured it. Overcome it. Each has grown from that experience... and forgotten how to hesitate."
 
-&mdash; [**Kayneth Archibald El-Melloi**](https://myanimelist.net/character.php?q=Kayneth%20Archibald%20El-Melloi&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Eraserhead**](https://myanimelist.net/character.php?q=Eraserhead&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
