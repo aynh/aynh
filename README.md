@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it’s possible for one person to be hurt by another, then it’s possible for that person to be healed by another."
+> "Can it be that I'm afraid or is it merely I know not my own limit?"
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
