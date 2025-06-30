@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Use whatever is at hand, be it friend or foe."
+> "In this country, we don't call someone who can stop a scooter with her bare hands a girl. We call her a mountain gorilla."
 
-&mdash; [**Kyoya Ootori**](https://myanimelist.net/character.php?q=Kyoya%20Ootori&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
