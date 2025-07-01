@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Instead of judging others based on rumors and gossip articles, I must look and feel for myself. You cannot know anyone without coming face-to-face with them."
+> "The chains of fear are easily broken with the blade of courage."
 
-&mdash; [**Haine Wittgenstein**](https://myanimelist.net/character.php?q=Haine%20Wittgenstein&cat=character), [**Oushitsu Kyoushi Haine**](https://myanimelist.net/search/all?q=Oushitsu%20Kyoushi%20Haine&cat=all)
+&mdash; [**Goltas**](https://myanimelist.net/character.php?q=Goltas&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
