@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is the impenetrable wall of Jericho third child. Take one step over this wall, and you will be a dead man."
+> "It's not a matter of a creature's individual worth. It's a matter of a creature's personal feelings."
 
-&mdash; [**Souryuu Asuka Langley**](https://myanimelist.net/character.php?q=Souryuu%20Asuka%20Langley&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
