@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you put aside regret, you´ll end up feeling it anyway. Right now, you need to make sure you grasp this good feeling and never forget it."
+> "There are some scars that never fade."
 
-&mdash; [**Ryūnosuke Tanaka**](https://myanimelist.net/character.php?q=Ry%C5%ABnosuke%20Tanaka&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
+&mdash; [**Basara Tōjō**](https://myanimelist.net/character.php?q=Basara%20T%C5%8Dj%C5%8D&cat=character), [**Shinmai Maou no Testament**](https://myanimelist.net/search/all?q=Shinmai%20Maou%20no%20Testament&cat=all)
