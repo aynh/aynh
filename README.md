@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter where you are, people find a way to entertain themselves."
+> "When people focus on what they want to do, they’ll show off an inexplicable charm."
 
-&mdash; [**Shuusei Kagari**](https://myanimelist.net/character.php?q=Shuusei%20Kagari&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Kinoshita Yuuko**](https://myanimelist.net/character.php?q=Kinoshita%20Yuuko&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
