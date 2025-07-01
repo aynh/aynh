@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As far as I'm concerned, I think I'd rather know the truth. Even if learning the truth changed who I am."
+> "Hope is like a treasure, which you cannot carry alone."
 
-&mdash; [**Franz d'Epinay**](https://myanimelist.net/character.php?q=Franz%20d'Epinay&cat=character), [**Gankutsuou**](https://myanimelist.net/search/all?q=Gankutsuou&cat=all)
+&mdash; [**Sayonara Zetsubou Sensei**](https://myanimelist.net/character.php?q=Sayonara%20Zetsubou%20Sensei&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
