@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if armed with hundreds of weapons... there are times when you just can't beat a man with a spear of conviction in his gut."
+> "It might be for the better if there are amusing people around me. Because any tragedy may seem a comedy, as long as I am with them."
 
-&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
