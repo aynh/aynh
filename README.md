@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder when I got into the habit of writing messages to nobody."
+> "'Control'... you say? When you stand before me... that word holds no meaning. Bankai. Senbonzakura Kageyoshi."
 
-&mdash; [**Takaki Tohno**](https://myanimelist.net/character.php?q=Takaki%20Tohno&cat=character), [**5 Centimeters per Second**](https://myanimelist.net/search/all?q=5%20Centimeters%20per%20Second&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
