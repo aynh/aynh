@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It might be for the better if there are amusing people around me. Because any tragedy may seem a comedy, as long as I am with them."
+> "If... If you have such good deductive skills, you should have been able to see through my sister's disguise easily... But... but... WHY...!!!"
 
-&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
