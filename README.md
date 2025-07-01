@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Cutting down a man who's done nothing wrong. Is that what you spent all that time honing those skills for? In my opinion, you're worthless."
+> "Looking at your own memories is recognizing the parts of you that you don't want to face."
 
-&mdash; [**Jin**](https://myanimelist.net/character.php?q=Jin&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Rinne Higaki**](https://myanimelist.net/character.php?q=Rinne%20Higaki&cat=character), [**Katanagatari**](https://myanimelist.net/search/all?q=Katanagatari&cat=all)
