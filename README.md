@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hope is like a treasure, which you cannot carry alone."
+> "There are worthless things, but there are no meaningless things."
 
-&mdash; [**Sayonara Zetsubou Sensei**](https://myanimelist.net/character.php?q=Sayonara%20Zetsubou%20Sensei&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
+&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
