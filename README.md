@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say time and a people’s heart are inversely proportional. The more it passes, the more they grow apart. It seems there are some rare exceptions though."
+> "I wonder when I got into the habit of writing messages to nobody."
 
-&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Takaki Tohno**](https://myanimelist.net/character.php?q=Takaki%20Tohno&cat=character), [**5 Centimeters per Second**](https://myanimelist.net/search/all?q=5%20Centimeters%20per%20Second&cat=all)
