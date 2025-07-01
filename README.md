@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When a person dies, he disappears, along with his past, current lifestyle, and his future. Many people die in missions and wars. They die easily and in surprisingly simple ways. Hayate was one of them. Those who die have goals and dreams. But everyone has something as important as those. Parents, siblings, friends, lovers... people who are important to you. They trust and help each other. The bond between the people important to you ever since birth and the string that binds them becomes thicker and stronger as time goes by... It's beyond reason. Those bound to you by that string will do that because it is important."
+> "This is the impenetrable wall of Jericho third child. Take one step over this wall, and you will be a dead man."
 
-&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Souryuu Asuka Langley**](https://myanimelist.net/character.php?q=Souryuu%20Asuka%20Langley&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
