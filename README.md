@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The chains of fear are easily broken with the blade of courage."
+> "As far as I'm concerned, I think I'd rather know the truth. Even if learning the truth changed who I am."
 
-&mdash; [**Goltas**](https://myanimelist.net/character.php?q=Goltas&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
+&mdash; [**Franz d'Epinay**](https://myanimelist.net/character.php?q=Franz%20d'Epinay&cat=character), [**Gankutsuou**](https://myanimelist.net/search/all?q=Gankutsuou&cat=all)
