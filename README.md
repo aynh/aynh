@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When people focus on what they want to do, they’ll show off an inexplicable charm."
+> "Instead of judging others based on rumors and gossip articles, I must look and feel for myself. You cannot know anyone without coming face-to-face with them."
 
-&mdash; [**Kinoshita Yuuko**](https://myanimelist.net/character.php?q=Kinoshita%20Yuuko&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Haine Wittgenstein**](https://myanimelist.net/character.php?q=Haine%20Wittgenstein&cat=character), [**Oushitsu Kyoushi Haine**](https://myanimelist.net/search/all?q=Oushitsu%20Kyoushi%20Haine&cat=all)
