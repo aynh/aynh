@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not a matter of a creature's individual worth. It's a matter of a creature's personal feelings."
+> "No matter where you are, people find a way to entertain themselves."
 
-&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Shuusei Kagari**](https://myanimelist.net/character.php?q=Shuusei%20Kagari&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
