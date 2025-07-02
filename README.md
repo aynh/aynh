@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The doors here only open one way. They open inward."
+> "I'm as normal as they come and this is a contest of freaks! What do you want me to do, shoot my slingshot at him?"
 
-&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
