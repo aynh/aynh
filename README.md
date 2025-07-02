@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*while stomping on Inuyasha* Lay down, be silent, sleep, rest, sleep... how many times do I have to tell you..."
+> "[to Ichigo] I don't care if you're a human, a Soul Reaper or even a Hollow! I'll crush anybody who looks down on me! And you, Kurosaki, will be the first to go!"
 
-&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
