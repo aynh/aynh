@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Ichigo] I don't care if you're a human, a Soul Reaper or even a Hollow! I'll crush anybody who looks down on me! And you, Kurosaki, will be the first to go!"
+> "You don't have to try to get along with someone that you aren't interested in."
 
-&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
