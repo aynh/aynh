@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't make it sound so easy! Don't you realize how hard I had to study? I worked hard... I worked so hard!"
+> "Even in the darkness, I’m sure it’s reassuring to have someone there to walk with you."
 
-&mdash; [**Hakua Du Lot Herminium**](https://myanimelist.net/character.php?q=Hakua%20Du%20Lot%20Herminium&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Noe Isurugi**](https://myanimelist.net/character.php?q=Noe%20Isurugi&cat=character), [**True Tears**](https://myanimelist.net/search/all?q=True%20Tears&cat=all)
