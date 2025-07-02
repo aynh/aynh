@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He is so twisted that if he sees someone wandering around lost, he's the kind of guy who will screw and toy around with the poor soul before he even bothers to help...IF he even bothers to help!"
+> "Maybe I got something wrong, but it doesn't matter because the thought of wanting to help others definitely isn't wrong."
 
-&mdash; [**Misaki Takahashi**](https://myanimelist.net/character.php?q=Misaki%20Takahashi&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
