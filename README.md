@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no such thing as being born into the world to be alone."
+> "The doors here only open one way. They open inward."
 
-&mdash; [**Saul Jaguar D**](https://myanimelist.net/character.php?q=Saul%20Jaguar%20D&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
