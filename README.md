@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone smiles, when they are with you. Please... from now on, go and help people in my place. Share your happiness with them."
+> "Good is predicated on corruption and evil."
 
-&mdash; [**Yui**](https://myanimelist.net/character.php?q=Yui&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Tamaki Tsunenaga**](https://myanimelist.net/character.php?q=Tamaki%20Tsunenaga&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
