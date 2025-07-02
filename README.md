@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is something mysterious about the life of a pirate."
+> "I'll admit, Black Star makes some dumb calls from time to time, but the important thing is I'm here to back him up no matter how big a fool he is. If we're fools, we're fools together, that's the kind of team we are."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
