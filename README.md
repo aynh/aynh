@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll admit, Black Star makes some dumb calls from time to time, but the important thing is I'm here to back him up no matter how big a fool he is. If we're fools, we're fools together, that's the kind of team we are."
+> "Don't make it sound so easy! Don't you realize how hard I had to study? I worked hard... I worked so hard!"
 
-&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Hakua Du Lot Herminium**](https://myanimelist.net/character.php?q=Hakua%20Du%20Lot%20Herminium&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
