@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even in the darkness, I’m sure it’s reassuring to have someone there to walk with you."
+> "It’s natural that men have things they need to protect."
 
-&mdash; [**Noe Isurugi**](https://myanimelist.net/character.php?q=Noe%20Isurugi&cat=character), [**True Tears**](https://myanimelist.net/search/all?q=True%20Tears&cat=all)
+&mdash; [**Furukawa Akio**](https://myanimelist.net/character.php?q=Furukawa%20Akio&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
