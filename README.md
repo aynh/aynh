@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey, what's that natto for, anyway? If you intend to seduce me with it, you're way off base, you know."
+> "A writer once said that 'a designer knows he has achieved perfection not when he has nothing left to add, but when he has nothing left to take away'."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
