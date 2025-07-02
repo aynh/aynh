@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A writer once said that 'a designer knows he has achieved perfection not when he has nothing left to add, but when he has nothing left to take away'."
+> "If I can get my target to move as I want, I've succeeded as a Hunter."
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Ging Freecss**](https://myanimelist.net/character.php?q=Ging%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
