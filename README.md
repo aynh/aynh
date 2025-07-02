@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Good is predicated on corruption and evil."
+> "He is so twisted that if he sees someone wandering around lost, he's the kind of guy who will screw and toy around with the poor soul before he even bothers to help...IF he even bothers to help!"
 
-&mdash; [**Tamaki Tsunenaga**](https://myanimelist.net/character.php?q=Tamaki%20Tsunenaga&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Misaki Takahashi**](https://myanimelist.net/character.php?q=Misaki%20Takahashi&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
