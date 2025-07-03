@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I always knew you were no mere mortal... but I had no idea that you were a cat."
+> "What exactly would change if I wanted revenge, was consumed by hatred, or went insane with rage?"
 
-&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
