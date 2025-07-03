@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It only took a moment for everything to click. In that instant, I understood. A leader is somebody who can bring a sense of calm and excitement at the same time."
+> "It is not justice that can oppose evil. It is an absolute evil that overpowers evil itself."
 
-&mdash; [**Mutta Namba**](https://myanimelist.net/character.php?q=Mutta%20Namba&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Tendou Kisara**](https://myanimelist.net/character.php?q=Tendou%20Kisara&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
