@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What exactly would change if I wanted revenge, was consumed by hatred, or went insane with rage?"
+> "Unless someone makes the first move, nothing will happen."
 
-&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Misa Amane**](https://myanimelist.net/character.php?q=Misa%20Amane&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
