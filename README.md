@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't call me 'this chick'."
+> "I believe that some truths should never be known."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Konoha Inoue**](https://myanimelist.net/character.php?q=Konoha%20Inoue&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
