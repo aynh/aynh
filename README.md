@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ugly?! Who you callin' ugly?! C'mere you mouse!"
+> "It only took a moment for everything to click. In that instant, I understood. A leader is somebody who can bring a sense of calm and excitement at the same time."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Mutta Namba**](https://myanimelist.net/character.php?q=Mutta%20Namba&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
