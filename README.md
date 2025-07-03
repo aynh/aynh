@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unless someone makes the first move, nothing will happen."
+> "That's right...If I'm the first one here, I can save Kuchiki-san. Kurosaki must've wanted to rescue her himself...If I did it, he'd get really pissed...Heheheh..."
 
-&mdash; [**Misa Amane**](https://myanimelist.net/character.php?q=Misa%20Amane&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
