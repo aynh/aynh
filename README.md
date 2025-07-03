@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's right...If I'm the first one here, I can save Kuchiki-san. Kurosaki must've wanted to rescue her himself...If I did it, he'd get really pissed...Heheheh..."
+> "I picked up my first gun at the age of seven. And I shot. I remember how strangely easy it was to pull the trigger. Ha. I actually laughed. Because that one shot was all that was needed to silence that sickening piece of garbage who had the nerve to call himself my guardian. Ha. It was that simple. And so I was free. Yes, tomorrow would be different. Hm. Tomorrow. As much as I wanted to believe, it only went from bad to worse. A vicious cycle... I didn't want other kids to grow up like me, so I started my own orphanage. It was gratifying work, I was actually doing something for the good of others. It was my place of peace and happiness... yet sometimes, I still think to myself 'there's no place worse than this planet. It's horrible here.'"
 
-&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
