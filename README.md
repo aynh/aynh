@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world... is a very small place, but... for those who know it, it is very, very large. And the world... when it is viewed by those who know... is far larger than just one world can hold."
+> "A sound soul dwells within a sound mind and a sound body."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
