@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The chains of fear are easily broken with the blade of courage."
+> "Symmetry is what makes the world beautiful."
 
-&mdash; [**Goltas**](https://myanimelist.net/character.php?q=Goltas&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
