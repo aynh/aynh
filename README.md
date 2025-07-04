@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have my own method of bending spoons. (bends the spoon with his hands) Ha! Muscle over mind!"
+> "Kira is a god."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Mikami Teru**](https://myanimelist.net/character.php?q=Mikami%20Teru&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
