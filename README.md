@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is it that you get the power, then you choose to protect someone else? No! We first want to protect someone, that's why we try to get stronger in the first place."
+> "A strong person is not the one who doesn't cry. A strong person is the one who cries and sheds tears for a moment, then gets up and fights again."
 
-&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
