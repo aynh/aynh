@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Living things are restrained by Chains: The laws of nature, the flow of time, the vessel known as your “body”, and the existence called your mind. There's only one chain that people can wield: WORDS."
+> "Where do people stray off the path? When do they begin to obey their greed rather than their ideals? Or are ideals just prone to morphing easily into greed?"
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Sion**](https://myanimelist.net/character.php?q=Sion&cat=character), [**No.6**](https://myanimelist.net/search/all?q=No.6&cat=all)
