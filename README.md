@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kira is a god."
+> "Is there truly any human who is not arrogant?"
 
-&mdash; [**Mikami Teru**](https://myanimelist.net/character.php?q=Mikami%20Teru&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
