@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'If you close down the way to your own path, it will always open up. That's why this isn't a song of ending. It is a new encounter. A song of beginning.'"
+> "Someday, maybe you’ll find someone like you to share your pain with. I can’t tell you when that will happen.... But the important thing is to not reject them."
 
-&mdash; [**Kahoko Hino**](https://myanimelist.net/character.php?q=Kahoko%20Hino&cat=character), [**La Corda D'Oro - primo passo**](https://myanimelist.net/search/all?q=La%20Corda%20D'Oro%20-%20primo%20passo&cat=all)
+&mdash; [**Mei Tachibana**](https://myanimelist.net/character.php?q=Mei%20Tachibana&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
