@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someday, maybe you’ll find someone like you to share your pain with. I can’t tell you when that will happen.... But the important thing is to not reject them."
+> "And what of it? If you're good on the inside, then looks don't matter!"
 
-&mdash; [**Mei Tachibana**](https://myanimelist.net/character.php?q=Mei%20Tachibana&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
+&mdash; [**Kei Enomoto**](https://myanimelist.net/character.php?q=Kei%20Enomoto&cat=character), [**Hatsukoi Limited**](https://myanimelist.net/search/all?q=Hatsukoi%20Limited&cat=all)
