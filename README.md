@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what bonds you forge with others, time will tear them apart. Well... Doesn't thinking about it make you sick?"
+> "'If you close down the way to your own path, it will always open up. That's why this isn't a song of ending. It is a new encounter. A song of beginning.'"
 
-&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Kahoko Hino**](https://myanimelist.net/character.php?q=Kahoko%20Hino&cat=character), [**La Corda D'Oro - primo passo**](https://myanimelist.net/search/all?q=La%20Corda%20D'Oro%20-%20primo%20passo&cat=all)
