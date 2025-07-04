@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My life after losing her... Is it over as well? The days I spent satisfied with the happiness I never noticed... Those times had passed away. For me... There's nothing left at all."
+> "Is it that you get the power, then you choose to protect someone else? No! We first want to protect someone, that's why we try to get stronger in the first place."
 
-&mdash; [**Yuzuru Otonashi**](https://myanimelist.net/character.php?q=Yuzuru%20Otonashi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
