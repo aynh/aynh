@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fear is necessary for evolution. The fear that could be destroyed at any moment."
+> "No matter what bonds you forge with others, time will tear them apart. Well... Doesn't thinking about it make you sick?"
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
