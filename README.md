@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is not justice that can oppose evil. It is an absolute evil that overpowers evil itself."
+> "My life after losing her... Is it over as well? The days I spent satisfied with the happiness I never noticed... Those times had passed away. For me... There's nothing left at all."
 
-&mdash; [**Tendou Kisara**](https://myanimelist.net/character.php?q=Tendou%20Kisara&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
+&mdash; [**Yuzuru Otonashi**](https://myanimelist.net/character.php?q=Yuzuru%20Otonashi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
