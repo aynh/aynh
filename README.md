@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has a right to pursue a happy life. The difficult part is to be given that right."
+> "Survival of the fittest' is just a pretty lie that they tell you. A lie to make weak people believe that if they try their best, they can come out on top. Truth is, it isn't the weak that get eaten. It's not about strength, it's about numbers. The ones who stand at the top of the food chain are the brainless dolts. The loudmouths. Because there are so, so many of them. You know it's true. Everybody does. You all just turn a blind eye and pretend not to notice."
 
-&mdash; [**Frederica Bernkastel**](https://myanimelist.net/character.php?q=Frederica%20Bernkastel&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Riruka Dokugamine**](https://myanimelist.net/character.php?q=Riruka%20Dokugamine&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
