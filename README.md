@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Survival of the fittest' is just a pretty lie that they tell you. A lie to make weak people believe that if they try their best, they can come out on top. Truth is, it isn't the weak that get eaten. It's not about strength, it's about numbers. The ones who stand at the top of the food chain are the brainless dolts. The loudmouths. Because there are so, so many of them. You know it's true. Everybody does. You all just turn a blind eye and pretend not to notice."
+> "*аfter a customer tells Tamaki she's afraid that her father will yell at her if she drinks this* What if I let you drink it from my mouth?"
 
-&mdash; [**Riruka Dokugamine**](https://myanimelist.net/character.php?q=Riruka%20Dokugamine&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
