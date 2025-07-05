@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All men are NOT created equal! Some are born smarter, or more beautiful, or with parents of greater status. Some, by contrast, are born of weak body or mind, or with few, if any, talents. All men are different! Yes, the very existence of man is discriminatory! That's why there is war, violence and unrest."
+> "[looking through a periscope at the dust cloud Toph made] Hey... Look at that dust cloud. It's so...poofy! [Mimes by closing and opening her hand] Poof!"
 
-&mdash; [**Charles Zi Britannia**](https://myanimelist.net/character.php?q=Charles%20Zi%20Britannia&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Ty Lee**](https://myanimelist.net/character.php?q=Ty%20Lee&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
