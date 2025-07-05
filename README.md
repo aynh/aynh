@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe nothing in this world happens by accident. As everything happens for a reason, our destiny slowly takes form..."
+> "This is your home now, so make yourself comfortable. And take advantage of everything here, except me."
 
-&mdash; [**Silvers Rayleigh**](https://myanimelist.net/character.php?q=Silvers%20Rayleigh&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Misato Katsuragi**](https://myanimelist.net/character.php?q=Misato%20Katsuragi&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
