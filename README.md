@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long is you still draw breathe, there is no way to escape having to bid others farewell.  It doesn't matter if you're human or not...we all have to say good-bye."
+> "Maybe nothing in this world happens by accident. As everything happens for a reason, our destiny slowly takes form..."
 
-&mdash; [**Yasaburou Shimogamo**](https://myanimelist.net/character.php?q=Yasaburou%20Shimogamo&cat=character), [**Uchouten Kazoku**](https://myanimelist.net/search/all?q=Uchouten%20Kazoku&cat=all)
+&mdash; [**Silvers Rayleigh**](https://myanimelist.net/character.php?q=Silvers%20Rayleigh&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
