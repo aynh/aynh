@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are easily tempted. When they are poised on the edge of hellish despair, and a spider-thin thread of salvation presents itself, they will invariably grasp it. No matter the human."
+> "Enduring and forgiving are two different things. You must not forget the unjustness of society. As a human being, you must hold the event in contempt. Yet, you must endure. You must put an end to the chain of hatred!"
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Scar's Master**](https://myanimelist.net/character.php?q=Scar's%20Master&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
