@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So maybe I can't defend against attacks from multiple angles, but sometimes a good defense is just kicking ass!"
+> "I am not a person who only wants to receive things from him, I want to be the person who can give things to him."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
