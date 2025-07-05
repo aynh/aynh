@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's as if you are stuck in some predetermined program, following some predetermined script. If you really want to live in reality, then fight against it. Break through destiny with your own hands, and build your own reality!"
+> "The sea’s blue reflects because of the sky’s blue. Just like detectives and thieves. We’re all toying with the human mind. But the one who pries for others’ secrets is the one who’s truly impolite."
 
-&mdash; [**Sarutobi Ayame**](https://myanimelist.net/character.php?q=Sarutobi%20Ayame&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
