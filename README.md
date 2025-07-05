@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, I'm sorry. Her head's so empty, so I mistook her for a vase and put flowers in her. You might want to spit that out quick, though. Those can be quite poisonous."
+> "It's like that myth about the hero... He made wings out of wax so he could fly... but when he got too close to the sun... to God... the wax melted and he crashed to the ground..."
 
-&mdash; [**Ino Yamanaka**](https://myanimelist.net/character.php?q=Ino%20Yamanaka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
