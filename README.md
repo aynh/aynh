@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is your home now, so make yourself comfortable. And take advantage of everything here, except me."
+> "Youmu or Spirit Warrior... In the end, none of that really matters. Nor does the question of who you are. All that matters is to be close to the ones you care about."
 
-&mdash; [**Misato Katsuragi**](https://myanimelist.net/character.php?q=Misato%20Katsuragi&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Yayoi Kanbara**](https://myanimelist.net/character.php?q=Yayoi%20Kanbara&cat=character), [**Gekijou-ban Kyoukai no Kanata -I'll Be Here- Mirai-hen**](https://myanimelist.net/search/all?q=Gekijou-ban%20Kyoukai%20no%20Kanata%20-I'll%20Be%20Here-%20Mirai-hen&cat=all)
