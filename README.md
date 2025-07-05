@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[looking through a periscope at the dust cloud Toph made] Hey... Look at that dust cloud. It's so...poofy! [Mimes by closing and opening her hand] Poof!"
+> "There's no reason a fake can't do what the real thing would. And it's possible for a fake to be more real than the real thing."
 
-&mdash; [**Ty Lee**](https://myanimelist.net/character.php?q=Ty%20Lee&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
