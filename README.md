@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you need to run, you should run the best you can! Then you can just take your time to think."
+> "So maybe I can't defend against attacks from multiple angles, but sometimes a good defense is just kicking ass!"
 
-&mdash; [**Hajime Ichinose**](https://myanimelist.net/character.php?q=Hajime%20Ichinose&cat=character), [**Gatchaman Crowds**](https://myanimelist.net/search/all?q=Gatchaman%20Crowds&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
