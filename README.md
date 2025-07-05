@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Enduring and forgiving are two different things. You must not forget the unjustness of society. As a human being, you must hold the event in contempt. Yet, you must endure. You must put an end to the chain of hatred!"
+> "I'll never dream about things that I know won't come true."
 
-&mdash; [**Scar's Master**](https://myanimelist.net/character.php?q=Scar's%20Master&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Chiriko Tsurumi**](https://myanimelist.net/character.php?q=Chiriko%20Tsurumi&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
