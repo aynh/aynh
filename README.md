@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The only thing you can change about the past is how you feel about it in the present."
+> "If you need to run, you should run the best you can! Then you can just take your time to think."
 
-&mdash; [**Lockon Stratos**](https://myanimelist.net/character.php?q=Lockon%20Stratos&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Hajime Ichinose**](https://myanimelist.net/character.php?q=Hajime%20Ichinose&cat=character), [**Gatchaman Crowds**](https://myanimelist.net/search/all?q=Gatchaman%20Crowds&cat=all)
