@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who try to step over someone else and go up higher... are actually only running away from some fear that they cannot see. Trying to step over someone is an cowardly action. It means you're not confident enough to face the opponent and speak to them with the same viewpoint. It doesn't matter how much power I have in me. By using that 'power' that's taking over you. I do not want to become such a cowardly person. I will fight and get hurt in order to survive...."
+> "If I don't stand up here... If I don't reach higher here... When am I ever going to do it?"
 
-&mdash; [**Twenty-Fifth Baam**](https://myanimelist.net/character.php?q=Twenty-Fifth%20Baam&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
+&mdash; [**Bell Cranel**](https://myanimelist.net/character.php?q=Bell%20Cranel&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
