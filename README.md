@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The piano is meant to be played like you're embracing it, right?"
+> "People who’ve had lots of failures talk about those failures as if to imply that if they have another life, they’ll be a big success. After facing all that hardship, they think they won’t mess up again. But they’re all - me included, of course - making a fundamental mistake. Failures know a lot about failure, sure. But knowing failure is completely different from knowing success. Fixing your mistakes doesn’t mean success takes their place - you’ve just got a point to start at, is all. That’s something failures don’t understand."
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Three Days of Happiness**](https://myanimelist.net/character.php?q=Three%20Days%20of%20Happiness&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
