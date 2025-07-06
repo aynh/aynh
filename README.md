@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is nothing more expensive than something free."
+> "He turned a room full of strangers into a room full of enemies with just one sentence."
 
-&mdash; [**Maki Honoka**](https://myanimelist.net/character.php?q=Maki%20Honoka&cat=character), [**Kiznaiver**](https://myanimelist.net/search/all?q=Kiznaiver&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
