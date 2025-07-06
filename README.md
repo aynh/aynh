@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being indebted to someone is nothing to be ashamed of. Not repaying that debt is."
+> "I loathe all things, I despise every living creature who's bound to time."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
