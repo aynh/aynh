@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's more interesting when the future's uncertain."
+> "Those who try to step over someone else and go up higher... are actually only running away from some fear that they cannot see. Trying to step over someone is an cowardly action. It means you're not confident enough to face the opponent and speak to them with the same viewpoint. It doesn't matter how much power I have in me. By using that 'power' that's taking over you. I do not want to become such a cowardly person. I will fight and get hurt in order to survive...."
 
-&mdash; [**Mashiro Shiina**](https://myanimelist.net/character.php?q=Mashiro%20Shiina&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Twenty-Fifth Baam**](https://myanimelist.net/character.php?q=Twenty-Fifth%20Baam&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
