@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you can forget, you can't erase the past."
+> "Maybe I'm not perfect. Maybe I have a long way to go. But someday... someday I'll be able to stand and walk on my own. Without hurting anyone... and without being a burden. (to Kazuma)"
 
-&mdash; [**Kenzo Tenma**](https://myanimelist.net/character.php?q=Kenzo%20Tenma&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
