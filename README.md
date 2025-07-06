@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What does someone who´s lost their standing want the most? That's simple. They want someone to find them, where they're standing."
+> "*to Hige* Coming from you, that sounds kind of fishy."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
