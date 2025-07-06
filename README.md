@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The heart moves where the heart wills."
+> "[When Ino visits him in the hospital] Hehe. I'm also the type that gets girls to visit him. Take that, Shikamaru!"
 
-&mdash; [**Twenty-Fifth Baam**](https://myanimelist.net/character.php?q=Twenty-Fifth%20Baam&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
+&mdash; [**Chouji Akimichi**](https://myanimelist.net/character.php?q=Chouji%20Akimichi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
