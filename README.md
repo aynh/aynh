@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop looking at my soul you creep!"
+> "Isn't chasing our dream our job right now?"
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Minako Kanou**](https://myanimelist.net/character.php?q=Minako%20Kanou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
