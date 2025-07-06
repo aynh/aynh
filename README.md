@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I lost all of what you could call feelings of love. They weren't sealed, so they can't be released. They weren't broken, so they can't be fixed. That which is lost, cannot be recovered."
+> "What does someone who´s lost their standing want the most? That's simple. They want someone to find them, where they're standing."
 
-&mdash; [**Tatsuya Shiba**](https://myanimelist.net/character.php?q=Tatsuya%20Shiba&cat=character), [**Mahouka Koukou no Rettousei**](https://myanimelist.net/search/all?q=Mahouka%20Koukou%20no%20Rettousei&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
