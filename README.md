@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You cannot understand that which you do not know, and that misunderstanding breeds hatred."
+> "I have my own method of bending spoons. (bends the spoon with his hands) Ha! Muscle over mind!"
 
-&mdash; [**Sehara**](https://myanimelist.net/character.php?q=Sehara&cat=character), [**One thousand and one nights**](https://myanimelist.net/search/all?q=One%20thousand%20and%20one%20nights&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
