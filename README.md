@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time brings an end to all things. Even if we plug our ears and cover our eyes."
+> "I believe being an author is a lonely line of work that asks you to pass through a narrow gate alone."
 
-&mdash; [**Pharos**](https://myanimelist.net/character.php?q=Pharos&cat=character), [**Persona 3**](https://myanimelist.net/search/all?q=Persona%203&cat=all)
+&mdash; [**Kanako Sakurai**](https://myanimelist.net/character.php?q=Kanako%20Sakurai&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
