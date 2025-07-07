@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are a few things that people can't avoid while they live. People can't avoid misfortune. There are lots of hard things in life. There might even be times when you want to die."
+> "He who forgives and acknowledges himself... that is what it truly means to be strong!"
 
-&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
