@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I always wanted to become stronger. At first it was to protect myself. Next, it was to protect Hak, who gave up everything for me. Now, it's to repay my friends, who enabled me to live."
+> "A terrible premonition can bring about a terrible reality."
 
-&mdash; [**Yona**](https://myanimelist.net/character.php?q=Yona&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Ryougi Shiki**](https://myanimelist.net/character.php?q=Ryougi%20Shiki&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
