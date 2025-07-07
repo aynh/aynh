@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is not wise to judge others based on your own preconceptions and by their appearances."
+> "Look at the sky, it's so far away. But right here, right now, it seems so close."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Lee Yunlee**](https://myanimelist.net/character.php?q=Lee%20Yunlee&cat=character), [**Nineteen Twenty-one**](https://myanimelist.net/search/all?q=Nineteen%20Twenty-one&cat=all)
