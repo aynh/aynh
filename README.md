@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe being an author is a lonely line of work that asks you to pass through a narrow gate alone."
+> "I can stand not eating or sleeping, but I absolutely would not be able to live without my computer."
 
-&mdash; [**Kanako Sakurai**](https://myanimelist.net/character.php?q=Kanako%20Sakurai&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
+&mdash; [**Kisaragi Shintaro**](https://myanimelist.net/character.php?q=Kisaragi%20Shintaro&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
