@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To me, death is not the scariest thing at all."
+> "I didn't hate it as much as I said. That hollow, that is. If there's anything that I've truly hated for 20 years without thinking twice... it'd have to be the fact that I failed to save Masaki on that night."
 
-&mdash; [**Mikan Sakura**](https://myanimelist.net/character.php?q=Mikan%20Sakura&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
+&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
