@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regardless of our limitations, we can always be of some use. Our power may seem insignificant... but it may just prove to be useful in the grand scheme of things. Stay focused. Never avert your eyes, because if an opening arises, even our insignificant power may be enough to determine the fate of the world. Which is why everyone must stay alert and ready to strike at any moment!"
+> "There are a few things that people can't avoid while they live. People can't avoid misfortune. There are lots of hard things in life. There might even be times when you want to die."
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
