@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s only one certainty in life. A strong man stands above and conquers all!"
+> "So how about we become monsters together?.. And turn this world upside down? So that... nothing bad... or sad... would remain. Destroy, destroy, destroy it all!"
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
