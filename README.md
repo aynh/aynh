@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*points at Black Star* What is that? Some kind of monkey? Yeah...it must be a monkey."
+> "Love is... care and devotion you feel for the precious ones around you."
 
-&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Yashamaru**](https://myanimelist.net/character.php?q=Yashamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
