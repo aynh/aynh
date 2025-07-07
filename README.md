@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I had a dream where I fell into a surreal world with a girl I knew, and then ended up kissing her! A dream so easy to understand that even Sigmund Freud would laugh out loud."
+> "There’s only one certainty in life. A strong man stands above and conquers all!"
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
