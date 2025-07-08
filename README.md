@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How will you live if every little thing from your memories always hurts you easily?"
+> "My companions make my heart strong. If I'm fighting for those I love, I care not what happens to this body."
 
-&mdash; [**Daiki Mamura**](https://myanimelist.net/character.php?q=Daiki%20Mamura&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
