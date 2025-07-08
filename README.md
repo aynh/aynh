@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now you're suddenly in a big rush to go? What's the point in hurrying, we're already three hours late."
+> "Not many can do the “right thing” when it counts."
 
-&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kuroh Yatogami**](https://myanimelist.net/character.php?q=Kuroh%20Yatogami&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
