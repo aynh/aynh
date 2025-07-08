@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll never show you my tears. These are the tears of those who died with regrets. If there's a way to take away these regrets, I'll make sure I'll find it. If it's fear that you speak of, then I'll stand and face it. I'll never give up. The only time I lose is when I die!"
+> "All men are NOT created equal! Some are born smarter, or more beautiful, or with parents of greater status. Some, by contrast, are born of weak body or mind, or with few, if any, talents. All men are different! Yes, the very existence of man is discriminatory! That's why there is war, violence and unrest."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Charles Zi Britannia**](https://myanimelist.net/character.php?q=Charles%20Zi%20Britannia&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
