@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's stupid to talk about things you're not. Be yourself and you'll be fine."
+> "It seems that you still want to dance but... You will not be able to make steps anymore."
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
