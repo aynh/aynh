@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We don't have time to waste asking for the things we don’t have, we can only look for the best way to fight with the things we do have."
+> "The world is indeed full of malice, but there are some pitfalls one can avoid as long as one knows of them- ignorance is a sin, after all."
 
-&mdash; [**Hiruma Youichi**](https://myanimelist.net/character.php?q=Hiruma%20Youichi&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
