@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We don't know if trying our best will help, but we do know, that if we don't try our best, it won't help for sure!"
+> "Hey! It looks like now is a good time to do a little tail fishing!"
 
-&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
