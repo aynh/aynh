@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hope and passion slip through your fingers like sand."
+> "We don't have time to waste asking for the things we don’t have, we can only look for the best way to fight with the things we do have."
 
-&mdash; [**Takada**](https://myanimelist.net/character.php?q=Takada&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
+&mdash; [**Hiruma Youichi**](https://myanimelist.net/character.php?q=Hiruma%20Youichi&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
