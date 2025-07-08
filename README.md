@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My companions make my heart strong. If I'm fighting for those I love, I care not what happens to this body."
+> "Hope and passion slip through your fingers like sand."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Takada**](https://myanimelist.net/character.php?q=Takada&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
