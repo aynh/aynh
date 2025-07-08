@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is indeed full of malice, but there are some pitfalls one can avoid as long as one knows of them- ignorance is a sin, after all."
+> "Now you're suddenly in a big rush to go? What's the point in hurrying, we're already three hours late."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
