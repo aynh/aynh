@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is your life right? Then decide for yourself! If you want to protect everything with your hands then do so, if you want to abandon everything then do so. But, what do you yourself want to do right now? Can you really be satisfied giving someone else that you don’t really understand your most important thing?"
+> "He turns the black-and-white landscape into brilliant colors. That's what George was to me. Even if our paths don't ever cross again, that will never change."
 
-&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Yukari Hayasaka**](https://myanimelist.net/character.php?q=Yukari%20Hayasaka&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
