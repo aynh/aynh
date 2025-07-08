@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes violence is the only way to get the message across."
+> "I could go one step farther If I wanted to."
 
-&mdash; [**Eikichi Onizuka**](https://myanimelist.net/character.php?q=Eikichi%20Onizuka&cat=character), [**Great Teacher Onizuka**](https://myanimelist.net/search/all?q=Great%20Teacher%20Onizuka&cat=all)
+&mdash; [**Goku**](https://myanimelist.net/character.php?q=Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
