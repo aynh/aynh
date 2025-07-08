@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It seems that you still want to dance but... You will not be able to make steps anymore."
+> "We don't know if trying our best will help, but we do know, that if we don't try our best, it won't help for sure!"
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
