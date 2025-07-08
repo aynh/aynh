@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I could go one step farther If I wanted to."
+> "Even if my left arm can transform into a monstrous claw and can destroy Akuma, im just a normal person with a promise..."
 
-&mdash; [**Goku**](https://myanimelist.net/character.php?q=Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Allen Walker**](https://myanimelist.net/character.php?q=Allen%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
