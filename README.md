@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How do you prove that you exist...? Maybe we don't exist."
+> "Sorry, but it doesn't matter if you're a woman or even a child... I don't go easy on anybody who hurts my nakama."
 
-&mdash; [**Vivi Ornitier**](https://myanimelist.net/character.php?q=Vivi%20Ornitier&cat=character), [**Final Fantasy IX**](https://myanimelist.net/search/all?q=Final%20Fantasy%20IX&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
