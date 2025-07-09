@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "ADW is a severe, incurable ailment that makes the patient Able to Do only what he Wants to do."
+> "Evil expects evil from others."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
