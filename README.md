@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times when there's a great pleasure waiting at the end of laments, pains, and near-death experiences."
+> "Use whatever is at hand, be it friend or foe."
 
-&mdash; [**Hinagiku Katsura**](https://myanimelist.net/character.php?q=Hinagiku%20Katsura&cat=character), [**Hayate the Combat Butler**](https://myanimelist.net/search/all?q=Hayate%20the%20Combat%20Butler&cat=all)
+&mdash; [**Kyoya Ootori**](https://myanimelist.net/character.php?q=Kyoya%20Ootori&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
