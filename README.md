@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "From a different perspective, an imposing wall is just a large door."
+> "There are times when there's a great pleasure waiting at the end of laments, pains, and near-death experiences."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Hinagiku Katsura**](https://myanimelist.net/character.php?q=Hinagiku%20Katsura&cat=character), [**Hayate the Combat Butler**](https://myanimelist.net/search/all?q=Hayate%20the%20Combat%20Butler&cat=all)
