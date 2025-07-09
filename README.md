@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People tend to show off their act of kindness. It is not an act of good will, it is a demand because they are expecting a word of grace as a reward."
+> "The things we can't obtain are the most beautiful ones."
 
-&mdash; [**Itoshiki Nozomu**](https://myanimelist.net/character.php?q=Itoshiki%20Nozomu&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate Stay Night - Unlimited Blade Works**](https://myanimelist.net/search/all?q=Fate%20Stay%20Night%20-%20Unlimited%20Blade%20Works&cat=all)
