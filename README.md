@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I say it doesn't hurt me, that means I can bear it."
+> "When boys get to a certain age, family becomes a bother. That's how they become independent."
 
-&mdash; [**Killua Zoldyck**](https://myanimelist.net/character.php?q=Killua%20Zoldyck&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
