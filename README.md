@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry, but it doesn't matter if you're a woman or even a child... I don't go easy on anybody who hurts my nakama."
+> "No matter what lies you tell, you can't fool your own heart."
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Meliodas**](https://myanimelist.net/character.php?q=Meliodas&cat=character), [**Nanatsu no Taizai**](https://myanimelist.net/search/all?q=Nanatsu%20no%20Taizai&cat=all)
