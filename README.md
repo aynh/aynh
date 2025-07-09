@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, it's necessary to look back at the past in order to move on to the future."
+> "ADW is a severe, incurable ailment that makes the patient Able to Do only what he Wants to do."
 
-&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
