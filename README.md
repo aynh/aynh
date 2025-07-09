@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kindness is weakness. Your weakness will delay the trigger by a moment. This world doesn't treat kindness kindly."
+> "Learning and copying are the same.  Everyone starts out copying someone else. Every last person."
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Yumi Iguchi**](https://myanimelist.net/character.php?q=Yumi%20Iguchi&cat=character), [**Shirobako**](https://myanimelist.net/search/all?q=Shirobako&cat=all)
