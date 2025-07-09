@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Learning and copying are the same.  Everyone starts out copying someone else. Every last person."
+> "When I say it doesn't hurt me, that means I can bear it."
 
-&mdash; [**Yumi Iguchi**](https://myanimelist.net/character.php?q=Yumi%20Iguchi&cat=character), [**Shirobako**](https://myanimelist.net/search/all?q=Shirobako&cat=all)
+&mdash; [**Killua Zoldyck**](https://myanimelist.net/character.php?q=Killua%20Zoldyck&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
