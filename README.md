@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry... I really... want to let you savor your moment of glory a little longer. But I really can't be having this. After all is said and done... he is still my man after all."
+> "My name is Duck. Yes, like the bird. Take it up with my parents. They never loved me!"
 
-&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Ahiru Arima**](https://myanimelist.net/character.php?q=Ahiru%20Arima&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
