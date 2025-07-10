@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you trip while running down a hallway, you'll get a nosebleed. If you trip in life, you'll cry."
+> "The Devil's finest trick is to persuade you that he does not exist."
 
-&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
