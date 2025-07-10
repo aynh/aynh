@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Obey the ones with power'. That's the true meaning of the law of the jungle. If you don't wish to be bound by that, obtain greater power. Because there's always times one must fight power with power."
+> "It's fine. I'll work hard on my own."
 
-&mdash; [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/character.php?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
