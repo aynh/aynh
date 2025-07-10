@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yuri, I finally understand why you and I were the only ones left in this world. You and I were already lost children, but most children in the world are the same as us. That's why, even once was enough: We both needed someone to tell us 'I love you'."
+> "Fool… I belong among the heavens? Yet you would have me trod upon the ground?! Your impudence has guaranteed your death! Mongrel! When I am through with you, nothing will remain of your corpse!"
 
-&mdash; [**Keiju Tabuki**](https://myanimelist.net/character.php?q=Keiju%20Tabuki&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
