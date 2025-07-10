@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't concern yourself with what those tasteless idiots say."
+> "You’re about to find out what it’s like to fight a real super saiyan… and I’m not talking about Goku."
 
-&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Trunks**](https://myanimelist.net/character.php?q=Trunks&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
