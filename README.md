@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you find yourself wishing that a certain person was also here, that person is like family to you. Regardless of how long or how well you know them."
+> "If you trip while running down a hallway, you'll get a nosebleed. If you trip in life, you'll cry."
 
-&mdash; [**Tsutomu Komano**](https://myanimelist.net/character.php?q=Tsutomu%20Komano&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
