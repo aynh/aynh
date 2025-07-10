@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My name is Duck. Yes, like the bird. Take it up with my parents. They never loved me!"
+> "What a laughable attempt. You should just stay where you are, groveling at my feet."
 
-&mdash; [**Ahiru Arima**](https://myanimelist.net/character.php?q=Ahiru%20Arima&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
+&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
