@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are searching for a place where we can live our lives in peaceful days. No wars, no stealing; a place that isn’t run by fear; a place where people can live, and actually trust other human beings."
+> "Really! How marvellous! You two are simply marvellous. Which one of you should I kill? Which one of you would be more fun to watch as you wail in agony?"
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
