@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Silence means approaching quietly!"
+> "You hide a tree by putting it in a forest; you hide a person among other people!"
 
-&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Sarasvati**](https://myanimelist.net/character.php?q=Sarasvati&cat=character), [**Kore wa Zombie Desu ka? of the Dead**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F%20of%20the%20Dead&cat=all)
