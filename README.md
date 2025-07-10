@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Really! How marvellous! You two are simply marvellous. Which one of you should I kill? Which one of you would be more fun to watch as you wail in agony?"
+> "When you find yourself wishing that a certain person was also here, that person is like family to you. Regardless of how long or how well you know them."
 
-&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Tsutomu Komano**](https://myanimelist.net/character.php?q=Tsutomu%20Komano&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
