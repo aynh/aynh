@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life can bring lots of hardships, but it's always important to keep in mind that there are people around you who care for you, and are willing to help you through whatever you're dealing with."
+> "We are searching for a place where we can live our lives in peaceful days. No wars, no stealing; a place that isn’t run by fear; a place where people can live, and actually trust other human beings."
 
-&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
