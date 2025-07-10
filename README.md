@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What a laughable attempt. You should just stay where you are, groveling at my feet."
+> "Don't concern yourself with what those tasteless idiots say."
 
-&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
