@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Say please, before asking for favor."
+> "Good… death is chasing me. Ones who kill are also chased by death, always living alongside death… Jobs that risk one’s soul are truly beautiful! How rewarding… my battlefield!"
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Solf J. Kimblee**](https://myanimelist.net/character.php?q=Solf%20J.%20Kimblee&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
