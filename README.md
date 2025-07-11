@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're always above everyone else. But you make decisions and move forward by yourself, and no one can keep up with you. Even the much-loved sun is alone if no one can reach it."
+> "I'm gonna kick your ***."
 
-&mdash; [**Abeno Sousei**](https://myanimelist.net/character.php?q=Abeno%20Sousei&cat=character), [**Donten ni Warau**](https://myanimelist.net/search/all?q=Donten%20ni%20Warau&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
