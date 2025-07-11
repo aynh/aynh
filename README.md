@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop making me repeat myself! Its bad for my health!"
+> "Why do you have to pay money to eat?! Can't we all just share?! Where is freedom in the world?! All are slaves to labor!! The rich grow fat... While the poor die!!"
 
-&mdash; [**Duo Maxwell**](https://myanimelist.net/character.php?q=Duo%20Maxwell&cat=character), [**Mobile Suit Gundam Wing**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Wing&cat=all)
+&mdash; [**Hammerhead**](https://myanimelist.net/character.php?q=Hammerhead&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
