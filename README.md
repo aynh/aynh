@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It’s vulgar and foolish to spend all your time thinking about love!"
+> "Doing something you want, isn't doing something you are good at, nor is it doing something you are able to. If it's to fulfill your wish, even if you're weak in it, you'll do it."
 
-&mdash; [**Kanade Ōe**](https://myanimelist.net/character.php?q=Kanade%20%C5%8Ce&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
