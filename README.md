@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You see, I really hate the word 'responsibility' saying something or doing something 'it's your responsibility' 'take responsibility' making a 'selection' always comes with 'responsibility.' That's why I abandoned 'selection' therefore, I don't have to bear any responsibility anymore."
+> "Those who do well, respect their chances. Those who pass on chances, may never be presented with that chance again."
 
-&mdash; [**Kuruwa Kimiharu**](https://myanimelist.net/character.php?q=Kuruwa%20Kimiharu&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
+&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
