@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I may be inept, but at least I don't forget to aim high!"
+> "First you say I'm faster then you get the heads up on me like I'm an old lady crossing the freeway! Just once I'd like some honesty from the bad guys!"
 
-&mdash; [**Aoi Toori**](https://myanimelist.net/character.php?q=Aoi%20Toori&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
