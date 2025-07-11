@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My obvious charms and god-like powers always dazzle the simple, ordinary folk."
+> "It wasn't the pain that hurt me. Rather, it was the feeling of me being ripped apart, and the sound of the knife plunging deep, deep into my heart. That incomparably bittersweet fear. My body shook and trembled at the thought of it. My silent weeping contained my uneasiness, my loneliness, my will to live. My tears aren't from the pain either, or from the fear of the encounter. It was for the brush of death that I had never before experienced, but had now fallen in love with, even though I pray every night for the strength to live."
 
-&mdash; [**Dark Schneider**](https://myanimelist.net/character.php?q=Dark%20Schneider&cat=character), [**Bastard**](https://myanimelist.net/search/all?q=Bastard&cat=all)
+&mdash; [**Fujou Kirie**](https://myanimelist.net/character.php?q=Fujou%20Kirie&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
