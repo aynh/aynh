@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who do well, respect their chances. Those who pass on chances, may never be presented with that chance again."
+> "Say please, before asking for favor."
 
-&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
