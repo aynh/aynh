@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Romance can strengthen people, but it can also make them useless."
+> "You're always above everyone else. But you make decisions and move forward by yourself, and no one can keep up with you. Even the much-loved sun is alone if no one can reach it."
 
-&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Abeno Sousei**](https://myanimelist.net/character.php?q=Abeno%20Sousei&cat=character), [**Donten ni Warau**](https://myanimelist.net/search/all?q=Donten%20ni%20Warau&cat=all)
