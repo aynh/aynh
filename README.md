@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Doing something you want, isn't doing something you are good at, nor is it doing something you are able to. If it's to fulfill your wish, even if you're weak in it, you'll do it."
+> "I believe the difference between those up there and me is the question of whether you have given up or not."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Ja Wangnan**](https://myanimelist.net/character.php?q=Ja%20Wangnan&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
