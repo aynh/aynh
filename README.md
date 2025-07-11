@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why do you have to pay money to eat?! Can't we all just share?! Where is freedom in the world?! All are slaves to labor!! The rich grow fat... While the poor die!!"
+> "My obvious charms and god-like powers always dazzle the simple, ordinary folk."
 
-&mdash; [**Hammerhead**](https://myanimelist.net/character.php?q=Hammerhead&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Dark Schneider**](https://myanimelist.net/character.php?q=Dark%20Schneider&cat=character), [**Bastard**](https://myanimelist.net/search/all?q=Bastard&cat=all)
