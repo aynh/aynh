@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen, Haku. I don’t remember it, but my mom told me... Once, when I was little, I fell into a river. She said they’d drained it and built things on top. But I’ve just remembered. The river was called the Kohaku River. Your real name is... Kohaku."
+> "Having too many bonds causes one to lose focus, weakening their strongest wish, their greatest desire."
 
-&mdash; [**Chihiro Ogino**](https://myanimelist.net/character.php?q=Chihiro%20Ogino&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
+&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
