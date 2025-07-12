@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not that I don't trust you all. It's the opposite. I'm going because I believe in you all. You all know this well, right? No matter who betrays me, I won't betray anyone."
+> "If a person continues killing, their heart changes into that of a demon without them even noticing."
 
-&mdash; [**Tsubaki**](https://myanimelist.net/character.php?q=Tsubaki&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
+&mdash; [**Gensei**](https://myanimelist.net/character.php?q=Gensei&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
