@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What would you ask for if you could have your wishes granted? Would you ask to be rich? Or to have the woman you're in love with be yours?  You can wish for whatever you want, it's your business, but to have one's wishes come true always comes with a price. Every deal has a catch. You'd better be nice and careful."
+> "Having the love of your life break up with you and say 'we can still be friends', is like your dog dying and your mom saying 'you can still keep it'."
 
-&mdash; [**Dante**](https://myanimelist.net/character.php?q=Dante&cat=character), [**Devil May Cry**](https://myanimelist.net/search/all?q=Devil%20May%20Cry&cat=all)
+&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
