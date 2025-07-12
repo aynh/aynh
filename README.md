@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are we friends? Or are we foes? That kind of thing you decide for yourselves!"
+> "*talking about Shinsengumi* Every time I'm with all of you, there's always a gap. I'm different from all of you."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
