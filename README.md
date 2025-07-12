@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more you want something, the harder it is to wait for it."
+> "What repulsive creature makes my eardrums bleed?"
 
-&mdash; [**Kabuto Yakushi**](https://myanimelist.net/character.php?q=Kabuto%20Yakushi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
