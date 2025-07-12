@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Good… death is chasing me. Ones who kill are also chased by death, always living alongside death… Jobs that risk one’s soul are truly beautiful! How rewarding… my battlefield!"
+> "The length of time you've been in love isn't the only thing that matters, right?"
 
-&mdash; [**Solf J. Kimblee**](https://myanimelist.net/character.php?q=Solf%20J.%20Kimblee&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
