@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Having the love of your life break up with you and say 'we can still be friends', is like your dog dying and your mom saying 'you can still keep it'."
+> "If you're felling like there's nowhere you belong... That you're trapped in a small world. It's those feelings that drive us beyond our world."
 
-&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
+&mdash; [**Reiji Nitta**](https://myanimelist.net/character.php?q=Reiji%20Nitta&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
