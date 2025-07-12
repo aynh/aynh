@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, we have to look beyond what we want and do what's best."
+> "The only reason I must rely on this sword is because I am imperfect. A true warrior...Needs no sword"
 
-&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Thors**](https://myanimelist.net/character.php?q=Thors&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
