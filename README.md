@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The only reason I must rely on this sword is because I am imperfect. A true warrior...Needs no sword"
+> "A warrior who has lost his ability to fight is only going to be in the way."
 
-&mdash; [**Thors**](https://myanimelist.net/character.php?q=Thors&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
