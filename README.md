@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We will not just fade away, thought there's no way to know how long it may last. We WILL leave our mark on this world!"
+> "The more you want something, the harder it is to wait for it."
 
-&mdash; [**Katakura Kojūrō**](https://myanimelist.net/character.php?q=Katakura%20Koj%C5%ABr%C5%8D&cat=character), [**Sengoku Basara**](https://myanimelist.net/search/all?q=Sengoku%20Basara&cat=all)
+&mdash; [**Kabuto Yakushi**](https://myanimelist.net/character.php?q=Kabuto%20Yakushi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
