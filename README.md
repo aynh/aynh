@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*talking about Shinsengumi* Every time I'm with all of you, there's always a gap. I'm different from all of you."
+> "What would you ask for if you could have your wishes granted? Would you ask to be rich? Or to have the woman you're in love with be yours?  You can wish for whatever you want, it's your business, but to have one's wishes come true always comes with a price. Every deal has a catch. You'd better be nice and careful."
 
-&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Dante**](https://myanimelist.net/character.php?q=Dante&cat=character), [**Devil May Cry**](https://myanimelist.net/search/all?q=Devil%20May%20Cry&cat=all)
