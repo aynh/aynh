@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If a person continues killing, their heart changes into that of a demon without them even noticing."
+> "Huh?!? Aliens!? What kind of a person believes in aliens anyway?! I know. A STUPID ONE."
 
-&mdash; [**Gensei**](https://myanimelist.net/character.php?q=Gensei&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Maebara Keiichi**](https://myanimelist.net/character.php?q=Maebara%20Keiichi&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
