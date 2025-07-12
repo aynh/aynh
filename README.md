@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud!"
+> "I'm not highly aware. I'm highly self-aware."
 
-&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
