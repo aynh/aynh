@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder why people make promises they won't be able to keep."
+> "We will not just fade away, thought there's no way to know how long it may last. We WILL leave our mark on this world!"
 
-&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Katakura Kojūrō**](https://myanimelist.net/character.php?q=Katakura%20Koj%C5%ABr%C5%8D&cat=character), [**Sengoku Basara**](https://myanimelist.net/search/all?q=Sengoku%20Basara&cat=all)
