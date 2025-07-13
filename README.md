@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I find myself hard to understand sometimes."
+> "Yoshii Akihisa-kun, when a person with ability, but is unfairly treated, tries to get back the position he deserves, will you step in to interfere?"
 
-&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Takashiro Masaharu**](https://myanimelist.net/character.php?q=Takashiro%20Masaharu&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
