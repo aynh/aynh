@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yoshii Akihisa-kun, when a person with ability, but is unfairly treated, tries to get back the position he deserves, will you step in to interfere?"
+> "The impostor is an impostor because it can't be distinguished from the real thing. The proof of its falsity is in its resemblance to the real thing."
 
-&mdash; [**Takashiro Masaharu**](https://myanimelist.net/character.php?q=Takashiro%20Masaharu&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
