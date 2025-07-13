@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment you back down is the moment you lose!"
+> "When something impossible happens, there are only two possibilities. Either your assumptions are wrong, or you have gone crazy."
 
-&mdash; [**Coach Kamogawa**](https://myanimelist.net/character.php?q=Coach%20Kamogawa&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
+&mdash; [**Kougami Shinya**](https://myanimelist.net/character.php?q=Kougami%20Shinya&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
