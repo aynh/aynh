@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This body comes with many inconveniences. But inconveniences don't make me miserable! There is no reason for you to pity me! My life was put back together with alchemy by my brother. If I deny myself, that would mean I'm denying my brother, along with alchemy. I believe in the potential that alchemy holds. I want to believe in it!"
+> "But I think... I want to live with all my memories. Even if they're bad memories. Even if they're memories that only hurt me... that I'd rather forget. If I keep them and keep trying, without running away, then someday I'll be strong enough that those memories can't defeat me. I believe that because I want to think that there's no such thing as a memory that's ok to forget."
 
-&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Sohma Momiji**](https://myanimelist.net/character.php?q=Sohma%20Momiji&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
