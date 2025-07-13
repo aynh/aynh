@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't have any wishes that won't come true or that are impossible. Because if it's a dream I can't reach by myself, I won't even dream it in the first place."
+> "There is no such thing as being born into the world to be alone."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Saul Jaguar D**](https://myanimelist.net/character.php?q=Saul%20Jaguar%20D&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
