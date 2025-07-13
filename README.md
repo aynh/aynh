@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The difference between your decision and ours is experience. But you don't have to rely on that. CHOOSE... Believe in yourself, or believe in the survey corps and me. I don't know... I never have. I can believe in my own abilities or the choices of the companions I trust. But no one ever knows how it will turn out. So choose for yourself, whichever decision you will regret the least."
+> "Sometimes living can be hard! But it's only because we're alive that we can make each other laugh, cry, and be happy!"
 
-&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
