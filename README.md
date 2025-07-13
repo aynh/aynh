@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But I think... I want to live with all my memories. Even if they're bad memories. Even if they're memories that only hurt me... that I'd rather forget. If I keep them and keep trying, without running away, then someday I'll be strong enough that those memories can't defeat me. I believe that because I want to think that there's no such thing as a memory that's ok to forget."
+> "Don't sweat the small stuff. You'll only tire yourself out."
 
-&mdash; [**Sohma Momiji**](https://myanimelist.net/character.php?q=Sohma%20Momiji&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Ranta**](https://myanimelist.net/character.php?q=Ranta&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
