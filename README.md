@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When something impossible happens, there are only two possibilities. Either your assumptions are wrong, or you have gone crazy."
+> "I'd talk, but... I fell into the habit of not saying what I really felt, somewhere along the way. And then I started believing that there wasn't anything... that I really wanted to tell anyone."
 
-&mdash; [**Kougami Shinya**](https://myanimelist.net/character.php?q=Kougami%20Shinya&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Sakagami Takumi**](https://myanimelist.net/character.php?q=Sakagami%20Takumi&cat=character), [**Kokoro ga Sakebitagatterunda.**](https://myanimelist.net/search/all?q=Kokoro%20ga%20Sakebitagatterunda.&cat=all)
