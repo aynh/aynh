@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing is unforgivable. So if you cannot forgive him, it means you do not want to."
+> "What’s wrong Frieza? Is your brain another one of your weak and under used muscles?"
 
-&mdash; [**Shirley Fenette**](https://myanimelist.net/character.php?q=Shirley%20Fenette&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
