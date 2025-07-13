@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You think surrendering, and offering yourself will stop the war? How arrogant. The life of each human is worth one, that's it. Nothing more, nothing less."
+> "I don't have any wishes that won't come true or that are impossible. Because if it's a dream I can't reach by myself, I won't even dream it in the first place."
 
-&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
