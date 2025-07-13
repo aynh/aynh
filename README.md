@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'd talk, but... I fell into the habit of not saying what I really felt, somewhere along the way. And then I started believing that there wasn't anything... that I really wanted to tell anyone."
+> "I am not a friend of justice. I am an enemy of evil."
 
-&mdash; [**Sakagami Takumi**](https://myanimelist.net/character.php?q=Sakagami%20Takumi&cat=character), [**Kokoro ga Sakebitagatterunda.**](https://myanimelist.net/search/all?q=Kokoro%20ga%20Sakebitagatterunda.&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
