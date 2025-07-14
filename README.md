@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I guess we won't be living together forever as gods. But still... This is forever, too."
+> "A sound soul dwells within a sound mind and a sound body."
 
-&mdash; [**Ikusaba Marco**](https://myanimelist.net/character.php?q=Ikusaba%20Marco&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
