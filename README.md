@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It’s good that good friends can say their true thoughts out, as it shows how good their relationship. It’s something worth celebrating over… but things just won’t be that smooth sailing. Some things are only ‘good’ once they’re hidden. Once others know of the truth, what’s left in the heart may only be regret."
+> "You can't extract a god out of a human. However, by kowtowing to the thing that is considered to be a god, it is possible to create a god and shove it down the throats of people."
 
-&mdash; [**Baka to Test to Shoukanjuu**](https://myanimelist.net/character.php?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Kaishou Rinroku**](https://myanimelist.net/character.php?q=Kaishou%20Rinroku&cat=character), [**Un-Go**](https://myanimelist.net/search/all?q=Un-Go&cat=all)
