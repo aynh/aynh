@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you pull your sword in a place like this, I'll just have to stop you, won't I?"
+> "Even if the world doesn't accept you, I'll always be right by your side!"
 
-&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tendou Kisara**](https://myanimelist.net/character.php?q=Tendou%20Kisara&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
