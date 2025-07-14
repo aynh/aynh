@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's true, I don't have a body, but I'm here. This is my punishment for setting foot on holy ground where mortals are forbidden. We made a mistake, Rose, and we're paying for it."
+> "Assassins Rule Number Two - Transpositional Thinking: Analyze the target in order to predict his thoughts and movements."
 
-&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
