@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You shouldn't judge a person based on circumstantial evidence."
+> "You are right. I am not a detective, but a thief. And stealing is what thieves do best, even if it's a persons heart."
 
-&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
