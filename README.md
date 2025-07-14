@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are weak... but we want to live. Even if we're wounded... or tortured... we feel the pain."
+> "I'm gonna take you out in one giant bug blitzkrieg!"
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Underwood Weevil**](https://myanimelist.net/character.php?q=Underwood%20Weevil&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
