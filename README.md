@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fine. I'll correct myself. I have no experience. I'm a virgin. More to the point, the only kind of girl who'd talk to an unappealing virgin like you are late-bloomer virgins like me!"
+> "It's true, I don't have a body, but I'm here. This is my punishment for setting foot on holy ground where mortals are forbidden. We made a mistake, Rose, and we're paying for it."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
