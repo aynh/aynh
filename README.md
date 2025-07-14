@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I refuse to let my fear control me anymore."
+> "Humans are weak... but we want to live. Even if we're wounded... or tortured... we feel the pain."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
