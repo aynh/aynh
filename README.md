@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will defeat him. It may cost my life to do it. However, if I survive, I'll make a promise. The same promise as that time, on the same thing as that time."
+> "It was like you brought color to my life. You changed my life, all by yourself."
 
-&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
