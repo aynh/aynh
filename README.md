@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no such thing as being born into the world to be alone."
+> "It’s good that good friends can say their true thoughts out, as it shows how good their relationship. It’s something worth celebrating over… but things just won’t be that smooth sailing. Some things are only ‘good’ once they’re hidden. Once others know of the truth, what’s left in the heart may only be regret."
 
-&mdash; [**Saul Jaguar D**](https://myanimelist.net/character.php?q=Saul%20Jaguar%20D&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Baka to Test to Shoukanjuu**](https://myanimelist.net/character.php?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
