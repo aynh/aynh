@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are right. I am not a detective, but a thief. And stealing is what thieves do best, even if it's a persons heart."
+> "I guess we won't be living together forever as gods. But still... This is forever, too."
 
-&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Ikusaba Marco**](https://myanimelist.net/character.php?q=Ikusaba%20Marco&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
