@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm gonna take you out in one giant bug blitzkrieg!"
+> "Don't worry. When people break their old selves they embark a journey to find their new selves."
 
-&mdash; [**Underwood Weevil**](https://myanimelist.net/character.php?q=Underwood%20Weevil&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
