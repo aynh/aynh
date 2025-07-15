@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fool… I belong among the heavens? Yet you would have me trod upon the ground?! Your impudence has guaranteed your death! Mongrel! When I am through with you, nothing will remain of your corpse!"
+> "There once was a boy, who dreamed of being a hero, who sincerely believed in the battle to banish darkness from a world of light. But light and darkness are equals and where one exists, so too must the other. When the boy finally realized this, that was when he started the path to becoming a true hero."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Record of Lodoss War**](https://myanimelist.net/character.php?q=Record%20of%20Lodoss%20War&cat=character), [**Record of Lodoss War**](https://myanimelist.net/search/all?q=Record%20of%20Lodoss%20War&cat=all)
