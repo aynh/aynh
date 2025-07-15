@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "{TO NARUTO} Oh, by the way... I'm a boy"
+> "The important thing is to think of something nobody else is thinking of. 'Ignorance is a sin' is not about knowledge - it's about wisdom."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
