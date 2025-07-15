@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He turns the black-and-white landscape into brilliant colors. That's what George was to me. Even if our paths don't ever cross again, that will never change."
+> "By exchanging notes, you get to know one another, to understand one another. As if your souls were connected and your hearts were overlapping. It's a conversation through instruments. A miracle that creates harmony. In that moment, music transcends words."
 
-&mdash; [**Yukari Hayasaka**](https://myanimelist.net/character.php?q=Yukari%20Hayasaka&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
+&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
