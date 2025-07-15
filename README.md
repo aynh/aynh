@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Open your eyes. 'God' is nothing more than a construct created by man to inspire fear and promote order."
+> "It's because you're so fucking honest that you're so easy to fool."
 
-&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
