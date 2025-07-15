@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things that you can only learn by facing the unknown, be it a different species, different values, or upbringing."
+> "Everyone has something they like, something they have to do, or something they want to do."
 
-&mdash; [**Yoshiyuki Nakajima**](https://myanimelist.net/character.php?q=Yoshiyuki%20Nakajima&cat=character), [**Silver Spoon**](https://myanimelist.net/search/all?q=Silver%20Spoon&cat=all)
+&mdash; [**Yutaka Hasebe**](https://myanimelist.net/character.php?q=Yutaka%20Hasebe&cat=character), [**Servant X Service**](https://myanimelist.net/search/all?q=Servant%20X%20Service&cat=all)
