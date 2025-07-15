@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Does she understand what she's doing, this stupid woman?"
+> "Open your eyes. 'God' is nothing more than a construct created by man to inspire fear and promote order."
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
