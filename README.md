@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We should work towards world peace. Like giving everyone in the world an Upa cushion..."
+> "[To Hinata At Chuunin Exams] So you're not going to withdraw? Then don't blame me for what happens to you."
 
-&mdash; [**Mayuri Shiina**](https://myanimelist.net/character.php?q=Mayuri%20Shiina&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Neji Hyuuga**](https://myanimelist.net/character.php?q=Neji%20Hyuuga&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
