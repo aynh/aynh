@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans continue to live in a cycle of death and destruction. Guns can't change anything. It merely creates an infinite chain of hatred and retribution."
+> "Does she understand what she's doing, this stupid woman?"
 
-&mdash; [**TimeKeeper**](https://myanimelist.net/character.php?q=TimeKeeper&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
