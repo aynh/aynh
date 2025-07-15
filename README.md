@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's because you're so fucking honest that you're so easy to fool."
+> "No matter how crazy it may be, or how dangerous it may be, even if it's something personal, it doesn't matter! Anything that you're worried about, I'll worry right along with you and think of a solution! Just like you did for me all those times!"
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Alibaba Saluja**](https://myanimelist.net/character.php?q=Alibaba%20Saluja&cat=character), [**Magi - The Kingdom of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Kingdom%20of%20Magic&cat=all)
