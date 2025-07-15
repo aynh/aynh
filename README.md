@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm creating trouble. Can't you see?"
+> "All living things eventually die. It's unavoidable. But as long as you remember, it will live on in your heart forever."
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Lisanna Strauss**](https://myanimelist.net/character.php?q=Lisanna%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
