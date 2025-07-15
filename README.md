@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There once was a boy, who dreamed of being a hero, who sincerely believed in the battle to banish darkness from a world of light. But light and darkness are equals and where one exists, so too must the other. When the boy finally realized this, that was when he started the path to becoming a true hero."
+> "When I tell you to leave, leave. In this world, winning is everything. Winners are affirmed completely, and losers are denied completely. I've never lost at anything before, and I never will. Because I always win, and I'm always right. I show no mercy to those who oppose me, not even my own parents."
 
-&mdash; [**Record of Lodoss War**](https://myanimelist.net/character.php?q=Record%20of%20Lodoss%20War&cat=character), [**Record of Lodoss War**](https://myanimelist.net/search/all?q=Record%20of%20Lodoss%20War&cat=all)
+&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
