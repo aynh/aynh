@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All living things eventually die. It's unavoidable. But as long as you remember, it will live on in your heart forever."
+> "Making a fuss won't fix anything."
 
-&mdash; [**Lisanna Strauss**](https://myanimelist.net/character.php?q=Lisanna%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Hak Son**](https://myanimelist.net/character.php?q=Hak%20Son&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
