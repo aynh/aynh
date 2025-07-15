@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Drat, we wasted this episode cheering the good guys!"
+> "{TO NARUTO} Oh, by the way... I'm a boy"
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
