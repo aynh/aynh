@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing is unforgivable. So if you cannot forgive him, it means you do not want to."
+> "Ooops....My finger slipped."
 
-&mdash; [**Shirley Fenette**](https://myanimelist.net/character.php?q=Shirley%20Fenette&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
