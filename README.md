@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know that we can be foolish and make mistakes and we get hurt so easily. But with each mistake, we improve ourselves and with each wound, we don’t want to be hurt again. We keep moving on. We cherish the past, the present, and the future."
+> "What defines humans... Defines us? Nobody will notice a change on the inside if you look the same on the outside."
 
-&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
+&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
