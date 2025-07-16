@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're the one who decides who you are."
+> "Ken-Chan!"
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kusajishi Yachiru**](https://myanimelist.net/character.php?q=Kusajishi%20Yachiru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
