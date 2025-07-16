@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past is gone, you can not change it! But the future is based on the decision you make!"
+> "If you don't share someone's pain. You can never understand them."
 
-&mdash; [**Yūgi Mutō**](https://myanimelist.net/character.php?q=Y%C5%ABgi%20Mut%C5%8D&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Nagato**](https://myanimelist.net/character.php?q=Nagato&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
