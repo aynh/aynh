@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The important thing is to think of something nobody else is thinking of. 'Ignorance is a sin' is not about knowledge - it's about wisdom."
+> "When a man of the sea falls in love, he dives in head first!"
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Wave**](https://myanimelist.net/character.php?q=Wave&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
