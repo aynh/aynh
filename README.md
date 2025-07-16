@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They weren't my friends, they were my possessions! Money, women, henchmen... they're all possessions! So killing my henchmen is the same as stealing from me, and I don't let people take what's mine!"
+> "I thought that, if I could shorten the distance between us, and if you would like me back, then the me that ran away - the dirty me - would be washed away. (To Kyo)"
 
-&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
