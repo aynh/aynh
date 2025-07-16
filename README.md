@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What defines humans... Defines us? Nobody will notice a change on the inside if you look the same on the outside."
+> "You're the one who decides who you are."
 
-&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
