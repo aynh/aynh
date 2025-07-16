@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't share someone's pain. You can never understand them."
+> "I know that we can be foolish and make mistakes and we get hurt so easily. But with each mistake, we improve ourselves and with each wound, we don’t want to be hurt again. We keep moving on. We cherish the past, the present, and the future."
 
-&mdash; [**Nagato**](https://myanimelist.net/character.php?q=Nagato&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
