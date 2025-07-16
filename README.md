@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing interesting ever happens. It's the same everyday."
+> "They weren't my friends, they were my possessions! Money, women, henchmen... they're all possessions! So killing my henchmen is the same as stealing from me, and I don't let people take what's mine!"
 
-&mdash; [**Kei Takishima**](https://myanimelist.net/character.php?q=Kei%20Takishima&cat=character), [**Special A**](https://myanimelist.net/search/all?q=Special%20A&cat=all)
+&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
