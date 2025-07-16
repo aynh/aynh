@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For those who have come to power, wealth and glory not by their own strength and effort, but simply through inheritance, what right do they have to complain? The very existence of such blood-lineage dynasties is disgusting. Power is the property of one generation. It shouldn't be transferred, it should be seized."
+> "It isn't just 'others'. Not 'others'. It's my Family. I'll force my ideals on my family. And since they're family, I'll lie to them. I'll deceive them. I'll cause them trouble. I'll make them worry. I'll owe them things, things I'll never be able to repay. However, I think that's okay. If you say that being an impostor is evil, then I will shoulder the burden of that evil. If lying is a bad thing, then I'm fine being the bad person. I don't need them to like me. I'm fine with being the worst kind of person."
 
-&mdash; [**Reinhard von Lohengramm**](https://myanimelist.net/character.php?q=Reinhard%20von%20Lohengramm&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
