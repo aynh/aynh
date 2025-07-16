@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world is the destiny of mankind controlled by some transcendental entity or law? Is it like the hand of god hovering from above? Perhaps men have no control even over their own will."
+> "Losing sight of who you really are... that can be pretty scary."
 
-&mdash; [**Berserk**](https://myanimelist.net/character.php?q=Berserk&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Michiru Kinushima**](https://myanimelist.net/character.php?q=Michiru%20Kinushima&cat=character), [**Plastic Memories**](https://myanimelist.net/search/all?q=Plastic%20Memories&cat=all)
