@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's nothing that's entirely black or white."
+> "In this world is the destiny of mankind controlled by some transcendental entity or law? Is it like the hand of god hovering from above? Perhaps men have no control even over their own will."
 
-&mdash; [**Yoki**](https://myanimelist.net/character.php?q=Yoki&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Berserk**](https://myanimelist.net/character.php?q=Berserk&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
