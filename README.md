@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ooops....My finger slipped."
+> "Don't forget, our existence is a fragile and uncertain one, knowing that any one of us could die at any moment. In this short time that we have, we all have one or two wishes that we'd like to fulfill. Losing the most important wish... is like losing your reason for living."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Wakabayashi Hatsuna**](https://myanimelist.net/character.php?q=Wakabayashi%20Hatsuna&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
