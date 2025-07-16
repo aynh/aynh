@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't forget, our existence is a fragile and uncertain one, knowing that any one of us could die at any moment. In this short time that we have, we all have one or two wishes that we'd like to fulfill. Losing the most important wish... is like losing your reason for living."
+> "Nothing interesting ever happens. It's the same everyday."
 
-&mdash; [**Wakabayashi Hatsuna**](https://myanimelist.net/character.php?q=Wakabayashi%20Hatsuna&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Kei Takishima**](https://myanimelist.net/character.php?q=Kei%20Takishima&cat=character), [**Special A**](https://myanimelist.net/search/all?q=Special%20A&cat=all)
