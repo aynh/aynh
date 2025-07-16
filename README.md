@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wouldn't call myself a saint, but I think I do alright. My mind's about as sharp as the average person. When it comes to an iron will or noble spirit, well... I might have to ask you to turn a blind eye there..."
+> "I don't let anyone in my sight get away, and my bullets never miss their mark. Especially if it's the heart of a beautiful lady... BANG."
 
-&mdash; [**Amagiri Ayato**](https://myanimelist.net/character.php?q=Amagiri%20Ayato&cat=character), [**Gakusen Toshi Asterisk**](https://myanimelist.net/search/all?q=Gakusen%20Toshi%20Asterisk&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
