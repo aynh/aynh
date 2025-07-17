@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It’s not the time to be scared. Of course it’s better if the opponent is strong rather than weak, right!"
+> "Only a genuine wish makes one's own soul shine beautifully in this life. That light is a messenger from heaven lighting the way for our unwavering souls to be brought to the God's side."
 
-&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Bastien**](https://myanimelist.net/character.php?q=Bastien&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
