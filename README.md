@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no one the world would be better off without."
+> "It's so much easier to believe that only your own thoughts and beliefs are absolutely correct."
 
-&mdash; [**Arata Hinohara**](https://myanimelist.net/character.php?q=Arata%20Hinohara&cat=character), [**Arata Kangatari**](https://myanimelist.net/search/all?q=Arata%20Kangatari&cat=all)
+&mdash; [**Guy Cecil**](https://myanimelist.net/character.php?q=Guy%20Cecil&cat=character), [**Tales of the Abyss**](https://myanimelist.net/search/all?q=Tales%20of%20the%20Abyss&cat=all)
