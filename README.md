@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "However, as always, this girl was thinking up all sorts of nonsensical stuff. I can't help but wonder if there's a black hole inside her head, since her common sense seems to come from a different universe altogether."
+> "There's no one the world would be better off without."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Arata Hinohara**](https://myanimelist.net/character.php?q=Arata%20Hinohara&cat=character), [**Arata Kangatari**](https://myanimelist.net/search/all?q=Arata%20Kangatari&cat=all)
