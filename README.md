@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't know anything. What the hell is up with you? Trying to be the hero? Feel like some all-powerful main character? So annoying! Why? When? Where? What? How will you do and just who will you become? You're just pretending by spouting your ideals! You have nothing! You won't become someone."
+> "It's not over yet. If we don't end it, nothing can start. Even if nothing at all begins, we must still put an end to it."
 
-&mdash; [**Lawless**](https://myanimelist.net/character.php?q=Lawless&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
