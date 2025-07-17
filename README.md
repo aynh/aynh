@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you get everything back, you'll be down to having nothing but loads of fun left."
+> "This is exactly why I detest adults! You always have such a parochial approach, always trying to force the rules of your petty world onto others!"
 
-&mdash; [**Aoi Toori**](https://myanimelist.net/character.php?q=Aoi%20Toori&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
+&mdash; [**Hayato Mikogami**](https://myanimelist.net/character.php?q=Hayato%20Mikogami&cat=character), [**Sekirei**](https://myanimelist.net/search/all?q=Sekirei&cat=all)
