@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I didn't hate it as much as I said. That hollow, that is. If there's anything that I've truly hated for 20 years without thinking twice... it'd have to be the fact that I failed to save Masaki on that night."
+> "You don't know anything. What the hell is up with you? Trying to be the hero? Feel like some all-powerful main character? So annoying! Why? When? Where? What? How will you do and just who will you become? You're just pretending by spouting your ideals! You have nothing! You won't become someone."
 
-&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Lawless**](https://myanimelist.net/character.php?q=Lawless&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
