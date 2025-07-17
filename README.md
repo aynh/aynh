@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't take you seriously when you're dressed like that! I'm sorry, Mikuru, but I'm being controlled by the alien right now. Here goes nothing!"
+> "When I'm away from you, even though I can't be around crowds, I want to go see you."
 
-&mdash; [**Tsuruya**](https://myanimelist.net/character.php?q=Tsuruya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Gin**](https://myanimelist.net/character.php?q=Gin&cat=character), [**Hotarubi no Mori e**](https://myanimelist.net/search/all?q=Hotarubi%20no%20Mori%20e&cat=all)
