@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you pick the only option you have to choose from, can you really call that your own decision?"
+> "I see. So basically, you're a shinigami? And you came all the way from some place called Soul Society to vanquish evil spirits? Which means that monster earlier was one of those evil spirits? And it attacked that little girl? Okay, I belie- NO WAY I'LL BELIEVE THAT, DUMBASS!"
 
-&mdash; [**Hayato Hayama**](https://myanimelist.net/character.php?q=Hayato%20Hayama&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
