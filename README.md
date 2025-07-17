@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Destiny. Fate. Dreams. These unstoppable ideas are held deep in the heart of man. As long as there people who seek freedom in this life, These things shall not vanish from the Earth."
+> "When you pick the only option you have to choose from, can you really call that your own decision?"
 
-&mdash; [**Gol D. Roger**](https://myanimelist.net/character.php?q=Gol%20D.%20Roger&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Hayato Hayama**](https://myanimelist.net/character.php?q=Hayato%20Hayama&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
