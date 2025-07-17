@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Most birds fly, but there are some species of flightless birds. I suspect that Princess Asseylum might say that she find it sad that they cannot fly even though they have wings. But their inability to fly does not trouble them in the least. On the contrary, perhaps the ones to be pitied are the birds who can fly, but kept in a cage."
+> "Never send a boy to do a mans job."
 
-&mdash; [**Slaine Troyard**](https://myanimelist.net/character.php?q=Slaine%20Troyard&cat=character), [**Aldnoah.Zero 2nd Season**](https://myanimelist.net/search/all?q=Aldnoah.Zero%202nd%20Season&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
