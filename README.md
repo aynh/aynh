@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Sarutobi] What nonsense! In the grand scheme of time, you're nothing more than a trivial footnote in the brief history of a cluster of huts called the 'Leaf Village'! In time, the Hokage Stone Faces will crumble and be worn down to nothing..."
+> "I can't take you seriously when you're dressed like that! I'm sorry, Mikuru, but I'm being controlled by the alien right now. Here goes nothing!"
 
-&mdash; [**Orochimaru**](https://myanimelist.net/character.php?q=Orochimaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Tsuruya**](https://myanimelist.net/character.php?q=Tsuruya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
