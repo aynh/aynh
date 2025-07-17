@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is exactly why I detest adults! You always have such a parochial approach, always trying to force the rules of your petty world onto others!"
+> "I didn't hate it as much as I said. That hollow, that is. If there's anything that I've truly hated for 20 years without thinking twice... it'd have to be the fact that I failed to save Masaki on that night."
 
-&mdash; [**Hayato Mikogami**](https://myanimelist.net/character.php?q=Hayato%20Mikogami&cat=character), [**Sekirei**](https://myanimelist.net/search/all?q=Sekirei&cat=all)
+&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
