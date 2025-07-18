@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We can no longer go back though, I’m totally different from that person in the past, you too. That was just a brief reminiscing of our past, that’s all."
+> "I shall now express my utter disgust and anger with you through the piano."
 
-&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Austria**](https://myanimelist.net/character.php?q=Austria&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
