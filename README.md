@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you get a piece of Ryu you get the whole pie!"
+> "If it is because of what you call a heart, then it is the heart that causes you humans pain. It is because of your heart that you will die."
 
-&mdash; [**RYU**](https://myanimelist.net/character.php?q=RYU&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
