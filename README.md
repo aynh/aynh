@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's so much easier to believe that only your own thoughts and beliefs are absolutely correct."
+> "A wound of a heart is different from a flesh wound. Unlike a flesh wound, there are no ointments to heal it, and there are times when they never heal."
 
-&mdash; [**Guy Cecil**](https://myanimelist.net/character.php?q=Guy%20Cecil&cat=character), [**Tales of the Abyss**](https://myanimelist.net/search/all?q=Tales%20of%20the%20Abyss&cat=all)
+&mdash; [**Yashamaru**](https://myanimelist.net/character.php?q=Yashamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
