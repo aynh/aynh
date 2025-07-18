@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I shall now express my utter disgust and anger with you through the piano."
+> "If you cling to life, you live in fear of death. And that fear will cloud your judgment."
 
-&mdash; [**Austria**](https://myanimelist.net/character.php?q=Austria&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
