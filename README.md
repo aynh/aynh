@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The reason doesn't matter. As long as tiny bit of hope exists, that's all that matters."
+> "When you get a piece of Ryu you get the whole pie!"
 
-&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**RYU**](https://myanimelist.net/character.php?q=RYU&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
