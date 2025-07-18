@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah Kid you're not garbage. If you were garbage you would smell a lot worse so why don't we just get up and try again okay?"
+> "Girls are more fragile than you think. They can be hurt by the smallest things."
 
-&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
