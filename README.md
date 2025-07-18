@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Chane] Sorry about this, young lady, but not being able to verbalize might be a lucky break for you in a way. People can waste an awful lot of energy by putting sadness into words. Or maybe joy into words. And then of course, there's putting anger into words. And the words can double when it comes to fear or pain. In that sense, being so afraid that you can't find any words may save your life. Being unable to speak in extreme stress, in a body that is obligated to control energy consumption, is an act of, OH, I don't know, maybe, self defense? Oh boy, I went and said a thing of actual intelligence there. Time to show me some love, boys!"
+> "Only one thing separates dangerous people and safe people: whether they know you or not. If they think you're a good person, they will all smile back at you."
 
-&mdash; [**Graham Specter**](https://myanimelist.net/character.php?q=Graham%20Specter&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Claude Claudel**](https://myanimelist.net/character.php?q=Claude%20Claudel&cat=character), [**Croisée in a Foreign Labyrinth - The Animation**](https://myanimelist.net/search/all?q=Crois%C3%A9e%20in%20a%20Foreign%20Labyrinth%20-%20The%20Animation&cat=all)
