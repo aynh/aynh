@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What good is this cursed hand if I can't protect the woman I love?"
+> "The reason doesn't matter. As long as tiny bit of hope exists, that's all that matters."
 
-&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
