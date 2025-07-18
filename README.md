@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love really is like playing with fire. Anyone can play easily and lightheartedly. But when you mess up and get burned, that scar stays with you your whole life."
+> "Honestly, someone who asks someone else to convey their feelings for them is the worst."
 
-&mdash; [**Ushiromiya Kyrie**](https://myanimelist.net/character.php?q=Ushiromiya%20Kyrie&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Daiki Mamura**](https://myanimelist.net/character.php?q=Daiki%20Mamura&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
