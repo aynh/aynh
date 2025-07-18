@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Often people have it wrong, mistakenly believing...that showing mercy to an enemy is kindness. They spare the foe whose life is in their hands... But don't you see? It's an empty existence... to go on living... alone and unloved... when defeat's already cost you your dream!"
+> "Yeah Kid you're not garbage. If you were garbage you would smell a lot worse so why don't we just get up and try again okay?"
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
