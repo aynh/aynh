@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Honestly, someone who asks someone else to convey their feelings for them is the worst."
+> "We can no longer go back though, I’m totally different from that person in the past, you too. That was just a brief reminiscing of our past, that’s all."
 
-&mdash; [**Daiki Mamura**](https://myanimelist.net/character.php?q=Daiki%20Mamura&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
