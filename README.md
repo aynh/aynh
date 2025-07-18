@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you cling to life, you live in fear of death. And that fear will cloud your judgment."
+> "*referring to Armstrong taking off his shirt* Did he have to strip?.."
 
-&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
+&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
