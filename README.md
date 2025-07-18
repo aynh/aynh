@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'd rather give up my eye, than give up his sword. Maybe I'm not so worthless after all."
+> "What good is this cursed hand if I can't protect the woman I love?"
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
