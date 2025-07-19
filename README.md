@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're in a position to save people, you should never even joke like that. My father...The doctor...Would never abandon anyone. He'd never give up on a person's life, even if they tried to throw it away."
+> "If you accept everything you’re told without question, you’ll lose your ability to think. Even if you reached the same conclusion, it would still be worth analyzing the reasons behind it."
 
-&mdash; [**Hiyori Iki**](https://myanimelist.net/character.php?q=Hiyori%20Iki&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Lacie Baskerville**](https://myanimelist.net/character.php?q=Lacie%20Baskerville&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
