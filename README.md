@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Atone for my sins? [...] I have no sins to atone for, nor have I forced such a meaningless concept on anyone."
+> "We could drive them off the entire earth if we had your strength, Gintoki!"
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
