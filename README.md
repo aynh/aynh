@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Giraffe! Giraffe! I love Giraffes!"
+> "Gintoki, will you take up your sword once again to cleanse this rotting nation? Lend me the strength of the fearsome white demon once again. [flashback to when they were fighting together] Is this it? Rather than falling into enemy hands, we should kill ourselves and die as warriors."
 
-&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
