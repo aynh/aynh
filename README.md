@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you just submit yourself to fate, then that's the end of it."
+> "Crying over ill luck won't do you any good. You must believe tomorrow will be better than today and smile."
 
-&mdash; [**Maebara Keiichi**](https://myanimelist.net/character.php?q=Maebara%20Keiichi&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
+&mdash; [**Amane Rui**](https://myanimelist.net/character.php?q=Amane%20Rui&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
