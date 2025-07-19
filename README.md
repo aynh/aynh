@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, you know... I'm gonna do this, and a little of that... and I'm definitely gonna do THAT...! (to Kyo about Tohru, after calling her Kyo's girlfriend)"
+> "If you wanna talk to me, do it while I cut you to pieces. But, I'm not gonna hold back one bit! Bankai!"
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
