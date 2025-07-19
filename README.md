@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't tell you that… You have to figure it out. Stand up and walk. Keep moving forward. You've got two good legs. So get up and use them. You're strong enough to make your own path."
+> "We have no reason to fear death, for we have become ghosts while still alive."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Goose Perkins**](https://myanimelist.net/character.php?q=Goose%20Perkins&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
