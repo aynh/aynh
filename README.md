@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Crying over ill luck won't do you any good. You must believe tomorrow will be better than today and smile."
+> "I can't tell you that… You have to figure it out. Stand up and walk. Keep moving forward. You've got two good legs. So get up and use them. You're strong enough to make your own path."
 
-&mdash; [**Amane Rui**](https://myanimelist.net/character.php?q=Amane%20Rui&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
