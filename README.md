@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hidden in truths lie lies, hidden in lies hides the truth."
+> "The time when you're happy is also the time when you're afraid that the happiness will end."
 
-&mdash; [**Rokudou Mukuro**](https://myanimelist.net/character.php?q=Rokudou%20Mukuro&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Subarashii Sekai**](https://myanimelist.net/character.php?q=Subarashii%20Sekai&cat=character), [**Subarashii Sekai**](https://myanimelist.net/search/all?q=Subarashii%20Sekai&cat=all)
