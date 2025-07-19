@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can become happy right now.' I won't say these types of absurd lies. However, if you get through these current hardships and survive - a time where you can be happy will come."
+> "I’m not the same as you. I’ll never dream about things that I know won’t come true."
 
-&mdash; [**Shin Woo Baek**](https://myanimelist.net/character.php?q=Shin%20Woo%20Baek&cat=character), [**Teen Spirit**](https://myanimelist.net/search/all?q=Teen%20Spirit&cat=all)
+&mdash; [**Chiriko Tsurumi**](https://myanimelist.net/character.php?q=Chiriko%20Tsurumi&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
