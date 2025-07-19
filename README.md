@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm going to kill you, have a beautiful laugh, then dance until I go mad."
+> "If you're in a position to save people, you should never even joke like that. My father...The doctor...Would never abandon anyone. He'd never give up on a person's life, even if they tried to throw it away."
 
-&mdash; [**Ladd Russo**](https://myanimelist.net/character.php?q=Ladd%20Russo&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Hiyori Iki**](https://myanimelist.net/character.php?q=Hiyori%20Iki&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
