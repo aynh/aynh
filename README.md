@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Ritsu Sohma] Sometimes living can be hard, but it's only because we're alive that we can make each other laugh, cry...be happy! [thinking] If that's not the reason for being born in this world...I don't know what is!"
+> "Hidden in truths lie lies, hidden in lies hides the truth."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Rokudou Mukuro**](https://myanimelist.net/character.php?q=Rokudou%20Mukuro&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
