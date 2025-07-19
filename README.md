@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We have no reason to fear death, for we have become ghosts while still alive."
+> "I guess, as long as I have life, all I can do is fight with all my might."
 
-&mdash; [**Goose Perkins**](https://myanimelist.net/character.php?q=Goose%20Perkins&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Subaru Natsuki**](https://myanimelist.net/character.php?q=Subaru%20Natsuki&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
