@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't worry. When people break their old selves they embark a journey to find their new selves."
+> "I am not a hero. I can't make anyone happy with any result. I can only do what I deem right with me not hating my choice at a later point."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Osamu Mikumo**](https://myanimelist.net/character.php?q=Osamu%20Mikumo&cat=character), [**World Trigger**](https://myanimelist.net/search/all?q=World%20Trigger&cat=all)
