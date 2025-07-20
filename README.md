@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The day when you'll finally understand me... will never come."
+> "Legends from the distant past are always exaggerated, but eventually, someone outdoes them... that's when new legends are born!"
 
-&mdash; [**Saruhiko Fushimi**](https://myanimelist.net/character.php?q=Saruhiko%20Fushimi&cat=character), [**K**](https://myanimelist.net/search/all?q=K&cat=all)
+&mdash; [**Shikaku Nara**](https://myanimelist.net/character.php?q=Shikaku%20Nara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
