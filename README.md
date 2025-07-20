@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How do you prove that you exist...? Maybe we don't exist."
+> "Weak humans are sly and irresponsible, they always put the blame on and hurt others."
 
-&mdash; [**Vivi Ornitier**](https://myanimelist.net/character.php?q=Vivi%20Ornitier&cat=character), [**Final Fantasy IX**](https://myanimelist.net/search/all?q=Final%20Fantasy%20IX&cat=all)
+&mdash; [**Toto Sakigami**](https://myanimelist.net/character.php?q=Toto%20Sakigami&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
