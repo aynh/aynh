@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am not a hero. I can't make anyone happy with any result. I can only do what I deem right with me not hating my choice at a later point."
+> "You'll always stand by the light. That is your basketball."
 
-&mdash; [**Osamu Mikumo**](https://myanimelist.net/character.php?q=Osamu%20Mikumo&cat=character), [**World Trigger**](https://myanimelist.net/search/all?q=World%20Trigger&cat=all)
+&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
