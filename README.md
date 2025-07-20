@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things people can't accept, even if they do understand them."
+> "The day when you'll finally understand me... will never come."
 
-&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Saruhiko Fushimi**](https://myanimelist.net/character.php?q=Saruhiko%20Fushimi&cat=character), [**K**](https://myanimelist.net/search/all?q=K&cat=all)
