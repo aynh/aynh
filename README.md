@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now that the rainy season has started, it rains quite a lot. I don't like the rainy season. As the humidity rises, so does the misery. And recently, more things that contribute to my misery have sprung up around me..."
+> "There are things people can't accept, even if they do understand them."
 
-&mdash; [**Kaname Tsukahara**](https://myanimelist.net/character.php?q=Kaname%20Tsukahara&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
+&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
