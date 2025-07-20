@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's a limit to the strength of people who are isolated. If we do the best we can we should be fine. We don't grab a hold of the entire future. Let's just think about grabbing tomorrow. I think that's plenty for us, don't you?"
+> "I won't come to hate you! Never! Regardless of what happens in the future!"
 
-&mdash; [**Kouji Aiba**](https://myanimelist.net/character.php?q=Kouji%20Aiba&cat=character), [**Infinite Ryvius**](https://myanimelist.net/search/all?q=Infinite%20Ryvius&cat=all)
+&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
