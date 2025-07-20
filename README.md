@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love and Peace!"
+> "How do you prove that you exist...? Maybe we don't exist."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Vivi Ornitier**](https://myanimelist.net/character.php?q=Vivi%20Ornitier&cat=character), [**Final Fantasy IX**](https://myanimelist.net/search/all?q=Final%20Fantasy%20IX&cat=all)
