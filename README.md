@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Weak humans are sly and irresponsible, they always put the blame on and hurt others."
+> "No point in wondering who someone really is, all you can do is trust them and accept them for who they are. Because the person you come to know is who that person really is."
 
-&mdash; [**Toto Sakigami**](https://myanimelist.net/character.php?q=Toto%20Sakigami&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
