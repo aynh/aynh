@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Legends from the distant past are always exaggerated, but eventually, someone outdoes them... that's when new legends are born!"
+> "If you want to stand with your own will, you don't have any other choice than to let the illusions you have lost remain in the ideals you were following in the past."
 
-&mdash; [**Shikaku Nara**](https://myanimelist.net/character.php?q=Shikaku%20Nara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kouen Ren**](https://myanimelist.net/character.php?q=Kouen%20Ren&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
