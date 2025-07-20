@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's been troubling me lately are these small farewells that make me feel a bit lonely. Brief meetings and farewells. I want to treasure each and every moment."
+> "Love in real life isn’t as smooth as in manga..."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume's Book of Friends**](https://myanimelist.net/search/all?q=Natsume's%20Book%20of%20Friends&cat=all)
+&mdash; [**Shōta Kisa**](https://myanimelist.net/character.php?q=Sh%C5%8Dta%20Kisa&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
