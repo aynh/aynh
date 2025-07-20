@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to stand with your own will, you don't have any other choice than to let the illusions you have lost remain in the ideals you were following in the past."
+> "Even now, twenty centuries after the death of Christ, the world is a long way from peace."
 
-&mdash; [**Kouen Ren**](https://myanimelist.net/character.php?q=Kouen%20Ren&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
+&mdash; [**Mary Macbeth**](https://myanimelist.net/character.php?q=Mary%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
