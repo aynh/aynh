@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how colossal a power you obtain, no matter how gigantic an army you bring with you, I ain't scared. While you've abandoned a hundred, I've connected with a thousand. While you've destroyed a thousand, I've been helped by ten thousand. So what's an army of a few thousand? We have protected everything as just three people. We're the Yorozuya."
+> "There’s no knowing how others are feeling unless you ask them. And your feelings can’t get through to others unless you tell them directly."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
