@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The opposite of love isn't hate, it’s apathy."
+> "It's fine, I'll come to save you as much as you want. I'll make you fall for me as much as you wish. Leave this to your master."
 
-&mdash; [**Kyouko Houin**](https://myanimelist.net/character.php?q=Kyouko%20Houin&cat=character), [**Kodomo no Jikan**](https://myanimelist.net/search/all?q=Kodomo%20no%20Jikan&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
