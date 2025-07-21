@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You wanted revenge? You're just making other people as miserable as you. Revenge is just the path you took to escape your suffering."
+> "No matter how colossal a power you obtain, no matter how gigantic an army you bring with you, I ain't scared. While you've abandoned a hundred, I've connected with a thousand. While you've destroyed a thousand, I've been helped by ten thousand. So what's an army of a few thousand? We have protected everything as just three people. We're the Yorozuya."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
