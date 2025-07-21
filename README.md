@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world is the destiny of mankind controlled by some transcendental entity or law? Is it like the hand of god hovering from above? Perhaps men have no control even over their own will."
+> "No matter how strong one may be, no one can stop the flow of time."
 
-&mdash; [**Berserk**](https://myanimelist.net/character.php?q=Berserk&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
