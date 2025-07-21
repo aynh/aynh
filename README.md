@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am who I am now because of everything that's happened. If I try to deny my past, I'm denying the person I've become. I don't want to do that."
+> "That's right. It's not like I ever felt superior to anyone else because I could see ghosts. And I never planned to take it up as a profession. Hell, I never even felt the need to use my ability to help others. All I ever wanted was the normal life I couldn't have. I've finally achieved what I always wanted."
 
-&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
