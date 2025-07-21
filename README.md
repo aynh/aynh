@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Men don't get touchy-feely with each other."
+> "Excalibur! Excalibur! From the United K! I'm looking for heaven! I'm going to California!"
 
-&mdash; [**Taichi Mashima**](https://myanimelist.net/character.php?q=Taichi%20Mashima&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
