@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's only natural for a man to protect the girl he likes."
+> "Oppression. Rule by fear. dictatorships. It's a strange thing. Throughout history, for some reason, the lives of such rulers have always ended in the same way: Assassination by someone who isn't even part of a combat unit."
 
-&mdash; [**Saito Hiraga**](https://myanimelist.net/character.php?q=Saito%20Hiraga&cat=character), [**Zero no Tsukaima: Princess no Rondo**](https://myanimelist.net/search/all?q=Zero%20no%20Tsukaima%3A%20Princess%20no%20Rondo&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
