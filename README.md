@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's like I'd want to ask what justice is doing right now if it existed in this world. Well, justice is empty and ineffectual."
+> "Nothing beats a cup of herbal tea in the morning."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
