@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Excalibur! Excalibur! From the United K! I'm looking for heaven! I'm going to California!"
+> "You’d better not (rip my mask). Like Pandora’s box, you want to open it because you don’t know what’s inside. But if you know what’s inside before you open it… It’s boring, isn’t it?"
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
