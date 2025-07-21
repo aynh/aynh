@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I get reincarnated... I wanna become a clam."
+> "I am who I am now because of everything that's happened. If I try to deny my past, I'm denying the person I've become. I don't want to do that."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
