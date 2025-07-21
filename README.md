@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no knowing how others are feeling unless you ask them. And your feelings can’t get through to others unless you tell them directly."
+> "It's only natural for a man to protect the girl he likes."
 
-&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Saito Hiraga**](https://myanimelist.net/character.php?q=Saito%20Hiraga&cat=character), [**Zero no Tsukaima: Princess no Rondo**](https://myanimelist.net/search/all?q=Zero%20no%20Tsukaima%3A%20Princess%20no%20Rondo&cat=all)
