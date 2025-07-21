@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how strong one may be, no one can stop the flow of time."
+> "It's like I'd want to ask what justice is doing right now if it existed in this world. Well, justice is empty and ineffectual."
 
-&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
