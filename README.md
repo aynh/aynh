@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's fine, I'll come to save you as much as you want. I'll make you fall for me as much as you wish. Leave this to your master."
+> "You wanted revenge? You're just making other people as miserable as you. Revenge is just the path you took to escape your suffering."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
