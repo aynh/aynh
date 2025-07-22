@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trust me, you don't want to make the whole world your enemy. At the very least, you have a friend in me."
+> "There are still times when our different ways of thinking make me hesitate but I feel like there are ways we can balance each other because we're different."
 
-&mdash; [**Abel Nightroad**](https://myanimelist.net/character.php?q=Abel%20Nightroad&cat=character), [**Trinity Blood**](https://myanimelist.net/search/all?q=Trinity%20Blood&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
