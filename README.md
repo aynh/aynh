@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That rose whip of his must be ten feet long. Where does he stash it? All the ways I can think of sound kinda painful."
+> "Hmm... *puts on a happy face* Delectable tea... *changes to serious face* or deadly poison?.."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
