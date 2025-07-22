@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things in this world that you cannot oppose, no matter how hard you try."
+> "At what speed must I live...to be able to see you again..?"
 
-&mdash; [**Zeref**](https://myanimelist.net/character.php?q=Zeref&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Takaki Toono**](https://myanimelist.net/character.php?q=Takaki%20Toono&cat=character), [**5 Centimeters per Second**](https://myanimelist.net/search/all?q=5%20Centimeters%20per%20Second&cat=all)
