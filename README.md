@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everybody can fight. It's just a choice of whether you should."
+> "The concept of lateness being evil is wrong in the first place... The police don't mobilize until after an accident happens, and it's standard for heroes to show up late. But would anyone condemn them for being late? So, speaking paradoxically, lateness is justice."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
