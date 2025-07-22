@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are liars who only lie when there's a reason to, and there are liars who also lie without a reason."
+> "What's wrong Frieza? Is your brain another one of your weak and under used muscles?"
 
-&mdash; [**Biscuit Krueger**](https://myanimelist.net/character.php?q=Biscuit%20Krueger&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
