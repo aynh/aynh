@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Books are information. And information that isn't correct is worthless."
+> "There are liars who only lie when there's a reason to, and there are liars who also lie without a reason."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Biscuit Krueger**](https://myanimelist.net/character.php?q=Biscuit%20Krueger&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
