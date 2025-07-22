@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will acknowledge you as my enemy and destroy you."
+> "Are you, what they call, a heart?"
 
-&mdash; [**Acnologia**](https://myanimelist.net/character.php?q=Acnologia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Argentine**](https://myanimelist.net/character.php?q=Argentine&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
