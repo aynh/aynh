@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who grow up in different environments will invariably have different tastes and preferences. Therefore, could one say that the subsequent marriages necessarily lead to happiness?"
+> "That rose whip of his must be ten feet long. Where does he stash it? All the ways I can think of sound kinda painful."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
