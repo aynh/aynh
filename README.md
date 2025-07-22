@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every living person is bound to have embarrassing memories and things that they want to keep secret."
+> "It's truly infuriating... I despise people like you who put their own lives in jeopardy for some glorious, hopeless cause."
 
-&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
