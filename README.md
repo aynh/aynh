@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hmm... *puts on a happy face* Delectable tea... *changes to serious face* or deadly poison?.."
+> "Wasted effort is one of the privileges of the youth."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Undertaker**](https://myanimelist.net/character.php?q=Undertaker&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
