@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I found a job after graduation, but it was at the school. So much for sentimental farewells."
+> "There are things in this world that you cannot oppose, no matter how hard you try."
 
-&mdash; [**Y**](https://myanimelist.net/character.php?q=Y&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Zeref**](https://myanimelist.net/character.php?q=Zeref&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
