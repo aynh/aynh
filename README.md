@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Kyo] Seriously... Must you break something every time you come home? When are you going to learn? You're too weak."
+> "Hey God, if you're there, my life has really sucked. So please, for once, let me have a sweet dream."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kyōko Sakura**](https://myanimelist.net/character.php?q=Ky%C5%8Dko%20Sakura&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
