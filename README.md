@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trying to pilot that mobile suit? You're in way over your head, Natural!"
+> "Well, they say that happy women make a happy village."
 
-&mdash; [**Miguel Aiman**](https://myanimelist.net/character.php?q=Miguel%20Aiman&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Prince Ashitaka**](https://myanimelist.net/character.php?q=Prince%20Ashitaka&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
