@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are flaws really bad? Because they are not perfect, they become worried. They don't stand still and instead move forward. After they become perfect, they will stand still. Incompleteness is the ideal."
+> "[To Kyo] Seriously... Must you break something every time you come home? When are you going to learn? You're too weak."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
