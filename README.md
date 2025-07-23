@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you're hiding a secret from the whole world, it puts a weight on your shoulders."
+> "I'm not stupid enough to use a cannon to hunt a rabbit."
 
-&mdash; [**Taichi Yaegashi**](https://myanimelist.net/character.php?q=Taichi%20Yaegashi&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Dracule Mihawk**](https://myanimelist.net/character.php?q=Dracule%20Mihawk&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
