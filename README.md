@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Isn't changing yourself the same as running away? Why can't you just accept who you are?"
+> "If someone starts doing the right thing, the others will follow."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Ronaldo Kuriki**](https://myanimelist.net/character.php?q=Ronaldo%20Kuriki&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
