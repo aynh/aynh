@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey God, if you're there, my life has really sucked. So please, for once, let me have a sweet dream."
+> "Trying to pilot that mobile suit? You're in way over your head, Natural!"
 
-&mdash; [**Kyōko Sakura**](https://myanimelist.net/character.php?q=Ky%C5%8Dko%20Sakura&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Miguel Aiman**](https://myanimelist.net/character.php?q=Miguel%20Aiman&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
