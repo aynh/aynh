@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not stupid enough to use a cannon to hunt a rabbit."
+> "The voice, the smile that still remains in his heart... all of it was a long time ago. Humans live such short lives."
 
-&mdash; [**Dracule Mihawk**](https://myanimelist.net/character.php?q=Dracule%20Mihawk&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
