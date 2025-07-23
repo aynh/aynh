@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, they say that happy women make a happy village."
+> "Sooo... Korra. There they go, here we are, all alone in the gym... just you and me... TWO, alone people. Together. Alone."
 
-&mdash; [**Prince Ashitaka**](https://myanimelist.net/character.php?q=Prince%20Ashitaka&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Bolin**](https://myanimelist.net/character.php?q=Bolin&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
