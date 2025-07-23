@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm going to make you say you love me again. Just you wait."
+> "Finally I saw... A world so bright I almost wanted to cry... It was then, that my consciousness was engulfed in darkness."
 
-&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
