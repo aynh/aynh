@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Finally I saw... A world so bright I almost wanted to cry... It was then, that my consciousness was engulfed in darkness."
+> "I am a single bullet. It has no heart. Therefore, it does not think. It just flies straight towards its target."
 
-&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Kanzaki H Aria**](https://myanimelist.net/character.php?q=Kanzaki%20H%20Aria&cat=character), [**Hidan no Aria**](https://myanimelist.net/search/all?q=Hidan%20no%20Aria&cat=all)
