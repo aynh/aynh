@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The reason the Yamadas get along fine is because all three adults are nuts. If one of you were normal it would unbalance the rest."
+> "I finally remembered why I'm here to begin with. I'll kill you, you shitbag! I won't let you play your trump card! I'll blow you away and get a happy ending."
 
-&mdash; [**Noboru Yamada**](https://myanimelist.net/character.php?q=Noboru%20Yamada&cat=character), [**My Neighbors the Yamadas**](https://myanimelist.net/search/all?q=My%20Neighbors%20the%20Yamadas&cat=all)
+&mdash; [**Subaru Natsuki**](https://myanimelist.net/character.php?q=Subaru%20Natsuki&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
