@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Man or Child, Strong or Weak, None of those matter once you are out at sea!"
+> "Watch it, or I'll take your soul!"
 
-&mdash; [**Usopp**](https://myanimelist.net/character.php?q=Usopp&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
