@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Yubaba] I'm not leaving until you give me a job!"
+> "Embrace your dreams. If you want to be a hero, you need to have dreams."
 
-&mdash; [**Chihiro Ogino**](https://myanimelist.net/character.php?q=Chihiro%20Ogino&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
+&mdash; [**Zack Fair**](https://myanimelist.net/character.php?q=Zack%20Fair&cat=character), [**Final Fantasy VII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII&cat=all)
