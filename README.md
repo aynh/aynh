@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A problem is not a problem as long as nobody sees it as one."
+> "Don't think that the me tomorrow will be the same as the me today. You'd better be careful."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
