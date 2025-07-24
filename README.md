@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't think that the me tomorrow will be the same as the me today. You'd better be careful."
+> "There has never been a report about a stomach ache or any other related medical trauma from swallowing your pride."
 
-&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Daisuke Aramaki**](https://myanimelist.net/character.php?q=Daisuke%20Aramaki&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
