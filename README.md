@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There has never been a report about a stomach ache or any other related medical trauma from swallowing your pride."
+> "Whose fault is it that things ended up like this? Coincidence? An accident? Fate? There's no such thing as fate. It's simply a combination of one circumstance and the next. And who is it that creates those circumstances? Who is it? It's you."
 
-&mdash; [**Daisuke Aramaki**](https://myanimelist.net/character.php?q=Daisuke%20Aramaki&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Rize Kamishiro**](https://myanimelist.net/character.php?q=Rize%20Kamishiro&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
