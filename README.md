@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The popular will win, the hated will lose, it's such a tragedy. Then I won't lose to anyone. I will become the strongest monster ever and change this scenario."
+> "People usually fall in love based on looks. But their true self might be very different from how they look."
 
-&mdash; [**Garou**](https://myanimelist.net/character.php?q=Garou&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Nagihiko Fujisaki**](https://myanimelist.net/character.php?q=Nagihiko%20Fujisaki&cat=character), [**Shugo Chara!**](https://myanimelist.net/search/all?q=Shugo%20Chara!&cat=all)
