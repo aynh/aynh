@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tohru, you must always be yourself and do things at your own pace. Someday... you'll catch up."
+> "Anything edible is acceptable. Extravagance is our enemy."
 
-&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
