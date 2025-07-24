@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Either way, the only ones who can die tomorrow are those who survive today."
+> "Man or Child, Strong or Weak, None of those matter once you are out at sea!"
 
-&mdash; [**Dusty Attenborough**](https://myanimelist.net/character.php?q=Dusty%20Attenborough&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Usopp**](https://myanimelist.net/character.php?q=Usopp&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
