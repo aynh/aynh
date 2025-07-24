@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I finally remembered why I'm here to begin with. I'll kill you, you shitbag! I won't let you play your trump card! I'll blow you away and get a happy ending."
+> "Tohru, you must always be yourself and do things at your own pace. Someday... you'll catch up."
 
-&mdash; [**Subaru Natsuki**](https://myanimelist.net/character.php?q=Subaru%20Natsuki&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
+&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
