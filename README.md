@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can call me Roy Mustang, or just Lieutenant Colonel. Hell, you can call me the Flame Alchemist. Whatever you do, remember the pain."
+> "The popular will win, the hated will lose, it's such a tragedy. Then I won't lose to anyone. I will become the strongest monster ever and change this scenario."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Garou**](https://myanimelist.net/character.php?q=Garou&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
