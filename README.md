@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anything edible is acceptable. Extravagance is our enemy."
+> "You can call me Roy Mustang, or just Lieutenant Colonel. Hell, you can call me the Flame Alchemist. Whatever you do, remember the pain."
 
-&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
