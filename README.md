@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Embrace your dreams. If you want to be a hero, you need to have dreams."
+> "Without strength, you won't be able to save anyone."
 
-&mdash; [**Zack Fair**](https://myanimelist.net/character.php?q=Zack%20Fair&cat=character), [**Final Fantasy VII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII&cat=all)
+&mdash; [**Kizaru**](https://myanimelist.net/character.php?q=Kizaru&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
