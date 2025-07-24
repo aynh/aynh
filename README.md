@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am a single bullet. It has no heart. Therefore, it does not think. It just flies straight towards its target."
+> "A problem is not a problem as long as nobody sees it as one."
 
-&mdash; [**Kanzaki H Aria**](https://myanimelist.net/character.php?q=Kanzaki%20H%20Aria&cat=character), [**Hidan no Aria**](https://myanimelist.net/search/all?q=Hidan%20no%20Aria&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
