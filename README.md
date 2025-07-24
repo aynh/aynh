@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen up you guys! This is the final battle! Grit your teeth and get ready to go with all your might! We're only aiming to win! It doesn't matter whether we're idiots or ordinary people or smart people! Everyone's to do whatever they can do! We're definitely... going to win this battle! Just watch, 3rd years...! I'm going to smash those heads of yours and show you how capable these idiots you look down on really are!"
+> "When you entrust so much of your everyday life to those electronic devices, the argument that you aren't a cyborg isn't very convincing. To you, those portable terminals are already your second brain. Isn't that right? It can be said that the history of science is a history of the expansion of the human body's functionality, in other words, the history of man's cyberization. That's why it's a matter of degree."
 
-&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Toyohisa Senguji**](https://myanimelist.net/character.php?q=Toyohisa%20Senguji&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
