@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why do people lie? It isn't only because they struggle against each other, it's also because there is something that they're seeking."
+> "The reason the Yamadas get along fine is because all three adults are nuts. If one of you were normal it would unbalance the rest."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Noboru Yamada**](https://myanimelist.net/character.php?q=Noboru%20Yamada&cat=character), [**My Neighbors the Yamadas**](https://myanimelist.net/search/all?q=My%20Neighbors%20the%20Yamadas&cat=all)
