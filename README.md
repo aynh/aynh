@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death is not the end of life, it's the completion of life."
+> "Gai...what I said earlier...I was out of line. I was being a self-righteous fool. I realize now that if I'd been in your shoes, I probably couldn't have stopped him, either."
 
-&mdash; [**Irina**](https://myanimelist.net/character.php?q=Irina&cat=character), [**Akuma no Riddle**](https://myanimelist.net/search/all?q=Akuma%20no%20Riddle&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
