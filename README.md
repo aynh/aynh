@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The days I spent with you were a lot of fun. I realized for the first time that it makes me so happy to be needed by others. I thought I'd get along well with you like this. But I can't. I was being a jerk. While I was with you, I was looking at someone else. I kept it to myself even after realizing that. I was taking advantage of your kindness."
+> "I know everyone has their stories of pain and sadness or things that they don't want to bring up, but if you can't be a good friend without telling that, then I don't need any friends at all!"
 
-&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**Clannad After Story**](https://myanimelist.net/search/all?q=Clannad%20After%20Story&cat=all)
+&mdash; [**Sonozaki Mion**](https://myanimelist.net/character.php?q=Sonozaki%20Mion&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
