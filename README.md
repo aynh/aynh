@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want you to understand something. If you should lose, not only does your future end, but also the future of the one you are trying to protect. Defeat isn't an option for the sword that protects others. You should keep that thought engraved in your heart."
+> "I can't see Kyoko-san...anymore. But she left me something. Her advice, her feelings... and Tohru. They all... all become fertilizer to help me grow."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
