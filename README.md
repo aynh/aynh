@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as the kindness received from others... is returned back, it's fine even if it takes time."
+> "All truths are easy to understand once they are discovered. The point is to discover them."
 
-&mdash; [**Isogi Toshio**](https://myanimelist.net/character.php?q=Isogi%20Toshio&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Galilei**](https://myanimelist.net/character.php?q=Galilei&cat=character), [**Galilei Donna**](https://myanimelist.net/search/all?q=Galilei%20Donna&cat=all)
