@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's nothing happy about having your fate decided for you! You have to grab your own happiness!"
+> "As long as the kindness received from others... is returned back, it's fine even if it takes time."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Isogi Toshio**](https://myanimelist.net/character.php?q=Isogi%20Toshio&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
