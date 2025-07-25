@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Under normal circumstances, humans should have continued to evolve as the greatest creatures upon this earth, but we were actually regressing. A rotten world. Politics, law, education... Was there anybody around who could correct this world? But someone had to do it."
+> "I realized once again that my life is stuck on hard mode."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kazunari Usa**](https://myanimelist.net/character.php?q=Kazunari%20Usa&cat=character), [**Bokura wa Minna Kawaisou**](https://myanimelist.net/search/all?q=Bokura%20wa%20Minna%20Kawaisou&cat=all)
