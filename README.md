@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I realized once again that my life is stuck on hard mode."
+> "Are you a coward...OR ARE YOU A MAN OF AMERICA?!"
 
-&mdash; [**Kazunari Usa**](https://myanimelist.net/character.php?q=Kazunari%20Usa&cat=character), [**Bokura wa Minna Kawaisou**](https://myanimelist.net/search/all?q=Bokura%20wa%20Minna%20Kawaisou&cat=all)
+&mdash; [**Tao Len**](https://myanimelist.net/character.php?q=Tao%20Len&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
