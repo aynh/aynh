@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not possible to save everything. Prioritize your goals."
+> "Death is not the end of life, it's the completion of life."
 
-&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Irina**](https://myanimelist.net/character.php?q=Irina&cat=character), [**Akuma no Riddle**](https://myanimelist.net/search/all?q=Akuma%20no%20Riddle&cat=all)
