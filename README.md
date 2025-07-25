@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All truths are easy to understand once they are discovered. The point is to discover them."
+> "Do I have to kill you to stop you from being foolish?"
 
-&mdash; [**Galilei**](https://myanimelist.net/character.php?q=Galilei&cat=character), [**Galilei Donna**](https://myanimelist.net/search/all?q=Galilei%20Donna&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
