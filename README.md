@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether fairies have tails or not, or whether they even exist, nobody knows for sure. So it's like an eternal mystery, an eternal adventure."
+> "There's nothing happy about having your fate decided for you! You have to grab your own happiness!"
 
-&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
