@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Told you, Rose. Get too close to the sun, and you'll burn."
+> "Whether fairies have tails or not, or whether they even exist, nobody knows for sure. So it's like an eternal mystery, an eternal adventure."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
