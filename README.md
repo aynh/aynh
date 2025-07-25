@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do I have to kill you to stop you from being foolish?"
+> "If you need to run, you should run the best you can! Then you can just take your time to think."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Hajime Ichinose**](https://myanimelist.net/character.php?q=Hajime%20Ichinose&cat=character), [**Gatchaman Crowds**](https://myanimelist.net/search/all?q=Gatchaman%20Crowds&cat=all)
