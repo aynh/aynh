@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say that in hard times, you'll never in your life forget the person who gave you a cup of water."
+> "I don't want... to run away by myself. Because no matter what, I'd rather be together with everyone..."
 
-&mdash; [**Yumiko Sakaki**](https://myanimelist.net/character.php?q=Yumiko%20Sakaki&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
