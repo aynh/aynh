@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*points at Black Star* What is that? Some kind of monkey? Yeah...it must be a monkey."
+> "Human beings don't feel pain with their bodies. The brain is the thing that transmits the pain to the body."
 
-&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Madoka Shishito**](https://myanimelist.net/character.php?q=Madoka%20Shishito&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
