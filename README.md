@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Since then… I’ve started to think…about things with the worst case outcome first. By doing so, even if you did get hurt a little bit, it wouldn’t end up being a lasting wound."
+> "A warrior would rather die, than survive defeat."
 
-&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Assassin**](https://myanimelist.net/character.php?q=Assassin&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
