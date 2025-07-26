@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want... to run away by myself. Because no matter what, I'd rather be together with everyone..."
+> "Now, dear Uncle, there's a certain person that I'd just love to kill. It doesn't even matter whether they're weak or strong. The people I live to kill, that really get me jazzed... never see it coming. Never. They're in some happy place where they're sure nothing can get them. Dying is the furthest thing from their minds. Maybe they're thinkin' about what they're gonna have for dinner. Just like you were. Right before I walked in."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Ladd Russo**](https://myanimelist.net/character.php?q=Ladd%20Russo&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
