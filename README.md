@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The hot blood that flows through my body... is not something that can be suppressed by other people!"
+> "There are no regrets. If one can be proud of one's life, one should not wish for another chance."
 
-&mdash; [**Bulat**](https://myanimelist.net/character.php?q=Bulat&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
