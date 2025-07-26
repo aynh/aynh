@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things you can't see unless you change your standing."
+> "There's no knowing how others are feeling unless you ask them. And your feelings can't get through to others unless you tell them directly."
 
-&mdash; [**Trafalgar Law**](https://myanimelist.net/character.php?q=Trafalgar%20Law&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
