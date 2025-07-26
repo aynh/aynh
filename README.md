@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not like I had aspirations to be a hero or anything. However, I'm positive we followed a code of justice that all of us believed in without condition or compromise."
+> "Those who do well, respect their chances. Those who pass on chances, may never be presented with that chance again."
 
-&mdash; [**Togusa**](https://myanimelist.net/character.php?q=Togusa&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
