@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now, dear Uncle, there's a certain person that I'd just love to kill. It doesn't even matter whether they're weak or strong. The people I live to kill, that really get me jazzed... never see it coming. Never. They're in some happy place where they're sure nothing can get them. Dying is the furthest thing from their minds. Maybe they're thinkin' about what they're gonna have for dinner. Just like you were. Right before I walked in."
+> "42-42-564 whenever you wanna knock on deaths door."
 
-&mdash; [**Ladd Russo**](https://myanimelist.net/character.php?q=Ladd%20Russo&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
