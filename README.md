@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human beings don't feel pain with their bodies. The brain is the thing that transmits the pain to the body."
+> "Walking along the path that she chose, without being affected by others... in this sense, white is her color...in another sense, it also makes me want to put more colors on her."
 
-&mdash; [**Madoka Shishito**](https://myanimelist.net/character.php?q=Madoka%20Shishito&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
