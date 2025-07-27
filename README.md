@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "While I'm performing it feels like it'll become real somewhere along the line."
+> "Regrets are just a way for the foolish and the guilty to pass time."
 
-&mdash; [**Hinazuki Kayo**](https://myanimelist.net/character.php?q=Hinazuki%20Kayo&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
+&mdash; [**Cho Hakkai**](https://myanimelist.net/character.php?q=Cho%20Hakkai&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
