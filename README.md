@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A fallen angel banished from heaven, arises into the light to be recieved by the benevolence of God..."
+> "Why are you punching? What are you chasing? You should already know the answer to that. To become strong."
 
-&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Coach Kamogawa**](https://myanimelist.net/character.php?q=Coach%20Kamogawa&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
