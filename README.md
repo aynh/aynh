@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter where you are, people find a way to entertain themselves."
+> "There's no advantage to hurrying through life."
 
-&mdash; [**Shuusei Kagari**](https://myanimelist.net/character.php?q=Shuusei%20Kagari&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
