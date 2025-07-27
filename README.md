@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A barbarian punches someone when he feels like it, a soldier attacks when it's time to attack, and Ikta Solork says everything he wants whenever he wants to say it."
+> "Justice and charity don't mix."
 
-&mdash; [**Ikta Solork**](https://myanimelist.net/character.php?q=Ikta%20Solork&cat=character), [**Alderamin on the Sky**](https://myanimelist.net/search/all?q=Alderamin%20on%20the%20Sky&cat=all)
+&mdash; [**Myouri Unzen**](https://myanimelist.net/character.php?q=Myouri%20Unzen&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
