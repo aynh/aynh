@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Man or Child, Strong or Weak, None of those matter once you are out at sea!"
+> "Stories where love and courage win in the end always turn out like that, you know? When I think about it, I became a magical girl because I always loved those stories."
 
-&mdash; [**Usopp**](https://myanimelist.net/character.php?q=Usopp&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
