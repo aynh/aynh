@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's a foolish thing, the human heart. Sometimes we fail to operate logically, and act on emotions."
+> "There are only so many lives I can value. And...I decided who those people were six years ago. So...You shouldn't try to ask for my pity. Because right now, I don't have...Time to spare or room in my heart."
 
-&mdash; [**Ichijiku Chisato**](https://myanimelist.net/character.php?q=Ichijiku%20Chisato&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
