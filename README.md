@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How can you work so hard? There might be something really bad waiting for you ahead. How can you still make yourself move on despite that? The older we get...the number of annoying and troublesome things we have to face only increases- and wonderful things stop happening. In the days ahead of us... we have to bear each painful thing one at a time, conquering them...overcoming them...the power to do that just doesn't spring out of me. The power to move ahead."
+> "You don't need to make a hundred friends. Just make real friends that you care about a hundred times as much. Even if you only have one, so long as they’re a friend you really care about."
 
-&mdash; [**Kai**](https://myanimelist.net/character.php?q=Kai&cat=character), [**Suicide Island**](https://myanimelist.net/search/all?q=Suicide%20Island&cat=all)
+&mdash; [**Yozora Mikazuki**](https://myanimelist.net/character.php?q=Yozora%20Mikazuki&cat=character), [**Boku wa Tomodachi ga Sukunai**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai&cat=all)
