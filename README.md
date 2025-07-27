@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't worry fool, we've entered into an alliance and I'm not the type to break it. Of course, after we win the tournament I can't guarantee anything."
+> "The thing that we call power is dynamic, it keeps on changing."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
