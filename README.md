@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you are feeling sad... smile, even if you have to force yourself... If you cry when it gets painful... it will only get more painful."
+> "You're just too busy comparing yourself to others to see. Those comparisons aren't the only measure. Don't say it's all pointless. You've work hard and made yourself better. That's what you got in return. So don't put yourself down like this."
 
-&mdash; [**Chie**](https://myanimelist.net/character.php?q=Chie&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
