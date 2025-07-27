@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why are you punching? What are you chasing? You should already know the answer to that. To become strong."
+> "Live by your own rules. And have reality accept your own rules. If you are able to do that, the future is all yours."
 
-&mdash; [**Coach Kamogawa**](https://myanimelist.net/character.php?q=Coach%20Kamogawa&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
