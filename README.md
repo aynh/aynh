@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The thing that we call power is dynamic, it keeps on changing."
+> "Man or Child, Strong or Weak, None of those matter once you are out at sea!"
 
-&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Usopp**](https://myanimelist.net/character.php?q=Usopp&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
