@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're just too busy comparing yourself to others to see. Those comparisons aren't the only measure. Don't say it's all pointless. You've work hard and made yourself better. That's what you got in return. So don't put yourself down like this."
+> "No matter where you are, people find a way to entertain themselves."
 
-&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Shuusei Kagari**](https://myanimelist.net/character.php?q=Shuusei%20Kagari&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
