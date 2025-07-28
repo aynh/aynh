@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just your touch... gets me excited. It makes me so happy. But those feelings will all turn into pain. The happier I am now, the more it'll hurt. I know how cruel this is... but no matter how hard I try, I can't rid myself of this. Nejima-kun... I... don't know... what love is."
+> "To someone who bears responsibility, there's no greater treasure than experience."
 
-&mdash; [**Takasaki Misaki**](https://myanimelist.net/character.php?q=Takasaki%20Misaki&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
+&mdash; [**Litonar**](https://myanimelist.net/character.php?q=Litonar&cat=character), [**Suisei no Gargantia**](https://myanimelist.net/search/all?q=Suisei%20no%20Gargantia&cat=all)
