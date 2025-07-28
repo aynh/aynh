@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you smile once when you’re feeling down, you begin to feel better and become more cheerful."
+> "Ice can even stop the time of life itself. So, you'll never be able to catch up, for eternity. You'll always be stuck there, staring at the fairy's tail."
 
-&mdash; [**Rito Yuuki**](https://myanimelist.net/character.php?q=Rito%20Yuuki&cat=character), [**To Love-Ru**](https://myanimelist.net/search/all?q=To%20Love-Ru&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
