@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stories where love and courage win in the end always turn out like that, you know? When I think about it, I became a magical girl because I always loved those stories."
+> "A guy who likes someone else shouldn't be taking care of the girl he just dumped."
 
-&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Takumi Nomiya**](https://myanimelist.net/character.php?q=Takumi%20Nomiya&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
