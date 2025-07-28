@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To someone who bears responsibility, there's no greater treasure than experience."
+> "If you hurt someone, you must be prepared to receive the same amount in return."
 
-&mdash; [**Litonar**](https://myanimelist.net/character.php?q=Litonar&cat=character), [**Suisei no Gargantia**](https://myanimelist.net/search/all?q=Suisei%20no%20Gargantia&cat=all)
+&mdash; [**Mana Ouma**](https://myanimelist.net/character.php?q=Mana%20Ouma&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
