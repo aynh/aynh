@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want you to be happy. I want you to laugh a lot. I don't know what exactly I'll be able to do for you, but I'll always be by your side."
+> "If you smile once when you’re feeling down, you begin to feel better and become more cheerful."
 
-&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Rito Yuuki**](https://myanimelist.net/character.php?q=Rito%20Yuuki&cat=character), [**To Love-Ru**](https://myanimelist.net/search/all?q=To%20Love-Ru&cat=all)
