@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everything in this world is just a game and we are merely the pawns."
+> "I strive for something beyond the strongest, that challenging me would be the most ridiculous thought ever, that fighting me would be a sin! *To Imouto 10032*"
 
-&mdash; [**Gasai Yuno**](https://myanimelist.net/character.php?q=Gasai%20Yuno&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
