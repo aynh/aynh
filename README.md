@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A guy who likes someone else shouldn't be taking care of the girl he just dumped."
+> "No matter how careful your risk hedging is, there will still be holes in your plan! Realizing them and making sure that they are promptly dealt with, is the duty of those who stand at the top."
 
-&mdash; [**Takumi Nomiya**](https://myanimelist.net/character.php?q=Takumi%20Nomiya&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Reiji Akaba**](https://myanimelist.net/character.php?q=Reiji%20Akaba&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
