@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how careful your risk hedging is, there will still be holes in your plan! Realizing them and making sure that they are promptly dealt with, is the duty of those who stand at the top."
+> "I wonder how you're suppose to give up... Do I just decide to give up and act accordingly? And move further and further away from what my heart really wants? Then will I forget everything one day?.. Everything including the pain in my heart? Everything? Without a trace as if nothing was there to begin with?"
 
-&mdash; [**Reiji Akaba**](https://myanimelist.net/character.php?q=Reiji%20Akaba&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
+&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
