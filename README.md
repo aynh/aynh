@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Please no eat me, please no eat, no!"
+> "What you think of as peace can be painful for others."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Vali Lucifer**](https://myanimelist.net/character.php?q=Vali%20Lucifer&cat=character), [**High School DxD BorN**](https://myanimelist.net/search/all?q=High%20School%20DxD%20BorN&cat=all)
