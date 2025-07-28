@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I make my own decisions, and see them to the very end. I had to find my resolve, so I could remain true to myself."
+> "Just your touch... gets me excited. It makes me so happy. But those feelings will all turn into pain. The happier I am now, the more it'll hurt. I know how cruel this is... but no matter how hard I try, I can't rid myself of this. Nejima-kun... I... don't know... what love is."
 
-&mdash; [**Saya Kisaragi**](https://myanimelist.net/character.php?q=Saya%20Kisaragi&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
+&mdash; [**Takasaki Misaki**](https://myanimelist.net/character.php?q=Takasaki%20Misaki&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
