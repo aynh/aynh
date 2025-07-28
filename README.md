@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Does he really believe we would turn around after all that we've been through?"
+> "Please no eat me, please no eat, no!"
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
