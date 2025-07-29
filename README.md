@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is exactly why I detest adults! You always have such a parochial approach, always trying to force the rules of your petty world onto others!"
+> "What are you talking about, Ryu?! That's no damsel, that's a dude!"
 
-&mdash; [**Hayato Mikogami**](https://myanimelist.net/character.php?q=Hayato%20Mikogami&cat=character), [**Sekirei**](https://myanimelist.net/search/all?q=Sekirei&cat=all)
+&mdash; [**Horohoro**](https://myanimelist.net/character.php?q=Horohoro&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
