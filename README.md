@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't think anyone is born knowing the reason why they're here. It's just something you have to find as you go along."
+> "They are your words! This is your heart! Our desire to help our friends belongs to us!"
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Happy**](https://myanimelist.net/character.php?q=Happy&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
