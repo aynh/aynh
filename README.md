@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What are you talking about, Ryu?! That's no damsel, that's a dude!"
+> "If the father's responsibility is to protect the child... then my responsibility is to exceed the father."
 
-&mdash; [**Horohoro**](https://myanimelist.net/character.php?q=Horohoro&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
