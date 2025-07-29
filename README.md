@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your back is your one big blind spot."
+> "When there's nothing to be gained, rising to the challenge at those times... is surely the mark... of a true hero!!"
 
-&mdash; [**Yoko Littner**](https://myanimelist.net/character.php?q=Yoko%20Littner&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
+&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
