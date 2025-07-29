@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When there's nothing to be gained, rising to the challenge at those times... is surely the mark... of a true hero!!"
+> "Inside your mouth, it's rat-ta-ta-ta-ta-ta-ta, wonderful."
 
-&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
+&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
