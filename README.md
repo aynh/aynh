@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They are your words! This is your heart! Our desire to help our friends belongs to us!"
+> "I am a single bullet. It has no heart. Therefore, it does not think. It just flies straight towards its target."
 
-&mdash; [**Happy**](https://myanimelist.net/character.php?q=Happy&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kanzaki H Aria**](https://myanimelist.net/character.php?q=Kanzaki%20H%20Aria&cat=character), [**Hidan no Aria**](https://myanimelist.net/search/all?q=Hidan%20no%20Aria&cat=all)
