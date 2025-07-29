@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When life changes to be harder, change yourself to be stronger."
+> "Hmm... *puts on a happy face* Delectable tea... *changes to serious face* or deadly poison?.."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
