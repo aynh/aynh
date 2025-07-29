@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It might be dog food. Take it."
+> "Your back is your one big blind spot."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Yoko Littner**](https://myanimelist.net/character.php?q=Yoko%20Littner&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
