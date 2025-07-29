@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not like I had aspirations to be a hero or anything. However, I'm positive we followed a code of justice that all of us believed in without condition or compromise."
+> "This is DUUUMMMBBB!!!!!!"
 
-&mdash; [**Togusa**](https://myanimelist.net/character.php?q=Togusa&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
