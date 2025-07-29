@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Some things can't be prevented. The last of which, is death. All we can do is live until the day we die. Control what we can... and fly free!"
+> "This is exactly why I detest adults! You always have such a parochial approach, always trying to force the rules of your petty world onto others!"
 
-&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Hayato Mikogami**](https://myanimelist.net/character.php?q=Hayato%20Mikogami&cat=character), [**Sekirei**](https://myanimelist.net/search/all?q=Sekirei&cat=all)
