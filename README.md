@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no need to change the past. Because of the past we are who we are now. Every second, every action from then is linked to us here and now."
+> "My existence was nothing more to her than a stone by the side of the road. I wasn't enough to fill her belly. Or perhaps I didn't even get reflected in her eyes. I couldn't even hate the beast that killed Teresa. It was me, overcome by fear, that I could not forgive."
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Clare**](https://myanimelist.net/character.php?q=Clare&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
