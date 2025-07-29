@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hmm... *puts on a happy face* Delectable tea... *changes to serious face* or deadly poison?.."
+> "Everything eventually faces destruction. Everything eventually disappears."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
