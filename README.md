@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the father's responsibility is to protect the child... then my responsibility is to exceed the father."
+> "I don't think anyone is born knowing the reason why they're here. It's just something you have to find as you go along."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
