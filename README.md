@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everything eventually faces destruction. Everything eventually disappears."
+> "There's no need to change the past. Because of the past we are who we are now. Every second, every action from then is linked to us here and now."
 
-&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
