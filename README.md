@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Getting kicked out of school won't kill me, but losing my way of life most certainly will."
+> "When life changes to be harder, change yourself to be stronger."
 
-&mdash; [**Shikishima Kiriko**](https://myanimelist.net/character.php?q=Shikishima%20Kiriko&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
