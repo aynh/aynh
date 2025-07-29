@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am a single bullet. It has no heart. Therefore, it does not think. It just flies straight towards its target."
+> "I've been through so many meetings and partings. They were like a heavy secret, but when I started to talk about them, they seemed to sparkle... I couldn't put them into words."
 
-&mdash; [**Kanzaki H Aria**](https://myanimelist.net/character.php?q=Kanzaki%20H%20Aria&cat=character), [**Hidan no Aria**](https://myanimelist.net/search/all?q=Hidan%20no%20Aria&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
