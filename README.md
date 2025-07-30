@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People's lives don't belong to anyone. Anyone, except themselves. But people have a path. The path of how to use that life."
+> "I was feeling down, but you distracted me by subjecting me to your selfish whims. There are times when selfishness can save a person."
 
-&mdash; [**Ei Sei**](https://myanimelist.net/character.php?q=Ei%20Sei&cat=character), [**Kingdom**](https://myanimelist.net/search/all?q=Kingdom&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
