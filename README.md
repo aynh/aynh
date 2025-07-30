@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you feel like crying you should not hold back your tears. You should let it all out while you still can - because when you get bigger sometimes you can't cry even if you have something to cry about."
+> "I have to be her place to belong. I need to be a steady, reliable man whom she can trust."
 
-&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Haruto Kirishima**](https://myanimelist.net/character.php?q=Haruto%20Kirishima&cat=character), [**Kimi no Iru Machi**](https://myanimelist.net/search/all?q=Kimi%20no%20Iru%20Machi&cat=all)
