@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Zealotry and prejudice more than anything, bring harm to the people of the land."
+> "No matter how painful it might be... I'll do everything in my might! So please, you too, act according to what you believe in!"
 
-&mdash; [**Arslan**](https://myanimelist.net/character.php?q=Arslan&cat=character), [**The Heroic Legend of Arslan**](https://myanimelist.net/search/all?q=The%20Heroic%20Legend%20of%20Arslan&cat=all)
+&mdash; [**Syaoran Li**](https://myanimelist.net/character.php?q=Syaoran%20Li&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
