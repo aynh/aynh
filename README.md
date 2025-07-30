@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, if they're dead, then that's the end of it. Crying about it gets you nothing but an empty stomach"
+> "Zealotry and prejudice more than anything, bring harm to the people of the land."
 
-&mdash; [**Ylva**](https://myanimelist.net/character.php?q=Ylva&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Arslan**](https://myanimelist.net/character.php?q=Arslan&cat=character), [**The Heroic Legend of Arslan**](https://myanimelist.net/search/all?q=The%20Heroic%20Legend%20of%20Arslan&cat=all)
