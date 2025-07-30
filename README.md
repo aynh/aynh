@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have to be her place to belong. I need to be a steady, reliable man whom she can trust."
+> "It’s the most powerful words in the world. No just argument or eloquence can stand a chance against it. It’s… ”So what?”"
 
-&mdash; [**Haruto Kirishima**](https://myanimelist.net/character.php?q=Haruto%20Kirishima&cat=character), [**Kimi no Iru Machi**](https://myanimelist.net/search/all?q=Kimi%20no%20Iru%20Machi&cat=all)
+&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
