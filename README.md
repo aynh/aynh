@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't have any wishes that won't come true or that are impossible. Because if it's a dream I can't reach by myself, I won't even dream it in the first place."
+> "Do you think you can change what's going to happen? Nobody can do anything about it. The whirlpool of hatred is engulfing the universe!"
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
