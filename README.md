@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you were given the chance to redo your life, would you take it?"
+> "If you feel like crying you should not hold back your tears. You should let it all out while you still can - because when you get bigger sometimes you can't cry even if you have something to cry about."
 
-&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
