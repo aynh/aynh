@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm in the mood for loooooove! *Hot nurse walks in.* I'm in the mood for seeeeeeeeex!"
+> "I'm an abomination! I'm filthy and dirty! And unbalanced! Why is there only one set of stripes?! I'm garbage! Asymmetrical garbage! I deserve to die!"
 
-&mdash; [**Carrot Glace**](https://myanimelist.net/character.php?q=Carrot%20Glace&cat=character), [**Bakuretsu Hunters**](https://myanimelist.net/search/all?q=Bakuretsu%20Hunters&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
