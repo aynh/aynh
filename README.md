@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Games are fun because you can do things you couldn’t in real life, right?"
+> "There ain't a single coward who'd turn tail and run from just that! Not among the men of the Shiba clan!"
 
-&mdash; [**Akatsuki**](https://myanimelist.net/character.php?q=Akatsuki&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Ganju Shiba**](https://myanimelist.net/character.php?q=Ganju%20Shiba&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
