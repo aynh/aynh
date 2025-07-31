@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think having a dream, working hard, and never giving up couldn't possibly bring misfortune."
+> "We don't know if trying our best will help, but we do know, that if we don't try our best, it won't help for sure!"
 
-&mdash; [**Miho Azuki**](https://myanimelist.net/character.php?q=Miho%20Azuki&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
