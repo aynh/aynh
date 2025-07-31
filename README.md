@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How can you move forward if you keep regretting the past?"
+> "I think having a dream, working hard, and never giving up couldn't possibly bring misfortune."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Miho Azuki**](https://myanimelist.net/character.php?q=Miho%20Azuki&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
