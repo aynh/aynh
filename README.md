@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no point. Would apologizing serve any purpose? If it will, I'll do it."
+> "What's the point of magic to begin with... if I can't use it to protect my friends?"
 
-&mdash; [**Mei Misaki**](https://myanimelist.net/character.php?q=Mei%20Misaki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
