@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "On this hand, imagine that these four fingers represent the animals, and the thumb represents plants. Then let's say people are here... On the tip of the middle finger, farthest from the heart."
+> "A man who raises his hands on a woman is trash. If I have to become trash in order to survive... It'll be just like dying."
 
-&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
