@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We don't know if trying our best will help, but we do know, that if we don't try our best, it won't help for sure!"
+> "Saya, no matter what happens, do what you believe is right. Accept your past. And if you trip, remember nankurunasia. Live through today for tomorrow's sake."
 
-&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**George Miyagusuku**](https://myanimelist.net/character.php?q=George%20Miyagusuku&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
