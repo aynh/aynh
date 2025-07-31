@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether you win or lose... You can always come out ahead by learning from the experience."
+> "Games are fun because you can do things you couldn’t in real life, right?"
 
-&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
+&mdash; [**Akatsuki**](https://myanimelist.net/character.php?q=Akatsuki&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
