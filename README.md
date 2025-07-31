@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't like it, the dark circles under my eyes will come back and I don't know how to deal with the dark circles!"
+> "How can you move forward if you keep regretting the past?"
 
-&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
