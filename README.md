@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't spell 'slaughter' without 'laughter.'"
+> "I don't like it, the dark circles under my eyes will come back and I don't know how to deal with the dark circles!"
 
-&mdash; [**Hollow Ichigo**](https://myanimelist.net/character.php?q=Hollow%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
