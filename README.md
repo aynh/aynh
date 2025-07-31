@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Saya, no matter what happens, do what you believe is right. Accept your past. And if you trip, remember nankurunasia. Live through today for tomorrow's sake."
+> "Whether you win or lose... You can always come out ahead by learning from the experience."
 
-&mdash; [**George Miyagusuku**](https://myanimelist.net/character.php?q=George%20Miyagusuku&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
+&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
