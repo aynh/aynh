@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People become themselves through their encounters. With different things, people, and emotions."
+> "Don't go believing everyone with glasses is smart!"
 
-&mdash; [**Joutarou Kawasumi**](https://myanimelist.net/character.php?q=Joutarou%20Kawasumi&cat=character), [**Inu X Boku SS**](https://myanimelist.net/search/all?q=Inu%20X%20Boku%20SS&cat=all)
+&mdash; [**Hyuuga Junpei**](https://myanimelist.net/character.php?q=Hyuuga%20Junpei&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
