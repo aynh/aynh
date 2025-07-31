@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There ain't a single coward who'd turn tail and run from just that! Not among the men of the Shiba clan!"
+> "I am lightning. No matter how hard they try, mankind can never overcome lightning. Since ancient times, mankind has labeled the unknowns of nature as God. And anything they could not understand, they feared. Everything which befalls mankind is said to be the work of God. Mankind accepts that it cannot defeat natural disasters. And I am one of them."
 
-&mdash; [**Ganju Shiba**](https://myanimelist.net/character.php?q=Ganju%20Shiba&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Enel**](https://myanimelist.net/character.php?q=Enel&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
