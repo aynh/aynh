@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Men select women based on emotion. Even if there's a reason, it's only secondary. However, women select men based on reason. Either by something like his class ranking or his standing in society."
+> "Hard work is worthless for those that don't believe in themselves."
 
-&mdash; [**Makina**](https://myanimelist.net/character.php?q=Makina&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
