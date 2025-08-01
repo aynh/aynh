@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We should be driven by things like our desires, instincts, and impulses. That's how it should be."
+> "It seems we have an unforseen problem. A rather annoying fly buzzing around."
 
-&mdash; [**Ranta**](https://myanimelist.net/character.php?q=Ranta&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
