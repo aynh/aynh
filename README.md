@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Murder doesn't necessarily mean evil, right? The world being what it is, a lot of people out there deserve to die, don't they? But those who do take it upon themselves to kill others, have to be prepared to have others try to kill them as well. And that's what they call the law of Karma, my friends. That's why good or bad, the only ones who are going to be left standing are the ones with the strongest wills to survive."
+> "It’s natural to want to stay in the game world and hope the game will never end. However, I’ve learned one thing from playing all those online games. There’s nothing lonelier or sadder than the end of a game with no ending. More and more players get bored and move on to other games... And one day, even NPC's like your favorite blacksmith or landlady disappear forever as they smile. I've experienced that moment and cried many, many times. That isn't how games should end. It definitely isn't!"
 
-&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Haruyuki Arita**](https://myanimelist.net/character.php?q=Haruyuki%20Arita&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
