@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hard work is worthless for those that don't believe in themselves."
+> "There are three things I hate the most: Kids, pets, and women with attitude. So tell me, why do we have all of them packed into our ship!?"
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
