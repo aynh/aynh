@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you really intend to lose even more of your friends for something like that? I'll pass on that. As long as I'm alive, I'll live by my own rules. I'll live as I see fit and protect that which I hold dear."
+> "Sake sure is nice. You can forget your troubles if only for a moment. You'll have to remember them tomorrow though, and they'll be even more painful than they were the night before. You can't run away from things like this. Especially from things you really want to forget."
 
 &mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
