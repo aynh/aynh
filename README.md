@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Necessity knows no law!"
+> "Surely there must be limits to which one may sink."
 
-&mdash; [**Manabu Takasaki**](https://myanimelist.net/character.php?q=Manabu%20Takasaki&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
