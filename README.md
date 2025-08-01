@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's nothing unusual here… The appropriate one stands in the appropriate place after the inappropriate ones have collapsed to the ground, defeated. There is nothing unexpected or odd about it. Because this is reality. Not one shred of uncertainty exists here. Not even fear, of course…"
+> "The only reason I must rely on this sword is because I am imperfect. A true warrior...Needs no sword"
 
-&mdash; [**Asura**](https://myanimelist.net/character.php?q=Asura&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Thors**](https://myanimelist.net/character.php?q=Thors&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
