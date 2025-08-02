@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Living has it own challenges. I'll give you just one piece of advice. Don't quit. Yes, when you die, you die. But if you give up, you're definitely going to die. That, I am sure of."
+> "I don’t mind getting in trouble. But I won’t let my friends' kindness go to waste."
 
-&mdash; [**Brittany**](https://myanimelist.net/character.php?q=Brittany&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Yuiko Kurugaya**](https://myanimelist.net/character.php?q=Yuiko%20Kurugaya&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
