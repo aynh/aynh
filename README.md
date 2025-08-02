@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after witnessing a small argument between Inuyasha and Kagome] Inuyasha, your patience with this creature is astonishing to me. You protect her, indulge her, even seem to love her."
+> "NEET is not a stereotype. It's a way of life."
 
-&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
