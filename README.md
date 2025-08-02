@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We’re always serious. We’re seriously joking around."
+> "[after witnessing a small argument between Inuyasha and Kagome] Inuyasha, your patience with this creature is astonishing to me. You protect her, indulge her, even seem to love her."
 
-&mdash; [**Anarchy Stocking**](https://myanimelist.net/character.php?q=Anarchy%20Stocking&cat=character), [**Panty And Stocking With Gaterbelt**](https://myanimelist.net/search/all?q=Panty%20And%20Stocking%20With%20Gaterbelt&cat=all)
+&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
