@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The best way to escape reality without running is smiling even if it is obviously fake."
+> "It's so lovely to have been born a Witch."
 
-&mdash; [**Sai**](https://myanimelist.net/character.php?q=Sai&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Eruka Frog**](https://myanimelist.net/character.php?q=Eruka%20Frog&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
