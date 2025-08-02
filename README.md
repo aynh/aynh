@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My life after losing her... Is it over as well? The days I spent satisfied with the happiness I never noticed... Those times had passed away. For me... There's nothing left at all."
+> "The curtain that falls down at the end, shall be pulled down by the blade of my sword."
 
-&mdash; [**Yuzuru Otonashi**](https://myanimelist.net/character.php?q=Yuzuru%20Otonashi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
