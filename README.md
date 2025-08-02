@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether fairies have tails or not, or whether they even exist, nobody knows for sure. So it's like an eternal mystery, an eternal adventure."
+> "Don't cry; it's pathetic. Crying won't change anything. The world is never kind to anyone."
 
-&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji: Book of Circus**](https://myanimelist.net/search/all?q=Kuroshitsuji%3A%20Book%20of%20Circus&cat=all)
