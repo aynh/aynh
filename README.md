@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The curtain that falls down at the end, shall be pulled down by the blade of my sword."
+> "You may be able to save us. If you stay and protect us. But what's good is that everyone else dies! Please go!! Captain Komamura!!!"
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kira Izuru**](https://myanimelist.net/character.php?q=Kira%20Izuru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
