@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's pointless to force people to do their best if they don't want to."
+> "No matter what kind of past you had, don't lose sight of yourself."
 
-&mdash; [**Hansode Shiranui**](https://myanimelist.net/character.php?q=Hansode%20Shiranui&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Ayato Naoi**](https://myanimelist.net/character.php?q=Ayato%20Naoi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
