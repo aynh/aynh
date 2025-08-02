@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not justice if you don't go overboard."
+> "It doesn't matter if you can make 100 friends. Instead, make real friends who are as important to you as 100 is to them. It doesn't matter if you have one, as long as it's a friend that you care about."
 
-&mdash; [**Myouri Unzen**](https://myanimelist.net/character.php?q=Myouri%20Unzen&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Yozora Mikazuki**](https://myanimelist.net/character.php?q=Yozora%20Mikazuki&cat=character), [**Boku wa Tomodachi ga Sukunai**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai&cat=all)
