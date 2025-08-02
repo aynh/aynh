@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter if you can make 100 friends. Instead, make real friends who are as important to you as 100 is to them. It doesn't matter if you have one, as long as it's a friend that you care about."
+> "We’re always serious. We’re seriously joking around."
 
-&mdash; [**Yozora Mikazuki**](https://myanimelist.net/character.php?q=Yozora%20Mikazuki&cat=character), [**Boku wa Tomodachi ga Sukunai**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai&cat=all)
+&mdash; [**Anarchy Stocking**](https://myanimelist.net/character.php?q=Anarchy%20Stocking&cat=character), [**Panty And Stocking With Gaterbelt**](https://myanimelist.net/search/all?q=Panty%20And%20Stocking%20With%20Gaterbelt&cat=all)
