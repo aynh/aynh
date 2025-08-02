@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don’t mind getting in trouble. But I won’t let my friends' kindness go to waste."
+> "The best way to escape reality without running is smiling even if it is obviously fake."
 
-&mdash; [**Yuiko Kurugaya**](https://myanimelist.net/character.php?q=Yuiko%20Kurugaya&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Sai**](https://myanimelist.net/character.php?q=Sai&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
