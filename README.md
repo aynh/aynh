@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ha-ha these humans are definitely foolish creatures.  Think as hard as those weak brains of yours can manage. Do you humans ever listen to the cries of mercy coming from pigs and cows you slaughter?"
+> "Are you helping because you're a doctor? Or is it because you're a Witch?"
 
-&mdash; [**Meruem**](https://myanimelist.net/character.php?q=Meruem&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
