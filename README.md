@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what kind of past you had, don't lose sight of yourself."
+> "Living has it own challenges. I'll give you just one piece of advice. Don't quit. Yes, when you die, you die. But if you give up, you're definitely going to die. That, I am sure of."
 
-&mdash; [**Ayato Naoi**](https://myanimelist.net/character.php?q=Ayato%20Naoi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Brittany**](https://myanimelist.net/character.php?q=Brittany&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
