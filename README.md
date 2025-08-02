@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You may be able to save us. If you stay and protect us. But what's good is that everyone else dies! Please go!! Captain Komamura!!!"
+> "Real power is forged from the desire smoldering in the heart. It fans into a flame and begins to burn with an intensity scarcely imagined to be possible."
 
-&mdash; [**Kira Izuru**](https://myanimelist.net/character.php?q=Kira%20Izuru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Orochimaru**](https://myanimelist.net/character.php?q=Orochimaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
