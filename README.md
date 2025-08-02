@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's so lovely to have been born a Witch."
+> "Whether fairies have tails or not, or whether they even exist, nobody knows for sure. So it's like an eternal mystery, an eternal adventure."
 
-&mdash; [**Eruka Frog**](https://myanimelist.net/character.php?q=Eruka%20Frog&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
