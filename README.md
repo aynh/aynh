@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans tend to think logically, but their actions are driven by emotions..."
+> "I have to accept that who I want to become and who I can actually become are different."
 
-&mdash; [**Sumire Muroto**](https://myanimelist.net/character.php?q=Sumire%20Muroto&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
