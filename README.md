@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I finally get a bouquet and it's a goodbye present. That's depressing."
+> "Sometimes I think delinquents are people… Who still have hope that things still can get better if they just put up a SOS sign. But I don’t even have the will to lift that sign anymore."
 
-&mdash; [**Chihiro Ogino**](https://myanimelist.net/character.php?q=Chihiro%20Ogino&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
+&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
