@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People in supervising positions in investigation are supposed to give too much of their opinion, and if they are wrong, all it would take is an apology."
+> "I finally get a bouquet and it's a goodbye present. That's depressing."
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Chihiro Ogino**](https://myanimelist.net/character.php?q=Chihiro%20Ogino&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
