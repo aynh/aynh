@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "On the internet, we only know each other's usernames. If we were talking face to face, I probably would never talk to them this way. They look at the 'Real Me'. They support me a lot... I wish there were more people like them."
+> "People in supervising positions in investigation are supposed to give too much of their opinion, and if they are wrong, all it would take is an apology."
 
-&mdash; [**Sumino Hikage**](https://myanimelist.net/character.php?q=Sumino%20Hikage&cat=character), [**Koko Ni Iru Yo!**](https://myanimelist.net/search/all?q=Koko%20Ni%20Iru%20Yo!&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
