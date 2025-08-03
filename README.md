@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm going to evaporate every molecule this scumbag is made out of!"
+> "Women who cannot become princesses have no choice but to become witches."
 
-&mdash; [**Kaze no Stigma**](https://myanimelist.net/character.php?q=Kaze%20no%20Stigma&cat=character), [**Kaze no Stigma**](https://myanimelist.net/search/all?q=Kaze%20no%20Stigma&cat=all)
+&mdash; [**Akio Ohtori**](https://myanimelist.net/character.php?q=Akio%20Ohtori&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
