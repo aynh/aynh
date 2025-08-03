@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Fuu passed out after one drink and is asleep] Sleeping so carelessly. I could do something to you so easily."
+> "The''present' is a leaf floating on top of the river. It moves along with the flow from past to future."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
