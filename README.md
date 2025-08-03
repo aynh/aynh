@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you afraid of other people? I know that by keeping others at a distance you avoid a betrayal of your trust, but you must endure the loneliness. Man can never completely erase this sadness, because all men are fundamentally alone. Pain is something man must carry in his heart, and since the heart feels pain so easily, some believe that life is pain."
+> "Everyone dies eventually, whether they have power or not. That's why you need to think about what you'll accomplish while you're alive."
 
-&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Mary Macbeth**](https://myanimelist.net/character.php?q=Mary%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
