@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you remember the first time you walked? No. So you weren't conscious of it. Then why did you walk? Everyone was born knowing how to walk. It's called instinct. That's what this boy reminds me of. He knows he can achieve bankai, so he continues."
+> "People do peculiar things when it comes to love... Our own safety doesn't seem so important."
 
-&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Fay D. Flourite**](https://myanimelist.net/character.php?q=Fay%20D.%20Flourite&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
