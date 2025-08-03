@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I feel lonely when someone is leaving, it means that the person is very close to me."
+> "For me, despair is not a goal, or a set of principles, or a lifestyle, or even an instinct... It's what defines me as Junko Enoshima! It's just my characterization! That's why I'm able to pursue despair with such purity!"
 
-&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Junko Enoshima**](https://myanimelist.net/character.php?q=Junko%20Enoshima&cat=character), [**Danganronpa The Animation**](https://myanimelist.net/search/all?q=Danganronpa%20The%20Animation&cat=all)
