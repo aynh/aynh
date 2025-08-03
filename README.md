@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For me, despair is not a goal, or a set of principles, or a lifestyle, or even an instinct... It's what defines me as Junko Enoshima! It's just my characterization! That's why I'm able to pursue despair with such purity!"
+> "I'm going to evaporate every molecule this scumbag is made out of!"
 
-&mdash; [**Junko Enoshima**](https://myanimelist.net/character.php?q=Junko%20Enoshima&cat=character), [**Danganronpa The Animation**](https://myanimelist.net/search/all?q=Danganronpa%20The%20Animation&cat=all)
+&mdash; [**Kaze no Stigma**](https://myanimelist.net/character.php?q=Kaze%20no%20Stigma&cat=character), [**Kaze no Stigma**](https://myanimelist.net/search/all?q=Kaze%20no%20Stigma&cat=all)
