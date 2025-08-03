@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The''present' is a leaf floating on top of the river. It moves along with the flow from past to future."
+> "The subtle light that is born when people's feelings come together. That light embraces felicity, evil, sin, and happiness. The light blazes forth... illuminating the whole truth."
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
