@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Last words] All right then, I'll put you out of your misery. [Her hands are sliced off] Eh?"
+> "If you pity my existence, please eat me."
 
-&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Loaf**](https://myanimelist.net/character.php?q=Loaf&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
