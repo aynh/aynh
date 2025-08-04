@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death is never an apology."
+> "There are times when all we can do is stand aside and watch."
 
-&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Cordelia**](https://myanimelist.net/character.php?q=Cordelia&cat=character), [**Romeo x Juliet**](https://myanimelist.net/search/all?q=Romeo%20x%20Juliet&cat=all)
