@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All the people I saw from my cage...All the things I saw from my cage, that was the whole world to me. At first, all I could sense was the hostility of the people looking at me from outside...And their feelings of fear. Piercing gazes, hurled stones, whips, sticks...Everything outside the cage was frightening, a source of pain...But eventually I began to realize something. I began to see their other emotions, not just their hostility and fear of me. They were the emotions of families, lovers, and friends who came to the sideshow...Emotions meant for each other."
+> "Death is never an apology."
 
-&mdash; [**Kuklo**](https://myanimelist.net/character.php?q=Kuklo&cat=character), [**Shingeki no Kyojin: Before the Fall**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Before%20the%20Fall&cat=all)
+&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
