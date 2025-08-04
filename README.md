@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A friend would not just follow another's dream... a friend would find his own reason to live."
+> "It's not because we can't take vengeance that we should feel sorry. The real reason to feel sorry... is when one is hung up on revenge and can't live their own life."
 
-&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Yoshimura**](https://myanimelist.net/character.php?q=Yoshimura&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
