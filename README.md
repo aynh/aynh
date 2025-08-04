@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...Have I... Stumbled upon a brand new shitty game again...?"
+> "No matter how many good deeds you perform, your past sins cannot be erased."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Sheele**](https://myanimelist.net/character.php?q=Sheele&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
