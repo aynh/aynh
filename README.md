@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you turn your eyes away from sad things, they'll happen again one day. If you keep running away, you'll keep repeating the same mistakes. That's why you have to face the truth straight on."
+> "Strength that knows no boundaries is merely violence."
 
-&mdash; [**Riki Naoe**](https://myanimelist.net/character.php?q=Riki%20Naoe&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Bismarck Waldstein**](https://myanimelist.net/character.php?q=Bismarck%20Waldstein&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
