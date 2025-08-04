@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if armed with hundreds of weapons... there are times when you just can't beat a man with a spear of conviction in his gut."
+> "You should try persuasion when people are mentally defenseless. The fascist who proposed that was a demonic genius."
 
-&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Tanya Degurechaff**](https://myanimelist.net/character.php?q=Tanya%20Degurechaff&cat=character), [**Youjo Senki**](https://myanimelist.net/search/all?q=Youjo%20Senki&cat=all)
