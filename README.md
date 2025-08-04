@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The human psyche goes out of whack so easily with minor elements, such as wall colors and staircase placement. Those who use them every day would be affected more dramatically."
+> "[Last words] All right then, I'll put you out of your misery. [Her hands are sliced off] Eh?"
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**Kara no Kyoukai**](https://myanimelist.net/search/all?q=Kara%20no%20Kyoukai&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
