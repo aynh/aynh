@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You should try persuasion when people are mentally defenseless. The fascist who proposed that was a demonic genius."
+> "She's been like that ever since I bought a box of donuts and had one more than her."
 
-&mdash; [**Tanya Degurechaff**](https://myanimelist.net/character.php?q=Tanya%20Degurechaff&cat=character), [**Youjo Senki**](https://myanimelist.net/search/all?q=Youjo%20Senki&cat=all)
+&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
