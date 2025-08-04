@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Strength that knows no boundaries is merely violence."
+> "A friend would not just follow another's dream... a friend would find his own reason to live."
 
-&mdash; [**Bismarck Waldstein**](https://myanimelist.net/character.php?q=Bismarck%20Waldstein&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
