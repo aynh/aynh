@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you pity my existence, please eat me."
+> "If you turn your eyes away from sad things, they'll happen again one day. If you keep running away, you'll keep repeating the same mistakes. That's why you have to face the truth straight on."
 
-&mdash; [**Loaf**](https://myanimelist.net/character.php?q=Loaf&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Riki Naoe**](https://myanimelist.net/character.php?q=Riki%20Naoe&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
