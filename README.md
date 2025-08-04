@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is all about who lands the first punch!"
+> "Very funny. Carrots, peppers, and bugs! Everyone has something they don't like and I don't like bugs!"
 
 &mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
