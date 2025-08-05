@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we understood how other people felt, then nobody would ever start wars!"
+> "There's nothing more boring than a perfect heroine!"
 
-&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Drosselmeyer**](https://myanimelist.net/character.php?q=Drosselmeyer&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
