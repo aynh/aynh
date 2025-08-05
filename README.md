@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is this God's punishemt for falling in love with an angel? As the gossamer floats ever eluding my grasp, it weighs heavily upon my heart."
+> "After everything I've faced.... Having a future with you snatched away from me ...is definitely the most terrifying thing I've ever had to endure...."
 
-&mdash; [**Talho Yuuki**](https://myanimelist.net/character.php?q=Talho%20Yuuki&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Gajeel Redfox**](https://myanimelist.net/character.php?q=Gajeel%20Redfox&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
