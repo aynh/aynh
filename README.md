@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't like the terms 'good person' or 'bad person' because it's impossible to be entirely good to everyone or entirely bad to everyone. To some, you are a good person, while to others, you are a bad person."
+> "*referring to Winry* I didn't know she could be so cute."
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
