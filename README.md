@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That makes four time. Listen. The more you say, 'I'm sorry', the lesser it's worth."
+> "Once you have a power, sometimes you are put into a situation which make you carry extra burdens, and live all your life with pain."
 
-&mdash; [**Kazuki Kazami**](https://myanimelist.net/character.php?q=Kazuki%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
