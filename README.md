@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I haven't done anything yet. Getting depressed and losing confidence is way too egotistical."
+> "Is this God's punishemt for falling in love with an angel? As the gossamer floats ever eluding my grasp, it weighs heavily upon my heart."
 
-&mdash; [**Sorata Kanda**](https://myanimelist.net/character.php?q=Sorata%20Kanda&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Talho Yuuki**](https://myanimelist.net/character.php?q=Talho%20Yuuki&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
