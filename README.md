@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate waiting, but if waiting means being able to be with you I'll wait for as long as forever."
+> "I am not a person who only wants to receive things from him, I want to be the person who can give things to him."
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
