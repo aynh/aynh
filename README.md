@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just because you look a little better, everyone comes running at you screaming and pretending to be friendly... Just because you look a little worse, everyone ignores you and uses you as a plaything or a slave... Isn't life so unfair?"
+> "By looking at what's blocking our way, with an open mind, a wall can be turned into a wide-open door."
 
-&mdash; [**Dong Taebin**](https://myanimelist.net/character.php?q=Dong%20Taebin&cat=character), [**Dice: The Cube That Changes Everything**](https://myanimelist.net/search/all?q=Dice%3A%20The%20Cube%20That%20Changes%20Everything&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
