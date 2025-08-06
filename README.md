@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've seen enough of Ba Sing Sei. And I can't even see!"
+> "A man's come all the way out to the end of the North to ask for my help. Wouldn't it be rude to wait to hear what he wanted?"
 
-&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**William Massachusetts**](https://myanimelist.net/character.php?q=William%20Massachusetts&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
