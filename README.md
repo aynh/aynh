@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Before becoming my Meister there is a list of 1,000 provisions you must peruse. Be sure to look through all of them, they're important. I greatly look forward to your participation in number 452 the five hour story telling party."
+> "Look at the sky, it's so far away. But right here, right now, it seems so close."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Lee Yunlee**](https://myanimelist.net/character.php?q=Lee%20Yunlee&cat=character), [**Nineteen Twenty-one**](https://myanimelist.net/search/all?q=Nineteen%20Twenty-one&cat=all)
