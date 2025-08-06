@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pleasure is another thing that I lack. I seek for it but cannot find it."
+> "You disgust me. I am a Grim Reaper, I refuse to grant anyone the freedom to kill!"
 
-&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
