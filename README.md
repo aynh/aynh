@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every time I reach a new level of strength, a greater power appears to challenge my authority. It’s as if fate is laughing at me with a big stupid grin, just like Kakarot."
+> "Pleasure is another thing that I lack. I seek for it but cannot find it."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
