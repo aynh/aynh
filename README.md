@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Where is your honor!? Like all pure-blooded Saiyans, Kakarot would rather die fighting than win with one of those disgraceful senzu beans as his crutch! Kakarot trained in the hyperbolic time chamber just as we did! Now let’s see what he can do!"
+> "Every time I reach a new level of strength, a greater power appears to challenge my authority. It’s as if fate is laughing at me with a big stupid grin, just like Kakarot."
 
 &mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
