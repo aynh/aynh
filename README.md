@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether it's disappointing or not depends on the person. Things like uneasiness or indecision are in everyone's lives. What's important is to appreciate and grow from every kind of result. If you can grow from them, you can understand that all events are for the purpose of growing and you can appreciate them."
+> "We want the ones we can't have and ignore the ones that want us but then, we end up with none in the end."
 
-&mdash; [**Coco**](https://myanimelist.net/character.php?q=Coco&cat=character), [**Toriko**](https://myanimelist.net/search/all?q=Toriko&cat=all)
+&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
