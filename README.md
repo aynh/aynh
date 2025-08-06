@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Laziness is the mother of all bad habits. But ultimately she is a mother and we should respect her."
+> "Whether it's disappointing or not depends on the person. Things like uneasiness or indecision are in everyone's lives. What's important is to appreciate and grow from every kind of result. If you can grow from them, you can understand that all events are for the purpose of growing and you can appreciate them."
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Coco**](https://myanimelist.net/character.php?q=Coco&cat=character), [**Toriko**](https://myanimelist.net/search/all?q=Toriko&cat=all)
