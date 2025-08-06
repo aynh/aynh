@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You disgust me. I am a Grim Reaper, I refuse to grant anyone the freedom to kill!"
+> "How long are you gonna sit in front of me sobbing your little eyes out?! It's depressing! (To Tohru)"
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
