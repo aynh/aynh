@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is beautiful. Even if you're full of tears and sadness, open your eyes. Do what you want to do. Be what you want to be. Find friends. Don't be in a hurry to grow up. Take your time."
+> "You know, I discovered something. Everyone has something... Something deep inside their hearts. For some, it might have been enmity. For others, admiration. Wishes, a craving for the spotlight, feelings that one wants to deliver, feelings for one's mother. Everyone was supported by their own feelings. I realize now that, perhaps, no one can stand alone on stage."
 
-&mdash; [**CLANNAD**](https://myanimelist.net/character.php?q=CLANNAD&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
