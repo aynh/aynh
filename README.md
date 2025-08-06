@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes one must lose the battle in order to win the war."
+> "Let's face the truth, without relying on any dreamlike power."
 
-&mdash; [**Sylphy**](https://myanimelist.net/character.php?q=Sylphy&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
