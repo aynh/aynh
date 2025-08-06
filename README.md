@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So how about we become monsters together?.. And turn this world upside down? So that... nothing bad... or sad... would remain. Destroy, destroy, destroy it all!"
+> "I've seen enough of Ba Sing Sei. And I can't even see!"
 
-&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
