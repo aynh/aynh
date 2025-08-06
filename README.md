@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We want the ones we can't have and ignore the ones that want us but then, we end up with none in the end."
+> "So how about we become monsters together?.. And turn this world upside down? So that... nothing bad... or sad... would remain. Destroy, destroy, destroy it all!"
 
-&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
