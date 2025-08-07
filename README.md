@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Victory is everything in this world. The victory is acknowledged, and the vanquished is disavowed. Because I am victorious overall, I am always the just."
+> "There stood a high school boy, who for selfish reasons had twice beaten an elementary school girl unconscious, and had gotten all nihistically worked up about it. Actually, that's still me."
 
-&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko's Basketball TV 3**](https://myanimelist.net/search/all?q=Kuroko's%20Basketball%20TV%203&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
