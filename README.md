@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we fight again... We're both gonna die."
+> "Living your life sympathizing with others in your everyday life is more powerful, than living your life based on a religious belief or some story."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Akuto Sai**](https://myanimelist.net/character.php?q=Akuto%20Sai&cat=character), [**Demon King Daimao**](https://myanimelist.net/search/all?q=Demon%20King%20Daimao&cat=all)
