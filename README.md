@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Living your life sympathizing with others in your everyday life is more powerful, than living your life based on a religious belief or some story."
+> "We're going to be moving forward! If we move forward, we'll get stronger, both physically and mentally."
 
-&mdash; [**Akuto Sai**](https://myanimelist.net/character.php?q=Akuto%20Sai&cat=character), [**Demon King Daimao**](https://myanimelist.net/search/all?q=Demon%20King%20Daimao&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
