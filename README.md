@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's Me with a capital M! I'm the only one big enough to capitalize Me!"
+> "If you can't give up one, learn to balance both at the same time. Why does it have to be all or nothing?"
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kenji Yamaguchi**](https://myanimelist.net/character.php?q=Kenji%20Yamaguchi&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
