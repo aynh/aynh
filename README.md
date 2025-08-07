@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We're going to be moving forward! If we move forward, we'll get stronger, both physically and mentally."
+> "Legends from the distant past are always exaggerated, but eventually, someone outdoes them... that's when new legends are born!"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Shikaku Nara**](https://myanimelist.net/character.php?q=Shikaku%20Nara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
