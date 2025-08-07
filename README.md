@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't see the whole picture until you look at it from the outside."
+> "We're going to be moving forward! If we move forward, we'll get stronger, both physically and mentally."
 
-&mdash; [**Trafalgar Law**](https://myanimelist.net/character.php?q=Trafalgar%20Law&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
