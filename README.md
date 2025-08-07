@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can't remember something, it is merely because it was not worth remembering."
+> "Our crying for them won't bring the dead back to life."
 
-&mdash; [**Riō Satomi**](https://myanimelist.net/character.php?q=Ri%C5%8D%20Satomi&cat=character), [**Hakkenden: Eight Dogs of the East TV 2**](https://myanimelist.net/search/all?q=Hakkenden%3A%20Eight%20Dogs%20of%20the%20East%20TV%202&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
