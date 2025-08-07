@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Courage must know fear and make fear its own! Fear upsets breathing! Conquer fear and your breath will never fail you! Hamon breathing comes from courage! A good human is a brave human! Courage is a marvel of humanity!"
+> "Does math bring out your wrath?"
 
-&mdash; [**William A. Zeppeli**](https://myanimelist.net/character.php?q=William%20A.%20Zeppeli&cat=character), [**JoJo's Bizarre Adventure: Phantom Blood**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Phantom%20Blood&cat=all)
+&mdash; [**Shun Izuki**](https://myanimelist.net/character.php?q=Shun%20Izuki&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
