@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is constantly changing. And you can't expect it to stay the same, even for a second. If that's true, there's no need for you to go on a journey, Kino. Even if you stay in one place, you'll be able to keep experiencing the world."
+> "Our mom put us in one of those *points to dresses* when we were little. We still get called 'her darling little girls' at our family reunions."
 
-&mdash; [**Hermes**](https://myanimelist.net/character.php?q=Hermes&cat=character), [**Kino**](https://myanimelist.net/search/all?q=Kino&cat=all)
+&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
