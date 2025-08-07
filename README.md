@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Karla, nothing can surpass a human's curiosity."
+> "If we fight again... We're both gonna die."
 
-&mdash; [**Grisha Jaeger**](https://myanimelist.net/character.php?q=Grisha%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
