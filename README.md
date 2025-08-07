@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Legends from the distant past are always exaggerated, but eventually, someone outdoes them... that's when new legends are born!"
+> "I've continually fought, and with each battle I've been killing my own heart. And my heart has been completely void of feeling for quite a long time now. Maybe my life doesn't have value anymore, but I have to keep on living."
 
-&mdash; [**Shikaku Nara**](https://myanimelist.net/character.php?q=Shikaku%20Nara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Trowa Barton**](https://myanimelist.net/character.php?q=Trowa%20Barton&cat=character), [**Mobile Suit Gundam Wing**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Wing&cat=all)
