@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've continually fought, and with each battle I've been killing my own heart. And my heart has been completely void of feeling for quite a long time now. Maybe my life doesn't have value anymore, but I have to keep on living."
+> "If you can't remember something, it is merely because it was not worth remembering."
 
-&mdash; [**Trowa Barton**](https://myanimelist.net/character.php?q=Trowa%20Barton&cat=character), [**Mobile Suit Gundam Wing**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Wing&cat=all)
+&mdash; [**Riō Satomi**](https://myanimelist.net/character.php?q=Ri%C5%8D%20Satomi&cat=character), [**Hakkenden: Eight Dogs of the East TV 2**](https://myanimelist.net/search/all?q=Hakkenden%3A%20Eight%20Dogs%20of%20the%20East%20TV%202&cat=all)
