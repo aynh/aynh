@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop running! I know. Even if you find the kids, you might not be able to help them. Maybe something could happen that can never unhappen. That scares you, doesn't it? But you need to think about now. Really take it in! Look at you: you think you've got it so damn hard. Well, you hate being alone, so let people in! Sure, you may not answer the phone, but I don't see you throwing it away, either!"
+> "Humans who would dare to play God must pay a steep price for their arrogance, that is Truth."
 
-&mdash; [**Tifa Lockhart**](https://myanimelist.net/character.php?q=Tifa%20Lockhart&cat=character), [**Final Fantasy VII: Advent Children**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Advent%20Children&cat=all)
+&mdash; [**Father**](https://myanimelist.net/character.php?q=Father&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
