@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if he hates me, being able to die with the knowledge that the one I love will never forget me… there is no greater happiness a woman could desire."
+> "If you can't give up one, learn to balance both at the same time. Why does it have to be all or nothing?"
 
-&mdash; [**Hakaze Kusaribe**](https://myanimelist.net/character.php?q=Hakaze%20Kusaribe&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Kenji Yamaguchi**](https://myanimelist.net/character.php?q=Kenji%20Yamaguchi&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
