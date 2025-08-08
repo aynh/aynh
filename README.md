@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can't give up one, learn to balance both at the same time. Why does it have to be all or nothing?"
+> "Seek not beauty in battle. Seek not beauty in death. Consider not your own life. If you wish to protect that which must be protected, then strike while your opponent's back is turned."
 
-&mdash; [**Kenji Yamaguchi**](https://myanimelist.net/character.php?q=Kenji%20Yamaguchi&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
