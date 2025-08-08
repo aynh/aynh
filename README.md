@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But I wasn't slacking at all. I practiced till I passed out. I gave my all. And if I still turned in a sloppy performance after all that, then... That's who I am now. It's the current me, playing with everything I've got."
+> "There's no law that says you can't go after someone just because he's already in love with someone else."
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Ruri Miyamoto**](https://myanimelist.net/character.php?q=Ruri%20Miyamoto&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
