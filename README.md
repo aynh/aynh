@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Duke Nightray* You've let your own son die for the honor of your household and other such rubbish. You've lost almost all of your family, and yet all you can think of is your own interests."
+> "Stop running! I know. Even if you find the kids, you might not be able to help them. Maybe something could happen that can never unhappen. That scares you, doesn't it? But you need to think about now. Really take it in! Look at you: you think you've got it so damn hard. Well, you hate being alone, so let people in! Sure, you may not answer the phone, but I don't see you throwing it away, either!"
 
-&mdash; [**Vincent Nightray**](https://myanimelist.net/character.php?q=Vincent%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Tifa Lockhart**](https://myanimelist.net/character.php?q=Tifa%20Lockhart&cat=character), [**Final Fantasy VII: Advent Children**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Advent%20Children&cat=all)
