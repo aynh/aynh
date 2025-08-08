@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Azula always lies, Azula always lies."
+> "Sometimes the blood rushes to my head and I feel like, if I run I'll lose something important."
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
