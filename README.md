@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes the blood rushes to my head and I feel like, if I run I'll lose something important."
+> "The days I spent with you were a lot of fun. I realized for the first time that it makes me so happy to be needed by others. I thought I'd get along well with you like this. But I can't. I was being a jerk. While I was with you, I was looking at someone else. I kept it to myself even after realizing that. I was taking advantage of your kindness."
 
-&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**Clannad After Story**](https://myanimelist.net/search/all?q=Clannad%20After%20Story&cat=all)
