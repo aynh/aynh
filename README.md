@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The days I spent with you were a lot of fun. I realized for the first time that it makes me so happy to be needed by others. I thought I'd get along well with you like this. But I can't. I was being a jerk. While I was with you, I was looking at someone else. I kept it to myself even after realizing that. I was taking advantage of your kindness."
+> "Nine-Tails, you are merely a momentary life, a temporary existence of coalesced energy... energy that once was a single, ultimate form! An unstable force, lacking in intelligence or sapience, you require a guide to show you purpose. That guide is the Uchiha! The tailed beasts are but slaves to those with blessed eyes. Obey!"
 
-&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**Clannad After Story**](https://myanimelist.net/search/all?q=Clannad%20After%20Story&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
