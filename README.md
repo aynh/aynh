@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Seek not beauty in battle. Seek not beauty in death. Consider not your own life. If you wish to protect that which must be protected, then strike while your opponent's back is turned."
+> "Azula always lies, Azula always lies."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
