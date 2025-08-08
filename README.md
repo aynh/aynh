@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being strong on your own is meaningless. To have power you need other people, and they need a world where they can be at their best."
+> "We could drive them off the entire earth if we had your strength, Gintoki!"
 
-&mdash; [**Shiroe**](https://myanimelist.net/character.php?q=Shiroe&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
