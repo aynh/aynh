@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't live your life making up excuses. The one making your choices is yourself!"
+> "Once you taste poison, you might as well finish the meal. If it comes to that you would make as fine a dish as any."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
