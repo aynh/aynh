@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you wanna talk to me, do it while I cut you to pieces. But, I'm not gonna hold back one bit! Bankai!"
+> "Everyone is sacrificing something precious to them in order to save something else. Is that the reason for human action?"
 
-&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Shijima Kurookano**](https://myanimelist.net/character.php?q=Shijima%20Kurookano&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
