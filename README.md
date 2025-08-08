@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everything we see, everyone we meet, is caught up in a great unseen flow. But it's bigger than that. It's the entire world, the entire universe even. And compared to something as big as that, Al, you and I are tiny, not even the size of ants. Only one small part within a much greater flow. Nothing more than a fraction of the whole. But by putting all those 'ones' together, you get one great 'All', just like Teacher said. The flow of this universe follows laws of such magnitude that you and I can't even imagine them."
+> "If you wanna talk to me, do it while I cut you to pieces. But, I'm not gonna hold back one bit! Bankai!"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
