@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I couldn't confess my feelings for you, so I watched you from afar, being happy with someone else."
+> "Do you resent me? If you do, then keep on living and come kill me. I'll remember you. I'll never forget you."
 
-&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Ogami Rei**](https://myanimelist.net/character.php?q=Ogami%20Rei&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
