@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human nature denies the past in order to justify the present. But do you believe there is anything in the present worth justifying?"
+> "Any technique is worthless before my eyes."
 
-&mdash; [**Boogiepop**](https://myanimelist.net/character.php?q=Boogiepop&cat=character), [**Boogiepop Phantom**](https://myanimelist.net/search/all?q=Boogiepop%20Phantom&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
