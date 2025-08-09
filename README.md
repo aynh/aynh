@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This place, Paradigm City, is a town of forgetfulness. One day, forty years ago, every person here lost all memory of anything which had occurred before that day. But humans are adaptable creatures. They make do and go on with life. If they're smart enough to figure out how to operate machinery and get electricity, they can still have something of a civilization even without a history. People can survive without knowing what did or didn't happen in the past, and each day they try their hardest to do just that. The only ones who regret the loss of these memories are the city's elderly. But memories, like nightmares, sometimes come when you least expect them."
+> "[Shinpachi is tied up, hanging from a tree, and the rope is held by the client] What kind of training is this? What kind of potential does he have?"
 
-&mdash; [**Roger Smith**](https://myanimelist.net/character.php?q=Roger%20Smith&cat=character), [**The Big O**](https://myanimelist.net/search/all?q=The%20Big%20O&cat=all)
+&mdash; [**Shimura Shinpachi**](https://myanimelist.net/character.php?q=Shimura%20Shinpachi&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
