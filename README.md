@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You cannot go into battle believing you will lose."
+> "Human nature denies the past in order to justify the present. But do you believe there is anything in the present worth justifying?"
 
-&mdash; [**Akisame Koetsuji**](https://myanimelist.net/character.php?q=Akisame%20Koetsuji&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
+&mdash; [**Boogiepop**](https://myanimelist.net/character.php?q=Boogiepop&cat=character), [**Boogiepop Phantom**](https://myanimelist.net/search/all?q=Boogiepop%20Phantom&cat=all)
