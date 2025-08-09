@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've always seen yourself as just a normal kid, and you're right, that's exactly what you are. You're normally caring, normally cheerful, and you're normally nosy. You've a strong moral compass, concern for your friends, and honor. I know you don't see this, but what's normal to you, well it's far from it. Everyone else would call it courageous and noble. It's because of the person you are that you don't think twice about your own safety when it comes to helping your friends. 'Cause that's just normal to you."
+> "Fear is proof that your imagination is functioning. Frankly, I feel bad for anyone who can't feel fear. Without imagination, you can never deduce which action to take next."
 
-&mdash; [**Zed O'Brien**](https://myanimelist.net/character.php?q=Zed%20O'Brien&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Kyōko Kirigiri**](https://myanimelist.net/character.php?q=Ky%C5%8Dko%20Kirigiri&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
