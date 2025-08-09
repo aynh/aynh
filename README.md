@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who aren't doing anything themselves, shouldn't be so quick to tell others what to do!"
+> "I couldn't confess my feelings for you, so I watched you from afar, being happy with someone else."
 
-&mdash; [**Kinichirou Imamura**](https://myanimelist.net/character.php?q=Kinichirou%20Imamura&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
