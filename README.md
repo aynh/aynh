@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All this time, I seriously thought that it's better to die than to live your life alone."
+> "I said she's not an Angel. She's a human, just like us. Didn't you notice?"
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
