@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no law that says you can't go after someone just because he's already in love with someone else."
+> "Trust me, you don't want to make the whole world your enemy. At the very least, you have a friend in me."
 
-&mdash; [**Ruri Miyamoto**](https://myanimelist.net/character.php?q=Ruri%20Miyamoto&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Abel Nightroad**](https://myanimelist.net/character.php?q=Abel%20Nightroad&cat=character), [**Trinity Blood**](https://myanimelist.net/search/all?q=Trinity%20Blood&cat=all)
