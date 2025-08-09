@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The way of the sword doesn't belong to any one nation. Knowledge of the arts belongs to us all."
+> "A lesson without pain is meaningless. That's because no one can gain without sacrificing something. But by enduring that pain and overcoming it, he shall obtain a powerful, unmatched heart... A Fullmetal Heart."
 
-&mdash; [**Piandao**](https://myanimelist.net/character.php?q=Piandao&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
