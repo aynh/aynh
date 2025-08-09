@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "God gave us eyes at the front of our heads so we can look forward to the future."
+> "All this time, I seriously thought that it's better to die than to live your life alone."
 
-&mdash; [**Kamina**](https://myanimelist.net/character.php?q=Kamina&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
