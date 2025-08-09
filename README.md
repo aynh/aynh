@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[tsume bites into his neck] Let's meet up again in Paradise."
+> "The thread of human hope is spun with the flax of sorrow."
 
-&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
