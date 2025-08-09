@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Shinpachi is tied up, hanging from a tree, and the rope is held by the client] What kind of training is this? What kind of potential does he have?"
+> "I've liked him for so long. So long. But Mayama likes someone else. But I wanna hear his voice. I want to hold his hand. I feel like this."
 
-&mdash; [**Shimura Shinpachi**](https://myanimelist.net/character.php?q=Shimura%20Shinpachi&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
