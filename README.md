@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A path not chosen is the same as a path that never existed."
+> "The way of the sword doesn't belong to any one nation. Knowledge of the arts belongs to us all."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Piandao**](https://myanimelist.net/character.php?q=Piandao&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
