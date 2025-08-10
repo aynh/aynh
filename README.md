@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If a person continues killing, their heart changes into that of a demon without them even noticing."
+> "Sometimes you can't see what's right in front of you."
 
-&mdash; [**Gensei**](https://myanimelist.net/character.php?q=Gensei&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Ryuunosuke Uryuu**](https://myanimelist.net/character.php?q=Ryuunosuke%20Uryuu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
