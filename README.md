@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no point in the world. But isn't that wonderful? Because if there isn't one, then you can decide what it is for yourself."
+> "When a man bleeds freely for the sake of other people, it's only proper to pretend that you never saw it."
 
-&mdash; [**Filicia Heideman**](https://myanimelist.net/character.php?q=Filicia%20Heideman&cat=character), [**Sora No Woto**](https://myanimelist.net/search/all?q=Sora%20No%20Woto&cat=all)
+&mdash; [**Gen Takekura**](https://myanimelist.net/character.php?q=Gen%20Takekura&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
