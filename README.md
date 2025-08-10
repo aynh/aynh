@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one can predict the future, so it's pointless to fear the unknown."
+> "Human beings don't feel pain with their bodies. The brain is the thing that transmits the pain to the body."
 
-&mdash; [**Yoh Asakura**](https://myanimelist.net/character.php?q=Yoh%20Asakura&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Madoka Shishito**](https://myanimelist.net/character.php?q=Madoka%20Shishito&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
