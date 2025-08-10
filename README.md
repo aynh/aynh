@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as you keep anything about me within you... Always, my heart will be with you."
+> "Duh!! There's no such thing as free wish."
 
-&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
