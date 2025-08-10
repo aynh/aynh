@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Pantherlily* We'll stop it, even if my body crumbles to bits, I'll stop it with my soul!"
+> "In society, those who don't have many abilities, tend to complain more."
 
-&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
