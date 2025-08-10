@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't start a fight that you can't finish."
+> "*To Pantherlily* We'll stop it, even if my body crumbles to bits, I'll stop it with my soul!"
 
-&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
