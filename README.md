@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you resent me? If you do, then keep on living and come kill me. I'll remember you. I'll never forget you."
+> "As long as you keep anything about me within you... Always, my heart will be with you."
 
-&mdash; [**Ogami Rei**](https://myanimelist.net/character.php?q=Ogami%20Rei&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
