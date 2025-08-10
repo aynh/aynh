@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(To Ichigo Kurosaki) You are a fool, Ichigo Kurosaki. You willingly seek to challenge an opponent so much more powerful than you that it strikes a primal fear into your being. Incomprehensible. If this is the work of the 'heart' that you people speak of, then it is because you possess this 'heart' that you humans bring hurt upon yourself, because you possess this 'heart' that you lose your lives"
+> "There's no point in the world. But isn't that wonderful? Because if there isn't one, then you can decide what it is for yourself."
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Filicia Heideman**](https://myanimelist.net/character.php?q=Filicia%20Heideman&cat=character), [**Sora No Woto**](https://myanimelist.net/search/all?q=Sora%20No%20Woto&cat=all)
