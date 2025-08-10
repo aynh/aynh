@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In society, those who don't have many abilities, tend to complain more."
+> "You listen carefully, Sena. That's the one person you definitely do not want to associate with! That one called Hiruma, he's like a demon! Once he gets his eye on you, he'll drain all the life out of you until there's nothing left but skin and bones!"
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Anezaki Mamori**](https://myanimelist.net/character.php?q=Anezaki%20Mamori&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
