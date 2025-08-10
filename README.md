@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When a man bleeds freely for the sake of other people, it's only proper to pretend that you never saw it."
+> "No one can predict the future, so it's pointless to fear the unknown."
 
-&mdash; [**Gen Takekura**](https://myanimelist.net/character.php?q=Gen%20Takekura&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
+&mdash; [**Yoh Asakura**](https://myanimelist.net/character.php?q=Yoh%20Asakura&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
