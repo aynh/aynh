@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Riku* At least I'm the cute one!!"
+> "If you think music is only made of sounds, you're mistaken. Silence is also part of music."
 
-&mdash; [**Risa Harada**](https://myanimelist.net/character.php?q=Risa%20Harada&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Kunio Yaobi**](https://myanimelist.net/character.php?q=Kunio%20Yaobi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
