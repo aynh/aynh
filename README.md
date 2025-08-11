@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I'm protecting someone, I won't let her die, and if I'm attacking, I'll cut you."
+> "(after Master Roshi tells him they have to dig in a farm) First we're the milkmen, and now we're stinkin' farmers. We never did this in Orin Temple."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
