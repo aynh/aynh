@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(after Master Roshi tells him they have to dig in a farm) First we're the milkmen, and now we're stinkin' farmers. We never did this in Orin Temple."
+> "It's not like something is going to happen because I believe in it.  Sometimes you end up worse off because you believed in something too much. There are times it's tough to believe in something."
 
-&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Eureka**](https://myanimelist.net/character.php?q=Eureka&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
