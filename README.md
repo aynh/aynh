@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A memory is something that is consciously recalled, right? That's why sometimes, it can be mistaken or wrong. It's different from a memory locked deep within your heart."
+> "Did you know every time you sigh, a little bit of happiness escapes?"
 
-&mdash; [**Tifa Lockhart**](https://myanimelist.net/character.php?q=Tifa%20Lockhart&cat=character), [**Final Fantasy VII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
