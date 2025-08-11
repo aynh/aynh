@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You listen carefully, Sena. That's the one person you definitely do not want to associate with! That one called Hiruma, he's like a demon! Once he gets his eye on you, he'll drain all the life out of you until there's nothing left but skin and bones!"
+> "Everything happens for a reason. The daily tragedies and misfortunes are all meaningful events, leading toward an ideal conclusion. With that in mind, there probably isn't really any meaningless misfortune."
 
-&mdash; [**Anezaki Mamori**](https://myanimelist.net/character.php?q=Anezaki%20Mamori&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
+&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
