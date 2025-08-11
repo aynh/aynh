@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not highly aware. I'm highly self-aware."
+> "A memory is something that is consciously recalled, right? That's why sometimes, it can be mistaken or wrong. It's different from a memory locked deep within your heart."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Tifa Lockhart**](https://myanimelist.net/character.php?q=Tifa%20Lockhart&cat=character), [**Final Fantasy VII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII&cat=all)
