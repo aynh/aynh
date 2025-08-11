@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The system created by the divine ones segregates every single person into his living assignment in the world, determines his roles and controls them...the melancholy voices of those born into this world have pierced the depths of my heart. I feel the need to do something for them without discriminating against anyone."
+> "If I'm protecting someone, I won't let her die, and if I'm attacking, I'll cut you."
 
-&mdash; [**Celestin**](https://myanimelist.net/character.php?q=Celestin&cat=character), [**Aah! Megami-Sama**](https://myanimelist.net/search/all?q=Aah!%20Megami-Sama&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
