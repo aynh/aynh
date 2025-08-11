@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everything happens for a reason. The daily tragedies and misfortunes are all meaningful events, leading toward an ideal conclusion. With that in mind, there probably isn't really any meaningless misfortune."
+> "Sometimes we women must fight too, don't underestimate us!"
 
-&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Gi-gan**](https://myanimelist.net/character.php?q=Gi-gan&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
