@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Man, kids these days. They think it's a competition to have the most friends. One is enough. Find someone completely unique."
+> "'Those who believe will be saved'. It's just that I wanted to find out whether you'll be saved if you believed. If such a thing were true, I feel like I can change myself too."
 
-&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
