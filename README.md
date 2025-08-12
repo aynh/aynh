@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You talk big yet you're nothing but Akito's toy! (To Yuki)"
+> "Did you not understand? All dreams eventually disappear when the dreamers wake."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
