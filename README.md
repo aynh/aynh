@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Did you not understand? All dreams eventually disappear when the dreamers wake."
+> "Human beings are strong because we have the ability to change ourselves."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
