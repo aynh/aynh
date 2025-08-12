@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The spring of my heart surges upon the sight of your fresh smile, my love."
+> "Feelings aren't black and white. Even if they're fuzzy and contradictory, if they're sincere, they are what they are."
 
-&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Murasaki**](https://myanimelist.net/character.php?q=Murasaki&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
