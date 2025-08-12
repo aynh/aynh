@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My life after losing her... Is it over as well? The days I spent satisfied with the happiness I never noticed... Those times had passed away. For me... There's nothing left at all."
+> "Clouds... come here. Drops... fall here. Drive out the flames... tell him... that despite all of this... the world is still beautiful."
 
-&mdash; [**Yuzuru Otonashi**](https://myanimelist.net/character.php?q=Yuzuru%20Otonashi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
