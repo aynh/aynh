@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How could I burden that brat with the weight of my life? *about Oz*"
+> "Everybody has things they aren't good at or can't do. We cover each other's weakness. That's what a party's for."
 
-&mdash; [**Elliot Nightray**](https://myanimelist.net/character.php?q=Elliot%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Manato**](https://myanimelist.net/character.php?q=Manato&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
