@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All living things eventually die. It's unavoidable. But as long as you remember, it will live on in your heart forever."
+> "It doesn't matter how much trash you pick up. You just have a pile of trash."
 
-&mdash; [**Lisanna Strauss**](https://myanimelist.net/character.php?q=Lisanna%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
