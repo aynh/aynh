@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human beings are strong because we have the ability to change ourselves."
+> "Why are you acting like you're the only one hurting when you pushed him away?"
 
-&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Yukimura Tooru**](https://myanimelist.net/character.php?q=Yukimura%20Tooru&cat=character), [**Aoharu x Kikanjuu**](https://myanimelist.net/search/all?q=Aoharu%20x%20Kikanjuu&cat=all)
