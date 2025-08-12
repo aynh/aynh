@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Feelings aren't black and white. Even if they're fuzzy and contradictory, if they're sincere, they are what they are."
+> "How could I burden that brat with the weight of my life? *about Oz*"
 
-&mdash; [**Murasaki**](https://myanimelist.net/character.php?q=Murasaki&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
+&mdash; [**Elliot Nightray**](https://myanimelist.net/character.php?q=Elliot%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
