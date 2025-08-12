@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is that all your feelings have to offer? Go ahead. Try to wrench open my heart. That's the only way you'll get me."
+> "It's just that... It's just that not being able to fight with everyone makes me feel lonely...!! But what would make me feel worse than being lonely is getting in everyone's way... that would make me feel worse!! If it means getting in the way of Kurosaki-kun and everyone... then I would rather be lonely, very lonely."
 
-&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
+&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
