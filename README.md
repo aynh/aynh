@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no such thing as truth in this world. That is our reality. Anyone can become a God or a Devil. All it takes is for someone to claim that to be the truth."
+> "Man, kids these days. They think it's a competition to have the most friends. One is enough. Find someone completely unique."
 
-&mdash; [**Eren Kruger**](https://myanimelist.net/character.php?q=Eren%20Kruger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
