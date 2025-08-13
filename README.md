@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What pride... are you saying that you are God's equal?"
+> "Kira is childish and he hates losing... I'm also childish and hate to lose. That's how I know."
 
-&mdash; [**Rose Tomas**](https://myanimelist.net/character.php?q=Rose%20Tomas&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
