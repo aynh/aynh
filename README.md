@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It was just a rebound! Don't make a big deal over one or two arms!"
+> "What's the point of worrying about the past? A real star keeps moving forward."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
