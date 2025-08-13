@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Shinpachi, just remember this... We aren't friends with justice or even your sister. We're YOUR friends."
+> "You're going to be all right. You just stumbled over a stone in the road. It means nothing. Your goal lies far beyond this. Doesn't it? I'm sure you'll overcome this. You'll walk again... soon."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
