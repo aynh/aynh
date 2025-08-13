@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Truly and deeply, thank you for giving, my life to me."
+> "Shinpachi, just remember this... We aren't friends with justice or even your sister. We're YOUR friends."
 
-&mdash; [**Kanade Tachibana**](https://myanimelist.net/character.php?q=Kanade%20Tachibana&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
