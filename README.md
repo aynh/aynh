@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Childish ideals pale when placed before reality."
+> "Of course I'm insecure. Of course I'm lonely. Of course I wanna see him. And of course being so far apart sucks, but the thing is, nobody else could ever take his place. So it doesn't matter if I don't want a long-distance relationship. I don't have a choice, but I have to do it. I love him."
 
-&mdash; [**Citan Uzuki**](https://myanimelist.net/character.php?q=Citan%20Uzuki&cat=character), [**Xenogears**](https://myanimelist.net/search/all?q=Xenogears&cat=all)
+&mdash; [**Haruna Nagashima**](https://myanimelist.net/character.php?q=Haruna%20Nagashima&cat=character), [**Highschool Debut**](https://myanimelist.net/search/all?q=Highschool%20Debut&cat=all)
