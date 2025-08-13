@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anything I would never want to lose is always lost. It is a given that everything that is worth wanting will be lost the moment I obtain it. There's nothing worth pursuing at the cost of prolonging a life of suffering."
+> "Truly and deeply, thank you for giving, my life to me."
 
-&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
+&mdash; [**Kanade Tachibana**](https://myanimelist.net/character.php?q=Kanade%20Tachibana&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
