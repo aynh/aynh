@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why are you acting like you're the only one hurting when you pushed him away?"
+> "No one's more aware of discrimination than the ones being discriminated against, huh?"
 
-&mdash; [**Yukimura Tooru**](https://myanimelist.net/character.php?q=Yukimura%20Tooru&cat=character), [**Aoharu x Kikanjuu**](https://myanimelist.net/search/all?q=Aoharu%20x%20Kikanjuu&cat=all)
+&mdash; [**Tatsuya Shiba**](https://myanimelist.net/character.php?q=Tatsuya%20Shiba&cat=character), [**Mahouka Koukou no Rettousei**](https://myanimelist.net/search/all?q=Mahouka%20Koukou%20no%20Rettousei&cat=all)
