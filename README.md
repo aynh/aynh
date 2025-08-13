@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is only a fine line separating art from madness."
+> "What pride... are you saying that you are God's equal?"
 
-&mdash; [**Nathan Mahler**](https://myanimelist.net/character.php?q=Nathan%20Mahler&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
+&mdash; [**Rose Tomas**](https://myanimelist.net/character.php?q=Rose%20Tomas&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
