@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Face it kid, I'm much too big of a guy for you to handle and you know it. Do you see how the very ground shakes beneath me feet?"
+> "Depending on your request, whether I will laugh or get angry - that will decide your lifespan, boy."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ladd Russo**](https://myanimelist.net/character.php?q=Ladd%20Russo&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
