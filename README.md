@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Near* Which of us will get Kira first... it's a race!"
+> "People who continue to put their lives on the line to defend their faith become heroes and continue to exist on in legend."
 
-&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
