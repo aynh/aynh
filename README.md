@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kira is childish and he hates losing... I'm also childish and hate to lose. That's how I know."
+> "Just wild heaven."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
