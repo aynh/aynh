@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who continue to put their lives on the line to defend their faith become heroes and continue to exist on in legend."
+> "Face it kid, I'm much too big of a guy for you to handle and you know it. Do you see how the very ground shakes beneath me feet?"
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
