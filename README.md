@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Depending on your request, whether I will laugh or get angry - that will decide your lifespan, boy."
+> "It's frightening that there's no guarantee that I'll ever be loved."
 
-&mdash; [**Ladd Russo**](https://myanimelist.net/character.php?q=Ladd%20Russo&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Akito Sohma**](https://myanimelist.net/character.php?q=Akito%20Sohma&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
