@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was going to let you go. After all, there aren't many of us out there, but you're just such a pain in the ass."
+> "Katsura, just stop this. No matter how elegant you think dying is, your death won't appease your conscience and won't change anything."
 
-&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
