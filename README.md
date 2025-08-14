@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Cute, cute Nanao-chaaaan. Lovely, lovely Nanao -- AHHHHHHH!!!!"
+> "Oh right, most talented artists become famous after they're dead, I'll make you great by taking you to the cemetery called prison!"
 
-&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
