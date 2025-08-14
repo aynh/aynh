@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The storyteller may fall silent, the music may cease, but the story will not end. Be it tragedy or comedy, as long as there is applause, the story will not end. It is just like the multitude of human lives. Warm blessings to we who were not rewarded, and we who are still on our way. Our travels continue on."
+> "It's called a miracle because it doesn't happen."
 
-&mdash; [**Fate/stay night**](https://myanimelist.net/character.php?q=Fate%2Fstay%20night&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Shiori Misaka**](https://myanimelist.net/character.php?q=Shiori%20Misaka&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
