@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh right, most talented artists become famous after they're dead, I'll make you great by taking you to the cemetery called prison!"
+> "This world revolves around two views on the same thing. In addition, it's about laughable miseries."
 
-&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Himura Yuu**](https://myanimelist.net/character.php?q=Himura%20Yuu&cat=character), [**ef - a tale of memories**](https://myanimelist.net/search/all?q=ef%20-%20a%20tale%20of%20memories&cat=all)
