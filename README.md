@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Katsura, just stop this. No matter how elegant you think dying is, your death won't appease your conscience and won't change anything."
+> "I've continually fought, and with each battle I've been killing my own heart. And my heart has been completely void of feeling for quite a long time now. Maybe my life doesn't have value anymore, but I have to keep on living."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Trowa Barton**](https://myanimelist.net/character.php?q=Trowa%20Barton&cat=character), [**Mobile Suit Gundam Wing**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Wing&cat=all)
