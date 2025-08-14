@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This world revolves around two views on the same thing. In addition, it's about laughable miseries."
+> "If you run into a wall and pretend it doesn't exist, you'll never make progress. The wall will never change, so you're the one who has to change."
 
-&mdash; [**Himura Yuu**](https://myanimelist.net/character.php?q=Himura%20Yuu&cat=character), [**ef - a tale of memories**](https://myanimelist.net/search/all?q=ef%20-%20a%20tale%20of%20memories&cat=all)
+&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
