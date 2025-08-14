@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you let the fly live, the spider is going to die. You can't save both without one suffering."
+> "Do they love you, or the mask you put every day?"
 
-&mdash; [**Millions Knives**](https://myanimelist.net/character.php?q=Millions%20Knives&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Shido Itsuka**](https://myanimelist.net/character.php?q=Shido%20Itsuka&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
