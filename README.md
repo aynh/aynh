@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want to see any more things that've changed! It's exhausting!"
+> "Friends are nothing more than the people who you spend the fun, yet meaningless times with. When those times get rough, they aren't there to support you."
 
-&mdash; [**Hikari Sakishima**](https://myanimelist.net/character.php?q=Hikari%20Sakishima&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
+&mdash; [**Ryuuguu Rena**](https://myanimelist.net/character.php?q=Ryuuguu%20Rena&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
