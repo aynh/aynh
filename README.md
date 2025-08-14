@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Consume wine, don't let the wine consume you."
+> "It would be nice to live in a kind world without any fear, without any troubles, without hurting anybody, without ever being hurt; only doing the right thing. I wish I could reach this kind world by the shortest path possible."
 
-&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Akito Sohma**](https://myanimelist.net/character.php?q=Akito%20Sohma&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
