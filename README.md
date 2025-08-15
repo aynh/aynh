@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don’t want to change. I want to change. We all hold in our hearts conflicting feelings, each back to back. And so, we live our days."
+> "You know, Nana... Even now, sometimes on street corners... when I meet someone, I see your shadow. I'm sure that even now, you're still wearing that man's cologne... so you can sleep, even alone..."
 
-&mdash; [**Dera Mochimazzi**](https://myanimelist.net/character.php?q=Dera%20Mochimazzi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
+&mdash; [**Nana Osaki**](https://myanimelist.net/character.php?q=Nana%20Osaki&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
