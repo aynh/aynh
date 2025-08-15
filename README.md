@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "These girls are pixels. Data. I know that. So how would you describe the girl you like? Protein? Calcium? A pointless argument. What’s important is that there’s love. Isn’t that what you people always say?"
+> "Hatred will never be erased! The only thing you can do is erase the ones you hate!"
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Hakuryū Ren**](https://myanimelist.net/character.php?q=Hakury%C5%AB%20Ren&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
