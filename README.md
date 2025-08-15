@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no meaning to victory, if you win alone."
+> "I'm having a major hat crisis. Could you try to steal Pikachu some other time?"
 
-&mdash; [**Kuroko No Basket**](https://myanimelist.net/character.php?q=Kuroko%20No%20Basket&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
