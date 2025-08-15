@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Steal one, get one free!"
+> "If you simply obey orders without question to protect your master, that isn't your greatest wish, but your greatest tragedy."
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Jae-ha**](https://myanimelist.net/character.php?q=Jae-ha&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
