@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm having a major hat crisis. Could you try to steal Pikachu some other time?"
+> "I don’t want to change. I want to change. We all hold in our hearts conflicting feelings, each back to back. And so, we live our days."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Dera Mochimazzi**](https://myanimelist.net/character.php?q=Dera%20Mochimazzi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
