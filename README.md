@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, Nana... Even now, sometimes on street corners... when I meet someone, I see your shadow. I'm sure that even now, you're still wearing that man's cologne... so you can sleep, even alone..."
+> "Of course they are my family, isn't it obvious? And a wonderful family they were. It happened long ago when I was still in the flower of my youth. The cities began to grow wild, people lost hope for the future, they became lazy idol time wasters. And to my everlasting shame I was no exception. Thus I began to watch the 7 O'Clock news religiously every night!"
 
-&mdash; [**Nana Osaki**](https://myanimelist.net/character.php?q=Nana%20Osaki&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
