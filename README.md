@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you lose sight of your path, listen for the destination in your heart."
+> "You can take control of my mind and my body, but there is one thing a Saiyan always keep... his PRIDE!"
 
-&mdash; [**Allen Walker**](https://myanimelist.net/character.php?q=Allen%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
