@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you simply obey orders without question to protect your master, that isn't your greatest wish, but your greatest tragedy."
+> "There is no meaning to victory, if you win alone."
 
-&mdash; [**Jae-ha**](https://myanimelist.net/character.php?q=Jae-ha&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Kuroko No Basket**](https://myanimelist.net/character.php?q=Kuroko%20No%20Basket&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
