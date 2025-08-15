@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can take control of my mind and my body, but there is one thing a Saiyan always keep... his PRIDE!"
+> "What's been troubling me lately are these small farewells that make me feel a bit lonely. Brief meetings and farewells. I want to treasure each and every moment."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume's Book of Friends**](https://myanimelist.net/search/all?q=Natsume's%20Book%20of%20Friends&cat=all)
