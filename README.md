@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When faced with a decision... At such times, we must choose only one option and it can be very confusing. When that happens, simply using your head and charging straight into the obstacle is a fine option."
+> "Steal one, get one free!"
 
-&mdash; [**Sakamoto**](https://myanimelist.net/character.php?q=Sakamoto&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
