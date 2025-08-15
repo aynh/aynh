@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Of course they are my family, isn't it obvious? And a wonderful family they were. It happened long ago when I was still in the flower of my youth. The cities began to grow wild, people lost hope for the future, they became lazy idol time wasters. And to my everlasting shame I was no exception. Thus I began to watch the 7 O'Clock news religiously every night!"
+> "When you lose sight of your path, listen for the destination in your heart."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Allen Walker**](https://myanimelist.net/character.php?q=Allen%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
