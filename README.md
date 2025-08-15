@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hatred will never be erased! The only thing you can do is erase the ones you hate!"
+> "Whether you get mad, whether you laugh. The sun will set, morning will come. Each and every time, I'll just start over again."
 
-&mdash; [**Hakuryū Ren**](https://myanimelist.net/character.php?q=Hakury%C5%AB%20Ren&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
+&mdash; [**Atsuhiro Maeda**](https://myanimelist.net/character.php?q=Atsuhiro%20Maeda&cat=character), [**Tari Tari**](https://myanimelist.net/search/all?q=Tari%20Tari&cat=all)
