@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen to your seniors once in a while or I will kill you."
+> "Neither terrorism nor occultism have ever impacted history in any constructive way."
 
-&mdash; [**Hyuuga Junpei**](https://myanimelist.net/character.php?q=Hyuuga%20Junpei&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
