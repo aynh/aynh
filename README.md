@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A peaceful every day life hides its fragility. Fear and violence aren't just something in another world, completely unrelated to us. If a disaster happens, we can't change it. But as long as we small gears are linked together, we can keep moving forward, even if it's only one small step at a time."
+> "I realized it one day. The lyrics I struggled to create are only made up so I would have something to sing. Nothing genuine can come out of these flat and boring and ambiguous lives we're living, out of faking your worries for the sake of it."
 
-&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Ritsuko Ayukawa**](https://myanimelist.net/character.php?q=Ritsuko%20Ayukawa&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
