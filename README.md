@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yusuke Urameshi, age 14. Survived by his mom and everybody. After going through a big ordeal to get his life back, Yusuke had a brief second chance until he was eaten by a fish! That's right! No heroic death! No fighting evil villans! Fish food!"
+> "When faced with a decision... At such times, we must choose only one option and it can be very confusing. When that happens, simply using your head and charging straight into the obstacle is a fine option."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Sakamoto**](https://myanimelist.net/character.php?q=Sakamoto&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
