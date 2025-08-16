@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Snowdrop. I also don't know what I'm looking for. What does the future hold? Will I be able to not forget what I have found?"
+> "The weakness that had accepted death now became the strength of wanting to live."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
