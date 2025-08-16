@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The weakness that had accepted death now became the strength of wanting to live."
+> "Some people want power and they get mad when they don't get it. They take their fury out on everyone else. You don't want it, it becomes you."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
