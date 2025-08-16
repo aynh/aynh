@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People's mind are like alien existence. We don't know where they are, and we can barely scratch the surface of what they really are."
+> "Live on and endure the shadows! There is no light for those who do not know darkness."
 
-&mdash; [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/character.php?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
+&mdash; [**Takuan Sōhō**](https://myanimelist.net/character.php?q=Takuan%20S%C5%8Dh%C5%8D&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
