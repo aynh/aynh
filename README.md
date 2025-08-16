@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Until now, I had never felt any need to be understood. I had never felt lonely. Not until I met you."
+> "Is being silent and suppressing  your own feelings really being thoughtful of the other person?"
 
-&mdash; [**Galilei**](https://myanimelist.net/character.php?q=Galilei&cat=character), [**Galilei Donna**](https://myanimelist.net/search/all?q=Galilei%20Donna&cat=all)
+&mdash; [**Tsukushi Makino**](https://myanimelist.net/character.php?q=Tsukushi%20Makino&cat=character), [**Boys Over Flowers**](https://myanimelist.net/search/all?q=Boys%20Over%20Flowers&cat=all)
