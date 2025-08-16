@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being a detective isn't about bringing someone down, but rather protecting someone."
+> "I've seen this before. This sensation... I get it now. This is what I wanted. No need to rely on or work with other people. I just want to drift through the water alone in silence."
 
-&mdash; [**Kougami Shinya**](https://myanimelist.net/character.php?q=Kougami%20Shinya&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Haruka Nanase**](https://myanimelist.net/character.php?q=Haruka%20Nanase&cat=character), [**Free!**](https://myanimelist.net/search/all?q=Free!&cat=all)
