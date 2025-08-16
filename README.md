@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate sweets."
+> "[with a bow and arrow ready to fire] Not as pretty as his, huh? What would you know about it? You live in a time where they don't even have SHAMPOO."
 
-&mdash; [**Yu Kanda**](https://myanimelist.net/character.php?q=Yu%20Kanda&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
