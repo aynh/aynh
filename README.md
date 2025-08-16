@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[with a bow and arrow ready to fire] Not as pretty as his, huh? What would you know about it? You live in a time where they don't even have SHAMPOO."
+> "False tears bring pain to those around you. A false smile brings pain to one self."
 
-&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
