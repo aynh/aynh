@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Or, as they say in the Fire Nation, 'stay flamin'!'"
+> "Until now, I had never felt any need to be understood. I had never felt lonely. Not until I met you."
 
-&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Galilei**](https://myanimelist.net/character.php?q=Galilei&cat=character), [**Galilei Donna**](https://myanimelist.net/search/all?q=Galilei%20Donna&cat=all)
