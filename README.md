@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've seen this before. This sensation... I get it now. This is what I wanted. No need to rely on or work with other people. I just want to drift through the water alone in silence."
+> "Or, as they say in the Fire Nation, 'stay flamin'!'"
 
-&mdash; [**Haruka Nanase**](https://myanimelist.net/character.php?q=Haruka%20Nanase&cat=character), [**Free!**](https://myanimelist.net/search/all?q=Free!&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
