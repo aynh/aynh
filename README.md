@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Live on and endure the shadows! There is no light for those who do not know darkness."
+> "Snowdrop. I also don't know what I'm looking for. What does the future hold? Will I be able to not forget what I have found?"
 
-&mdash; [**Takuan Sōhō**](https://myanimelist.net/character.php?q=Takuan%20S%C5%8Dh%C5%8D&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
