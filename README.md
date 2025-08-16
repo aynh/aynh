@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Some people want power and they get mad when they don't get it. They take their fury out on everyone else. You don't want it, it becomes you."
+> "A farewell is like the other side of a coin. It will only happen when there is an encounter. Rather than dreading the day we have to part, shouldn't we be happy that we had the chance to meet today instead?"
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
