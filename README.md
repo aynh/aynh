@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pride is an eminent trait, but too much will cause arrogance. That is when it becomes disgusting."
+> "The times when you want to cry are when you have to try your hardest. That's why I decided I'll cry in general. Then, when I have to shed tears for a time when I really want to cry, my tears would have run dry."
 
-&mdash; [**Duke Tōgō**](https://myanimelist.net/character.php?q=Duke%20T%C5%8Dg%C5%8D&cat=character), [**Golgo 13**](https://myanimelist.net/search/all?q=Golgo%2013&cat=all)
+&mdash; [**Jacuzzi Splot**](https://myanimelist.net/character.php?q=Jacuzzi%20Splot&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
