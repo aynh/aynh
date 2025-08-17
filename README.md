@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My legend dates back to the 12th Century thank you very much."
+> "If you keep lying like that, no one, not even yourself, will believe you anymore."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Aladdin**](https://myanimelist.net/character.php?q=Aladdin&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
