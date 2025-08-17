@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love does not hurt when you're loving the right person."
+> "No matter what kind of 'strength' you possess. There are places you can never reach no matter how hard you try. The farther it is... The higher it is..."
 
-&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Rika Noyamano**](https://myanimelist.net/character.php?q=Rika%20Noyamano&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
