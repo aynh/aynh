@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Colors and lies both get blacker as you add more. Add enough red, and it'll turn black too."
+> "My legend dates back to the 12th Century thank you very much."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
