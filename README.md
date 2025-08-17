@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it means mankind will live on, I don't mind being called a murderer"
+> "Assassination — It's the family trade. We all take it up. My folks see me as an exceptional prospect. But I don't see that I should have to live up to their expectations."
 
-&mdash; [**Dot Pixis**](https://myanimelist.net/character.php?q=Dot%20Pixis&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Killua Zoldyck**](https://myanimelist.net/character.php?q=Killua%20Zoldyck&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
