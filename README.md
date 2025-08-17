@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nobu is idealizing me, that’s why he fell in love with me. If you knew the real me, it would shatter your illusion. Then come on. Shatter my illusion. Because I don’t know what else I can do to stop loving you."
+> "Nine-Tails, you are merely a momentary life, a temporary existence of coalesced energy... energy that once was a single, ultimate form! An unstable force, lacking in intelligence or sapience, you require a guide to show you purpose. That guide is the Uchiha! The tailed beasts are but slaves to those with blessed eyes. Obey!"
 
-&mdash; [**Nana Komatsu**](https://myanimelist.net/character.php?q=Nana%20Komatsu&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
