@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is the best way to fill a gap in the heart."
+> "A beautiful flower too will eventually wither and fall. That's the fate of all living beings. If that's the case, it's only natural for one to want to stop the time while they're still blossoming in all full glory."
 
-&mdash; [**Elusia de Lute Ima**](https://myanimelist.net/character.php?q=Elusia%20de%20Lute%20Ima&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
