@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is nothing shameful about running away. Some things are just out of people's hands. If you think you're gonna die, just run."
+> "Nobu is idealizing me, that’s why he fell in love with me. If you knew the real me, it would shatter your illusion. Then come on. Shatter my illusion. Because I don’t know what else I can do to stop loving you."
 
-&mdash; [**Broken Blade**](https://myanimelist.net/character.php?q=Broken%20Blade&cat=character), [**Broken Blade**](https://myanimelist.net/search/all?q=Broken%20Blade&cat=all)
+&mdash; [**Nana Komatsu**](https://myanimelist.net/character.php?q=Nana%20Komatsu&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
