@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The only ones that can miss a kick draw match are those who have enough courage to kick it."
+> "Love is the best way to fill a gap in the heart."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Elusia de Lute Ima**](https://myanimelist.net/character.php?q=Elusia%20de%20Lute%20Ima&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
