@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The concept of lateness being evil is wrong in the first place... The police don't mobilize until after an accident happens, and it's standard for heroes to show up late. But would anyone condemn them for being late? So, speaking paradoxically, lateness is justice."
+> "Colors and lies both get blacker as you add more. Add enough red, and it'll turn black too."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
