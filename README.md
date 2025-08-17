@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A small mistake can make a huge difference."
+> "There is nothing shameful about running away. Some things are just out of people's hands. If you think you're gonna die, just run."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Broken Blade**](https://myanimelist.net/character.php?q=Broken%20Blade&cat=character), [**Broken Blade**](https://myanimelist.net/search/all?q=Broken%20Blade&cat=all)
