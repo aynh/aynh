@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "From the past... I always wanted to ask. God, why... Are you so unfair and extremely cruel? Why do you separate those who can fly... And those who cannot and bring them into existence? Why, in this one world... You made the effort to divide them into two and bring them together? In reality everyone was born with wings!.. Why didn't I realize that until now? It's not that those who can fly are able to fly, but that those who think of flying... Those who believe they can fly are the ones who can fly."
+> "A small mistake can make a huge difference."
 
-&mdash; [**Rika Noyamano**](https://myanimelist.net/character.php?q=Rika%20Noyamano&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
