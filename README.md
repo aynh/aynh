@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You call it dirt. I call it a healthy coating of earth."
+> "Spring will be here soon. Spring, the season I met you, is coming. A Spring without you...is coming."
 
-&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
