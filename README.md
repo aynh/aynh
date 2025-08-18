@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Emiya Shirou! Listen, you are not 'one who fights'. You are nothing more than 'one who creates'. Don't think of irrelevant things. There is only one thing you can do, master that one thing. Do not forget. The thing you image is always 'your strongest self.' You don't need any other enemies. The opponent you have to fight is none other than 'your own image'."
+> "I'll always be by your side. You'll never be alone. You have as many hopes as there are stars that light up the sky. The wind that brushes your skin is a presentiment of tomorrow. Come, lets walk in time with the song of the fairies..."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
