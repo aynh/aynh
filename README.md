@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know the origin of the word 'utopia'? The English philosopher, Thomas More, created this word with intense irony in mind. In Greek, it means 'A place that does not exist'."
+> "If a man will not work, he shall not eat."
 
-&mdash; [**Shuntarou Chishiya**](https://myanimelist.net/character.php?q=Shuntarou%20Chishiya&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
+&mdash; [**Olivier Mira Armstrong**](https://myanimelist.net/character.php?q=Olivier%20Mira%20Armstrong&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
