@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Spring will be here soon. Spring, the season I met you, is coming. A Spring without you...is coming."
+> "That’s important, isn’t it? Whether you look good or pathetic in your own eyes."
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Reiko Mikami**](https://myanimelist.net/character.php?q=Reiko%20Mikami&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
