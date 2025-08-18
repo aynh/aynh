@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Of course, if you lose in fighting it'd be a problem, but it's also a problem if you lose in character"
+> "Do you value your life? Do you think that your family and friends are important to you? If they are, then you should never think of changing yourself. Otherwise, you will lose everything that is precious to you."
 
-&mdash; [**Togame**](https://myanimelist.net/character.php?q=Togame&cat=character), [**Katanagatari**](https://myanimelist.net/search/all?q=Katanagatari&cat=all)
+&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Puella Magi Madoka Magica**](https://myanimelist.net/search/all?q=Puella%20Magi%20Madoka%20Magica&cat=all)
