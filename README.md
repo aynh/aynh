@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But that's why I can't let myself be weighed down by fuckin' regrets. A bitch lives as free as a bird that can never be caught."
+> "Emiya Shirou! Listen, you are not 'one who fights'. You are nothing more than 'one who creates'. Don't think of irrelevant things. There is only one thing you can do, master that one thing. Do not forget. The thing you image is always 'your strongest self.' You don't need any other enemies. The opponent you have to fight is none other than 'your own image'."
 
-&mdash; [**Anarchy Panty**](https://myanimelist.net/character.php?q=Anarchy%20Panty&cat=character), [**Panty And Stocking With Gaterbelt**](https://myanimelist.net/search/all?q=Panty%20And%20Stocking%20With%20Gaterbelt&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
