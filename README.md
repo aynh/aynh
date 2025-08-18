@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The lifespan of a human is certainly way too short. That's why you've got to make the most of it and live your life to the fullest."
+> "Of course, if you lose in fighting it'd be a problem, but it's also a problem if you lose in character"
 
-&mdash; [**Leone**](https://myanimelist.net/character.php?q=Leone&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Togame**](https://myanimelist.net/character.php?q=Togame&cat=character), [**Katanagatari**](https://myanimelist.net/search/all?q=Katanagatari&cat=all)
