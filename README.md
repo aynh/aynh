@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you value your life? Do you think that your family and friends are important to you? If they are, then you should never think of changing yourself. Otherwise, you will lose everything that is precious to you."
+> "I don't have the strength or wisdom to stand up against someone who is insusceptible to reason. You won't even give me time to make an effort. That's why I'm going to rely on numbers!"
 
-&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Puella Magi Madoka Magica**](https://myanimelist.net/search/all?q=Puella%20Magi%20Madoka%20Magica&cat=all)
+&mdash; [**Ryuugamine Mikado**](https://myanimelist.net/character.php?q=Ryuugamine%20Mikado&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
