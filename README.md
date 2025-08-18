@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are defeated yet you will not step back, why not?"
+> "Give advice and good guidance, then halt if such is of no avail. Do not disgrace yourself for it."
 
-&mdash; [**Dracule Mihawk**](https://myanimelist.net/character.php?q=Dracule%20Mihawk&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Takaaki Morofushi**](https://myanimelist.net/character.php?q=Takaaki%20Morofushi&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
