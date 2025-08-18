@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Making someone I hate suffer feels really great!!"
+> "Our fates... can be changed. All we have to do is try."
 
-&mdash; [**Megumi Shimizu**](https://myanimelist.net/character.php?q=Megumi%20Shimizu&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Renya Kagurazaka**](https://myanimelist.net/character.php?q=Renya%20Kagurazaka&cat=character), [**Kamisama To Unmei Kakumei No Paradox**](https://myanimelist.net/search/all?q=Kamisama%20To%20Unmei%20Kakumei%20No%20Paradox&cat=all)
