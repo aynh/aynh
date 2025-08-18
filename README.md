@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Give advice and good guidance, then halt if such is of no avail. Do not disgrace yourself for it."
+> "The lifespan of a human is certainly way too short. That's why you've got to make the most of it and live your life to the fullest."
 
-&mdash; [**Takaaki Morofushi**](https://myanimelist.net/character.php?q=Takaaki%20Morofushi&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Leone**](https://myanimelist.net/character.php?q=Leone&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
