@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Of the days that I have lived, only those I spent with you seemed real."
+> "Making someone I hate suffer feels really great!!"
 
-&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop: The Movie**](https://myanimelist.net/search/all?q=Cowboy%20Bebop%3A%20The%20Movie&cat=all)
+&mdash; [**Megumi Shimizu**](https://myanimelist.net/character.php?q=Megumi%20Shimizu&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
