@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't have the strength or wisdom to stand up against someone who is insusceptible to reason. You won't even give me time to make an effort. That's why I'm going to rely on numbers!"
+> "The impostor is an impostor because it can't be distinguished from the real thing. The proof of its falsity is in its resemblance to the real thing."
 
-&mdash; [**Ryuugamine Mikado**](https://myanimelist.net/character.php?q=Ryuugamine%20Mikado&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
