@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Courage must know fear and make fear its own! Fear upsets breathing! Conquer fear and your breath will never fail you! Hamon breathing comes from courage! A good human is a brave human! Courage is a marvel of humanity!"
+> "If you're felling like there's nowhere you belong... That you're trapped in a small world. It's those feelings that drive us beyond our world."
 
-&mdash; [**William A. Zeppeli**](https://myanimelist.net/character.php?q=William%20A.%20Zeppeli&cat=character), [**JoJo's Bizarre Adventure: Phantom Blood**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Phantom%20Blood&cat=all)
+&mdash; [**Reiji Nitta**](https://myanimelist.net/character.php?q=Reiji%20Nitta&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
