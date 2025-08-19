@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It seems like the small leaves in the Village of Konoha have inherited that 'will of fire' you spoke of, Third. The fire on the leaves will eventually burn greater and stronger... It will flash its light and protect this village."
+> "God, just how long are they going to squabble over such pointless things? They are all the same in my eyes. Nothing but a bunch of trash. Light and Darkness. Good and Evil. Poison and Antidote. Winning and Losing. Strength and Weakness. Black and White. Success and Failure. Happiness or Sorrow... They're all the same after all. Why hasn't everyone realized this already..."
 
-&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Najimi Ajimu**](https://myanimelist.net/character.php?q=Najimi%20Ajimu&cat=character), [**Medaka Box Abnormal**](https://myanimelist.net/search/all?q=Medaka%20Box%20Abnormal&cat=all)
