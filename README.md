@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are right. I am not a detective, but a thief. And stealing is what thieves do best, even if it's a persons heart."
+> "You better watch out! I can break your neck!"
 
-&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
