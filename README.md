@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've never seen a hero fall down stairs, cry, and get first aid from demons."
+> "You're the only ones who are gonna need a hospital. And for your sake, I hope there's one near by."
 
-&mdash; [**Maou Sadao**](https://myanimelist.net/character.php?q=Maou%20Sadao&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
+&mdash; [**Korra**](https://myanimelist.net/character.php?q=Korra&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
