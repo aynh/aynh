@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's why Kagome sent me, so I can protect you from being protected by him."
+> "I might seem to be on the losing side to you, but I'm still fighting... Not all battles happen in the brightest, flashiest spots."
 
-&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Saeki Ryutaro**](https://myanimelist.net/character.php?q=Saeki%20Ryutaro&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
