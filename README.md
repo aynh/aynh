@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When humans are faced with truly terrifying circumstances, they don't think about other people around them. They're even willing to sacrifice those around themselves. By exposing that unsightly part of them, they can no longer get along."
+> "It seems like the small leaves in the Village of Konoha have inherited that 'will of fire' you spoke of, Third. The fire on the leaves will eventually burn greater and stronger... It will flash its light and protect this village."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
