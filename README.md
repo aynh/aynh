@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We finally became friends. I've said everything I wanted to say. Now we know everything about each other. Though, from the moment we become friends, we'll never speak to each other again."
+> "What are you talking about? We LET you corner us."
 
-&mdash; [**Touma Kazusa**](https://myanimelist.net/character.php?q=Touma%20Kazusa&cat=character), [**White Album 2**](https://myanimelist.net/search/all?q=White%20Album%202&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
