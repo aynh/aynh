@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A traveler does not leave regret behind in a village, but good memories."
+> "That's why Kagome sent me, so I can protect you from being protected by him."
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
