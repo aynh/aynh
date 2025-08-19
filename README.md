@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "School trips are simply a simulation of adult social life. If you ever go on a business trip with your boss, you won't get to choose where to stay or what to eat, but if you compromise, you can still have a modicum of fun. School trips train you to trick yourself into that kinda mindset."
+> "Trying to improve by learning from others that is what calls friendship."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Shino Aburame**](https://myanimelist.net/character.php?q=Shino%20Aburame&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
