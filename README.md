@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trying to improve by learning from others that is what calls friendship."
+> "Relationships do not always improve... Sometimes they decline... But... it still counts as a victory if it all works out in the end... Let’s keep it at that..."
 
-&mdash; [**Shino Aburame**](https://myanimelist.net/character.php?q=Shino%20Aburame&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**The Will of the Whole Misaka Network**](https://myanimelist.net/character.php?q=The%20Will%20of%20the%20Whole%20Misaka%20Network&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
