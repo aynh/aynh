@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I do not want to wake from my dream and discover that I am all alone. I am tired of being alone! I do not want to be cold! I do not want to be lonely!"
+> "I've never seen a hero fall down stairs, cry, and get first aid from demons."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Maou Sadao**](https://myanimelist.net/character.php?q=Maou%20Sadao&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
