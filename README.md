@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You better watch out! I can break your neck!"
+> "I do not want to wake from my dream and discover that I am all alone. I am tired of being alone! I do not want to be cold! I do not want to be lonely!"
 
-&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
