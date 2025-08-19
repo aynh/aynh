@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I might seem to be on the losing side to you, but I'm still fighting... Not all battles happen in the brightest, flashiest spots."
+> "You are right. I am not a detective, but a thief. And stealing is what thieves do best, even if it's a persons heart."
 
-&mdash; [**Saeki Ryutaro**](https://myanimelist.net/character.php?q=Saeki%20Ryutaro&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
