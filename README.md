@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love provides the worth of everything in the world. Without love...gold, silver, horses, and women...all are worthless."
+> "Our contribution will never come into light, but the failure will be noticed immediately."
 
-&mdash; [**Father Willibald**](https://myanimelist.net/character.php?q=Father%20Willibald&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Hidemi Hondou**](https://myanimelist.net/character.php?q=Hidemi%20Hondou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
