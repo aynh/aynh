@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our contribution will never come into light, but the failure will be noticed immediately."
+> "Even If evil makes you lose your way, you stay your ground and keep searching for the path of good. Is that search now what justice is? It is for that reason that gods gave mortals knowledge."
 
-&mdash; [**Hidemi Hondou**](https://myanimelist.net/character.php?q=Hidemi%20Hondou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Gowasu**](https://myanimelist.net/character.php?q=Gowasu&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
