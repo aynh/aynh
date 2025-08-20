@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I can be with you when the world ends, it'll be enough for me."
+> "Humans easily betray others. That's just the nature of them."
 
-&mdash; [**Blue**](https://myanimelist.net/character.php?q=Blue&cat=character), [**Wolf’s Rain**](https://myanimelist.net/search/all?q=Wolf%E2%80%99s%20Rain&cat=all)
+&mdash; [**Wakabayashi Hatsuna**](https://myanimelist.net/character.php?q=Wakabayashi%20Hatsuna&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
