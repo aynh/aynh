@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To someone who bears responsibility, there's no greater treasure than experience."
+> "Why don't you stop forcing yourself on him and calling it love? It's painful to watch (to Kagura about Kyo)"
 
-&mdash; [**Litonar**](https://myanimelist.net/character.php?q=Litonar&cat=character), [**Suisei no Gargantia**](https://myanimelist.net/search/all?q=Suisei%20no%20Gargantia&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
