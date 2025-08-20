@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even If evil makes you lose your way, you stay your ground and keep searching for the path of good. Is that search now what justice is? It is for that reason that gods gave mortals knowledge."
+> "If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don't need them and their selfish ideas."
 
-&mdash; [**Gowasu**](https://myanimelist.net/character.php?q=Gowasu&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Alibaba Saluja**](https://myanimelist.net/character.php?q=Alibaba%20Saluja&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
