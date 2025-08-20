@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times in life when you have to distance yourself from those you love, because you love them."
+> "I guess I just want the person I love to be happy. I just want to do something for him."
 
-&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Sana Inui**](https://myanimelist.net/character.php?q=Sana%20Inui&cat=character), [**Mashiroiro Symphony - The color of lovers**](https://myanimelist.net/search/all?q=Mashiroiro%20Symphony%20-%20The%20color%20of%20lovers&cat=all)
