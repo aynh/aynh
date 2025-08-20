@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The stronger a person looks, the weaker he is."
+> "Sorry, Aizen-sama. I got caught."
 
-&mdash; [**Minami Ryusuke**](https://myanimelist.net/character.php?q=Minami%20Ryusuke&cat=character), [**Beck**](https://myanimelist.net/search/all?q=Beck&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
