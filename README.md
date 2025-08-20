@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This world revolves around two views on the same thing. In addition, it's about laughable miseries."
+> "Ha ha ha ha! Promise me something, if you're gonna sue, go after the spirit first, okay?"
 
-&mdash; [**Himura Yuu**](https://myanimelist.net/character.php?q=Himura%20Yuu&cat=character), [**ef - a tale of memories**](https://myanimelist.net/search/all?q=ef%20-%20a%20tale%20of%20memories&cat=all)
+&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
