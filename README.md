@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don't need them and their selfish ideas."
+> "There are times in life when you have to distance yourself from those you love, because you love them."
 
-&mdash; [**Alibaba Saluja**](https://myanimelist.net/character.php?q=Alibaba%20Saluja&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
+&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
