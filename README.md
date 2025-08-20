@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're felling like there's nowhere you belong... That you're trapped in a small world. It's those feelings that drive us beyond our world."
+> "If I can be with you when the world ends, it'll be enough for me."
 
-&mdash; [**Reiji Nitta**](https://myanimelist.net/character.php?q=Reiji%20Nitta&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Blue**](https://myanimelist.net/character.php?q=Blue&cat=character), [**Wolf’s Rain**](https://myanimelist.net/search/all?q=Wolf%E2%80%99s%20Rain&cat=all)
