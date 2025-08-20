@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Romance is just trying to convey your feelings to another person."
+> "You are right. I am not a detective, but a thief. And stealing is what thieves do best, even if it's a persons heart."
 
-&mdash; [**Tadashi Isogai**](https://myanimelist.net/character.php?q=Tadashi%20Isogai&cat=character), [**Living for the Day After Tomorrow**](https://myanimelist.net/search/all?q=Living%20for%20the%20Day%20After%20Tomorrow&cat=all)
+&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
