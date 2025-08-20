@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I guess I just want the person I love to be happy. I just want to do something for him."
+> "To someone who bears responsibility, there's no greater treasure than experience."
 
-&mdash; [**Sana Inui**](https://myanimelist.net/character.php?q=Sana%20Inui&cat=character), [**Mashiroiro Symphony - The color of lovers**](https://myanimelist.net/search/all?q=Mashiroiro%20Symphony%20-%20The%20color%20of%20lovers&cat=all)
+&mdash; [**Litonar**](https://myanimelist.net/character.php?q=Litonar&cat=character), [**Suisei no Gargantia**](https://myanimelist.net/search/all?q=Suisei%20no%20Gargantia&cat=all)
