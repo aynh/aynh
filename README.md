@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Doing this and that for your country is surely not your job, but the kings. But taking action for your country and her people - your parentage has no bearing on that. It is a most noble thing."
+> "Don't just accept loss or defeat! Accept it after you're dead. If you lose without dying... it means that luck is on your side. If that happens - focus on surviving! Survive and Kill the one who couldn't kill YOU!"
 
-&mdash; [**Etoile**](https://myanimelist.net/character.php?q=Etoile&cat=character), [**Arslan Senki**](https://myanimelist.net/search/all?q=Arslan%20Senki&cat=all)
+&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
