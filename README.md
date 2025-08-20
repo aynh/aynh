@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's difficult to like me when I'm being myself."
+> "The stronger a person looks, the weaker he is."
 
-&mdash; [**Ami Kawashima**](https://myanimelist.net/character.php?q=Ami%20Kawashima&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Minami Ryusuke**](https://myanimelist.net/character.php?q=Minami%20Ryusuke&cat=character), [**Beck**](https://myanimelist.net/search/all?q=Beck&cat=all)
