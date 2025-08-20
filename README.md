@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You talk big yet you're nothing but Akito's toy! (To Yuki)"
+> "Doing this and that for your country is surely not your job, but the kings. But taking action for your country and her people - your parentage has no bearing on that. It is a most noble thing."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Etoile**](https://myanimelist.net/character.php?q=Etoile&cat=character), [**Arslan Senki**](https://myanimelist.net/search/all?q=Arslan%20Senki&cat=all)
