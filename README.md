@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you lovingly collect every last piece of a shattered cup, pieces are still pieces. Once something breaks, it can never return."
+> "Time passes, people move. Like a river's flow, it never ends. A childish mind will turn to noble ambition. Young love will become deep affection. The clear water's surface reflects growth. Now listen to the Serenade of water to reflect upon yourself."
 
-&mdash; [**Ryuuguu Rena**](https://myanimelist.net/character.php?q=Ryuuguu%20Rena&cat=character), [**Higurashi no Naku Koro ni Rei**](https://myanimelist.net/search/all?q=Higurashi%20no%20Naku%20Koro%20ni%20Rei&cat=all)
+&mdash; [**Sheik**](https://myanimelist.net/character.php?q=Sheik&cat=character), [**The Legend Of Zelda**](https://myanimelist.net/search/all?q=The%20Legend%20Of%20Zelda&cat=all)
