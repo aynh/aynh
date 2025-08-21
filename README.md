@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If anybody's out there, you can come out. And if you're a monster or a ghost, you can stay where you are, and we won't bother you."
+> "It's amazing how much you kiss your own ass."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
