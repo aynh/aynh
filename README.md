@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll always be by your side, just like the wind that flows through your hair."
+> "The many lives lost during long years of conflict... because of those selfless sacrifices, we are able to bathe in peace and prosperity now. To ingrain this history within the new generation will be a vital cog in helping to maintain the peace."
 
-&mdash; [**Kazuma Yagami**](https://myanimelist.net/character.php?q=Kazuma%20Yagami&cat=character), [**Kaze no Stigma**](https://myanimelist.net/search/all?q=Kaze%20no%20Stigma&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Boruto: Naruto Next Generations**](https://myanimelist.net/search/all?q=Boruto%3A%20Naruto%20Next%20Generations&cat=all)
