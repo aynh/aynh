@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Inuyasha, after meeting you I renounced my postion as a shrine priestess. I became an ordinary woman. I longed to embrace you like this when I was alive..."
+> "There is only a fine line separating art from madness."
 
-&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Nathan Mahler**](https://myanimelist.net/character.php?q=Nathan%20Mahler&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
