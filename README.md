@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Okay, I'll talk! Take the elevator to see my boss!"
+> "The always naughty woodpecker. Today, too, you open holes and ruin the forest. The angry wood god turned your beak to poison. Poor woodpecker, your nest has been poisoned. Your food has been poisoned. If you touch your friends, they all die. The sad little woodpecker. Your tears of poison sparkle brightly..."
 
-&mdash; [**Rocket Grunt**](https://myanimelist.net/character.php?q=Rocket%20Grunt&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Shiro**](https://myanimelist.net/character.php?q=Shiro&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
