@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I make my own decisions, and see them to the very end. I had to find my resolve, so I could remain true to myself."
+> "Okay, I'll talk! Take the elevator to see my boss!"
 
-&mdash; [**Saya Kisaragi**](https://myanimelist.net/character.php?q=Saya%20Kisaragi&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
+&mdash; [**Rocket Grunt**](https://myanimelist.net/character.php?q=Rocket%20Grunt&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
