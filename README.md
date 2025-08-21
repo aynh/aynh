@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you trip while running down a hallway, you'll get a nosebleed. If you trip in life, you'll cry."
+> "Only frustrated adults and naive kids believe themselves to be special."
 
-&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Kiyomasa Senji**](https://myanimelist.net/character.php?q=Kiyomasa%20Senji&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
