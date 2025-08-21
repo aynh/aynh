@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's amazing how much you kiss your own ass."
+> "I make my own decisions, and see them to the very end. I had to find my resolve, so I could remain true to myself."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Saya Kisaragi**](https://myanimelist.net/character.php?q=Saya%20Kisaragi&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
