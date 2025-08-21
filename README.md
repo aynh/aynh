@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only frustrated adults and naive kids believe themselves to be special."
+> "If an angelic being fell from the sky and tried to live in this world of ours, I think even they would commit many wrongs."
 
-&mdash; [**Kiyomasa Senji**](https://myanimelist.net/character.php?q=Kiyomasa%20Senji&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Juuzou Suzuya**](https://myanimelist.net/character.php?q=Juuzou%20Suzuya&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
