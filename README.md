@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If an angelic being fell from the sky and tried to live in this world of ours, I think even they would commit many wrongs."
+> "I'll always be by your side, just like the wind that flows through your hair."
 
-&mdash; [**Juuzou Suzuya**](https://myanimelist.net/character.php?q=Juuzou%20Suzuya&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Kazuma Yagami**](https://myanimelist.net/character.php?q=Kazuma%20Yagami&cat=character), [**Kaze no Stigma**](https://myanimelist.net/search/all?q=Kaze%20no%20Stigma&cat=all)
