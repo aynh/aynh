@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think having a dream, working hard, and never giving up couldn't possibly bring misfortune."
+> "If anybody's out there, you can come out. And if you're a monster or a ghost, you can stay where you are, and we won't bother you."
 
-&mdash; [**Miho Azuki**](https://myanimelist.net/character.php?q=Miho%20Azuki&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
