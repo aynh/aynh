@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know why people stress over things? Because there aren't any easy answers."
+> "Rather than not doing anything and regretting it, we should do something and regret it."
 
-&mdash; [**Ai Kotani**](https://myanimelist.net/character.php?q=Ai%20Kotani&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Yakumo Tsukamoto**](https://myanimelist.net/character.php?q=Yakumo%20Tsukamoto&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
