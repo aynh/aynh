@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ah... Everything is such a bother. Even living."
+> "I thought that, if I could shorten the distance between us, and if you would like me back, then the me that ran away - the dirty me - would be washed away. (To Kyo)"
 
-&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka? of the Dead**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F%20of%20the%20Dead&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
