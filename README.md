@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it's the army's job to end a war, it's the king's job to find a place for it to end."
+> "I can't compete with Kikyo, because, after all, I'm still alive"
 
-&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
+&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
