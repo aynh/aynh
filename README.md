@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "First, we are born in the same galaxy. Born of the same species. Our lifetimes overlap. The meetings between humans are so unlikely as to be miraculous. To laugh, to cry, and to fall in love... Everyone is made up of a collection of 1% chances. Thus, I'm dazzled by the fact that there are so many miracles in this world."
+> "However, I can't be happy. I feel I can't have that experience, I can't assume I will have that experience. I'm free, but feeling lonely and disheartened. I hope there's happiness out there. Besides, the future is approaching and waiting for me. In the future, I will be a part of the world. I will finally live my life."
 
-&mdash; [**Kou Ichinomiya**](https://myanimelist.net/character.php?q=Kou%20Ichinomiya&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
+&mdash; [**Sohma Momiji**](https://myanimelist.net/character.php?q=Sohma%20Momiji&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
