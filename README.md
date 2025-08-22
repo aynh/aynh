@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Red is supposed to be the color of fate, right? Even if its annoying right now, it might connect to something good when you least expect it."
+> "Not knowing everything in this world is fun."
 
-&mdash; [**Zen Wistalia**](https://myanimelist.net/character.php?q=Zen%20Wistalia&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
+&mdash; [**Akise Aru**](https://myanimelist.net/character.php?q=Akise%20Aru&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
