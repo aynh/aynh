@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing amazing happens here. Only the ordinary."
+> "Everytime Otani says or does something, I end up going to heaven, or hell."
 
-&mdash; [**Naota Nandaba**](https://myanimelist.net/character.php?q=Naota%20Nandaba&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
