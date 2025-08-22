@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't compete with Kikyo, because, after all, I'm still alive"
+> "Obviously you are underestimating Kurama. Do you know why I chose him to be my partner? To avoid fighting him myself. Watch, he's more cut-throat then I am when it comes to battle, and unbelievably precise."
 
-&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
