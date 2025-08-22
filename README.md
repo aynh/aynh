@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Leaf Village Secret-Finger Justu...1,000 Years of Death!!! *sticks his fingers up Naruto's ass*"
+> "The country? the skies? You can have them. I'm busy just protecting what's right in front of me. I don't know what'll happen to me in the future, but if something has fallen at my feet, then the least I can do is pick it up."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
