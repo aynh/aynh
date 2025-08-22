@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Having too many bonds causes one to lose focus, weakening their strongest wish, their greatest desire."
+> "Your so called 'hope' is to throw the past into despair?"
 
-&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
