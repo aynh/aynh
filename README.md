@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is a magnificent thing but, incidentally, it can also give birth to dreadful tragedy."
+> "See, 'empty' just means you have plenty of room to take in all kinds of new things. Fun things, precious things, painful things, things you've never seen before!"
 
-&mdash; [**Vincent Phantomhive**](https://myanimelist.net/character.php?q=Vincent%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Hana N. Fontainestand**](https://myanimelist.net/character.php?q=Hana%20N.%20Fontainestand&cat=character), [**Hanayamata**](https://myanimelist.net/search/all?q=Hanayamata&cat=all)
