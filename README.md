@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We ultimately fear what spawns from within us."
+> "Life isn't just doing things for yourself. It's possible to live in such a way that other people's happiness, makes you happy too."
 
-&mdash; [**Shun Aonuma**](https://myanimelist.net/character.php?q=Shun%20Aonuma&cat=character), [**Shinsekai Yori**](https://myanimelist.net/search/all?q=Shinsekai%20Yori&cat=all)
+&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
