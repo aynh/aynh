@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why don't you buy paper books? E-books lack character."
+> "I am Justice! I protect the innocent and those who fear evil. I'm the one that will become the god of a new world that every one desires!"
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
