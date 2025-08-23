@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Making sure I have no regrets... that would just be self-serving, nothing more. It's all right. I mean, this is a great memory in itself, right?"
+> "Even if everyone in the whole world dies, I won't care, as long as my beloved survives."
 
-&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Shinra Kishitani**](https://myanimelist.net/character.php?q=Shinra%20Kishitani&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
