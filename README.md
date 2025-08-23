@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People become stronger because they have things they cannot forget. That's what you call growth."
+> "I hate, hate, hate everyone."
 
-&mdash; [**Tsunade**](https://myanimelist.net/character.php?q=Tsunade&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
