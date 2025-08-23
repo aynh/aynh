@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can't remember something, it is merely because it was not worth remembering."
+> "GOOD MOOOORNING ICHIGOOOOOO!!!!"
 
-&mdash; [**Riō Satomi**](https://myanimelist.net/character.php?q=Ri%C5%8D%20Satomi&cat=character), [**Hakkenden: Eight Dogs of the East TV 2**](https://myanimelist.net/search/all?q=Hakkenden%3A%20Eight%20Dogs%20of%20the%20East%20TV%202&cat=all)
+&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
