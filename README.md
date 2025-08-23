@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life isn't just doing things for yourself. It's possible to live in such a way that other people's happiness, makes you happy too."
+> "Hmm... never noticed those before *after accidently groping Momiji's chest*."
 
-&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Mamoru Kusanagi**](https://myanimelist.net/character.php?q=Mamoru%20Kusanagi&cat=character), [**Blue Seed**](https://myanimelist.net/search/all?q=Blue%20Seed&cat=all)
