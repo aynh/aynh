@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "See, 'empty' just means you have plenty of room to take in all kinds of new things. Fun things, precious things, painful things, things you've never seen before!"
+> "Making sure I have no regrets... that would just be self-serving, nothing more. It's all right. I mean, this is a great memory in itself, right?"
 
-&mdash; [**Hana N. Fontainestand**](https://myanimelist.net/character.php?q=Hana%20N.%20Fontainestand&cat=character), [**Hanayamata**](https://myanimelist.net/search/all?q=Hanayamata&cat=all)
+&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
