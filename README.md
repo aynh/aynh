@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hmm... never noticed those before *after accidently groping Momiji's chest*."
+> "Ugly people shouldn't be allowed to smile that much!"
 
-&mdash; [**Mamoru Kusanagi**](https://myanimelist.net/character.php?q=Mamoru%20Kusanagi&cat=character), [**Blue Seed**](https://myanimelist.net/search/all?q=Blue%20Seed&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
