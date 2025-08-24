@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Remote islands are all about strange incidents, right?"
+> "Getting kicked out of school won't kill me, but losing my way of life most certainly will."
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Shikishima Kiriko**](https://myanimelist.net/character.php?q=Shikishima%20Kiriko&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
