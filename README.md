@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We cannot direct the wind, but we can adjust the sails."
+> "Naked lady!"
 
-&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
