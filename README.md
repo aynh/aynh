@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look straight at the people you kill; don't take your eyes off them for a second. And don't ever forget them because they won't forget you."
+> "If we are frightened, the people behind us will be, as well. You must be a shining star... that washes away fear, so that those behind you wil not be afraid!"
 
-&mdash; [**Solf J. Kimblee**](https://myanimelist.net/character.php?q=Solf%20J.%20Kimblee&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Genjuurou Tsukishima**](https://myanimelist.net/character.php?q=Genjuurou%20Tsukishima&cat=character), [**Mushibugyou**](https://myanimelist.net/search/all?q=Mushibugyou&cat=all)
