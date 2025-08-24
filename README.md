@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Compared to a man as big as me you realize how small you are, don't you? I understand how you feel. Even I can be frightened by my own greatness. So I find it difficult to stand in front of mirrors."
+> "Somewhere, that’s not here, in a place I can’t remember, I was obsessed with the idea that I was all alone. I thought that nobody would care, or even miss me if I vanished from the face of the Earth. I wanted to disappear. Then I had a dream about falling from the sky. I just remember that the bird was in the dream with me, and that the bird was someone in the form of a bird, trying to call me back. I now know that I was never alone."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Rakka**](https://myanimelist.net/character.php?q=Rakka&cat=character), [**Haibane Renmei**](https://myanimelist.net/search/all?q=Haibane%20Renmei&cat=all)
