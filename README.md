@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Getting kicked out of school won't kill me, but losing my way of life most certainly will."
+> "Whether you get mad, whether you laugh. The sun will set, morning will come. Each and every time, I'll just start over again."
 
-&mdash; [**Shikishima Kiriko**](https://myanimelist.net/character.php?q=Shikishima%20Kiriko&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Atsuhiro Maeda**](https://myanimelist.net/character.php?q=Atsuhiro%20Maeda&cat=character), [**Tari Tari**](https://myanimelist.net/search/all?q=Tari%20Tari&cat=all)
