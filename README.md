@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To hell with living a life of revenge, I'm me! I live for myself! You're not my sworn enemy or anything else. You're nothing but a putrid demon!"
+> "It's not good to expect too much, but you can't do anything if you're being overly pessimistic. If you just wait thinking it's useless, nothing will come of it."
 
-&mdash; [**Favaro Leone**](https://myanimelist.net/character.php?q=Favaro%20Leone&cat=character), [**Shingeki no Bahamut: Genesis**](https://myanimelist.net/search/all?q=Shingeki%20no%20Bahamut%3A%20Genesis&cat=all)
+&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
