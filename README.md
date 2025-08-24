@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Time' is proof that people have lived. Every person lives the time that has been given to them... that is life."
+> "Strive to consistently maintain the proper flow. That is the Tohsaka family motto. It means always remaining reserved and elegant."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Tohsaka Tokiomi**](https://myanimelist.net/character.php?q=Tohsaka%20Tokiomi&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
