@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether you get mad, whether you laugh. The sun will set, morning will come. Each and every time, I'll just start over again."
+> "The things I had to tell her...The things I hoped she would listen to...There were so many of them."
 
-&mdash; [**Atsuhiro Maeda**](https://myanimelist.net/character.php?q=Atsuhiro%20Maeda&cat=character), [**Tari Tari**](https://myanimelist.net/search/all?q=Tari%20Tari&cat=all)
+&mdash; [**Takaki Toono**](https://myanimelist.net/character.php?q=Takaki%20Toono&cat=character), [**5 Centimeters per Second**](https://myanimelist.net/search/all?q=5%20Centimeters%20per%20Second&cat=all)
