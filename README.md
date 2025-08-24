@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we are frightened, the people behind us will be, as well. You must be a shining star... that washes away fear, so that those behind you wil not be afraid!"
+> "There are things you can't see unless you change your standing."
 
-&mdash; [**Genjuurou Tsukishima**](https://myanimelist.net/character.php?q=Genjuurou%20Tsukishima&cat=character), [**Mushibugyou**](https://myanimelist.net/search/all?q=Mushibugyou&cat=all)
+&mdash; [**Trafalgar Law**](https://myanimelist.net/character.php?q=Trafalgar%20Law&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
