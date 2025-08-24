@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Naked lady!"
+> "Why have I come to have this conscience? If it’s this agonizing, I shouldn’t have had it. Just what am I?"
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Alcor**](https://myanimelist.net/character.php?q=Alcor&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
