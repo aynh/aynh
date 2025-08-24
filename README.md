@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Loathe me, o fierce deity. Accept and awaken to your maelstrom of hate...god of calamity, Yato!"
+> "There's nothing unusual here… The appropriate one stands in the appropriate place after the inappropriate ones have collapsed to the ground, defeated. There is nothing unexpected or odd about it. Because this is reality. Not one shred of uncertainty exists here. Not even fear, of course…"
 
-&mdash; [**Rabō**](https://myanimelist.net/character.php?q=Rab%C5%8D&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Asura**](https://myanimelist.net/character.php?q=Asura&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
