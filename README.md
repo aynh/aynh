@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Prodigies don't understand how the incompetent feel."
+> "He's seriously crazy, he must be insane."
 
-&mdash; [**Yun**](https://myanimelist.net/character.php?q=Yun&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
