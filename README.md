@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A Coma doesn't exist, it is a preparatory research for the next life."
+> "You shouldn't talk to yourself. People will wonder."
 
-&mdash; [**Fuura Kafuka**](https://myanimelist.net/character.php?q=Fuura%20Kafuka&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
