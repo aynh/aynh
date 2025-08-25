@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’m scared of hot and cold. In winter, I hide under the heating table and in summer, I lie in bed and do nothing."
+> "It is right for me, but not for you. Either way, the concept of 'right' means no more than that."
 
-&mdash; [**Yui Hirasawa**](https://myanimelist.net/character.php?q=Yui%20Hirasawa&cat=character), [**K-ON!**](https://myanimelist.net/search/all?q=K-ON!&cat=all)
+&mdash; [**Magata Shiki**](https://myanimelist.net/character.php?q=Magata%20Shiki&cat=character), [**Subete ga F ni Naru**](https://myanimelist.net/search/all?q=Subete%20ga%20F%20ni%20Naru&cat=all)
