@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Me? A liar? That's almost hurtful. I just don't feel like telling the whole truth."
+> "However, I can't be happy. I feel I can't have that experience, I can't assume I will have that experience. I'm free, but feeling lonely and disheartened. I hope there's happiness out there. Besides, the future is approaching and waiting for me. In the future, I will be a part of the world. I will finally live my life."
 
-&mdash; [**William Macbeth**](https://myanimelist.net/character.php?q=William%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Sohma Momiji**](https://myanimelist.net/character.php?q=Sohma%20Momiji&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
