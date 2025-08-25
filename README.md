@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things you can't see unless you change your standing."
+> "A great enough sorrow can stop time, but someday, time will start moving again. No matter how many years may pass."
 
-&mdash; [**Trafalgar Law**](https://myanimelist.net/character.php?q=Trafalgar%20Law&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Grandmother Sawatari**](https://myanimelist.net/character.php?q=Grandmother%20Sawatari&cat=character), [**Tamayura**](https://myanimelist.net/search/all?q=Tamayura&cat=all)
