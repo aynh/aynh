@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop looking at my soul you creep!"
+> "I’m scared of hot and cold. In winter, I hide under the heating table and in summer, I lie in bed and do nothing."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Yui Hirasawa**](https://myanimelist.net/character.php?q=Yui%20Hirasawa&cat=character), [**K-ON!**](https://myanimelist.net/search/all?q=K-ON!&cat=all)
