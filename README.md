@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "However, I can't be happy. I feel I can't have that experience, I can't assume I will have that experience. I'm free, but feeling lonely and disheartened. I hope there's happiness out there. Besides, the future is approaching and waiting for me. In the future, I will be a part of the world. I will finally live my life."
+> "Mom taught me that people's differences are something to celebrate. When I thought of all the different shapes of human kindness -- imagining them as round or square...I got really excited. Your kindness is like a candle Sohma-kun. I can feel it light up, and I just want to smile. It's that kind of kindness."
 
-&mdash; [**Sohma Momiji**](https://myanimelist.net/character.php?q=Sohma%20Momiji&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
