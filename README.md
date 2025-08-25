@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Loving someone means entrusting all of yourself to that person."
+> "Me? A liar? That's almost hurtful. I just don't feel like telling the whole truth."
 
-&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**William Macbeth**](https://myanimelist.net/character.php?q=William%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
