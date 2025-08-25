@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He's seriously crazy, he must be insane."
+> "You meet someone and then part ways. It’s a natural part of the human experience. No one can promise they’ll be together forever."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Nana**](https://myanimelist.net/character.php?q=Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
