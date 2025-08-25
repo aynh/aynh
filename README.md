@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You meet someone and then part ways. It’s a natural part of the human experience. No one can promise they’ll be together forever."
+> "Don't believe in the me that believe in you, don't believe in the you that believes in me, believe in yourself who believes in you!"
 
-&mdash; [**Nana**](https://myanimelist.net/character.php?q=Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Kamina**](https://myanimelist.net/character.php?q=Kamina&cat=character), [**Gurren Lagann**](https://myanimelist.net/search/all?q=Gurren%20Lagann&cat=all)
