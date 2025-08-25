@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is right for me, but not for you. Either way, the concept of 'right' means no more than that."
+> "Nanika, will you forgive me for being a bad big brother?"
 
-&mdash; [**Magata Shiki**](https://myanimelist.net/character.php?q=Magata%20Shiki&cat=character), [**Subete ga F ni Naru**](https://myanimelist.net/search/all?q=Subete%20ga%20F%20ni%20Naru&cat=all)
+&mdash; [**Killua Zoldyck**](https://myanimelist.net/character.php?q=Killua%20Zoldyck&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
