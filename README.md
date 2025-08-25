@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was too bent on fulfilling my objectives… I failed to see things from a larger perspective. I failed to build up a good relationship with them."
+> "To become Hokage is my dream!"
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
