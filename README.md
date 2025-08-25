@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The weather's nice and the breeze feels good. The little birds are making their cute chirping sounds. Perhaps people nowadays have forgotten how wonderful nature is... Yes, don't you think it's a waste to not feel it with your entire body like this?"
+> "A Coma doesn't exist, it is a preparatory research for the next life."
 
-&mdash; [**Tanaka**](https://myanimelist.net/character.php?q=Tanaka&cat=character), [**Tanaka-kun wa Itsumo Kedaruge**](https://myanimelist.net/search/all?q=Tanaka-kun%20wa%20Itsumo%20Kedaruge&cat=all)
+&mdash; [**Fuura Kafuka**](https://myanimelist.net/character.php?q=Fuura%20Kafuka&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
