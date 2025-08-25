@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I do...want to be with you...I want to be with you...! (To Tohru and Arisa)"
+> "Prodigies don't understand how the incompetent feel."
 
-&mdash; [**Saki Hanajima**](https://myanimelist.net/character.php?q=Saki%20Hanajima&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Yun**](https://myanimelist.net/character.php?q=Yun&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
