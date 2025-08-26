@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I must find a place to pawn this off."
+> "If you want to grow just look above you, there are plenty of people perfect to serve as fodder for your growth."
 
-&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Kojirō Shinomiya**](https://myanimelist.net/character.php?q=Kojir%C5%8D%20Shinomiya&cat=character), [**Shokugeki no Sōma**](https://myanimelist.net/search/all?q=Shokugeki%20no%20S%C5%8Dma&cat=all)
