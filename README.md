@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's because Sakura loves Sasuke that she doesn't want him to sink any lower. It's because she loves him that she wants to rescue him from the evil path he currently walks. Even if the only way to do it is to kill him with her own two hands, I believe, she's prepared to do it because she loves him."
+> "[to Toboe] I wanted to take you to paradise."
 
-&mdash; [**Sai**](https://myanimelist.net/character.php?q=Sai&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
