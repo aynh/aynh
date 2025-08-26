@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end, people are all alone, and no matter how close they cling together, they can never be one. It's impossible to make someone belong to you."
+> "Humans are easily tempted. When they are poised on the edge of hellish despair, and a spider-thin thread of salvation presents itself, they will invariably grasp it. No matter the human."
 
-&mdash; [**Yasushi Takagi**](https://myanimelist.net/character.php?q=Yasushi%20Takagi&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
