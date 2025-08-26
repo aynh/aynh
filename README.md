@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say some defeats are meaningful and losing makes you stronger. Do you understand what that means? For living creatures victory is life, and defeat means death. It's an extreme example, but humans retain that instinct. Those who know the terror of defeat, hunger for victory."
+> "Someone told me this: 'Nothing is 'forever' in human relationships'. That might be true, but it sounds awfully lonely. But I realized today... If there really is no such thing as 'forever'... Then having someone important is the happiest thing one can attain in life."
 
-&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Yukino Miyashita**](https://myanimelist.net/character.php?q=Yukino%20Miyashita&cat=character), [**Octave**](https://myanimelist.net/search/all?q=Octave&cat=all)
