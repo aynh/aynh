@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you have a power, sometimes you are put into a situation which make you carry extra burdens, and live all your life with pain."
+> "Life is a succession of committing sin. Life is evil itself. I'm conscious that I'm evil. And so are all of you."
 
-&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Yoshimura**](https://myanimelist.net/character.php?q=Yoshimura&cat=character), [**Tokyo Ghoul √A**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%20%E2%88%9AA&cat=all)
