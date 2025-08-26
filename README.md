@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to grow just look above you, there are plenty of people perfect to serve as fodder for your growth."
+> "Oh, it IS a chore. Risking your life and keeping busy are all the same!"
 
-&mdash; [**Kojirō Shinomiya**](https://myanimelist.net/character.php?q=Kojir%C5%8D%20Shinomiya&cat=character), [**Shokugeki no Sōma**](https://myanimelist.net/search/all?q=Shokugeki%20no%20S%C5%8Dma&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
