@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I do not hate you. However, to protect our peaceful existence, there is no other way!"
+> "I'll always be by your side, just like the wind that flows through your hair."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kazuma Yagami**](https://myanimelist.net/character.php?q=Kazuma%20Yagami&cat=character), [**Kaze no Stigma**](https://myanimelist.net/search/all?q=Kaze%20no%20Stigma&cat=all)
