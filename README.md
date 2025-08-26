@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someone told me this: 'Nothing is 'forever' in human relationships'. That might be true, but it sounds awfully lonely. But I realized today... If there really is no such thing as 'forever'... Then having someone important is the happiest thing one can attain in life."
+> "No one cared who I was until I put on a mask."
 
-&mdash; [**Yukino Miyashita**](https://myanimelist.net/character.php?q=Yukino%20Miyashita&cat=character), [**Octave**](https://myanimelist.net/search/all?q=Octave&cat=all)
+&mdash; [**Obito Uchiha**](https://myanimelist.net/character.php?q=Obito%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
