@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is the point if those with the means and power do not fight?"
+> "No matter how hard you blow, you can never extinguish our fire. As long as a single flare remains, the others can be relit."
 
-&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
