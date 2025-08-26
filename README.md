@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What the hell was that? All my punches were solid, but he brushed them aside like broccoli he didn't order! Didn't even give me a chance to kick his ass!"
+> "I do not hate you. However, to protect our peaceful existence, there is no other way!"
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
