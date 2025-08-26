@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how hard you blow, you can never extinguish our fire. As long as a single flare remains, the others can be relit."
+> "They're human beings who are more appealing that real girls with warm blood flowing through their veins! That's what you have to be!"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Tomoya Aki**](https://myanimelist.net/character.php?q=Tomoya%20Aki&cat=character), [**Saenai Heroine no Sodatekata**](https://myanimelist.net/search/all?q=Saenai%20Heroine%20no%20Sodatekata&cat=all)
