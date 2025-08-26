@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The first person to love the other, is considered as a loser."
+> "A fallen angel banished from heaven, arises into the light to be recieved by the benevolence of God..."
 
-&mdash; [**Hikari Hanazono**](https://myanimelist.net/character.php?q=Hikari%20Hanazono&cat=character), [**Special A**](https://myanimelist.net/search/all?q=Special%20A&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
