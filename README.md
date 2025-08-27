@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Spring will be here soon. Spring, the season I met you, is coming. A Spring without you...is coming."
+> "The word 'discipline' is something that I would never give up, no matter what. But it's not because it is my pride that I will not give it up. It's because I cannot give it up, that's why it is my pride."
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
