@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let's face the truth, without relying on any dreamlike power."
+> "Donato has to keep proving himself. He wants to prove just how valuable he is. Isn't that the case with you as well? Because you are the same as Donato. All you're doing is indulging in this twisted self-value that you have to yourself. And if you don't, you won't last. Eventually, you will break and become useless. Once that happens, you'll break and become discarded."
 
-&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul:re**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%3Are&cat=all)
