@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What are humans’ desires? What I think the most troublesome desire is the desire for attention. It’s the source of jealousy and relationship problems, too."
+> "The scenery is so peaceful, you'd never think that wars were happening and people were dying around the world. If only this scenery could continue forever. But even if a time should come when I can no longer enjoy this scenery, as long as everyone is with me, I'll be fine. That's what I think today."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Meiko Inoue**](https://myanimelist.net/character.php?q=Meiko%20Inoue&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
