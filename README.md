@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The word 'discipline' is something that I would never give up, no matter what. But it's not because it is my pride that I will not give it up. It's because I cannot give it up, that's why it is my pride."
+> "Miracles are irrational by nature."
 
-&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
