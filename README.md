@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Never trust anyone too much... Remember the devil was once an angel...'"
+> "*to Okita, who tells him that he should take his job more seriously* Shall I put you to sleep, ingrate?"
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul √A**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%20%E2%88%9AA&cat=all)
+&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
