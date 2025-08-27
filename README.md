@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Okita, who tells him that he should take his job more seriously* Shall I put you to sleep, ingrate?"
+> "What are humans’ desires? What I think the most troublesome desire is the desire for attention. It’s the source of jealousy and relationship problems, too."
 
-&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
