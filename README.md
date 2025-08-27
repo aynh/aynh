@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Items to invent: Bed, massage chair, humidifier, rubber band, Rube Goldberg Machine, religion... Religions are invented? I've learned something new."
+> "Humans will wither away if they're always alone. The only remedy would be to seek out other people."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Misawa Kyouko**](https://myanimelist.net/character.php?q=Misawa%20Kyouko&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
