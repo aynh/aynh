@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fight with all your might. With those young kids, give your mind and heart a solid workout. Let your heart, which had dried up and gotten stiff, beat once more."
+> "Let's face the truth, without relying on any dreamlike power."
 
-&mdash; [**Yoake Ryou**](https://myanimelist.net/character.php?q=Yoake%20Ryou&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
