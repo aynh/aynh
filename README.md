@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans will wither away if they're always alone. The only remedy would be to seek out other people."
+> "Fight with all your might. With those young kids, give your mind and heart a solid workout. Let your heart, which had dried up and gotten stiff, beat once more."
 
-&mdash; [**Misawa Kyouko**](https://myanimelist.net/character.php?q=Misawa%20Kyouko&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Yoake Ryou**](https://myanimelist.net/character.php?q=Yoake%20Ryou&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
