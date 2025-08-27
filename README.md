@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even the hardest of things can shatter when one little crack appears."
+> "I'm Black Star. I'm on a whole different level than you. I'm a big man! I beat death! Who else can say that?!"
 
-&mdash; [**Sachi Nanjou**](https://myanimelist.net/character.php?q=Sachi%20Nanjou&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
