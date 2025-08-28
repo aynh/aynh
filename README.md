@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm no saint. A sense of duty, a sense of righteousness - they're just nuisances in life."
+> "It's easy to say 'choose so that you'll have no regrets,' but that's impossible. No matter how hard you've agonized over your path, you'll always regret something about it later. That's just how we humans are made. Which is why I think our true feelings are important. If you choose your path based on your true feelings, it'll hurt just a little less when you feel the same regret, right?"
 
-&mdash; [**Okajima Rokuro**](https://myanimelist.net/character.php?q=Okajima%20Rokuro&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
+&mdash; [**Glenn Radars**](https://myanimelist.net/character.php?q=Glenn%20Radars&cat=character), [**Rokudenashi Majutsu Koushi to Akashic Records**](https://myanimelist.net/search/all?q=Rokudenashi%20Majutsu%20Koushi%20to%20Akashic%20Records&cat=all)
