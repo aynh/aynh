@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let those who seek death find it."
+> "Time might separate us some day. But, even still, until then, let's stay together."
 
-&mdash; [**Father Willibald**](https://myanimelist.net/character.php?q=Father%20Willibald&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Hotaru Takegawa**](https://myanimelist.net/character.php?q=Hotaru%20Takegawa&cat=character), [**Hotarubi no Mori e**](https://myanimelist.net/search/all?q=Hotarubi%20no%20Mori%20e&cat=all)
