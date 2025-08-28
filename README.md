@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who say they don't know their own feelings are deluding themselves. It's because you refuse to accept what you're thinking deep down in your heart, you think you don't understand."
+> "Love is simply an electrical bug in the human neural circuit."
 
-&mdash; [**Kenji Yamaguchi**](https://myanimelist.net/character.php?q=Kenji%20Yamaguchi&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Akasaka Ryuunosuke**](https://myanimelist.net/character.php?q=Akasaka%20Ryuunosuke&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
