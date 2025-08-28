@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's easy to say 'choose so that you'll have no regrets,' but that's impossible. No matter how hard you've agonized over your path, you'll always regret something about it later. That's just how we humans are made. Which is why I think our true feelings are important. If you choose your path based on your true feelings, it'll hurt just a little less when you feel the same regret, right?"
+> "Let those who seek death find it."
 
-&mdash; [**Glenn Radars**](https://myanimelist.net/character.php?q=Glenn%20Radars&cat=character), [**Rokudenashi Majutsu Koushi to Akashic Records**](https://myanimelist.net/search/all?q=Rokudenashi%20Majutsu%20Koushi%20to%20Akashic%20Records&cat=all)
+&mdash; [**Father Willibald**](https://myanimelist.net/character.php?q=Father%20Willibald&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
