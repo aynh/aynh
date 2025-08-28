@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Isn’t it fine as long as you find it? Isn’t it fine as long as you find the next fun and happy moments again?"
+> "I'm no saint. A sense of duty, a sense of righteousness - they're just nuisances in life."
 
-&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Okajima Rokuro**](https://myanimelist.net/character.php?q=Okajima%20Rokuro&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
