@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time might separate us some day. But, even still, until then, let's stay together."
+> "Besides, it doesn't really matter, does it? Why should I care about appearances and labels anyway. It's what's on the inside that counts."
 
-&mdash; [**Hotaru Takegawa**](https://myanimelist.net/character.php?q=Hotaru%20Takegawa&cat=character), [**Hotarubi no Mori e**](https://myanimelist.net/search/all?q=Hotarubi%20no%20Mori%20e&cat=all)
+&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
