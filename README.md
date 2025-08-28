@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "God's not at home. He's on vacation at Vegas."
+> "And so it all begins. This boy's name is Yusuke. He's 14 years old and is supposed to be the hero of the story... but oddly enough, he's dead."
 
-&mdash; [**Eda**](https://myanimelist.net/character.php?q=Eda&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
+&mdash; [**Yu Yu Hakusho**](https://myanimelist.net/character.php?q=Yu%20Yu%20Hakusho&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
