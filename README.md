@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Obeying a superior you can't even believe doesn't make you loyal. You're just fooling yourself."
+> "God's not at home. He's on vacation at Vegas."
 
-&mdash; [**Olivier Mira Armstrong**](https://myanimelist.net/character.php?q=Olivier%20Mira%20Armstrong&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Eda**](https://myanimelist.net/character.php?q=Eda&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
