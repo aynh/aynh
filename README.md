@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who do not want to advance spiritually are fools."
+> "Don't be indecisive. Just go for it."
 
-&mdash; [**K**](https://myanimelist.net/character.php?q=K&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
+&mdash; [**Atsushi Otani**](https://myanimelist.net/character.php?q=Atsushi%20Otani&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
