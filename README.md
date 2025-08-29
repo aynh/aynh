@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Though possessing two eyes, most creatures can see but a single thing at a time."
+> "I've won. Exactly as planned."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
