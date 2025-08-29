@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[holds up juice box] How do you drink from this?"
+> "Giraffe! Giraffe! I love Giraffes!"
 
-&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
