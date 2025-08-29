@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not a matter of real or fake. These avatars are idols on the net. in other words - icons. Icons cannot solely exist through their own will. Neither Hayama nor Sugawara established their status on their own. They were able to become Talsiman and Spooky Boogie because their fans idolized them based on their own distorted perceptions. Their true feelings and colors are not the same as the ideals their characters represents. It's not surprising that a fan could do a better job than the real owners of playing the idol the fans expect to see."
+> "*To Herself* Hah. You know you're happy about it. Is she worried about me... because of the new virus going around? I figured she only ever had games and anime on her mind. I'm a little touched."
 
-&mdash; [**Kougami Shinya**](https://myanimelist.net/character.php?q=Kougami%20Shinya&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Kagami Hiiragi**](https://myanimelist.net/character.php?q=Kagami%20Hiiragi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
