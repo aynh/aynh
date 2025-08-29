@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Doesn't seem to matter how far I travel, my destiny is always followed by blood and gunsmoke. The result is always the same every time, mountains of death and debris."
+> "I just realized I love learning things that I don't know anything about. It sort of feels like I'm one step closer to my dream."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Midori Imai**](https://myanimelist.net/character.php?q=Midori%20Imai&cat=character), [**Shirobako**](https://myanimelist.net/search/all?q=Shirobako&cat=all)
