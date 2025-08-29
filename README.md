@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've won. Exactly as planned."
+> "I am crazy and stubborn."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Franky**](https://myanimelist.net/character.php?q=Franky&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
