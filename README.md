@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You tick me off. I hate short people anyway. And you're so impertinent for someone younger than me. It makes me want to break you."
+> "There is no encounter without meaning. I've encountered many people on my journey, and those meetings meant something."
 
-&mdash; [**Kankuro**](https://myanimelist.net/character.php?q=Kankuro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Cardfight!! Vanguard G**](https://myanimelist.net/character.php?q=Cardfight!!%20Vanguard%20G&cat=character), [**Cardfight!! Vanguard G**](https://myanimelist.net/search/all?q=Cardfight!!%20Vanguard%20G&cat=all)
