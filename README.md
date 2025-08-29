@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, hurting girls isn't one of my hobbies. That's why I'll make it my hobby to stomp on their cell phones. Hahahahahaha! I'm so bored of it now... it's no longer my hobby to stomp on cell phones."
+> "Irony abounds in warfare."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
