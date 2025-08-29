@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Giraffe! Giraffe! I love Giraffes!"
+> "Doesn't seem to matter how far I travel, my destiny is always followed by blood and gunsmoke. The result is always the same every time, mountains of death and debris."
 
-&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
