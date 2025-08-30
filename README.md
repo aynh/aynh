@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Shut up you! What's with that TV drama attitude?!"
+> "There are people in this world that enjoy being alone, but there isn't a single person who can bear solitude."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
