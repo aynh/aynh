@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your best friend is a... polar bear dog. Somehow that makes perfect sense."
+> "I vowed that earth would forever remain in peace. Since I made that vow, not a single threat has been made against earth. That’s all thanks to the fact that my name is known through the entire galaxy."
 
-&mdash; [**Mako**](https://myanimelist.net/character.php?q=Mako&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
+&mdash; [**Hercule**](https://myanimelist.net/character.php?q=Hercule&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
