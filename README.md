@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time will try to constantly try to catch up with you. And with a roar, it will overcome you. Do not look ahead. Hope only lies within the unforeseeable current that will close in from behind."
+> "Even if I did win, it was boring. How can it be interesting unless you win in an interesting way?"
 
-&mdash; [**Ginjo Kugo**](https://myanimelist.net/character.php?q=Ginjo%20Kugo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
