@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I won't run, I will stand and look ahead to what I must do, I must face the fear, I won't let it control me anymore, I will use my heart that holds my courage and my bravery to move me forward to what I must do."
+> "The weak are destined to lie beneath the boots of the strong. If that angers you, overcome your deficits."
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Esdeath**](https://myanimelist.net/character.php?q=Esdeath&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
