@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I vowed that earth would forever remain in peace. Since I made that vow, not a single threat has been made against earth. That’s all thanks to the fact that my name is known through the entire galaxy."
+> "It's game time!"
 
-&mdash; [**Hercule**](https://myanimelist.net/character.php?q=Hercule&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
