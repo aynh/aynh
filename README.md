@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's game time!"
+> "Humans can't live without memories, you know. Still, they can't live on memories alone. You have to awaken from your dreams eventually. Because dreams you don't awaken from eventually become sadness."
 
-&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Michiru**](https://myanimelist.net/character.php?q=Michiru&cat=character), [**Air**](https://myanimelist.net/search/all?q=Air&cat=all)
