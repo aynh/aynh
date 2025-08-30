@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now you know what fear does to you. In the face of death you thought."
+> "Your best friend is a... polar bear dog. Somehow that makes perfect sense."
 
-&mdash; [**Kasper Hekmatyar**](https://myanimelist.net/character.php?q=Kasper%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Mako**](https://myanimelist.net/character.php?q=Mako&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
