@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The beginning exists for the end and the end exists for the beginning."
+> "You have to fool your own people before you try to bluff the enemy."
 
-&mdash; [**Quon Kisaragi**](https://myanimelist.net/character.php?q=Quon%20Kisaragi&cat=character), [**RahXephon**](https://myanimelist.net/search/all?q=RahXephon&cat=all)
+&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
