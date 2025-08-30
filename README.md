@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more painful the memories one recollects, the better the laughter."
+> "Time will try to constantly try to catch up with you. And with a roar, it will overcome you. Do not look ahead. Hope only lies within the unforeseeable current that will close in from behind."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Ginjo Kugo**](https://myanimelist.net/character.php?q=Ginjo%20Kugo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
