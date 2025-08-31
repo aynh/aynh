@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans can't live without memories, you know. Still, they can't live on memories alone. You have to awaken from your dreams eventually. Because dreams you don't awaken from eventually become sadness."
+> "Why are you staring at me? Are you annoyed that I am the only one who has cake?"
 
-&mdash; [**Michiru**](https://myanimelist.net/character.php?q=Michiru&cat=character), [**Air**](https://myanimelist.net/search/all?q=Air&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
