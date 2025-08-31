@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't believe in anyone, nor do I believe in God. I just believe in myself."
+> "Death no longer terrifies man, the smell of blood is as common as the smell of white plums. So, he creates slavery and savagery... which surpasses the horror of dying."
 
-&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
