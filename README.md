@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is nothing more than a cultural idea attached to our pre-existing genetic needs to reproduce and gain recognition from our peers."
+> "Aren’t we family? Aren’t I like your family too? So it’s okay to cry if you’re having a hard time. Then I’ll do anything to help."
 
-&mdash; [**Akane Senri**](https://myanimelist.net/character.php?q=Akane%20Senri&cat=character), [**Rewrite**](https://myanimelist.net/search/all?q=Rewrite&cat=all)
+&mdash; [**Haruto Kirishima**](https://myanimelist.net/character.php?q=Haruto%20Kirishima&cat=character), [**Kimi no Iru Machi**](https://myanimelist.net/search/all?q=Kimi%20no%20Iru%20Machi&cat=all)
