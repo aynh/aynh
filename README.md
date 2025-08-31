@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, I wonder what the prince would do if he knew, you authorized Planet Vegeta’s destruction from the start?"
+> "In all things, I think having a dream requires having the resolve to struggle with reality."
 
-&mdash; [**Whis**](https://myanimelist.net/character.php?q=Whis&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Juui**](https://myanimelist.net/character.php?q=Juui&cat=character), [**Silver Spoon**](https://myanimelist.net/search/all?q=Silver%20Spoon&cat=all)
