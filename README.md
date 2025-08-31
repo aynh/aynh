@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death no longer terrifies man, the smell of blood is as common as the smell of white plums. So, he creates slavery and savagery... which surpasses the horror of dying."
+> "Love is nothing more than a cultural idea attached to our pre-existing genetic needs to reproduce and gain recognition from our peers."
 
-&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Akane Senri**](https://myanimelist.net/character.php?q=Akane%20Senri&cat=character), [**Rewrite**](https://myanimelist.net/search/all?q=Rewrite&cat=all)
