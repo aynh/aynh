@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In all things, I think having a dream requires having the resolve to struggle with reality."
+> "The dead can't talk."
 
-&mdash; [**Juui**](https://myanimelist.net/character.php?q=Juui&cat=character), [**Silver Spoon**](https://myanimelist.net/search/all?q=Silver%20Spoon&cat=all)
+&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
