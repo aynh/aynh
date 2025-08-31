@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death is to good for trash like you. This is your punishment which is even harder than death. Atone for your sin by living... A life of fulfillment."
+> "The world just exists to hurt people and to be conquered. To survive, you mow down your enemies and take what you want."
 
-&mdash; [**Ogami Rei**](https://myanimelist.net/character.php?q=Ogami%20Rei&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
+&mdash; [**Livius Orvinus Ifrikia**](https://myanimelist.net/character.php?q=Livius%20Orvinus%20Ifrikia&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
