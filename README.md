@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why are you staring at me? Are you annoyed that I am the only one who has cake?"
+> "Even though we are going to shatter thousands of lives, wearing white is gonna make the blood look so pretty."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Ladd Russo**](https://myanimelist.net/character.php?q=Ladd%20Russo&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
