@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm hungry! can we just get his damn zombie soul already?"
+> "Well, I wonder what the prince would do if he knew, you authorized Planet Vegeta’s destruction from the start?"
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Whis**](https://myanimelist.net/character.php?q=Whis&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
