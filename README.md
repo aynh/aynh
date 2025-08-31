@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's amazing how every time you open your mouth, you manage to prove you're an idiot."
+> "I'm hungry! can we just get his damn zombie soul already?"
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
