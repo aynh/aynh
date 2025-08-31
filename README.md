@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world just exists to hurt people and to be conquered. To survive, you mow down your enemies and take what you want."
+> "No matter how careful your risk hedging is, there will still be holes in your plan! Realizing them and making sure that they are promptly dealt with, is the duty of those who stand at the top."
 
-&mdash; [**Livius Orvinus Ifrikia**](https://myanimelist.net/character.php?q=Livius%20Orvinus%20Ifrikia&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Reiji Akaba**](https://myanimelist.net/character.php?q=Reiji%20Akaba&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
