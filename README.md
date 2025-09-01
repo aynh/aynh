@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm surrounded by idiots."
+> "I fight to get what I need, and I kill whoever gets in my way. I always have."
 
-&mdash; [**Integra Hellsing**](https://myanimelist.net/character.php?q=Integra%20Hellsing&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
