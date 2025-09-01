@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not whether you can or not. You just do it."
+> "He realized that he had lost sight of something important. No matter what turn he took he should have kept singing. Even if his songs couldn’t save the world, he could still sing songs for her. Don’t ever lose sight of what’s important to you."
 
-&mdash; [**Kitahara Haruki**](https://myanimelist.net/character.php?q=Kitahara%20Haruki&cat=character), [**White Album 2**](https://myanimelist.net/search/all?q=White%20Album%202&cat=all)
+&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
