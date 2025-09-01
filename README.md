@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I fight to get what I need, and I kill whoever gets in my way. I always have."
+> "I wasn’t scared that I’d be rejected, I was scared that if I said how I felt, all of our relationships would change."
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Chisaki Hiradaira**](https://myanimelist.net/character.php?q=Chisaki%20Hiradaira&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
