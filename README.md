@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "True beauty lies in things that last forever, never rotting or fading."
+> "To kill the one you love... If someone else will do it anyway, I'd rather do it myself."
 
-&mdash; [**Sasori**](https://myanimelist.net/character.php?q=Sasori&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kurome**](https://myanimelist.net/character.php?q=Kurome&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
