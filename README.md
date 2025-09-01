@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I haven't done anything yet. Getting depressed and losing confidence is way too egotistical."
+> "It's not whether you can or not. You just do it."
 
-&mdash; [**Sorata Kanda**](https://myanimelist.net/character.php?q=Sorata%20Kanda&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Kitahara Haruki**](https://myanimelist.net/character.php?q=Kitahara%20Haruki&cat=character), [**White Album 2**](https://myanimelist.net/search/all?q=White%20Album%202&cat=all)
