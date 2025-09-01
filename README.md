@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is the best way to fill a gap in the heart."
+> "I think that education will prove the most powerful force in this world."
 
-&mdash; [**Elusia de Lute Ima**](https://myanimelist.net/character.php?q=Elusia%20de%20Lute%20Ima&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
