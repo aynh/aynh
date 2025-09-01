@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And so, the prince and the princess lived happily ever... Happily!? Happiness in stories is, at most, a trifling matter of a couple of lines at the end — the epitome of boredom. Now, show me a magnificent tragedy! A cataclysm of tears from which not one of the players is saved, and to which a happy ending never comes!"
+> "A man who inflicts suffering can't rest. His guilty mind won't allow it. But today, I can finally close my eyes to the living nightmare. And lay down, knowing that I won't wake again."
 
-&mdash; [**Drosselmeyer**](https://myanimelist.net/character.php?q=Drosselmeyer&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
+&mdash; [**Scar**](https://myanimelist.net/character.php?q=Scar&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
