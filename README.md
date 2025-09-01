@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(referring to the letter for Kisa from the teacher) Here. It says to 'like yourself'. But good things about yourself... how are you supposed to find them? I only know things I hate about myself. 'Cause that's all I know, I hate myself. But even if you force yourself to find good things... it feels so empty. It doesn't work that way. People like your teacher just don't get it. I think... when you hear someone say they like you, for the first time... then you can begin to like yourself. I think when someone accepts you, for the first time... you feel like you can... forgive yourself a little. You can begin to face your fears... with courage."
+> "I can’t shake the feeling that I’ve met you before, but I can’t remember where."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
