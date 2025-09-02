@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have to accept that who I want to become and who I can actually become are different."
+> "If you're not remembered, then you never existed."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Lain Iwakura**](https://myanimelist.net/character.php?q=Lain%20Iwakura&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
