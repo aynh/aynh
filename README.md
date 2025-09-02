@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Man or Child, Strong or Weak, None of those matter once you are out at sea!"
+> "Don't underestimate me! I don't quit and I don't run! You can act tough all you want! You're not gonna scare me off! No way! I don't care if I DO get stuck as a Genin for the rest of my life! I'll still be Hokage someday!"
 
-&mdash; [**Usopp**](https://myanimelist.net/character.php?q=Usopp&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
