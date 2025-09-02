@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "While we talk,  look forward to making up for all the time you've wasted looking back! We can start by talking about tomorrow. You can say anything like, whether you'll make Japanese or Western style breakfast tomorrow, or whether you'll put on your right or left shoe first. It can be something silly like that. No matter how silly it is, you can talk about tomorrow because you have a tomorrow."
+> "No, it can't be 7, say 8 damn it! 8 is better! It's physically impossible to cut the number 7 in half and make it symmetrical! It has to be 8 instead! 8 cut vertically or horizontally stays perfectly symmetrical! Take it back I beg of you! Please say 8, PLEASE!"
 
-&mdash; [**Subaru Natsuki**](https://myanimelist.net/character.php?q=Subaru%20Natsuki&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
