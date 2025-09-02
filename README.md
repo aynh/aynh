@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "God doesn't give us trials we can't surmount. So someday all your wounds will heal and the day will come when you've surmounted all your pain."
+> "Friends are like balloons. Once you let them go, you can't get them back. So I'm going to tie you to my heart, so to never lose you."
 
-&mdash; [**Mikage Celestine**](https://myanimelist.net/character.php?q=Mikage%20Celestine&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Alibaba Saluja**](https://myanimelist.net/character.php?q=Alibaba%20Saluja&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
