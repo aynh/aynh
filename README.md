@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Power is not the only connection you can have.  This world is filled with much warmer things."
+> "I pull the trigger. The gun goes off. Your brains splatter all over the sand. The beach gets bloody and you get dead."
 
-&mdash; [**Minerva Orland**](https://myanimelist.net/character.php?q=Minerva%20Orland&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Bando**](https://myanimelist.net/character.php?q=Bando&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
