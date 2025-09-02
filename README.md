@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no point in having physical strength alone. The real deal needs to have mental strength and will."
+> "I have to accept that who I want to become and who I can actually become are different."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
