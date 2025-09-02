@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Laziness is the mother of all bad habits. But ultimately she is a mother and we should respect her."
+> "Rumors, at times, can be more severe than the truth."
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
