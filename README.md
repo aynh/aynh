@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wasn’t scared that I’d be rejected, I was scared that if I said how I felt, all of our relationships would change."
+> "Discouraging, isn't it? It's always easier to tear down than to build... And much more difficult to tie than to untie."
 
-&mdash; [**Chisaki Hiradaira**](https://myanimelist.net/character.php?q=Chisaki%20Hiradaira&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
+&mdash; [**Ayasegawa Yumichika**](https://myanimelist.net/character.php?q=Ayasegawa%20Yumichika&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
