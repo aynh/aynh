@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "True freedom can't lean on anything. It's transient, lonely, and arduous."
+> "Your guilt will be your past and that will be your God."
 
-&mdash; [**Yoshii Kazuho**](https://myanimelist.net/character.php?q=Yoshii%20Kazuho&cat=character), [**Texhnolyze**](https://myanimelist.net/search/all?q=Texhnolyze&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
