@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Discouraging, isn't it? It's always easier to tear down than to build... And much more difficult to tie than to untie."
+> "God doesn't give us trials we can't surmount. So someday all your wounds will heal and the day will come when you've surmounted all your pain."
 
-&mdash; [**Ayasegawa Yumichika**](https://myanimelist.net/character.php?q=Ayasegawa%20Yumichika&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Mikage Celestine**](https://myanimelist.net/character.php?q=Mikage%20Celestine&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
