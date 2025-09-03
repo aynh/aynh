@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In my family; Father, Mother, and Grandmother all hated each other. I was the trash can into which they dumped their hatred. That's why I only thought about beautiful and warm things, fun things. But after I met you, I understood. No matter how many beautiful stories I made, they were all lies. Because the person telling the stories, me, was an ugly and dirty creature."
+> "From the past... I always wanted to ask. God, why... Are you so unfair and extremely cruel? Why do you separate those who can fly... And those who cannot and bring them into existence? Why, in this one world... You made the effort to divide them into two and bring them together? In reality everyone was born with wings!.. Why didn't I realize that until now? It's not that those who can fly are able to fly, but that those who think of flying... Those who believe they can fly are the ones who can fly."
 
-&mdash; [**Miu Asakura**](https://myanimelist.net/character.php?q=Miu%20Asakura&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
+&mdash; [**Rika Noyamano**](https://myanimelist.net/character.php?q=Rika%20Noyamano&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
