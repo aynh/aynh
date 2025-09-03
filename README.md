@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's impossible to feel exactly the same as someone else... but when you both care for each other, your hearts are able to draw a little closer together. I think that's what it means to make your hearts as one."
+> "You're always above everyone else. But you make decisions and move forward by yourself, and no one can keep up with you. Even the much-loved sun is alone if no one can reach it."
 
-&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Abeno Sousei**](https://myanimelist.net/character.php?q=Abeno%20Sousei&cat=character), [**Donten ni Warau**](https://myanimelist.net/search/all?q=Donten%20ni%20Warau&cat=all)
