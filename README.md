@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being a detective isn't about bringing someone down, but rather protecting someone."
+> "Someone who cannot hate something, cannot love something, either."
 
-&mdash; [**Kougami Shinya**](https://myanimelist.net/character.php?q=Kougami%20Shinya&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
