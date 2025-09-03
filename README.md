@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They are more like “people who don’t follow rules…” There are different kinds of people in different worlds! … Between you two and them, what is the difference? It isn’t unusual… to put it to an extreme… A hero during a war would be just another murderer in peaceful times."
+> "I was the only one who got an A ranking for the Public Safety Bureau. There were more than 500 students and I was the only one. So I thought that there must have been something that only I could do at the Bureau. If I went there, I thought I could find my purpose in life... I thought I'd be able to find out why I was born here and now!"
 
-&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Akane Tsunemori**](https://myanimelist.net/character.php?q=Akane%20Tsunemori&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
