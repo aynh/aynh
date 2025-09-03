@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The government is the sails, the people the wind, and the time the sea. As long as there is people to repair the ship, it can be used forever."
+> "It's impossible to feel exactly the same as someone else... but when you both care for each other, your hearts are able to draw a little closer together. I think that's what it means to make your hearts as one."
 
-&mdash; [**France**](https://myanimelist.net/character.php?q=France&cat=character), [**Hetalia The Beautiful World**](https://myanimelist.net/search/all?q=Hetalia%20The%20Beautiful%20World&cat=all)
+&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
