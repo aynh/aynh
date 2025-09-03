@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[repeatedly] Inuyasha, sit, boy."
+> "I placed this blade of grass in my mouth thinking I'd look cool. But it must be poison 'cause ith makinth ma mouth numb."
 
-&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
