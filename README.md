@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Instead of regretting what we cannot do, it is better to do what one can. Even for example, what you do has nothing to do with results, you must forge forward."
+> "*to Araragi* I'm suprised you know such useless things. This is the first time since birth that I've admired you."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
