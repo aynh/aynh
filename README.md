@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're always above everyone else. But you make decisions and move forward by yourself, and no one can keep up with you. Even the much-loved sun is alone if no one can reach it."
+> "It's when things are tough that you have to keep your head up high. You won't find hope lying on the ground."
 
-&mdash; [**Abeno Sousei**](https://myanimelist.net/character.php?q=Abeno%20Sousei&cat=character), [**Donten ni Warau**](https://myanimelist.net/search/all?q=Donten%20ni%20Warau&cat=all)
+&mdash; [**Inspector Sayama**](https://myanimelist.net/character.php?q=Inspector%20Sayama&cat=character), [**Zetman**](https://myanimelist.net/search/all?q=Zetman&cat=all)
