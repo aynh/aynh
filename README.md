@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's when things are tough that you have to keep your head up high. You won't find hope lying on the ground."
+> "They are more like “people who don’t follow rules…” There are different kinds of people in different worlds! … Between you two and them, what is the difference? It isn’t unusual… to put it to an extreme… A hero during a war would be just another murderer in peaceful times."
 
-&mdash; [**Inspector Sayama**](https://myanimelist.net/character.php?q=Inspector%20Sayama&cat=character), [**Zetman**](https://myanimelist.net/search/all?q=Zetman&cat=all)
+&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
