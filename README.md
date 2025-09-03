@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Reim* Like I said before!! To me, being blind is nothing! It's only because I had just woken up, that's why Oz found out. Give me 3 more days. By then, I'll have assimilated. Then I'll be recovered and everything will be like normal. Even if I were thrown in a midst of Pandora members, I have faith that I will be able to kill them all!"
+> "The government is the sails, the people the wind, and the time the sea. As long as there is people to repair the ship, it can be used forever."
 
-&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**France**](https://myanimelist.net/character.php?q=France&cat=character), [**Hetalia The Beautiful World**](https://myanimelist.net/search/all?q=Hetalia%20The%20Beautiful%20World&cat=all)
