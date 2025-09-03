@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someone who cannot hate something, cannot love something, either."
+> "While you're alive, you need a reason for your existence. Being unable to find one is the same as being dead."
 
-&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
