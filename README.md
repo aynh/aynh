@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If all you're good for is breathing in and out, then even an AC unit is more useful than you."
+> "You have no enemies. No one...Has any enemies. There is no one...That you should hurt"
 
-&mdash; [**Yukino Yukinoshita**](https://myanimelist.net/character.php?q=Yukino%20Yukinoshita&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Thors**](https://myanimelist.net/character.php?q=Thors&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
