@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "While you're alive, you need a reason for your existence. Being unable to find one is the same as being dead."
+> "[repeatedly] Inuyasha, sit, boy."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
