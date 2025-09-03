@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Araragi* I'm suprised you know such useless things. This is the first time since birth that I've admired you."
+> "[Kira thinks he has just killed Andrew Waltfeld and cries] It didn't have to end like this."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Kira Yamato**](https://myanimelist.net/character.php?q=Kira%20Yamato&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
