@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People's mind are like alien existence. We don't know where they are, and we can barely scratch the surface of what they really are."
+> "Geniuses don't understand the feelings of people who aren't able to do something."
 
-&mdash; [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/character.php?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
+&mdash; [**Akatsuki no Yona**](https://myanimelist.net/character.php?q=Akatsuki%20no%20Yona&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
