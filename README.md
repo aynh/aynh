@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Geniuses don't understand the feelings of people who aren't able to do something."
+> "Death by sword. Death by broken bones. Death by crushing. There's not much difference, right? You die at the end."
 
-&mdash; [**Akatsuki no Yona**](https://myanimelist.net/character.php?q=Akatsuki%20no%20Yona&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Ainz Ooal Gown**](https://myanimelist.net/character.php?q=Ainz%20Ooal%20Gown&cat=character), [**Overlord**](https://myanimelist.net/search/all?q=Overlord&cat=all)
