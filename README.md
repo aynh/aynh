@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Angels banished from heaven have no choice but to become devils."
+> "Foolish alchemists who have turned their backs on the ways of God...shall all be punished."
 
-&mdash; [**Vicious**](https://myanimelist.net/character.php?q=Vicious&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Scar**](https://myanimelist.net/character.php?q=Scar&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
