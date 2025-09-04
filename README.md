@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't intentionally ignore anyone. Their words simply don't resonate with me."
+> "Because we can’t understand each other, it makes us want to make things clear even more."
 
-&mdash; [**Asaba Yuki**](https://myanimelist.net/character.php?q=Asaba%20Yuki&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
+&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
