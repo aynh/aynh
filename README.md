@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One more word Shigure and the entire publishing industry will know every embarrassing thing you've done since you were four."
+> "You don't have to be reasonable when you're in love."
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Emi Yusa**](https://myanimelist.net/character.php?q=Emi%20Yusa&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
