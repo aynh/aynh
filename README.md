@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world consists of 'choices', in other words, it consists of continual gamble. Other guys are not aware of this. Thus they moved about in confusion."
+> "There are some people who don't want a solution. Some want things to stay the way they are. There's no way to make things convenient for everyone. So the only option is to find a compromise."
 
-&mdash; [**Ikazuchi Akatsuki**](https://myanimelist.net/character.php?q=Ikazuchi%20Akatsuki&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
