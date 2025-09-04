@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't trust the boy who cries wolf - in other words, a child who lies, your sheep and goats will all get eaten. But who gives a damn about moral lectures. The important part is that because the boy believed in his lies, he really brought a wolf to the village. You can't deny that! *to Niwa Makoto*"
+> "People's mind are like alien existence. We don't know where they are, and we can barely scratch the surface of what they really are."
 
-&mdash; [**Yashiro Hoshimiya**](https://myanimelist.net/character.php?q=Yashiro%20Hoshimiya&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
+&mdash; [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/character.php?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
