@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You and I, our levels are as distant as the earth from the heavens. Must I spell it out for you? I have discarded my left arm, discarded my left leg, and yet even then I have not nearly lowered myself to your level."
+> "If you pull your sword in a place like this, I'll just have to stop you, won't I?"
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
