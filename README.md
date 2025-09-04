@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you pull your sword in a place like this, I'll just have to stop you, won't I?"
+> "The world consists of 'choices', in other words, it consists of continual gamble. Other guys are not aware of this. Thus they moved about in confusion."
 
-&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ikazuchi Akatsuki**](https://myanimelist.net/character.php?q=Ikazuchi%20Akatsuki&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
