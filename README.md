@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s only one certainty in life. A strong man stands above and conquers all!"
+> "The truth is, there are no lives that are nothing but pretty."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Nona**](https://myanimelist.net/character.php?q=Nona&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
