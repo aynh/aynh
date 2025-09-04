@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death by sword. Death by broken bones. Death by crushing. There's not much difference, right? You die at the end."
+> "It's not like I'm pessimistic or anything... I'm just moving forward without looking back."
 
-&mdash; [**Ainz Ooal Gown**](https://myanimelist.net/character.php?q=Ainz%20Ooal%20Gown&cat=character), [**Overlord**](https://myanimelist.net/search/all?q=Overlord&cat=all)
+&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
