@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Kira thinks he has just killed Andrew Waltfeld and cries] It didn't have to end like this."
+> "There’s only one certainty in life. A strong man stands above and conquers all!"
 
-&mdash; [**Kira Yamato**](https://myanimelist.net/character.php?q=Kira%20Yamato&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
