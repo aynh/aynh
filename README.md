@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kill me. Make it quick. I no longer have the strength left in me to even walk. If you do not cut me down now, then this will go unsettled for eternity."
+> "Angels banished from heaven have no choice but to become devils."
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Vicious**](https://myanimelist.net/character.php?q=Vicious&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
