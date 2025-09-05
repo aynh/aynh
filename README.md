@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We have a proud tradition of failure to uphold!"
+> "*To Herself* Hah. You know you're happy about it. Is she worried about me... because of the new virus going around? I figured she only ever had games and anime on her mind. I'm a little touched."
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Kagami Hiiragi**](https://myanimelist.net/character.php?q=Kagami%20Hiiragi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
