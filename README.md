@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We have to find a way to face this scar."
+> "If you have memories no one else remembers, what's the point in remembering them?"
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Liu Cheng-Long**](https://myanimelist.net/character.php?q=Liu%20Cheng-Long&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
