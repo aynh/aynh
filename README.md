@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are but men, drawn to act in the name of revenge that we deem to be justice. But... if there is justice in revenge then that same justice will breed only more revenge... and trigger a cycle of hatred."
+> "We have to find a way to face this scar."
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
