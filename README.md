@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Symmetry is key everything must be esthetically pleasing. That's why I use the two of you as twin pistols in order to preserve symmetry. When I hold you both I'm completely balanced on the right and left. It isn't perfect because your human forms are so different from each other though. Your hair styles and height for example. Even your boobs are different sizes!"
+> "People who abuse power they were born into piss me off more than anything else."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Mine**](https://myanimelist.net/character.php?q=Mine&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
