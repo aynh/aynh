@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no such thing as a perfect person. That is why we cannot live alone."
+> "I'm going to keep fighting until this world is the way it should be. Until the world is balanced."
 
-&mdash; [**Chichiri**](https://myanimelist.net/character.php?q=Chichiri&cat=character), [**Fushigi Yuugi**](https://myanimelist.net/search/all?q=Fushigi%20Yuugi&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
