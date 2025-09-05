@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whoever smelt it dealt it!"
+> "Symmetry is key everything must be esthetically pleasing. That's why I use the two of you as twin pistols in order to preserve symmetry. When I hold you both I'm completely balanced on the right and left. It isn't perfect because your human forms are so different from each other though. Your hair styles and height for example. Even your boobs are different sizes!"
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
