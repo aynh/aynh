@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who abuse power they were born into piss me off more than anything else."
+> "Well, if they're dead, then that's the end of it. Crying about it gets you nothing but an empty stomach"
 
-&mdash; [**Mine**](https://myanimelist.net/character.php?q=Mine&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Ylva**](https://myanimelist.net/character.php?q=Ylva&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
