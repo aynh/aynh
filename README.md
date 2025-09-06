@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Brush my teeth and go to sleep at night. Wake up and eat breakfast in the morning. People do those everywhere. When I realized that everyone did all these things on a daily basis, everything started to feel so boring."
+> "We mock their desperate wishes, and trample them like insects! Cowardly, base - we're more demonic than demons are! I'm just like them. I'm full of the same ugliness they were. This is how humans are. It's how we are, Sebastian!"
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji: Book of Circus**](https://myanimelist.net/search/all?q=Kuroshitsuji%3A%20Book%20of%20Circus&cat=all)
