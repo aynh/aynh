@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People live in order to be satisfied. And they hope to die while still satisfied. So, not knowing how to make yourself become satisfied is very tough."
+> "I can kill anything that exists - even if it's a god."
 
-&mdash; [**Ushiromiya Ange**](https://myanimelist.net/character.php?q=Ushiromiya%20Ange&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Ryougi Shiki**](https://myanimelist.net/character.php?q=Ryougi%20Shiki&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
