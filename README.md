@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every day, the words cross my mind.  'If I had done this back then...' but they don't take the sincere form of regret.  The words are just an excuse that come to my mind then disappear."
+> "If dying is the only way to get my freedom... Then I'm willing to die right now. And then I'll stop caring about people around me. Because they didn't care about me from the very start anyway."
 
-&mdash; [**Satoru Fujinuma**](https://myanimelist.net/character.php?q=Satoru%20Fujinuma&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
+&mdash; [**Aoyagi Ritsuka**](https://myanimelist.net/character.php?q=Aoyagi%20Ritsuka&cat=character), [**Loveless**](https://myanimelist.net/search/all?q=Loveless&cat=all)
