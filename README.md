@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We mock their desperate wishes, and trample them like insects! Cowardly, base - we're more demonic than demons are! I'm just like them. I'm full of the same ugliness they were. This is how humans are. It's how we are, Sebastian!"
+> "It's overpriced, but that's okay, HERE'S YOUR CHANGE!"
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji: Book of Circus**](https://myanimelist.net/search/all?q=Kuroshitsuji%3A%20Book%20of%20Circus&cat=all)
+&mdash; [**Touji Suzuhara**](https://myanimelist.net/character.php?q=Touji%20Suzuhara&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
