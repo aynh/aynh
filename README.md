@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My role is to darken souls, even pure ones, until they become pitch black. By doing so, you can stay beautiful and shine bright, Mother. I do everything because of my love for you."
+> "Run? Is that how you speak to a hero? How little you understand. Allow me to educate you. If a hero were to run from battle... the children could no longer call him a hero."
 
-&mdash; [**Sakuya Tougane**](https://myanimelist.net/character.php?q=Sakuya%20Tougane&cat=character), [**Psycho-Pass 2**](https://myanimelist.net/search/all?q=Psycho-Pass%202&cat=all)
+&mdash; [**Don Kanonji**](https://myanimelist.net/character.php?q=Don%20Kanonji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
