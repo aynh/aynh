@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What do you think killed the most people in history? It wasn't explosives or drugs. It was information. To know is to die."
+> "Every day, the words cross my mind.  'If I had done this back then...' but they don't take the sincere form of regret.  The words are just an excuse that come to my mind then disappear."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Satoru Fujinuma**](https://myanimelist.net/character.php?q=Satoru%20Fujinuma&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
