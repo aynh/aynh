@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When a man faces fear, his soul is tested. What he was born to seek... what he was born to achieve... his true nature will become clear."
+> "People live in order to be satisfied. And they hope to die while still satisfied. So, not knowing how to make yourself become satisfied is very tough."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Ushiromiya Ange**](https://myanimelist.net/character.php?q=Ushiromiya%20Ange&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
