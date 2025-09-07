@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My own mother thought I was a monster. She was right of course... but it still hurt."
+> "Wouldn't it be nice to have a strong mind, one that can get rid of the fear you feel?"
 
-&mdash; [**Azula**](https://myanimelist.net/character.php?q=Azula&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Little Demon**](https://myanimelist.net/character.php?q=Little%20Demon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
