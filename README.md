@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Say please, before asking for favor."
+> "Adlet, I hated you. I hated the fact that I was starting to believe in you. I still hate you. The more I talk to you, the more I hate you. I believe you, even though I decided to never believe anyone again."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Fremy Speedraw**](https://myanimelist.net/character.php?q=Fremy%20Speedraw&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
