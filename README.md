@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Laws aren't perfect, because humans who created laws aren't perfect. It's impossible to be perfect. However, the laws are evidence of the human's struggle to be righteous."
+> "(In Gamma worldline, to Okabe) Look, even if we were enemies in the world you were before, right now I'm your only ally. Even if the whole world turned against you, I would continue to be your only ally."
 
-&mdash; [**Soichiro Yagami**](https://myanimelist.net/character.php?q=Soichiro%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Moeka Kiryū**](https://myanimelist.net/character.php?q=Moeka%20Kiry%C5%AB&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
