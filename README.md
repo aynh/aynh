@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's overpriced, but that's okay, HERE'S YOUR CHANGE!"
+> "It is so painful when you lose someone you love ...To the point where your hair turns white because of grief."
 
-&mdash; [**Touji Suzuhara**](https://myanimelist.net/character.php?q=Touji%20Suzuhara&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Astharoshe Asran**](https://myanimelist.net/character.php?q=Astharoshe%20Asran&cat=character), [**Trinity Blood**](https://myanimelist.net/search/all?q=Trinity%20Blood&cat=all)
