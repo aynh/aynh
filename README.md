@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't make a difference whether you have a talent or not. I mean, that isn't the end goal. You have greater freedom than we do. All I have are games. But you can go anywhere and become anything."
+> "*talking about Gintoki* It's the same as always. He doesn't pursue those who leave, and ignores those who come."
 
-&mdash; [**Chiaki Nanami**](https://myanimelist.net/character.php?q=Chiaki%20Nanami&cat=character), [**Danganronpa 3: The End of Kibougamine Gakuen - Zetsubou-hen**](https://myanimelist.net/search/all?q=Danganronpa%203%3A%20The%20End%20of%20Kibougamine%20Gakuen%20-%20Zetsubou-hen&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
