@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If your face gets any closer, someone who isn't supposed to be in this scene is going to come over there and kick your ass!"
+> "Whether it's good or bad, it's so unfortunate to wake up during a dream."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Judeau**](https://myanimelist.net/character.php?q=Judeau&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
