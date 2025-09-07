@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our injuries will heal as long as we're alive. But the scars will remain."
+> "My own mother thought I was a monster. She was right of course... but it still hurt."
 
-&mdash; [**Allen Walker**](https://myanimelist.net/character.php?q=Allen%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Azula**](https://myanimelist.net/character.php?q=Azula&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
