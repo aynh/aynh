@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter who your parents were. Everyone is a child of the sea."
+> "Our injuries will heal as long as we're alive. But the scars will remain."
 
-&mdash; [**Whitebeard**](https://myanimelist.net/character.php?q=Whitebeard&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Allen Walker**](https://myanimelist.net/character.php?q=Allen%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
