@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is so painful when you lose someone you love ...To the point where your hair turns white because of grief."
+> "It doesn't matter what the essence of it is. The truth is what's hidden inside."
 
-&mdash; [**Astharoshe Asran**](https://myanimelist.net/character.php?q=Astharoshe%20Asran&cat=character), [**Trinity Blood**](https://myanimelist.net/search/all?q=Trinity%20Blood&cat=all)
+&mdash; [**Hiro Hirono**](https://myanimelist.net/character.php?q=Hiro%20Hirono&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
