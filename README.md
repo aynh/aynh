@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*talking about Gintoki* It's the same as always. He doesn't pursue those who leave, and ignores those who come."
+> "The human heart will always sway. And only then do we know that it is truly a human heart."
 
-&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Sister Libelle**](https://myanimelist.net/character.php?q=Sister%20Libelle&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
