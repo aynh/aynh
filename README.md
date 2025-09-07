@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(In Gamma worldline, to Okabe) Look, even if we were enemies in the world you were before, right now I'm your only ally. Even if the whole world turned against you, I would continue to be your only ally."
+> "We didn't even know each other then. And now, I can't imagine my life without you in it. You're the most loyal, brave and selfless person I've ever known."
 
-&mdash; [**Moeka Kiryū**](https://myanimelist.net/character.php?q=Moeka%20Kiry%C5%AB&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Mako**](https://myanimelist.net/character.php?q=Mako&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
