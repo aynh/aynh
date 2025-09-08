@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For a man to stand up again, he needs one thing... 'To make excuses'."
+> "A man that can't hold on to his beliefs can only be pathetic, dead or alive."
 
-&mdash; [**Takamura Mamoru**](https://myanimelist.net/character.php?q=Takamura%20Mamoru&cat=character), [**Hajime no Ippo - Champion Road**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo%20-%20Champion%20Road&cat=all)
+&mdash; [**Hajime Saitou**](https://myanimelist.net/character.php?q=Hajime%20Saitou&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
