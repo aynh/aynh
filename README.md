@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After everything I've faced.... Having a future with you snatched away from me ...is definitely the most terrifying thing I've ever had to endure...."
+> "In order to measure a person’s worth, you must do more than push them. The real way to test their worth is to give them power. When they gain the freedom to act outside the boundaries of law and ethics, you can sometimes see their souls. When the weak become strong... When good citizens become free to engage in violence... I'm interested to see what is the outcome of that."
 
-&mdash; [**Gajeel Redfox**](https://myanimelist.net/character.php?q=Gajeel%20Redfox&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
