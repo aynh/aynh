@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What you say may be correct, that there is a war going on outside our world. But we don't agree with it! We dislike war! And that is why we chose to be here, in neutral territory!"
+> "Different people have different perspective. So, I won’t deny the fact that some people are annoyed with the way I am. In exchange for those negative feelings, I just want to be the person that I am in love with the most."
 
-&mdash; [**Kira Yamato**](https://myanimelist.net/character.php?q=Kira%20Yamato&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Yuuri Makita**](https://myanimelist.net/character.php?q=Yuuri%20Makita&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
