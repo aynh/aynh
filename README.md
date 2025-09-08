@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A man that can't hold on to his beliefs can only be pathetic, dead or alive."
+> "There's no match you can't win, and there's no match that you'll win for sure."
 
-&mdash; [**Hajime Saitou**](https://myanimelist.net/character.php?q=Hajime%20Saitou&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Ikkei Ukai**](https://myanimelist.net/character.php?q=Ikkei%20Ukai&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
