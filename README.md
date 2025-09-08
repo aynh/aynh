@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Nemu about Uryuu. Nemu is currently attempting to restrain Uryuu so Mayruri can heal him, but she is unknowingly smothering him with her breasts] Yes, Nemu. Just smother him with those things. Worst case, he dies happy."
+> "Talent is something you make bloom, instinct is something you polish."
 
-&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tooru Oikawa**](https://myanimelist.net/character.php?q=Tooru%20Oikawa&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
