@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you're weak, there are miracles you can seize with your hands if you fight on to the very end."
+> "What you say may be correct, that there is a war going on outside our world. But we don't agree with it! We dislike war! And that is why we chose to be here, in neutral territory!"
 
-&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Kira Yamato**](https://myanimelist.net/character.php?q=Kira%20Yamato&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
