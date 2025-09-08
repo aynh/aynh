@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People do peculiar things when it comes to love... Our own safety doesn't seem so important."
+> "I am who I am and there is nothing wrong with that. The days continue like they always have, bringing neither excessive desire nor despair, nothing's changed. Yet I'm overwhelmed by this sense of fulfillment. I'm over here, you're over there. If I'm your savior, then you're mine."
 
-&mdash; [**Fay D. Flourite**](https://myanimelist.net/character.php?q=Fay%20D.%20Flourite&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
