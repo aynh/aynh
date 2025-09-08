@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll never forget that you wasted three minutes of my life."
+> "If I got angry at every little thing, my body wouldn't be able to hold it all."
 
-&mdash; [**Barnaby Brooks Jr.**](https://myanimelist.net/character.php?q=Barnaby%20Brooks%20Jr.&cat=character), [**Tiger & Bunny**](https://myanimelist.net/search/all?q=Tiger%20%26%20Bunny&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
