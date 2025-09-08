@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Different people have different perspective. So, I won’t deny the fact that some people are annoyed with the way I am. In exchange for those negative feelings, I just want to be the person that I am in love with the most."
+> "I'll never forget that you wasted three minutes of my life."
 
-&mdash; [**Yuuri Makita**](https://myanimelist.net/character.php?q=Yuuri%20Makita&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Barnaby Brooks Jr.**](https://myanimelist.net/character.php?q=Barnaby%20Brooks%20Jr.&cat=character), [**Tiger & Bunny**](https://myanimelist.net/search/all?q=Tiger%20%26%20Bunny&cat=all)
