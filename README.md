@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know you're not supposed to cry over spilled tea, but (sniffs) it's just so sad!"
+> "Emblem? Looks like a grumbling, drunken tapeworm to me."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
