@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It’s dangerous for them to grow up without experiencing true competition. Because they’ll keep whining, even without taking the matter seriously. For those with a high level of aptitude... The sooner they know the frustration of defeat, the greater their growth will be."
+> "Glory lies beyond the horizon. Challenge it because it is unreachable. Speak of conquest and demonstrate it."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
