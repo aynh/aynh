@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter what you achieve in life. It's how you live that really matters. Countless men have lost their lives in war without fulfilling their life's ambitions. Shiba stood by his convictions, no matter how lonely he got. So I think that in the end, he must've been happier than anyone."
+> "It’s dangerous for them to grow up without experiencing true competition. Because they’ll keep whining, even without taking the matter seriously. For those with a high level of aptitude... The sooner they know the frustration of defeat, the greater their growth will be."
 
-&mdash; [**Deerhound**](https://myanimelist.net/character.php?q=Deerhound&cat=character), [**Rave Master**](https://myanimelist.net/search/all?q=Rave%20Master&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
