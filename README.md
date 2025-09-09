@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In reality, the least interesting answer is usually the correct one."
+> "But we're alive, aren't we? We don't have any magic power, but we're alive! We have the strength to overcome the weakness and the fear! That's what it means to be alive!"
 
-&mdash; [**Tet**](https://myanimelist.net/character.php?q=Tet&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
