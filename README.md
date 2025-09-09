@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "While many can pursue their dreams in solitude, other dreams are like great storms blowing hundreds, even thousands of dreams apart in their wake. Dreams breathe life into men and can cage them in suffering. Men live and die by their dreams. But long after they have been abandoned they still smolder deep in men's hearts. Some see nothing more than life and death. They are dead, for they have no dreams."
+> "I know you're not supposed to cry over spilled tea, but (sniffs) it's just so sad!"
 
-&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
