@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Though you fight a fierce battle on the outside, your inner world trembles not the slightest."
+> "Everyone gets help from someone else at some point in their lives. So someday, you should help someone too."
 
-&mdash; [**Zangetsu**](https://myanimelist.net/character.php?q=Zangetsu&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Suzuha Amane**](https://myanimelist.net/character.php?q=Suzuha%20Amane&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
