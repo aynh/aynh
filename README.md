@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I like people who put in effort, even if they're not good at it."
+> "I am not going to kill you - I am going to break you."
 
-&mdash; [**Mitsukuni Haninozuka**](https://myanimelist.net/character.php?q=Mitsukuni%20Haninozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Naraku**](https://myanimelist.net/character.php?q=Naraku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
