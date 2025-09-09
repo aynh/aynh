@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When people focus on what they want to do, they’ll show off an inexplicable charm."
+> "I like people who put in effort, even if they're not good at it."
 
-&mdash; [**Kinoshita Yuuko**](https://myanimelist.net/character.php?q=Kinoshita%20Yuuko&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Mitsukuni Haninozuka**](https://myanimelist.net/character.php?q=Mitsukuni%20Haninozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
