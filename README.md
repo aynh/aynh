@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because of the existence of love - sacrifice is born. As well as hate. Then one comprehends... one knows PAIN."
+> "I have nothing but me. I'll give you myself. You can use me however you like for the rest of my life. (To Shigure)"
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
