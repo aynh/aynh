@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "DON'T LEAVE ME!!"
+> "In reality, the least interesting answer is usually the correct one."
 
-&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Tet**](https://myanimelist.net/character.php?q=Tet&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
