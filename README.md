@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm no one. I don't want to be anyone. All I care about is completing the moon's eye plan. This world is completely worthless. There is nothing left in it but misery."
+> "As long as our love is stronger than the hatred within us, we can keep it sealed away."
 
-&mdash; [**Obito Uchiha**](https://myanimelist.net/character.php?q=Obito%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Yayoi Kanbara**](https://myanimelist.net/character.php?q=Yayoi%20Kanbara&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
