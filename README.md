@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Me? A liar? That's almost hurtful. I just don't feel like telling the whole truth."
+> "You need three types of power to control the world. One is influence. One is wealth. The third is... force."
 
-&mdash; [**William Macbeth**](https://myanimelist.net/character.php?q=William%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Ushiromiya George**](https://myanimelist.net/character.php?q=Ushiromiya%20George&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
