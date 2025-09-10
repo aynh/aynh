@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Perhaps this is what it means to be bound by sin. To spin in the same circle, looking for where the sin lies, and at some point losing sight of the way out."
+> "That's probably true. I like talking with people. I wonder if speaking with me is boring though. Since once people talk to me, they'll never do it again. But I don't feel like starting a conversation either, since in the direction I ought to look, there are only people who I cannot talk to. That's why I look at the sky... It's strange how merely observing things can be so handy to kill time. It hurts that I get called a weirdo just for making a habit out of it and in the end it just makes me stare at the sky even more. I've probably always been like this. Thinking about it, there's nothing I can do about my passiveness. Waiting things out is just my nature. I'm sure that... things will get better someday..."
 
-&mdash; [**Renmei Communicator**](https://myanimelist.net/character.php?q=Renmei%20Communicator&cat=character), [**Haibane Renmei**](https://myanimelist.net/search/all?q=Haibane%20Renmei&cat=all)
+&mdash; [**Kawayanagi Tsurezure**](https://myanimelist.net/character.php?q=Kawayanagi%20Tsurezure&cat=character), [**Ojojojo**](https://myanimelist.net/search/all?q=Ojojojo&cat=all)
