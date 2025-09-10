@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are inconvenient creatures, aren't they? The species can't live on unless they all create a community and expand."
+> "I'm scared to go over there!"
 
-&mdash; [**Homunculus (Character)**](https://myanimelist.net/character.php?q=Homunculus%20(Character)&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Masahiro**](https://myanimelist.net/character.php?q=Masahiro&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
