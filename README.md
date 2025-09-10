@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now that I think about it, I really didn't understand anything back then. Neither what it meant to pray for a miracle...nor the price of one."
+> "You try to sound like you think things through, when in fact, you're not thinking at all."
 
-&mdash; [**Sayaka Miki**](https://myanimelist.net/character.php?q=Sayaka%20Miki&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
