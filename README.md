@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You try to sound like you think things through, when in fact, you're not thinking at all."
+> "Becoming an adult is such a sad thing. If you have something dear to protect, you may end up at odds with yourself."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Cthuko**](https://myanimelist.net/character.php?q=Cthuko&cat=character), [**Haiyore! Nyaruko-san**](https://myanimelist.net/search/all?q=Haiyore!%20Nyaruko-san&cat=all)
