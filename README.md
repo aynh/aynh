@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What are you so hesitant about? It’s your dream, isn’t it? It’s right in front of you and you’re wavering? You gotta be reckless, and take whatever you can!"
+> "No one knows when they will die. Neither you nor I may be able to live that long. But no life is so little as to give up, to think 'I don't care when I die.'"
 
-&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Seishin Muroi**](https://myanimelist.net/character.php?q=Seishin%20Muroi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
