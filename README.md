@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one knows when they will die. Neither you nor I may be able to live that long. But no life is so little as to give up, to think 'I don't care when I die.'"
+> "Humans are inconvenient creatures, aren't they? The species can't live on unless they all create a community and expand."
 
-&mdash; [**Seishin Muroi**](https://myanimelist.net/character.php?q=Seishin%20Muroi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Homunculus (Character)**](https://myanimelist.net/character.php?q=Homunculus%20(Character)&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
