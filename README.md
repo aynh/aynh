@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You need three types of power to control the world. One is influence. One is wealth. The third is... force."
+> "Perhaps this is what it means to be bound by sin. To spin in the same circle, looking for where the sin lies, and at some point losing sight of the way out."
 
-&mdash; [**Ushiromiya George**](https://myanimelist.net/character.php?q=Ushiromiya%20George&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Renmei Communicator**](https://myanimelist.net/character.php?q=Renmei%20Communicator&cat=character), [**Haibane Renmei**](https://myanimelist.net/search/all?q=Haibane%20Renmei&cat=all)
