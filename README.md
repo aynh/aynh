@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as our love is stronger than the hatred within us, we can keep it sealed away."
+> "Life is a succession of committing sin. Life is evil itself. I'm conscious that I'm evil. And so are all of you."
 
-&mdash; [**Yayoi Kanbara**](https://myanimelist.net/character.php?q=Yayoi%20Kanbara&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
+&mdash; [**Yoshimura**](https://myanimelist.net/character.php?q=Yoshimura&cat=character), [**Tokyo Ghoul √A**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%20%E2%88%9AA&cat=all)
