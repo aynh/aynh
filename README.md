@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you lose something, you gotta find something to take its place. I guess it's just time... for me to move forward for once."
+> "They'll use you as much as they want; then once they're done with you, they'll all disappear."
 
-&mdash; [**Kato Kenichi**](https://myanimelist.net/character.php?q=Kato%20Kenichi&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Mei Tachibana**](https://myanimelist.net/character.php?q=Mei%20Tachibana&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
