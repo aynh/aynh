@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our world is like a terminal cancer. Saying you’ll change things through individual will is the rambling of a peace-loving fool. Why don’t you understand it’s too late for humanity?!"
+> "You are human, are you not? You are allowed to make mistakes."
 
-&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Bishamonten**](https://myanimelist.net/character.php?q=Bishamonten&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
