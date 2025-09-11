@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is short, so fall in love, dear maiden, before your youthful ardor cools off, for there is no tomorrow."
+> "Become strong not just for your own sake, but for your friends."
 
-&mdash; [**Atsushi Shimao**](https://myanimelist.net/character.php?q=Atsushi%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
