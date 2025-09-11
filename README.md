@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Become strong not just for your own sake, but for your friends."
+> "Even if I force myself to smile. It seems I'm the type of person who ends up being hated."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sai**](https://myanimelist.net/character.php?q=Sai&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
