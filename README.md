@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want someone that can easily be replaced by others. What I need is... what I really want is... someone that will be with me no matter what. A best friend."
+> "I think you and I have different concepts of beauty. I was taught that it's beautiful to survive, unsightly or not."
 
-&mdash; [**Ginbei Haruomi Sawatari**](https://myanimelist.net/character.php?q=Ginbei%20Haruomi%20Sawatari&cat=character), [**Onii-chan Dakedo Ai Sae Areba Kankeinai yo ne!**](https://myanimelist.net/search/all?q=Onii-chan%20Dakedo%20Ai%20Sae%20Areba%20Kankeinai%20yo%20ne!&cat=all)
+&mdash; [**Ganju Shiba**](https://myanimelist.net/character.php?q=Ganju%20Shiba&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
