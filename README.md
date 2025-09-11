@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are human, are you not? You are allowed to make mistakes."
+> "Heroes and villains both thrive on violence, but we're still categorized. 'You're good.' 'You're evil.' That's how it is!! Symbol of peace? Hah!! In the end you're just a tool for violence, made to keep us down! And violence only breeds more violence."
 
-&mdash; [**Bishamonten**](https://myanimelist.net/character.php?q=Bishamonten&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Shigaraki Tomura**](https://myanimelist.net/character.php?q=Shigaraki%20Tomura&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
