@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I can get my target to move as I want, I've succeeded as a Hunter."
+> "After all.. love is all about timing. If you don't say the right thing at the right moment, no matter how much fate was involved in the relationship, everything will be ruined. Even if you regret it, it'll be too late."
 
-&mdash; [**Ging Freecss**](https://myanimelist.net/character.php?q=Ging%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Masafumi Takeuchi**](https://myanimelist.net/character.php?q=Masafumi%20Takeuchi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
