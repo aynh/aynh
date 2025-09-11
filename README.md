@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether you get mad, whether you laugh. The sun will set, morning will come. Each and every time, I'll just start over again."
+> "Admirals without soldiers are equivalent to fixed stars without planets. Their lights will only illuminate the darkness without any effect."
 
-&mdash; [**Atsuhiro Maeda**](https://myanimelist.net/character.php?q=Atsuhiro%20Maeda&cat=character), [**Tari Tari**](https://myanimelist.net/search/all?q=Tari%20Tari&cat=all)
+&mdash; [**Dietrich Saucken**](https://myanimelist.net/character.php?q=Dietrich%20Saucken&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
