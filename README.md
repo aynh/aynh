@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Heroes and villains both thrive on violence, but we're still categorized. 'You're good.' 'You're evil.' That's how it is!! Symbol of peace? Hah!! In the end you're just a tool for violence, made to keep us down! And violence only breeds more violence."
+> "Whether you get mad, whether you laugh. The sun will set, morning will come. Each and every time, I'll just start over again."
 
-&mdash; [**Shigaraki Tomura**](https://myanimelist.net/character.php?q=Shigaraki%20Tomura&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
+&mdash; [**Atsuhiro Maeda**](https://myanimelist.net/character.php?q=Atsuhiro%20Maeda&cat=character), [**Tari Tari**](https://myanimelist.net/search/all?q=Tari%20Tari&cat=all)
