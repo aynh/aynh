@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Have faith in your inspiration. Feel the imagination!"
+> "When you lose something, you gotta find something to take its place. I guess it's just time... for me to move forward for once."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kato Kenichi**](https://myanimelist.net/character.php?q=Kato%20Kenichi&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
