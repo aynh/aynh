@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your name sounds like an air conditioner."
+> "Life is short, so fall in love, dear maiden, before your youthful ardor cools off, for there is no tomorrow."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Atsushi Shimao**](https://myanimelist.net/character.php?q=Atsushi%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
