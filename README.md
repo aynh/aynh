@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world as it is, the human nature as always, it is impossible to eliminate battles. In the end, killing is necessarily evil. If so, it is best to end them in the maximum efficiency and at the least cost, least time. If you want to slander that as foul and demean that as nasty, then do as you wish. Justice can not save the world. I have no interest with things like that."
+> "I don't want someone that can easily be replaced by others. What I need is... what I really want is... someone that will be with me no matter what. A best friend."
 
-&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Ginbei Haruomi Sawatari**](https://myanimelist.net/character.php?q=Ginbei%20Haruomi%20Sawatari&cat=character), [**Onii-chan Dakedo Ai Sae Areba Kankeinai yo ne!**](https://myanimelist.net/search/all?q=Onii-chan%20Dakedo%20Ai%20Sae%20Areba%20Kankeinai%20yo%20ne!&cat=all)
