@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think you and I have different concepts of beauty. I was taught that it's beautiful to survive, unsightly or not."
+> "Songs move people's hearts and make them passionate."
 
-&mdash; [**Ganju Shiba**](https://myanimelist.net/character.php?q=Ganju%20Shiba&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Haruka Nanami**](https://myanimelist.net/character.php?q=Haruka%20Nanami&cat=character), [**Uta no Prince-sama**](https://myanimelist.net/search/all?q=Uta%20no%20Prince-sama&cat=all)
