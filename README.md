@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm going to spend my vacation AT THE LIBRARY!"
+> "Life's interesting because there's a limit to it. The thrill of not knowing when it ends is what gives you the awareness of being alive."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Nonomiya**](https://myanimelist.net/character.php?q=Nonomiya&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
