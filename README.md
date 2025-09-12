@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you are experienced you can become overly confident and such confidence can prove fatal."
+> "Everything in this world is just a game and we are merely the pawns."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Gasai Yuno**](https://myanimelist.net/character.php?q=Gasai%20Yuno&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
