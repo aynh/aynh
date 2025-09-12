@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just like those who try their best, even when they're afraid."
+> "Every phenomenon that happens in the human world is caused by people for their own convenience."
 
-&mdash; [**Kirishima Shouko**](https://myanimelist.net/character.php?q=Kirishima%20Shouko&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Takano Miyo**](https://myanimelist.net/character.php?q=Takano%20Miyo&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
