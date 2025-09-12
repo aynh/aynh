@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everything in this world is just a game and we are merely the pawns."
+> "Feelings aren't black and white. Even if they're fuzzy and contradictory, if they're sincere, they are what they are."
 
-&mdash; [**Gasai Yuno**](https://myanimelist.net/character.php?q=Gasai%20Yuno&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Murasaki**](https://myanimelist.net/character.php?q=Murasaki&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
