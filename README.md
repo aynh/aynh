@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Hisagi] Open my eyes? You? Open my eyes? You never change."
+> "That is when I realized that in all of the world no one needed me. I was alone."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
