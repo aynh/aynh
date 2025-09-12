@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no meaning if you win alone!"
+> "Do not fear Death. Death is always at our side. When we show fear, it jumps at us faster than light. But, if we do not show fear, it casts its eye upon us gently and then guides us into infinity."
 
-&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Laughing Bull**](https://myanimelist.net/character.php?q=Laughing%20Bull&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
