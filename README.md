@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life's interesting because there's a limit to it. The thrill of not knowing when it ends is what gives you the awareness of being alive."
+> "That's enough, Soifon. You remind me of myself. I even think of you sometimes as my little sister."
 
-&mdash; [**Nonomiya**](https://myanimelist.net/character.php?q=Nonomiya&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
+&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
