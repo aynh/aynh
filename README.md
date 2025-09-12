@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Man or Child, Strong or Weak, None of those matter once you are out at sea!"
+> "All these things you guys seek....hard work, guts, faith....I'll crush them all."
 
-&mdash; [**Usopp**](https://myanimelist.net/character.php?q=Usopp&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Atsushi Murasakibara**](https://myanimelist.net/character.php?q=Atsushi%20Murasakibara&cat=character), [**Kuroko's Basketball**](https://myanimelist.net/search/all?q=Kuroko's%20Basketball&cat=all)
