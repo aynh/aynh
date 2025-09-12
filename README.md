@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Feelings aren't black and white. Even if they're fuzzy and contradictory, if they're sincere, they are what they are."
+> "There’s no meaning if you win alone!"
 
-&mdash; [**Murasaki**](https://myanimelist.net/character.php?q=Murasaki&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
+&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
