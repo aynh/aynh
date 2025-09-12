@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All these things you guys seek....hard work, guts, faith....I'll crush them all."
+> "I'm going to spend my vacation AT THE LIBRARY!"
 
-&mdash; [**Atsushi Murasakibara**](https://myanimelist.net/character.php?q=Atsushi%20Murasakibara&cat=character), [**Kuroko's Basketball**](https://myanimelist.net/search/all?q=Kuroko's%20Basketball&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
