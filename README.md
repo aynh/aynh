@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sticking through with a lie to protect someone, is probably harder than telling the truth."
+> "Man or Child, Strong or Weak, None of those matter once you are out at sea!"
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Usopp**](https://myanimelist.net/character.php?q=Usopp&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
