@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's a limit to the amount of pleasure a person can obtain. But pleasure brought out by intellect is infinite."
+> "There's no use in just creating 'Love'. Empty hearts filled with 'Love' tend to be unstable."
 
-&mdash; [**Kouzaburou Touma**](https://myanimelist.net/character.php?q=Kouzaburou%20Touma&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
