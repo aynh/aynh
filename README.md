@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no use in just creating 'Love'. Empty hearts filled with 'Love' tend to be unstable."
+> "Sticking through with a lie to protect someone, is probably harder than telling the truth."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
