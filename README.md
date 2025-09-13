@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you talking to me, scum? I'm God."
+> "It seems like we spent a long time together, but it wasn't. It was actually pretty short. Too short. So I kind of know, but I kind of don't know what I want to say. He was friendly, easy to talk to, and smart. He could do anything and was reliable. I thought he was perfect. But maybe I just didn't realize what his faults were. He might have been hiding his flaws."
 
-&mdash; [**Ayato Naoi**](https://myanimelist.net/character.php?q=Ayato%20Naoi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
