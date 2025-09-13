@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your darkness and hopelessness are like vapor. They're nothing more than shadows that shall melt away and disappear under the moon's light"
+> "The only way to truly escape the mundane is for you to constantly be evolving. Whether you choose to aim high, or aim low. Enjoy each day for what it is."
 
-&mdash; [**Chikane Himemiya**](https://myanimelist.net/character.php?q=Chikane%20Himemiya&cat=character), [**Kannazuki no Miko**](https://myanimelist.net/search/all?q=Kannazuki%20no%20Miko&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
