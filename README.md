@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Chizuru, you shouldn't be laughing too much. It was just a youthful indiscretion. Don't treat someone's first love like a mistake!"
+> "If something gets in the way of your job, get rid of it. That includes your feelings, your beliefs, and visions of that guy. [referring to Soichiro Kurebayashi]"
 
-&mdash; [**Kaname Tsukahara**](https://myanimelist.net/character.php?q=Kaname%20Tsukahara&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
+&mdash; [**Master Masuda**](https://myanimelist.net/character.php?q=Master%20Masuda&cat=character), [**Dengeki Daisy**](https://myanimelist.net/search/all?q=Dengeki%20Daisy&cat=all)
