@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If someone went the wrong way, the other two would beat him up until he got back on track. That's how it always been. That's why we'll always stay on the right path!"
+> "Time is not money. You can't buy time, now can you?"
 
-&mdash; [**Isao Kondō**](https://myanimelist.net/character.php?q=Isao%20Kond%C5%8D&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kirisaki Hana**](https://myanimelist.net/character.php?q=Kirisaki%20Hana&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
