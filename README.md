@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If something gets in the way of your job, get rid of it. That includes your feelings, your beliefs, and visions of that guy. [referring to Soichiro Kurebayashi]"
+> "I don't know what to say. Now, I think it's just best to observe closely."
 
-&mdash; [**Master Masuda**](https://myanimelist.net/character.php?q=Master%20Masuda&cat=character), [**Dengeki Daisy**](https://myanimelist.net/search/all?q=Dengeki%20Daisy&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
