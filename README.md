@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[singing] Total slaughter, total slaughter. I won't leave a single man alive. La de da de die, genocide. La de da de dud, an ocean of blood. Let's begin the killing time."
+> "Your darkness and hopelessness are like vapor. They're nothing more than shadows that shall melt away and disappear under the moon's light"
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Chikane Himemiya**](https://myanimelist.net/character.php?q=Chikane%20Himemiya&cat=character), [**Kannazuki no Miko**](https://myanimelist.net/search/all?q=Kannazuki%20no%20Miko&cat=all)
