@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Having people acknowledge your existence is a wonderful thing."
+> "Listen up, Cookie. Summer break is a break. We forget about homework. That's common sense. Understand?"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Himeki Chifuyu**](https://myanimelist.net/character.php?q=Himeki%20Chifuyu&cat=character), [**Inou Battle wa Nichijou-kei no Naka de**](https://myanimelist.net/search/all?q=Inou%20Battle%20wa%20Nichijou-kei%20no%20Naka%20de&cat=all)
