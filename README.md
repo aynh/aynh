@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't ever think there's any perfect society made by humans!! If you think that way you'll overlook the enemy!! Don't be fooled by appearances!!"
+> "There's no shortcut to victory. You have to climb that steep mountain one step at a time. There's an abyss down below and it never ends. Your only choice is to keep climbing!"
 
-&mdash; [**Smoker**](https://myanimelist.net/character.php?q=Smoker&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Ryuuichi Kazama**](https://myanimelist.net/character.php?q=Ryuuichi%20Kazama&cat=character), [**Ping Pong The Animation**](https://myanimelist.net/search/all?q=Ping%20Pong%20The%20Animation&cat=all)
