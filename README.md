@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do not fear Death. Death is always at our side. When we show fear, it jumps at us faster than light. But, if we do not show fear, it casts its eye upon us gently and then guides us into infinity."
+> "Are you talking to me, scum? I'm God."
 
-&mdash; [**Laughing Bull**](https://myanimelist.net/character.php?q=Laughing%20Bull&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Ayato Naoi**](https://myanimelist.net/character.php?q=Ayato%20Naoi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
