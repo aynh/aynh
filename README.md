@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Remember. You can feel it if you hold your hand against your chest. It belongs to no one. It's our pulse, yours and mine. This is what brings us to the truth. It's what proves that we are the very world itself. Follow your instincts. The answer is already there."
+> "Scrambled it trouble down."
 
-&mdash; [**Ergo Proxy**](https://myanimelist.net/character.php?q=Ergo%20Proxy&cat=character), [**Ergo Proxy**](https://myanimelist.net/search/all?q=Ergo%20Proxy&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
