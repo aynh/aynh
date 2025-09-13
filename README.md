@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It seems like we spent a long time together, but it wasn't. It was actually pretty short. Too short. So I kind of know, but I kind of don't know what I want to say. He was friendly, easy to talk to, and smart. He could do anything and was reliable. I thought he was perfect. But maybe I just didn't realize what his faults were. He might have been hiding his flaws."
+> "Don't ever think there's any perfect society made by humans!! If you think that way you'll overlook the enemy!! Don't be fooled by appearances!!"
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Smoker**](https://myanimelist.net/character.php?q=Smoker&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
