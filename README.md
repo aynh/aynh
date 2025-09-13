@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't know what to say. Now, I think it's just best to observe closely."
+> "Regret is a different beast when you live for centuries."
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
