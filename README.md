@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no shortcut to victory. You have to climb that steep mountain one step at a time. There's an abyss down below and it never ends. Your only choice is to keep climbing!"
+> "If we only believe when the odds are with us, then that's not believing at all."
 
-&mdash; [**Ryuuichi Kazama**](https://myanimelist.net/character.php?q=Ryuuichi%20Kazama&cat=character), [**Ping Pong The Animation**](https://myanimelist.net/search/all?q=Ping%20Pong%20The%20Animation&cat=all)
+&mdash; [**Ousawa Akatsuki**](https://myanimelist.net/character.php?q=Ousawa%20Akatsuki&cat=character), [**Hagure Yuusha No Estetica**](https://myanimelist.net/search/all?q=Hagure%20Yuusha%20No%20Estetica&cat=all)
