@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A smile is a seed of happiness. Anything can be made with it."
+> "Yes, it really﻿ was a fairy tale. A pretty girl reached out her hand to me and ... told me to die!"
 
-&mdash; [**Kai**](https://myanimelist.net/character.php?q=Kai&cat=character), [**Neo Angelique Abyss**](https://myanimelist.net/search/all?q=Neo%20Angelique%20Abyss&cat=all)
+&mdash; [**Ohana Matsumae**](https://myanimelist.net/character.php?q=Ohana%20Matsumae&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
