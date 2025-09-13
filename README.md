@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I yearn for you more than anyone else. I love you Akito... And that is the irrevocable unwavering truth.(shigures answer to akitos question 'do you like me?' during a child hood flashback)"
+> "If someone went the wrong way, the other two would beat him up until he got back on track. That's how it always been. That's why we'll always stay on the right path!"
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Isao Kondō**](https://myanimelist.net/character.php?q=Isao%20Kond%C5%8D&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
