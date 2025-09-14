@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Necessity knows no law!"
+> "We do not live in a fairy-tale world. We cannot simply take revenge on those who have betrayed us and say 'the end'. We have to live on after this. And taking revenge for betrayal only invites more revenge."
 
-&mdash; [**Manabu Takasaki**](https://myanimelist.net/character.php?q=Manabu%20Takasaki&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
