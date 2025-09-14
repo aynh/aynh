@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You stinker! I took it easy on you!"
+> "I'd rather be a pig than a fascist."
 
-&mdash; [**Blue**](https://myanimelist.net/character.php?q=Blue&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Porco Rosso**](https://myanimelist.net/character.php?q=Porco%20Rosso&cat=character), [**Porco Rosso**](https://myanimelist.net/search/all?q=Porco%20Rosso&cat=all)
