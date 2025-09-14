@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All these things you guys seek....hard work, guts, faith....I'll crush them all."
+> "Don't lie if you don't have to."
 
-&mdash; [**Atsushi Murasakibara**](https://myanimelist.net/character.php?q=Atsushi%20Murasakibara&cat=character), [**Kuroko's Basketball**](https://myanimelist.net/search/all?q=Kuroko's%20Basketball&cat=all)
+&mdash; [**Kaname Tanuma**](https://myanimelist.net/character.php?q=Kaname%20Tanuma&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
