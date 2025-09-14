@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They may all look the same to you, but there are different kinds and different levels of evil. A first-class villain doesn't target honest lives."
+> "When I say it doesn't hurt me, that means I can bear it."
 
-&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Killua Zoldyck**](https://myanimelist.net/character.php?q=Killua%20Zoldyck&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
