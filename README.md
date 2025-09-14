@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'd rather be a pig than a fascist."
+> "Necessity knows no law!"
 
-&mdash; [**Porco Rosso**](https://myanimelist.net/character.php?q=Porco%20Rosso&cat=character), [**Porco Rosso**](https://myanimelist.net/search/all?q=Porco%20Rosso&cat=all)
+&mdash; [**Manabu Takasaki**](https://myanimelist.net/character.php?q=Manabu%20Takasaki&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
