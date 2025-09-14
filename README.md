@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We do not live in a fairy-tale world. We cannot simply take revenge on those who have betrayed us and say 'the end'. We have to live on after this. And taking revenge for betrayal only invites more revenge."
+> "Are you saddened by your lack of power, young one?"
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
