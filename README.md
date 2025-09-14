@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're so silly. Even adults cry from a broken heart. It's okay to cry."
+> "All these things you guys seek....hard work, guts, faith....I'll crush them all."
 
-&mdash; [**Sana Hidaka**](https://myanimelist.net/character.php?q=Sana%20Hidaka&cat=character), [**Myself ; Yourself**](https://myanimelist.net/search/all?q=Myself%20%3B%20Yourself&cat=all)
+&mdash; [**Atsushi Murasakibara**](https://myanimelist.net/character.php?q=Atsushi%20Murasakibara&cat=character), [**Kuroko's Basketball**](https://myanimelist.net/search/all?q=Kuroko's%20Basketball&cat=all)
