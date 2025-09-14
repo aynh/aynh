@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There're too many people who worry about the things I don't worry about."
+> "You got two legs and a heart beat. What's stopping you?"
 
-&mdash; [**Takeshi Nanase**](https://myanimelist.net/character.php?q=Takeshi%20Nanase&cat=character), [**Magical Warfare**](https://myanimelist.net/search/all?q=Magical%20Warfare&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
