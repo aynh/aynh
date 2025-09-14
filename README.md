@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's a limit to the strength of people who are isolated. If we do the best we can we should be fine. We don't grab a hold of the entire future. Let's just think about grabbing tomorrow. I think that's plenty for us, don't you?"
+> "The dead don't desire revenge, but the happiness of the living."
 
-&mdash; [**Kouji Aiba**](https://myanimelist.net/character.php?q=Kouji%20Aiba&cat=character), [**Infinite Ryvius**](https://myanimelist.net/search/all?q=Infinite%20Ryvius&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
