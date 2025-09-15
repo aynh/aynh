@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Take it, that courage you have locked in your heart. Awaken it, wipe your tears, be strong and use that courage."
+> "If they find out what you did there, a lot of people will say a lot of things to you. Some will say you did the right thing. And some will say you did the wrong thing. But that's not what matters. No matter what anyone says, you don't have to worry. Because you didn't do the right thing, and you didn't do the wrong thing. It was all part of being young."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
