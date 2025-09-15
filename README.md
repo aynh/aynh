@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The reader will be me. I have no love, maybe I'll end up interpreting some things in a weird way. However, the reader is free to decide how to read things and with which intonation."
+> "Do you resent me? If you do, then keep on living and come kill me. I'll remember you. I'll never forget you."
 
-&mdash; [**Frederica Bernkastel**](https://myanimelist.net/character.php?q=Frederica%20Bernkastel&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Ogami Rei**](https://myanimelist.net/character.php?q=Ogami%20Rei&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
