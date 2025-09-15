@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is like a playground swing, the higher and farther forward you go as you swing, it carries the risk of falling just as far back."
+> "Right, It's too late for doubts now. There is no returning from this place I've come to."
 
-&mdash; [**Jiro**](https://myanimelist.net/character.php?q=Jiro&cat=character), [**Toriko**](https://myanimelist.net/search/all?q=Toriko&cat=all)
+&mdash; [**Inaho Kaizuka**](https://myanimelist.net/character.php?q=Inaho%20Kaizuka&cat=character), [**Aldnoah.Zero 2nd Season**](https://myanimelist.net/search/all?q=Aldnoah.Zero%202nd%20Season&cat=all)
