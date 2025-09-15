@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't believe in yourself, who will!? You're the only one demeaning yourself!"
+> "If the only way to be granted life in this world is to surrender my body and soul to insanity, then I shall choose to meet my doom!"
 
-&mdash; [**Amu Hinamori**](https://myanimelist.net/character.php?q=Amu%20Hinamori&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
+&mdash; [**Keigo Oonishi**](https://myanimelist.net/character.php?q=Keigo%20Oonishi&cat=character), [**Texhnolyze**](https://myanimelist.net/search/all?q=Texhnolyze&cat=all)
