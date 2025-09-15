@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The best way to succeed is to use your own abilities to the fullest."
+> "Life is like a playground swing, the higher and farther forward you go as you swing, it carries the risk of falling just as far back."
 
-&mdash; [**Yukio Okumura**](https://myanimelist.net/character.php?q=Yukio%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Jiro**](https://myanimelist.net/character.php?q=Jiro&cat=character), [**Toriko**](https://myanimelist.net/search/all?q=Toriko&cat=all)
