@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fear beyond rational limits, forces people to cling to normality."
+> "(Zuko is standing before a huge portrait of Fire Lord Sozin)It's never too early for a sitting with the court painter, Zuko. (Sarcastically) Make sure he gets your good side."
 
-&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
+&mdash; [**Azula**](https://myanimelist.net/character.php?q=Azula&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
