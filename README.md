@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We can't waste time worrying about the what-if's. Rukia's execution date has been changed to noon tomorrow. So what? If the deadline has been changed to tomorrow... I'll just have to finish today!"
+> "It's okay to feel depressed. It takes time to overcome things. And then, by taking that time, you just start moving forward again. That's just what humans do."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Mondo Oowada**](https://myanimelist.net/character.php?q=Mondo%20Oowada&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
