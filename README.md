@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Can you understand? Not having a dream... not being needed by anyone... The pain of merely being alive."
+> "[telling Mustang about the investigation on Scar] His bloodstained clothes washed up further downstream. We don't know if that means that he's dead, or just naked."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
