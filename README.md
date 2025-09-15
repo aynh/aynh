@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(Zuko is standing before a huge portrait of Fire Lord Sozin)It's never too early for a sitting with the court painter, Zuko. (Sarcastically) Make sure he gets your good side."
+> "After today, tomorrow will come again. Maybe I've been taking that for granted. But now... It's not easy, huh..."
 
-&mdash; [**Azula**](https://myanimelist.net/character.php?q=Azula&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
