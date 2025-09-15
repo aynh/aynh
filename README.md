@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My plan was perfect, but there was one thing I overlooked, one factor I failed to calculate. He's a dumbass. And there is no accounting for Dumbass...Ness."
+> "The best way to succeed is to use your own abilities to the fullest."
 
-&mdash; [**Akito Wanijima**](https://myanimelist.net/character.php?q=Akito%20Wanijima&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Yukio Okumura**](https://myanimelist.net/character.php?q=Yukio%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
