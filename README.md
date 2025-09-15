@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[telling Mustang about the investigation on Scar] His bloodstained clothes washed up further downstream. We don't know if that means that he's dead, or just naked."
+> "The moment of one's confession, is the moment of another's dumping."
 
-&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kenji Harima**](https://myanimelist.net/character.php?q=Kenji%20Harima&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
