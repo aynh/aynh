@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after witnessing a small argument between Inuyasha and Kagome] Inuyasha, your patience with this creature is astonishing to me. You protect her, indulge her, even seem to love her."
+> "To believe in someone can be a dangerous thing."
 
-&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**TimeKeeper**](https://myanimelist.net/character.php?q=TimeKeeper&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
