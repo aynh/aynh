@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After today, tomorrow will come again. Maybe I've been taking that for granted. But now... It's not easy, huh..."
+> "My plan was perfect, but there was one thing I overlooked, one factor I failed to calculate. He's a dumbass. And there is no accounting for Dumbass...Ness."
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Akito Wanijima**](https://myanimelist.net/character.php?q=Akito%20Wanijima&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
