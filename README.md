@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you resent me? If you do, then keep on living and come kill me. I'll remember you. I'll never forget you."
+> "Kindness can bring you even bigger troubles."
 
-&mdash; [**Ogami Rei**](https://myanimelist.net/character.php?q=Ogami%20Rei&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
+&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
