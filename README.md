@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment of one's confession, is the moment of another's dumping."
+> "You see, I really hate the word 'responsibility' saying something or doing something 'it's your responsibility' 'take responsibility' making a 'selection' always comes with 'responsibility.' That's why I abandoned 'selection' therefore, I don't have to bear any responsibility anymore."
 
-&mdash; [**Kenji Harima**](https://myanimelist.net/character.php?q=Kenji%20Harima&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
+&mdash; [**Kuruwa Kimiharu**](https://myanimelist.net/character.php?q=Kuruwa%20Kimiharu&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
