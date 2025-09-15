@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay to feel depressed. It takes time to overcome things. And then, by taking that time, you just start moving forward again. That's just what humans do."
+> "Accepting one's own strength, and the strength of others, is an important quality of a swordsman."
 
-&mdash; [**Mondo Oowada**](https://myanimelist.net/character.php?q=Mondo%20Oowada&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
