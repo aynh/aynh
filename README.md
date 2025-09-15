@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Accepting one's own strength, and the strength of others, is an important quality of a swordsman."
+> "Fear beyond rational limits, forces people to cling to normality."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
