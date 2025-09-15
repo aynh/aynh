@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Right, It's too late for doubts now. There is no returning from this place I've come to."
+> "Can you understand? Not having a dream... not being needed by anyone... The pain of merely being alive."
 
-&mdash; [**Inaho Kaizuka**](https://myanimelist.net/character.php?q=Inaho%20Kaizuka&cat=character), [**Aldnoah.Zero 2nd Season**](https://myanimelist.net/search/all?q=Aldnoah.Zero%202nd%20Season&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
