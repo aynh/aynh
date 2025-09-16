@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trying to knock others down a peg just means lowering yourself. Don't go trampling all the hardwork and trust you've build up. It insults the effort you put in."
+> "Do they love you, or the mask you put every day?"
 
-&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Shido Itsuka**](https://myanimelist.net/character.php?q=Shido%20Itsuka&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
