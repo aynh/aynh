@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're right, all efforts are pointless... If you don't believe in yourself."
+> "There are times in life when you have to distance yourself from those you love, because you love them."
 
-&mdash; [**Might Guy**](https://myanimelist.net/character.php?q=Might%20Guy&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
