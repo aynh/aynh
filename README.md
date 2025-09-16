@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Meals are always better with lots of people at the table."
+> "You stinker! I took it easy on you!"
 
-&mdash; [**Kido Tsubomi**](https://myanimelist.net/character.php?q=Kido%20Tsubomi&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
+&mdash; [**Blue**](https://myanimelist.net/character.php?q=Blue&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
