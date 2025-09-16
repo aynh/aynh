@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Between dreams and reality is the vault of your soul. No one could see the “Dream World” without this path."
+> "It is not wise to judge others based on your own preconceptions and by their appearances."
 
-&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
