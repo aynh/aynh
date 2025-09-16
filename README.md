@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You stinker! I took it easy on you!"
+> "Sounds like a lot of work, I think I'll pass. I'd rather play and I'll ask for help when I get stuck."
 
-&mdash; [**Blue**](https://myanimelist.net/character.php?q=Blue&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Konata Izumi**](https://myanimelist.net/character.php?q=Konata%20Izumi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
