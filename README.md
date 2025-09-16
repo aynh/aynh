@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is not wise to judge others based on your own preconceptions and by their appearances."
+> "The fear of interacting with people...even I understand that one."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
