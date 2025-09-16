@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sounds like a lot of work, I think I'll pass. I'd rather play and I'll ask for help when I get stuck."
+> "[To Ichigo] So you can withstand my Cero even without your mask... You've gotten stronger. Is it because you defeated Grimmjow? Or...Is it because of her? [Motions to Inoue] Or maybe because of your friends, still fighting down below. That girl is already one of us. Even if you manage to rescue her, that won't change. Rescuing her...Is meaningless."
 
-&mdash; [**Konata Izumi**](https://myanimelist.net/character.php?q=Konata%20Izumi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
