@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you take someone at puberty, a teen... introduce him or her to a member of the opposite sex around the same age and say, 'This is the person who was meant for you'... and then go on to spend a lot of time together... why wouldn't you fall for them?"
+> "Between dreams and reality is the vault of your soul. No one could see the “Dream World” without this path."
 
-&mdash; [**Nisaka Yuusuke**](https://myanimelist.net/character.php?q=Nisaka%20Yuusuke&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
+&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
