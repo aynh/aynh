@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Ichigo] So you can withstand my Cero even without your mask... You've gotten stronger. Is it because you defeated Grimmjow? Or...Is it because of her? [Motions to Inoue] Or maybe because of your friends, still fighting down below. That girl is already one of us. Even if you manage to rescue her, that won't change. Rescuing her...Is meaningless."
+> "But, you will not go in there with hopes of winning the tournament the first time you compete. To do so would be arrogant! And arrogance is for fools, not warriors! So you will enter the tournament with the sole purpose of improving your fighting skills."
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Master Roshi**](https://myanimelist.net/character.php?q=Master%20Roshi&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
