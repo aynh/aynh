@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times in life when you have to distance yourself from those you love, because you love them."
+> "Trying to knock others down a peg just means lowering yourself. Don't go trampling all the hardwork and trust you've build up. It insults the effort you put in."
 
-&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
