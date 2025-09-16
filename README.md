@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the only way to be granted life in this world is to surrender my body and soul to insanity, then I shall choose to meet my doom!"
+> "Romance is all about how far you'll go to prove your love. Finding a person who's worth the effort is pure luck. You just gotta wait for the right hurricane to sweep you off your feet."
 
-&mdash; [**Keigo Oonishi**](https://myanimelist.net/character.php?q=Keigo%20Oonishi&cat=character), [**Texhnolyze**](https://myanimelist.net/search/all?q=Texhnolyze&cat=all)
+&mdash; [**Tomoko Kuroki**](https://myanimelist.net/character.php?q=Tomoko%20Kuroki&cat=character), [**WATAMOTE**](https://myanimelist.net/search/all?q=WATAMOTE&cat=all)
