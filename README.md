@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you plan to continue being a detective and using words to entrap people, inscribe this in your hearts: Words are like knives. When used incorrectly, they turn into foul weapons. You have to understand the opponent’s heart and use them with discretion. No matter who it is you’re dealing with."
+> "Each one of them has something to improve. Victory doesn't come from technique or power alone. In the end, what's needed is a heart that won't give up. The only question is -- Do they have what it takes to push beyond their limits?"
 
-&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Soujuu Matsushita**](https://myanimelist.net/character.php?q=Soujuu%20Matsushita&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
