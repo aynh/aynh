@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This may come as something of a surprise, but I'm a sore loser."
+> "Meals are always better with lots of people at the table."
 
-&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Kido Tsubomi**](https://myanimelist.net/character.php?q=Kido%20Tsubomi&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
