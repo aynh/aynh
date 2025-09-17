@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The words you've said cannot be taken back. So you must take action to paint over what you have already said."
+> "Sorry I'm late. You wouldn't believe the traffic."
 
-&mdash; [**Dyne Woodwonder**](https://myanimelist.net/character.php?q=Dyne%20Woodwonder&cat=character), [**Overlord**](https://myanimelist.net/search/all?q=Overlord&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
