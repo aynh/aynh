@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This world is full of secrets meant never to be disturbed."
+> "Simple: girls are better at fixing pants than guys, and guys are better at hunting and fighting and stuff like that. It's just the natural order of things."
 
-&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
