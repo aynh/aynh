@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sharing your secret with someone means you involve them in your problems. It may make things easier for you, but your family could end up suffering for it too."
+> "Hold your tongue, the dead don't speak."
 
-&mdash; [**Mayoi Hachikuji**](https://myanimelist.net/character.php?q=Mayoi%20Hachikuji&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
