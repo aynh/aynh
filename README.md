@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "History books are rewritten with the changing of times. At any rate, classroom lectures are worlds apart from the battlefield."
+> "If something has a strong core, it won't break. That's true for both - swords and people."
 
-&mdash; [**Zess**](https://myanimelist.net/character.php?q=Zess&cat=character), [**Broken Blade**](https://myanimelist.net/search/all?q=Broken%20Blade&cat=all)
+&mdash; [**Hamrio Musica**](https://myanimelist.net/character.php?q=Hamrio%20Musica&cat=character), [**Rave Master**](https://myanimelist.net/search/all?q=Rave%20Master&cat=all)
