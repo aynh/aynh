@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Failing to act, for fear of the risk, is no different than a living death. No matter what world you’re in."
+> "The words you've said cannot be taken back. So you must take action to paint over what you have already said."
 
-&mdash; [**Crusty**](https://myanimelist.net/character.php?q=Crusty&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Dyne Woodwonder**](https://myanimelist.net/character.php?q=Dyne%20Woodwonder&cat=character), [**Overlord**](https://myanimelist.net/search/all?q=Overlord&cat=all)
