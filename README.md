@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Simple: girls are better at fixing pants than guys, and guys are better at hunting and fighting and stuff like that. It's just the natural order of things."
+> "I don't think it's completely such a bad thing to cling to one single person, but you have any number of people all around you. People are always connected to one another. You see? Just reach out your hand, and there's someone right here. It's when people realize how lonely it is being on their own, that they start to become kind."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
