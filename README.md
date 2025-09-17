@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There has never been a report about a stomach ache or any other related medical trauma from swallowing your pride."
+> "Failing to act, for fear of the risk, is no different than a living death. No matter what world you’re in."
 
-&mdash; [**Daisuke Aramaki**](https://myanimelist.net/character.php?q=Daisuke%20Aramaki&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Crusty**](https://myanimelist.net/character.php?q=Crusty&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
