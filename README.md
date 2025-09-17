@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If something has a strong core, it won't break. That's true for both - swords and people."
+> "This world is full of secrets meant never to be disturbed."
 
-&mdash; [**Hamrio Musica**](https://myanimelist.net/character.php?q=Hamrio%20Musica&cat=character), [**Rave Master**](https://myanimelist.net/search/all?q=Rave%20Master&cat=all)
+&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
