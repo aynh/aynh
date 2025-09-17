@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hippo."
+> "History books are rewritten with the changing of times. At any rate, classroom lectures are worlds apart from the battlefield."
 
-&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Zess**](https://myanimelist.net/character.php?q=Zess&cat=character), [**Broken Blade**](https://myanimelist.net/search/all?q=Broken%20Blade&cat=all)
