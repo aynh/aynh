@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human beings don't feel pain with their bodies. The brain is the thing that transmits the pain to the body."
+> "Hippo."
 
-&mdash; [**Madoka Shishito**](https://myanimelist.net/character.php?q=Madoka%20Shishito&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
