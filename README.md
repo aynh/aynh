@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why are you punching? What are you chasing? You should already know the answer to that. To become strong."
+> "The moment you find the courage to give up your life for someone, would be the moment you understand love."
 
-&mdash; [**Coach Kamogawa**](https://myanimelist.net/character.php?q=Coach%20Kamogawa&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Samurai X: Trust & Betrayal**](https://myanimelist.net/search/all?q=Samurai%20X%3A%20Trust%20%26%20Betrayal&cat=all)
