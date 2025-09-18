@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't develop feelings. That's how most idiots screw up."
+> "There is a meaning for wings that cannot fly! It's a precious memory of when you once flew in the sky."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Yukito Kunisaki**](https://myanimelist.net/character.php?q=Yukito%20Kunisaki&cat=character), [**Air**](https://myanimelist.net/search/all?q=Air&cat=all)
