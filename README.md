@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Smile. Even if you're facing an enemy, people can't attack others with a smile."
+> "Maybe I'm not perfect. Maybe I have a long way to go. But someday... someday I'll be able to stand and walk on my own. Without hurting anyone... and without being a burden. (to Kazuma)"
 
-&mdash; [**Rurumu**](https://myanimelist.net/character.php?q=Rurumu&cat=character), [**Adventures of Sinbad**](https://myanimelist.net/search/all?q=Adventures%20of%20Sinbad&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
