@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The bully always says it's a joke. But to the one being bullied, it's dead serious!"
+> "Playing a game by yourself is boring. You need a loser to crush so badly they can't recover."
 
-&mdash; [**Fujisaki Yusuke**](https://myanimelist.net/character.php?q=Fujisaki%20Yusuke&cat=character), [**Sket Dance**](https://myanimelist.net/search/all?q=Sket%20Dance&cat=all)
+&mdash; [**Five**](https://myanimelist.net/character.php?q=Five&cat=character), [**Terror in Resonance**](https://myanimelist.net/search/all?q=Terror%20in%20Resonance&cat=all)
