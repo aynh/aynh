@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The truth is the truth, regardless of whether it comes out of a genius' mouth or a commoner's."
+> "The bully always says it's a joke. But to the one being bullied, it's dead serious!"
 
-&mdash; [**Tsuchimikado Natsume**](https://myanimelist.net/character.php?q=Tsuchimikado%20Natsume&cat=character), [**Tokyo Ravens**](https://myanimelist.net/search/all?q=Tokyo%20Ravens&cat=all)
+&mdash; [**Fujisaki Yusuke**](https://myanimelist.net/character.php?q=Fujisaki%20Yusuke&cat=character), [**Sket Dance**](https://myanimelist.net/search/all?q=Sket%20Dance&cat=all)
