@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am content with just being a flower, blooming and withering away… that’s all I ever needed."
+> "*to Okita, who tells him that he should take his job more seriously* Shall I put you to sleep, ingrate?"
 
-&mdash; [**Dune**](https://myanimelist.net/character.php?q=Dune&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
+&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
