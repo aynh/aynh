@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment you find the courage to give up your life for someone, would be the moment you understand love."
+> "People have emotions. A troublesome attribute that's not only invisible, but also changes easily. If it's friendship or love, then that's fine. But if by some trigger it changes to malice and vengeance, then that could bring forth thoughts of murder."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Samurai X: Trust & Betrayal**](https://myanimelist.net/search/all?q=Samurai%20X%3A%20Trust%20%26%20Betrayal&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
