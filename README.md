@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Damn that witch. How am I supposed to be cool when she is all hot and naked like that huh?"
+> "I didn't hate it as much as I said. That hollow, that is. If there's anything that I've truly hated for 20 years without thinking twice... it'd have to be the fact that I failed to save Masaki on that night."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
