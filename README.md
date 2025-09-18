@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've forged my own way alone. While you were consoling and fighting with one another, I faced everything myself, head on. Now look at how strong I am."
+> "I want to break up while I can still say I love you."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Chihiro Shindou**](https://myanimelist.net/character.php?q=Chihiro%20Shindou&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
