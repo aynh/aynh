@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every single one of them died while furiously giving off the light that resided within them and that light is then inherited by the next person where it will go on to shine with an even greater radiance. And thus people are connected together... allowing us to work towards a better tomorrow."
+> "Why are you punching? What are you chasing? You should already know the answer to that. To become strong."
 
-&mdash; [**Ei Sei**](https://myanimelist.net/character.php?q=Ei%20Sei&cat=character), [**Kingdom**](https://myanimelist.net/search/all?q=Kingdom&cat=all)
+&mdash; [**Coach Kamogawa**](https://myanimelist.net/character.php?q=Coach%20Kamogawa&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
