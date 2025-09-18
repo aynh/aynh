@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Each person has his or her own way of having fun."
+> "The truth is the truth, regardless of whether it comes out of a genius' mouth or a commoner's."
 
-&mdash; [**Itsuki Koizumi**](https://myanimelist.net/character.php?q=Itsuki%20Koizumi&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Tsuchimikado Natsume**](https://myanimelist.net/character.php?q=Tsuchimikado%20Natsume&cat=character), [**Tokyo Ravens**](https://myanimelist.net/search/all?q=Tokyo%20Ravens&cat=all)
