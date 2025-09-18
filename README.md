@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is a meaning for wings that cannot fly! It's a precious memory of when you once flew in the sky."
+> "I think the only time people really have value is when they act according to their own will."
 
-&mdash; [**Yukito Kunisaki**](https://myanimelist.net/character.php?q=Yukito%20Kunisaki&cat=character), [**Air**](https://myanimelist.net/search/all?q=Air&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
