@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Playing a game by yourself is boring. You need a loser to crush so badly they can't recover."
+> "I've forged my own way alone. While you were consoling and fighting with one another, I faced everything myself, head on. Now look at how strong I am."
 
-&mdash; [**Five**](https://myanimelist.net/character.php?q=Five&cat=character), [**Terror in Resonance**](https://myanimelist.net/search/all?q=Terror%20in%20Resonance&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
