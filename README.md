@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People...At least, all children are born into a world that seems unreasonable and crazy to them. No one is asked at birth if they agree to come into the world. Everyone is born that way."
+> "Simple yet mysterious. Distant ancestors unlike any plant or animal we've ever seen. These groups of odd creatures have induced whispers of fear among man since ancient times."
 
-&mdash; [**Nyanta**](https://myanimelist.net/character.php?q=Nyanta&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
