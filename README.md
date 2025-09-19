@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every individual must be aware of themselves. If not, those who watch them think fools of themselves."
+> "Everyone has their own talents, and strong wills that won't lose to anyone else."
 
-&mdash; [**Fuyumi Irisu**](https://myanimelist.net/character.php?q=Fuyumi%20Irisu&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
