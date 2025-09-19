@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can become happy right now.' I won't say these types of absurd lies. However, if you get through these current hardships and survive - a time where you can be happy will come."
+> "Sometimes I think the whole world is conspiring to destroy my house."
 
-&mdash; [**Shin Woo Baek**](https://myanimelist.net/character.php?q=Shin%20Woo%20Baek&cat=character), [**Teen Spirit**](https://myanimelist.net/search/all?q=Teen%20Spirit&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
