@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Okita, who tells him that he should take his job more seriously* Shall I put you to sleep, ingrate?"
+> "The longer you're with someone, the tougher it is to part ways."
 
-&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
