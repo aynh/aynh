@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The longer you're with someone, the tougher it is to part ways."
+> "I killed many people to act on my ideal. I killed so many that I stopped caring about innocent people and I saved a thousand times as many as I killed."
 
-&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
