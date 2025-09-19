@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's is no such thing as a useless player."
+> "I stole a death note."
 
-&mdash; [**Daiki Aomine**](https://myanimelist.net/character.php?q=Daiki%20Aomine&cat=character), [**Kuroko no Basket: Mou Ikkai Yarimasen ka**](https://myanimelist.net/search/all?q=Kuroko%20no%20Basket%3A%20Mou%20Ikkai%20Yarimasen%20ka&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
