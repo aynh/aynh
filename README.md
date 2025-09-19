@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm saying that practically nobody feels that they're talented. That's what makes us strive to improve. As we strive to improve, we notice the people around us improving too, which makes us work even harder. I guess you could say friends are like rivals, in a way."
+> "There's is no such thing as a useless player."
 
-&mdash; [**Eli Ayase**](https://myanimelist.net/character.php?q=Eli%20Ayase&cat=character), [**Love Live! School idol project**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project&cat=all)
+&mdash; [**Daiki Aomine**](https://myanimelist.net/character.php?q=Daiki%20Aomine&cat=character), [**Kuroko no Basket: Mou Ikkai Yarimasen ka**](https://myanimelist.net/search/all?q=Kuroko%20no%20Basket%3A%20Mou%20Ikkai%20Yarimasen%20ka&cat=all)
