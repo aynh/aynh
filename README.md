@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A sound soul dwells within a sound mind and a sound body."
+> "Any harm that comes to me because of you is harm that I need. I want to share your pain. So I want you to let me fight. With you."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
