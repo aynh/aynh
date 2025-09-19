@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is how culture spreads. When someone has a new idea, it is immediately copied."
+> "Even if I lose my 'voice'. Even if everyone else doesn't turn up to hear me sing — as long as you're there, then, that's enough. If it comes to that… I will sing, just for you."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Izayoi Miku**](https://myanimelist.net/character.php?q=Izayoi%20Miku&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
