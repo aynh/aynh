@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have no idea what you really want, what you're really thinking, or what the right thing to do really is. But I'm your friend. Let me stay."
+> "A sound soul dwells within a sound mind and a sound body."
 
-&mdash; [**Takeo Gouda**](https://myanimelist.net/character.php?q=Takeo%20Gouda&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
