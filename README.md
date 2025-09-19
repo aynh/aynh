@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I finally remembered why I'm here to begin with. I'll kill you, you shitbag! I won't let you play your trump card! I'll blow you away and get a happy ending."
+> "You can become happy right now.' I won't say these types of absurd lies. However, if you get through these current hardships and survive - a time where you can be happy will come."
 
-&mdash; [**Subaru Natsuki**](https://myanimelist.net/character.php?q=Subaru%20Natsuki&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
+&mdash; [**Shin Woo Baek**](https://myanimelist.net/character.php?q=Shin%20Woo%20Baek&cat=character), [**Teen Spirit**](https://myanimelist.net/search/all?q=Teen%20Spirit&cat=all)
