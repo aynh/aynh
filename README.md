@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Any harm that comes to me because of you is harm that I need. I want to share your pain. So I want you to let me fight. With you."
+> "I finally remembered why I'm here to begin with. I'll kill you, you shitbag! I won't let you play your trump card! I'll blow you away and get a happy ending."
 
-&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Subaru Natsuki**](https://myanimelist.net/character.php?q=Subaru%20Natsuki&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
