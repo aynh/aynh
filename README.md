@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anybody want to take the sexy kitty home? She's free."
+> "This may have been a useless time for you... but I really wanted to see you!"
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
