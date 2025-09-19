@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can worry about things all you want, but it doesn't mean you'll always get an answer. What's important to remember, is that when it's all said and done and you got through it all somehow, are you the person you wanted to be?"
+> "I have no idea what you really want, what you're really thinking, or what the right thing to do really is. But I'm your friend. Let me stay."
 
-&mdash; [**Hibiki Tokai**](https://myanimelist.net/character.php?q=Hibiki%20Tokai&cat=character), [**Vandread**](https://myanimelist.net/search/all?q=Vandread&cat=all)
+&mdash; [**Takeo Gouda**](https://myanimelist.net/character.php?q=Takeo%20Gouda&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
