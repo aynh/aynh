@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will show you my own move."
+> "But the big difference is who I work for. I'd rather die than be a yes-man to someone I don't even like."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Shalnark**](https://myanimelist.net/character.php?q=Shalnark&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
