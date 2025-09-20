@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ah... what a beautiful sound. It doesn't get any better than that. I can feel it deep in my bones, like a part of me I never noticed before. That sound is an extension of my being. And this land - this land that's governed by death - I will paint it red with this shard of destruction."
+> "It is love that can make us strong, but it is also love that can make us weak."
 
-&mdash; [**Solf J. Kimblee**](https://myanimelist.net/character.php?q=Solf%20J.%20Kimblee&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
