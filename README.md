@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Simple yet mysterious. Distant ancestors unlike any plant or animal we've ever seen. These groups of odd creatures have induced whispers of fear among man since ancient times."
+> "Pika Pika!"
 
-&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Pikachu**](https://myanimelist.net/character.php?q=Pikachu&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
