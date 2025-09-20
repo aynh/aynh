@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Some people want power and they get mad when they don't get it. They take their fury out on everyone else. You don't want it, it becomes you."
+> "Why do you find it easy to kill? These are lives dammit!"
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
