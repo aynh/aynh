@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Live well, Ichigo. Live well, age well, go bald well, and die after me. And... if you can, die smiling."
+> "Some people want power and they get mad when they don't get it. They take their fury out on everyone else. You don't want it, it becomes you."
 
-&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
