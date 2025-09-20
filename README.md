@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to change, don't wait for someone else to make it happen. Do it yourself."
+> "Put away your sword and you shall live...unless you're still dreaming about defeating me. Did you forget, or did it just never occur to you...that I have Bankai as well?"
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
