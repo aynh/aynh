@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Papa was only 18 years old when I was born. He used to read a lot of books to me back then."
+> "It's Valentine's day, silly! It's the day when lovers are together!"
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
