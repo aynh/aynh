@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even though I don’t mind being alone, I don’t want others to think I’m lonely."
+> "You must live life as long as you are still strong. Never look at your life as something insignificant."
 
-&mdash; [**Ritsu Kawai**](https://myanimelist.net/character.php?q=Ritsu%20Kawai&cat=character), [**Bokura wa Minna Kawaisou**](https://myanimelist.net/search/all?q=Bokura%20wa%20Minna%20Kawaisou&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
