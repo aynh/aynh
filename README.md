@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "On the one hand, humans seek out new stimuli with insatiable desire. On the other, they're also odd creatures that value old and very rare things."
+> "[To Kyo] Perhaps if you'd just die you'd be reincarnated as something more pleasant."
 
-&mdash; [**Victorique de Blois**](https://myanimelist.net/character.php?q=Victorique%20de%20Blois&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
