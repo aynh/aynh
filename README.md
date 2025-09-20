@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pika Pika!"
+> "I will show you my own move."
 
-&mdash; [**Pikachu**](https://myanimelist.net/character.php?q=Pikachu&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
