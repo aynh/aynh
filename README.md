@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're like a cat. If I get close, you'll ignore me and go far away. If I get hurt, you'll play around to share the pain."
+> "Being good guys for once would be super-dupulous!"
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
