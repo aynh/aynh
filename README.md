@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mankind is a very intresting species."
+> "Gintoki, will you take up your sword once again to cleanse this rotting nation? Lend me the strength of the fearsome white demon once again. [flashback to when they were fighting together] Is this it? Rather than falling into enemy hands, we should kill ourselves and die as warriors."
 
-&mdash; [**Sakamoto**](https://myanimelist.net/character.php?q=Sakamoto&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
+&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
