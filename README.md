@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I would solve a friend's problem... then also find a way to keep them from ending up with a new one."
+> "[Fuu passed out after one drink and is asleep] Sleeping so carelessly. I could do something to you so easily."
 
-&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
