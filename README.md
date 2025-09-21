@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Meeting you was the best thing that ever happened to me. You made me so happy. I don’t want you to be lost or afraid or anything like that. From here on out, I know things might be hard sometimes. But no matter what may await, please don’t regret meeting me."
+> "A person is very strong when he seeks to protect something."
 
-&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Akihiko Kayaba**](https://myanimelist.net/character.php?q=Akihiko%20Kayaba&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
