@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How I envy the feeble and frail... If I were inept, I could simply blend in, not stand out, and get lost in the crowd. I yearned to be just another sheep... And if that was asking too much I'd settle for... walking among the lions."
+> "No one's gonna save me. People just accept help selfishly, for their own sake."
 
-&mdash; [**Starrk**](https://myanimelist.net/character.php?q=Starrk&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
