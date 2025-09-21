@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If a person you love doesn't love you back, you're worthless. That's what I always told myself."
+> "The freedom to do better than you do now, to be better than you are now. The spirit did not create us perfectly good. She gave us the freedom to keep trying to be better everyday."
 
-&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
