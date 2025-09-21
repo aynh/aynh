@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has to decide for themselves which choice to make. If you fight, people may die... but if you don't fight, people may still die. There's no 'right' or 'wrong' choice to make."
+> "I would solve a friend's problem... then also find a way to keep them from ending up with a new one."
 
-&mdash; [**Christina Mackenzie**](https://myanimelist.net/character.php?q=Christina%20Mackenzie&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
