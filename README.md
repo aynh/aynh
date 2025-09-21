@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The natural enemy of the strong is the weak, but the natural enemy of the weak is not the strong - it is the ones that are even weaker."
+> "Everyone has to decide for themselves which choice to make. If you fight, people may die... but if you don't fight, people may still die. There's no 'right' or 'wrong' choice to make."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Christina Mackenzie**](https://myanimelist.net/character.php?q=Christina%20Mackenzie&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
