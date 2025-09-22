@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I always knew you were no mere mortal... but I had no idea that you were a cat."
+> "A woman must always move with grace, whether you're wiping a table or drying sheets. Or in the fight for your life."
 
-&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Ooe Kanade**](https://myanimelist.net/character.php?q=Ooe%20Kanade&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
