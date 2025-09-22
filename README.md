@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What do you think it means to be the strongest man in the world? The strongest man in the world has power, skill, wisdom, heart, and luck."
+> "Nobody calls me a pipsqueak and gets away with it! Not even a little girl!"
 
-&mdash; [**Adlet Mayer**](https://myanimelist.net/character.php?q=Adlet%20Mayer&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
