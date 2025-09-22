@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This world offers no guarantees for the future."
+> "This whole world is nothing but lies, lies! Lemme show you what I like to call the truth, the truth called despair!"
 
-&mdash; [**Jun'ichi Hoshiyama**](https://myanimelist.net/character.php?q=Jun'ichi%20Hoshiyama&cat=character), [**Welcome to Irabu's Office**](https://myanimelist.net/search/all?q=Welcome%20to%20Irabu's%20Office&cat=all)
+&mdash; [**Hazama**](https://myanimelist.net/character.php?q=Hazama&cat=character), [**BlazBlue: Alter Memory**](https://myanimelist.net/search/all?q=BlazBlue%3A%20Alter%20Memory&cat=all)
