@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How weak the mind is when it wants to forget. Maybe you didn't forget. Maybe you're lying. Is it a lie you tell everyone around you, or perhaps a lie you tell yourself?"
+> "What do you think it means to be the strongest man in the world? The strongest man in the world has power, skill, wisdom, heart, and luck."
 
-&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Adlet Mayer**](https://myanimelist.net/character.php?q=Adlet%20Mayer&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
