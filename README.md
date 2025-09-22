@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A king must live a life more vivid than any other and be figure for all to admire! The king is the one who collects the envy of all his heroes and stands as their guide! Therefore, the king is not alone! For his will equals that of all his followers combined!"
+> "People have the strength to overcome their obstacles – everyone can."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Belldandy**](https://myanimelist.net/character.php?q=Belldandy&cat=character), [**Aah! Megami-Sama**](https://myanimelist.net/search/all?q=Aah!%20Megami-Sama&cat=all)
