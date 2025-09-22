@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why did I rescue this guy in the first place? He's anti-social, thinks he's evil kenevil, and hardly speaks. You've got such a gloomy personality, why don't you stop pretending to be human."
+> "Books are nice, aren't they? With just one sentence you can get lost in all sorts of dreams. They way I think of it, literature allows the reader's consciousness to deeply relish the author and be closer to him. And so, we freely walk around the world of the story from the yarn spinner's point of view. It's only when you immerse yourself in the world of a book that you are able to forget just who you are."
 
-&mdash; [**Duo Maxwell**](https://myanimelist.net/character.php?q=Duo%20Maxwell&cat=character), [**Mobile Suit Gundam Wing**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Wing&cat=all)
+&mdash; [**Shuu Tsukiyama**](https://myanimelist.net/character.php?q=Shuu%20Tsukiyama&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
