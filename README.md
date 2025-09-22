@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Eternity is instantaneous, and an instant is eternal."
+> "This world offers no guarantees for the future."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Jun'ichi Hoshiyama**](https://myanimelist.net/character.php?q=Jun'ichi%20Hoshiyama&cat=character), [**Welcome to Irabu's Office**](https://myanimelist.net/search/all?q=Welcome%20to%20Irabu's%20Office&cat=all)
