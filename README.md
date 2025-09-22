@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This whole world is nothing but lies, lies! Lemme show you what I like to call the truth, the truth called despair!"
+> "Resignation is what kills people. Once they've rejected resignation, humans gain the privilege of making humanity their footpath."
 
-&mdash; [**Hazama**](https://myanimelist.net/character.php?q=Hazama&cat=character), [**BlazBlue: Alter Memory**](https://myanimelist.net/search/all?q=BlazBlue%3A%20Alter%20Memory&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
