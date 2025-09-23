@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you only feel fear after knowing both the abilities of your enemy and yourself, flee with your tail between your legs. However, if you're going to stand firm and fight with a focused mind, you will definitely have victory within reach."
+> "What is it, you? Bang bang banging on people's heads like that. Are you hoping to become a tambourine player? If you don't like Shin-chan, then how about Sen-chan from secret operation?"
 
-&mdash; [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/character.php?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
