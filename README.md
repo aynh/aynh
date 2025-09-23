@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you hurt someone, you must be prepared to receive the same amount in return."
+> "To force obedience by the sword now will only invite bloody rebellion later."
 
-&mdash; [**Mana Ouma**](https://myanimelist.net/character.php?q=Mana%20Ouma&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Hakuei Ren**](https://myanimelist.net/character.php?q=Hakuei%20Ren&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
