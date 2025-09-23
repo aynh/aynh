@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look. Look at me! Watch as the man you cast out spills his blood and dies. Take a nice long look! I will save you all. I want you to live the rest of your lives knowing the man you abandoned saved you. And I will laugh at you from the afterlife. And tell you that it serves you right!"
+> "Human memories aren't reliable. Your brain will add something or just glorify it, memories make you believe what happened was better than it actually was."
 
-&mdash; [**Ikoma**](https://myanimelist.net/character.php?q=Ikoma&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
+&mdash; [**Motoharu Yano**](https://myanimelist.net/character.php?q=Motoharu%20Yano&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
