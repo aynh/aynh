@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I intended to listen to your voice, but it really was nothing but intentions. It's pretty obvious, huh? Of course there's more going on than what people choose to tell you... But I convinced myself that was all there is to a person. I knew that, but still I interpreted the stuff I didn't understand about you in ways convenient for me... That's just how I am."
+> "The devil made me do it. It was all his fault. Yup, all him. Look at them shake. I don't blame them. The second I spotted them, I put a lid on the tin and ran away. In other words, I kidnapped them. Is there any way to spin this? I mean, any way to solve the problem?"
 
-&mdash; [**Shouya Ishida**](https://myanimelist.net/character.php?q=Shouya%20Ishida&cat=character), [**Koe no Katachi**](https://myanimelist.net/search/all?q=Koe%20no%20Katachi&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
