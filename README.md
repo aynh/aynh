@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wish I could go back to my childhood. It went by so quickly I feel like it was robbed from me."
+> "If you hurt someone, you must be prepared to receive the same amount in return."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Mana Ouma**](https://myanimelist.net/character.php?q=Mana%20Ouma&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
