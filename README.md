@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is really wicked... is judging people without even trying to get to know them!"
+> "If a sorry could resolve everything, why would there be a need for hell in this world?"
 
-&mdash; [**Ada Vessalius**](https://myanimelist.net/character.php?q=Ada%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
