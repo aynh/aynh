@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You were ready to kill another creature, yet you’re scared of being killed yourself. Don’t you think that is strange? When you point a gun at a living thing… this is what that act means."
+> "I think it's good if someone smiles when you smile at them. The beauty of voluntary acts can foster goodwill in the hearts of others. Love which doesn't ask for collateral gives us respect as people. However it's wrong to sustain that. In time, the strain will bloom into the flower called Lie...the thorny flower which hurts people."
 
-&mdash; [**Kurumi Tokisaki**](https://myanimelist.net/character.php?q=Kurumi%20Tokisaki&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
