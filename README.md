@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Power is not the only connection you can have.  This world is filled with much warmer things."
+> "I intended to listen to your voice, but it really was nothing but intentions. It's pretty obvious, huh? Of course there's more going on than what people choose to tell you... But I convinced myself that was all there is to a person. I knew that, but still I interpreted the stuff I didn't understand about you in ways convenient for me... That's just how I am."
 
-&mdash; [**Minerva Orland**](https://myanimelist.net/character.php?q=Minerva%20Orland&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Shouya Ishida**](https://myanimelist.net/character.php?q=Shouya%20Ishida&cat=character), [**Koe no Katachi**](https://myanimelist.net/search/all?q=Koe%20no%20Katachi&cat=all)
