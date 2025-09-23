@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People have the strength to overcome their obstacles – everyone can."
+> "Power is not the only connection you can have.  This world is filled with much warmer things."
 
-&mdash; [**Belldandy**](https://myanimelist.net/character.php?q=Belldandy&cat=character), [**Aah! Megami-Sama**](https://myanimelist.net/search/all?q=Aah!%20Megami-Sama&cat=all)
+&mdash; [**Minerva Orland**](https://myanimelist.net/character.php?q=Minerva%20Orland&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
