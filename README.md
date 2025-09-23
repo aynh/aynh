@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Does she understand what she's doing, this stupid woman?"
+> "What is really wicked... is judging people without even trying to get to know them!"
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Ada Vessalius**](https://myanimelist.net/character.php?q=Ada%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
