@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human memories aren't reliable. Your brain will add something or just glorify it, memories make you believe what happened was better than it actually was."
+> "No one cared who I was until I put on a mask."
 
-&mdash; [**Motoharu Yano**](https://myanimelist.net/character.php?q=Motoharu%20Yano&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Obito Uchiha**](https://myanimelist.net/character.php?q=Obito%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
