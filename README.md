@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Choose the best thing you can do now, in order to get a step closer to your dream."
+> "Stupid ocean!!! Ya want me to kill you? Huh??"
 
-&mdash; [**Tsukitachi**](https://myanimelist.net/character.php?q=Tsukitachi&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
