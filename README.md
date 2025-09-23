@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My companions make my heart strong. If I'm fighting for those I love, I care not what happens to this body."
+> "Choose the best thing you can do now, in order to get a step closer to your dream."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Tsukitachi**](https://myanimelist.net/character.php?q=Tsukitachi&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
