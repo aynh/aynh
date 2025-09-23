@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To force obedience by the sword now will only invite bloody rebellion later."
+> "Does she understand what she's doing, this stupid woman?"
 
-&mdash; [**Hakuei Ren**](https://myanimelist.net/character.php?q=Hakuei%20Ren&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
