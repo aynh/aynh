@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I haven't lived all that long yet, but there is something I firmly believe in. The people who have the ability to change something in this world, all without exception, have the guts to abandon things important to them if they have to. They are those who can abandon even their humanity."
+> "Life sometimes deals you a bad hand and you make a lot of mistakes along the way, but as long as you believe in yourself and walk along your chosen path with a smile, everything will be alright."
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Narumi Anjo**](https://myanimelist.net/character.php?q=Narumi%20Anjo&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
