@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Chains can be torn off. Your sister knew that. Be it an artificially produced human or a wild animal stained by sin... I believe that all living things have the right to be happy."
+> "Everyone here is the same. They don't notice anything. They don't say anything. And they don't think anything. They are merely a shell of their former selves and soon they will disappear like the melting snow. This epidemic leads innocent people to their deaths, and yet, its pathogen will never be eradicated. This is a disease called serenity - a form of death that people have wished for."
 
-&mdash; [**Elica**](https://myanimelist.net/character.php?q=Elica&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
+&mdash; [**Oryou Rikako**](https://myanimelist.net/character.php?q=Oryou%20Rikako&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
