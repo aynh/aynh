@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've been looking out at the world through windows I've opened across the net. It's an extremely close-minded and twisted world."
+> "No amount of natural talent trumps hard work."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Rin Matsuoka**](https://myanimelist.net/character.php?q=Rin%20Matsuoka&cat=character), [**Free!**](https://myanimelist.net/search/all?q=Free!&cat=all)
