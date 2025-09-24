@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[sounding like Marlon Brando] I'm the Godfather of Games. Capsice?"
+> "Tohru, you must always be yourself and do things at your own pace. Someday... you'll catch up."
 
-&mdash; [**Joey Wheeler**](https://myanimelist.net/character.php?q=Joey%20Wheeler&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
