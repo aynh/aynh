@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone here is the same. They don't notice anything. They don't say anything. And they don't think anything. They are merely a shell of their former selves and soon they will disappear like the melting snow. This epidemic leads innocent people to their deaths, and yet, its pathogen will never be eradicated. This is a disease called serenity - a form of death that people have wished for."
+> "Stake your lives on this fight! Our survival demands that we stake our lives on this fight! And to survive, is to be victorious!"
 
-&mdash; [**Oryou Rikako**](https://myanimelist.net/character.php?q=Oryou%20Rikako&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
