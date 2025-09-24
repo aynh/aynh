@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Put away your sword and you shall live...unless you're still dreaming about defeating me. Did you forget, or did it just never occur to you...that I have Bankai as well?"
+> "The past you've lost will never come back. I myself have made so many mistakes... But we can learn from the past so we don't repeat it."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
