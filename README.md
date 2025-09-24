@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past you've lost will never come back. I myself have made so many mistakes... But we can learn from the past so we don't repeat it."
+> "We don't know if this world is real or a dream. Maybe the world until now has been a convenient fake. But magic will probably disappear now. The dream is over."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
