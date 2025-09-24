@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah I lied; so what is the truth? Underneath the band-aid?"
+> "Chains can be torn off. Your sister knew that. Be it an artificially produced human or a wild animal stained by sin... I believe that all living things have the right to be happy."
 
-&mdash; [**Haruko Haruhara**](https://myanimelist.net/character.php?q=Haruko%20Haruhara&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Elica**](https://myanimelist.net/character.php?q=Elica&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
