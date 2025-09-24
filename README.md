@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Adlet, I hated you. I hated the fact that I was starting to believe in you. I still hate you. The more I talk to you, the more I hate you. I believe you, even though I decided to never believe anyone again."
+> "Human beings are cruel. Even though it's heartbreaking, I feel hungry. Even though it's painful, I feel sleepy. And, even though it's painful for me, I still eat and sleep peacefully. I can't forgive myself, and hence it becomes even more painful."
 
-&mdash; [**Fremy Speedraw**](https://myanimelist.net/character.php?q=Fremy%20Speedraw&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
+&mdash; [**Asou Renji**](https://myanimelist.net/character.php?q=Asou%20Renji&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
