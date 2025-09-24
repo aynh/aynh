@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No amount of natural talent trumps hard work."
+> "Yeah I lied; so what is the truth? Underneath the band-aid?"
 
-&mdash; [**Rin Matsuoka**](https://myanimelist.net/character.php?q=Rin%20Matsuoka&cat=character), [**Free!**](https://myanimelist.net/search/all?q=Free!&cat=all)
+&mdash; [**Haruko Haruhara**](https://myanimelist.net/character.php?q=Haruko%20Haruhara&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
