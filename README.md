@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We don't know if this world is real or a dream. Maybe the world until now has been a convenient fake. But magic will probably disappear now. The dream is over."
+> "[sounding like Marlon Brando] I'm the Godfather of Games. Capsice?"
 
-&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Joey Wheeler**](https://myanimelist.net/character.php?q=Joey%20Wheeler&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
