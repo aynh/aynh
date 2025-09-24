@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human beings are cruel. Even though it's heartbreaking, I feel hungry. Even though it's painful, I feel sleepy. And, even though it's painful for me, I still eat and sleep peacefully. I can't forgive myself, and hence it becomes even more painful."
+> "Aren’t we family? Aren’t I like your family too? So it’s okay to cry if you’re having a hard time. Then I’ll do anything to help."
 
-&mdash; [**Asou Renji**](https://myanimelist.net/character.php?q=Asou%20Renji&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Haruto Kirishima**](https://myanimelist.net/character.php?q=Haruto%20Kirishima&cat=character), [**Kimi no Iru Machi**](https://myanimelist.net/search/all?q=Kimi%20no%20Iru%20Machi&cat=all)
