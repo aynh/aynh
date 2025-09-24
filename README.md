@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don’t put much trust in words like 'personality' or 'disposition' or 'character.' Those things all change depending on the situation. Looking at it in the long run, what changes people is what situations they get into. People put a lot of faith in consistency, but it’s something more superficial than most people think."
+> "I haven't lived all that long yet, but there is something I firmly believe in. The people who have the ability to change something in this world, all without exception, have the guts to abandon things important to them if they have to. They are those who can abandon even their humanity."
 
-&mdash; [**Kusonoki**](https://myanimelist.net/character.php?q=Kusonoki&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
