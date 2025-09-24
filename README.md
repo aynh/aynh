@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tohru, you must always be yourself and do things at your own pace. Someday... you'll catch up."
+> "Any man who has the brains to think and the nerve to act for the benefit of the people of the country, is considered a radical, by those who are content with stagnation and willing to endure disaster."
 
-&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
