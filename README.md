@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Babies are jobless when they are born too! It's just that they are tainted in the large bathtub called life after that!"
+> "Put away your sword and you shall live...unless you're still dreaming about defeating me. Did you forget, or did it just never occur to you...that I have Bankai as well?"
 
-&mdash; [**Mukai Hitoshi**](https://myanimelist.net/character.php?q=Mukai%20Hitoshi&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
