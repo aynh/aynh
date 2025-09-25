@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say you never know when a bullet you fired in battle will find its way back to you."
+> "Saving someone means not saving someone else."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Meikyuu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Meikyuu&cat=all)
+&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
