@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You didn't raise a weapon. You raised a son."
+> "[when Rukia asks why she is in the Gotei 13] What the hell?! That's so obvious! To 'fight' and to 'protect'!"
 
-&mdash; [**Shura Kirigakure**](https://myanimelist.net/character.php?q=Shura%20Kirigakure&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
