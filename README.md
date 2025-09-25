@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there's something you don't understand, learn to understand it."
+> "I won't die no matter what. That's what I believe, so stay silent and believe in me. I am a guy who will never die."
 
-&mdash; [**Hange Zoe**](https://myanimelist.net/character.php?q=Hange%20Zoe&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Claire Stanfield**](https://myanimelist.net/character.php?q=Claire%20Stanfield&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
