@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why you ask? That's the stupidest question I've ever heard.  The answer is obvious.  Because I want to! *to Misaki Takahashi*"
+> "If there's something you don't understand, learn to understand it."
 
-&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Hange Zoe**](https://myanimelist.net/character.php?q=Hange%20Zoe&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
