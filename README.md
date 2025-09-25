@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things I don't want to forget... Memories of time spent with friends. Memories of time spent with her alone. Memories are important. But there's something even more important... That's to continue making memories."
+> "Yeah, I know there's no right answer. All I know for sure is that time keeps on flowing like a river, and a river eventually leads to the ocean. Maybe I will try swimming against the current."
 
-&mdash; [**Yūki Hase**](https://myanimelist.net/character.php?q=Y%C5%ABki%20Hase&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
+&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
