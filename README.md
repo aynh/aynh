@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Saving someone means not saving someone else."
+> "I want you to please understand the scales of my heart will always be swaying back and forth. But there is something you should know. I will never lean to one side or the other due to the weight of gold coins."
 
-&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
