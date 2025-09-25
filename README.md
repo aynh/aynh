@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I won't die no matter what. That's what I believe, so stay silent and believe in me. I am a guy who will never die."
+> "What is this place? Where am I? Wherever it is, it's completely dark. I can't even see my own body. It hurts... Which way is up? Which way is down? Where am I supposed to go? Someone help me."
 
-&mdash; [**Claire Stanfield**](https://myanimelist.net/character.php?q=Claire%20Stanfield&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
