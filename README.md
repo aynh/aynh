@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The present will always be different from the past. That's what makes life good and at the same time sad. That sadness in turn gives our everyday life some flavor. Just like coffee."
+> "You didn't raise a weapon. You raised a son."
 
-&mdash; [**Tamako Love Story**](https://myanimelist.net/character.php?q=Tamako%20Love%20Story&cat=character), [**Tamako Love Story**](https://myanimelist.net/search/all?q=Tamako%20Love%20Story&cat=all)
+&mdash; [**Shura Kirigakure**](https://myanimelist.net/character.php?q=Shura%20Kirigakure&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
