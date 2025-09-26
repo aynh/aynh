@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time never comes back once it’s gone."
+> "I wanted to see your homework from the other day. And I got to see your face while you were sleeping... so don't sweat it."
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Konata Izumi**](https://myanimelist.net/character.php?q=Konata%20Izumi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
