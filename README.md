@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For all our sake I will sing and pee my heart out in the name of spirit!"
+> "Well, I like to look at myself in my spare time."
 
-&mdash; [**Yui**](https://myanimelist.net/character.php?q=Yui&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
