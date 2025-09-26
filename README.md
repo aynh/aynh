@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, I like to look at myself in my spare time."
+> "When a man faces fear, his soul is tested. What he was born to seek... what he was born to achieve... his true nature will become clear."
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
