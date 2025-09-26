@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'd rather trust and regret, than doubt and regret."
+> "The past is not what needs to be rectified. We learn from the past to rectify the future."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Goyle**](https://myanimelist.net/character.php?q=Goyle&cat=character), [**Blood Lad**](https://myanimelist.net/search/all?q=Blood%20Lad&cat=all)
