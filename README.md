@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll always be by your side, just like the wind that flows through your hair."
+> "What kind of king makes his men fight at the front line while he sits behind them relaxing?"
 
-&mdash; [**Kazuma Yagami**](https://myanimelist.net/character.php?q=Kazuma%20Yagami&cat=character), [**Kaze no Stigma**](https://myanimelist.net/search/all?q=Kaze%20no%20Stigma&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
