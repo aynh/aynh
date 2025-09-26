@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Destiny? What would a boy know of destiny? If a fish lives its whole life in this river, does he know the river's destiny? No! Only that it runs on and on out of his control. He may follow where it flows, but he cannot see the end. He cannot imagine the ocean."
+> "I'd rather trust and regret, than doubt and regret."
 
-&mdash; [**Jeong Jeong**](https://myanimelist.net/character.php?q=Jeong%20Jeong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
