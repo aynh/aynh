@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past is not what needs to be rectified. We learn from the past to rectify the future."
+> "As long as no one got hurt, it's all good. Who cares who saved who?"
 
-&mdash; [**Goyle**](https://myanimelist.net/character.php?q=Goyle&cat=character), [**Blood Lad**](https://myanimelist.net/search/all?q=Blood%20Lad&cat=all)
+&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
