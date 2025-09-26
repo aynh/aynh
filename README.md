@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There was no place for me, so I had to make one for myself, and then I realized, I had a place, but I was the only one in it. I didn't know any other way to live."
+> "I don't wanna see your face ever again. Keep that helmet on until you die."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Kurogane**](https://myanimelist.net/character.php?q=Kurogane&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
