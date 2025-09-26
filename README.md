@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wanted to see your homework from the other day. And I got to see your face while you were sleeping... so don't sweat it."
+> "Do you think it's possible to send Flame Alchemy through the phone and burn someones ears off?"
 
-&mdash; [**Konata Izumi**](https://myanimelist.net/character.php?q=Konata%20Izumi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
