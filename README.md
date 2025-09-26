@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "{TO NARUTO} Oh, by the way... I'm a boy"
+> "Knowing what it feels to be in pain, is exactly why we try to be kind to others."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
