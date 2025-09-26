@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you think it's possible to send Flame Alchemy through the phone and burn someones ears off?"
+> "As long as you keep anything about me within you... Always, my heart will be with you."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
