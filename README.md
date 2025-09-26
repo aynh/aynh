@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as you keep anything about me within you... Always, my heart will be with you."
+> "I'll always be by your side, just like the wind that flows through your hair."
 
-&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Kazuma Yagami**](https://myanimelist.net/character.php?q=Kazuma%20Yagami&cat=character), [**Kaze no Stigma**](https://myanimelist.net/search/all?q=Kaze%20no%20Stigma&cat=all)
