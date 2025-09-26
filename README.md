@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's some skill involved in the creation of anything. That skill is like a map made of the failures people have made in the past and learned from. That map can guide people. If you follow a certain route you'll fail. However, if you follow a different route you'll succeed. You can make something just by following the map. It will take form. It might be very hard task to walk the way others have told you. But if you have the will, it might turn out to be easy. But if you follow the path created by others, you'll eventually have to stop somewhere. Then what will you do? Will you create a new path for yourself? Or will you wait until someone creates one for you? Either one is fine. Stopping or moving forward. Because the path you'll follow is something you have to choose for yourself."
+> "Sometimes, I just think... this world has surpassed its capacity. It's overflowing. Our day-to-day lives are replete with both happiness and misfortune. Yet, because we cannot see the excess from the inside, we still feel unfulfilled. Given that we are capable of acknowledging neither excess nor deprivation, we might as well not exist. In other words... you can't withdraw coins from an ATM. That's common sense."
 
-&mdash; [**Madera**](https://myanimelist.net/character.php?q=Madera&cat=character), [**Shining Hearts**](https://myanimelist.net/search/all?q=Shining%20Hearts&cat=all)
+&mdash; [**Murasaki**](https://myanimelist.net/character.php?q=Murasaki&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
