@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, I just think... this world has surpassed its capacity. It's overflowing. Our day-to-day lives are replete with both happiness and misfortune. Yet, because we cannot see the excess from the inside, we still feel unfulfilled. Given that we are capable of acknowledging neither excess nor deprivation, we might as well not exist. In other words... you can't withdraw coins from an ATM. That's common sense."
+> "{TO NARUTO} Oh, by the way... I'm a boy"
 
-&mdash; [**Murasaki**](https://myanimelist.net/character.php?q=Murasaki&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
