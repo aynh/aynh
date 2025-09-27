@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's where all parallel lines meet. Where conflicting ideas are reconciled. It is... above the horizon."
+> "But you know the saying, 'play with fire, and you'll get burned'. I'll make you regret underestimating L...underestimating me."
 
-&mdash; [**Horizon Ariadust**](https://myanimelist.net/character.php?q=Horizon%20Ariadust&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
