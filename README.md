@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It must make you sick to know an underling like me is going to kill you."
+> "It's probably a lie. The reason why I only stay for three days in any country. I'm afraid I'll settle down, if I stay too long. Because if I settled down, I would cease to be a traveler."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
