@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's probably a lie. The reason why I only stay for three days in any country. I'm afraid I'll settle down, if I stay too long. Because if I settled down, I would cease to be a traveler."
+> "There’s no use. There’s no such thing as a victory that can be won through effort. It doesn’t exist."
 
-&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
