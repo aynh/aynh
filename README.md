@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To get what you want, you put up with something, make an effort, learn a skill, and inspire yourself. Is that how it is with Hinazuki too? Right now... I can tell she's enduring something. Just the opposite of me, she is pretending to be indifferent. She pretends to feel nothing, but a 10 year old girl isn't that strong."
+> "After being driven out of the orphanage, I had nothing to eat, nowhere to sleep, and, as one might expect, not a cent to my name. Yet, I lack the courage to commit theft. That is how I've arrived at my current predicament... However... if I wish to live, I have no choice but to steal and take from others!"
 
-&mdash; [**Satoru Fujinuma**](https://myanimelist.net/character.php?q=Satoru%20Fujinuma&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
+&mdash; [**Atsushi Nakajima**](https://myanimelist.net/character.php?q=Atsushi%20Nakajima&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
