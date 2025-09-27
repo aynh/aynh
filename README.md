@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But you know the saying, 'play with fire, and you'll get burned'. I'll make you regret underestimating L...underestimating me."
+> "When life changes to be harder, change yourself to be stronger."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
