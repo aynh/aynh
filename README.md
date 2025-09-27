@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't like men with glasses."
+> "If you become perplexed or make errors, in the end have the kind of life that you can have pride in living. The kind where you can say, 'I persevered.' Repeating delightful things and sad things. And in that way keep getting older. I persevered."
 
-&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
