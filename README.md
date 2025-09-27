@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you become perplexed or make errors, in the end have the kind of life that you can have pride in living. The kind where you can say, 'I persevered.' Repeating delightful things and sad things. And in that way keep getting older. I persevered."
+> "...and even if you were to hate yourself as much as you want, you have no choice but to live with yourself forever. Other people just go by. Eventually what's left to you at the end is only yourself. Even if you can't seem to like yourself, shouldn't you at least compromise?"
 
-&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Choi Yool**](https://myanimelist.net/character.php?q=Choi%20Yool&cat=character), [**Gaussian Blur**](https://myanimelist.net/search/all?q=Gaussian%20Blur&cat=all)
