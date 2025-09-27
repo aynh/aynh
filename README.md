@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Looks like most of what you say immediately vanishes from your head once you say it. I really envy you for a brain with such a lively metabolism."
+> "People only find me interesting because they can't tell whether I'm serious or not."
 
-&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Killua Zoldyck**](https://myanimelist.net/character.php?q=Killua%20Zoldyck&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
