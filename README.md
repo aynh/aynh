@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When life changes to be harder, change yourself to be stronger."
+> "I don't like lectures from someone who plays fixed matches."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Ryoma Echizen**](https://myanimelist.net/character.php?q=Ryoma%20Echizen&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
