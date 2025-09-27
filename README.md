@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What kind of king makes his men fight at the front line while he sits behind them relaxing?"
+> "That’s right. I’m nice. After everything that has happened in my life, I still haven’t gone after anyone or anything in revenge. If I were normal I would have destroyed the world by now. In a sense it makes me a savior of sorts."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
