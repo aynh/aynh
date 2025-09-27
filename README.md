@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wouldn't call myself a saint, but I think I do alright. My mind's about as sharp as the average person. When it comes to an iron will or noble spirit, well... I might have to ask you to turn a blind eye there..."
+> "I lie all the time. Who cares if you know something, but you say you don't? Forcing something out of someone without permission is worse."
 
-&mdash; [**Amagiri Ayato**](https://myanimelist.net/character.php?q=Amagiri%20Ayato&cat=character), [**Gakusen Toshi Asterisk**](https://myanimelist.net/search/all?q=Gakusen%20Toshi%20Asterisk&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
