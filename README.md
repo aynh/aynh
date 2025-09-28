@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is it wrong to do stuff by yourself? If someone worked hard on their own until now, why do they have to face rejection here?"
+> "'Checkmate' doesn't mean you've simply cornered the enemy king. It's a declaration that the enemy king is yours. That's why I said it the first time I met you. 'Checkmate.'"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
