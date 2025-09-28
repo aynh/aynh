@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Some questions with no answers cannot be answered even by those who live forever. Yet, the absence of a correct answer does not mean the question cannot be answered. If you want to know how I felt about the complete ban on some culture and art that I could not understand, was not interested in, or could not accept, in the name of preventing the violations of others’ rights or other trumped up charges, I believe that would be taking us onto the road of discriminating against others. If we define culture as that which is healthy or humane, and defend that decision in the name of justice, once any part of that system collapses, it will cause an unimaginable number of problems for society. For instance, if I drew a line in the middle and erased one side, the next day, a new line will appear in the middle of the side that is left. I think suppressing the instincts and thoughts of the human spirit is bad. The desire for purity and wholesomeness, when taken to an extreme, is harmful."
+> "And without any buildup or fanfare, we now see Nagato Yuki. Even if she were ordinary, she sure doesn't look like a normal person and naturally, she was actually an evil magician. And an alien on top of that."
 
-&mdash; [**Rory Mercury**](https://myanimelist.net/character.php?q=Rory%20Mercury&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
