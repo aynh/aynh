@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you forced someone to do something they didn’t want to do, they’d just end up hating life."
+> "I thought I told you. If you see your allies losing, that's your chance. Don't step between them. Take the enemy down from behind. And if the enemy's so strong, you can't even do that, then just watch your allies get killed. That's what it means to be Special Forces."
 
-&mdash; [**Chihiro Sengoku**](https://myanimelist.net/character.php?q=Chihiro%20Sengoku&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
