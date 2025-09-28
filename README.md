@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human relationships are chemical reactions. If you have a reaction then you can never return back to your previous state of being."
+> "What would you ask a grave, which can never reply? What do you pray for? Saying anything after someone's death is far too late."
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
