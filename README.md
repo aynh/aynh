@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone’s gonna die. It’s a natural part of life. But if life has no purpose, you’re dead already."
+> "Being free can mean many different things, but I think it's truest meaning is having a free heart that can't be bound by anything. So no matter what choice you make, as long as you remain who you are, you will forever be free."
 
-&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf’s Rain**](https://myanimelist.net/search/all?q=Wolf%E2%80%99s%20Rain&cat=all)
+&mdash; [**Rei Ryugazaki**](https://myanimelist.net/character.php?q=Rei%20Ryugazaki&cat=character), [**Free! Eternal Summer**](https://myanimelist.net/search/all?q=Free!%20Eternal%20Summer&cat=all)
