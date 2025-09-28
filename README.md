@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The voice, the smile that still remains in his heart... all of it was a long time ago. Humans live such short lives."
+> "* The Zone * In this state of extreme focus, all unnecessary thoughts disappear and the athlete becomes absorbed in his play. Only those who have practiced and practiced earn the right to stand before the door, and it only opens unpredictably. It is the ultimate domain, open only to the chosen."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Kuroko No Basket**](https://myanimelist.net/character.php?q=Kuroko%20No%20Basket&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
