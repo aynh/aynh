@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What would you ask a grave, which can never reply? What do you pray for? Saying anything after someone's death is far too late."
+> "Educating a heterosexual person about anime, is a joy for an otaku."
 
-&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
