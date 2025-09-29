@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The idea that you can't die yet because you still have something to protect... that is the foolish illusion of the weak."
+> "Worrying about rejection may be the same as rejecting yourself."
 
-&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
