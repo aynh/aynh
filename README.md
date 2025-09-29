@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In my memory, I link fragments of the past when we were together, to create a clear image of him in my mind. But I no longer know if that image is really him. The moment I see in my mind, may have never existed."
+> "Death may be my only freedom."
 
-&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
