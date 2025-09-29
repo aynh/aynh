@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I partnered with these two specifically so something like this wouldn't happen. I need symmetry! Maybe I should have listened to my father. He tried to pick out a good weapon for me, but I refused to listen to him! Stubborn! All I cared about, all I wanted was symmetry! Two symmetrical weapons! Was that so much to ask for?! And now all my efforts have been completely and utterly wasted! Damn it!"
+> "I'll help you... But not by death, this world has enough of that. You can keep your life as long as you change the way you live it. It's never too late, believe me."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
