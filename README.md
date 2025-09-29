@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You combined animals, the most depraved kind of alchemy there is."
+> "I partnered with these two specifically so something like this wouldn't happen. I need symmetry! Maybe I should have listened to my father. He tried to pick out a good weapon for me, but I refused to listen to him! Stubborn! All I cared about, all I wanted was symmetry! Two symmetrical weapons! Was that so much to ask for?! And now all my efforts have been completely and utterly wasted! Damn it!"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
