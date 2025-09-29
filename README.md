@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is it so strange to do something for someone else? If the people I love can stay smiling tomorrow... then you can call me foolish or whatever you want."
+> "You can become happy right now.' I won't say these types of absurd lies. However, if you get through these current hardships and survive - a time where you can be happy will come."
 
-&mdash; [**Takatori Kotori**](https://myanimelist.net/character.php?q=Takatori%20Kotori&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Shin Woo Baek**](https://myanimelist.net/character.php?q=Shin%20Woo%20Baek&cat=character), [**Teen Spirit**](https://myanimelist.net/search/all?q=Teen%20Spirit&cat=all)
