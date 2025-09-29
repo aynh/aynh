@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't spell 'slaughter' without 'laughter.'"
+> "You know what, I wish I could give everyone a happy ending. But life isn't some romantic anime and I can't fix what's wrong in life stumbling around being oblivious and nice all the time."
 
-&mdash; [**Hollow Ichigo**](https://myanimelist.net/character.php?q=Hollow%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kodaka Hasegawa**](https://myanimelist.net/character.php?q=Kodaka%20Hasegawa&cat=character), [**Boku wa Tomodachi ga Sukunai NEXT**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai%20NEXT&cat=all)
