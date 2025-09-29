@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether you're a monster or human there's no difference in the value of someone's life."
+> "There are two types of people in this world - those who do what they're told and those who stay true to themselves. Most people think you're supposed to follow a predetermined path, keep your head down, obey the rules, do whatever's popular. But some prefer to follow their own path in life."
 
-&mdash; [**Mizore Shirayuki**](https://myanimelist.net/character.php?q=Mizore%20Shirayuki&cat=character), [**Rosario Vampire**](https://myanimelist.net/search/all?q=Rosario%20Vampire&cat=all)
+&mdash; [**Yuji Sakurai**](https://myanimelist.net/character.php?q=Yuji%20Sakurai&cat=character), [**Beck**](https://myanimelist.net/search/all?q=Beck&cat=all)
