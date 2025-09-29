@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've really got to hold on to what's important to you."
+> "The world...God's divine creation...Is so brimming with love...Yet there is no love in the hearts of men."
 
-&mdash; [**Kazuya Kujō**](https://myanimelist.net/character.php?q=Kazuya%20Kuj%C5%8D&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
+&mdash; [**Canute**](https://myanimelist.net/character.php?q=Canute&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
