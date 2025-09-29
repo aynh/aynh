@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are two types of people in this world - those who do what they're told and those who stay true to themselves. Most people think you're supposed to follow a predetermined path, keep your head down, obey the rules, do whatever's popular. But some prefer to follow their own path in life."
+> "Since childhood, my body was weak. There was a limit to what I could do. A weak body... A life which I don't know how long I would live for. Well, life has its limits. I felt like my limit was exceeding faster than others' limit."
 
-&mdash; [**Yuji Sakurai**](https://myanimelist.net/character.php?q=Yuji%20Sakurai&cat=character), [**Beck**](https://myanimelist.net/search/all?q=Beck&cat=all)
+&mdash; [**Kanata Nanami**](https://myanimelist.net/character.php?q=Kanata%20Nanami&cat=character), [**Starry Sky**](https://myanimelist.net/search/all?q=Starry%20Sky&cat=all)
