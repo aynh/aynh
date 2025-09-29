@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the drive behind one's actions is the thought for another, then it is never meaningless."
+> "Whether you're a monster or human there's no difference in the value of someone's life."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Mizore Shirayuki**](https://myanimelist.net/character.php?q=Mizore%20Shirayuki&cat=character), [**Rosario Vampire**](https://myanimelist.net/search/all?q=Rosario%20Vampire&cat=all)
