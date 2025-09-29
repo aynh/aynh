@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regret is a powerful poison. The more you harbor those thoughts, the harder it is to move on."
+> "If the drive behind one's actions is the thought for another, then it is never meaningless."
 
-&mdash; [**Sakurako Amamiya**](https://myanimelist.net/character.php?q=Sakurako%20Amamiya&cat=character), [**Psyren**](https://myanimelist.net/search/all?q=Psyren&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
