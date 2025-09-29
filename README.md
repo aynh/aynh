@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Worrying about rejection may be the same as rejecting yourself."
+> "It's only natural for a man to protect the girl he likes."
 
-&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Saito Hiraga**](https://myanimelist.net/character.php?q=Saito%20Hiraga&cat=character), [**Zero no Tsukaima: Princess no Rondo**](https://myanimelist.net/search/all?q=Zero%20no%20Tsukaima%3A%20Princess%20no%20Rondo&cat=all)
