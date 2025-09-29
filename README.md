@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can become happy right now.' I won't say these types of absurd lies. However, if you get through these current hardships and survive - a time where you can be happy will come."
+> "No matter what kind of 'strength' you possess. There are places you can never reach no matter how hard you try. The farther it is... The higher it is..."
 
-&mdash; [**Shin Woo Baek**](https://myanimelist.net/character.php?q=Shin%20Woo%20Baek&cat=character), [**Teen Spirit**](https://myanimelist.net/search/all?q=Teen%20Spirit&cat=all)
+&mdash; [**Rika Noyamano**](https://myanimelist.net/character.php?q=Rika%20Noyamano&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
