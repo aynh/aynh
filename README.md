@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not that I don't trust you all. It's the opposite. I'm going because I believe in you all. You all know this well, right? No matter who betrays me, I won't betray anyone."
+> "It just so happens that I was caught in a web. A web known as malice. Whether you put up with it, or put up a fight, it makes no difference. In the end, you get killed. If you don't like that... risk your life... and retaliate."
 
-&mdash; [**Tsubaki**](https://myanimelist.net/character.php?q=Tsubaki&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
+&mdash; [**Fujisawa Ayana**](https://myanimelist.net/character.php?q=Fujisawa%20Ayana&cat=character), [**Fukushuu Kyoushitsu**](https://myanimelist.net/search/all?q=Fukushuu%20Kyoushitsu&cat=all)
