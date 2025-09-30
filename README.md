@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you think about it, death really isn't so frightening. Who knows, you might actually enjoy it."
+> "No matter how sturdy something appears, it should have some weakness."
 
-&mdash; [**Karasu**](https://myanimelist.net/character.php?q=Karasu&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Susanoo**](https://myanimelist.net/character.php?q=Susanoo&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
