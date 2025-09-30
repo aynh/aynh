@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our relationship has already been formed. No matter how trivial a meeting and the incidents that follow may seem, a relationship is made. Even if it is just for a short amount of time, a knot that has been tied does not unravel. It means that during your lifetime, every incident that passes has meaning. The meeting between you and I also has meaning, so remember it."
+> "Memories, even important ones — don't come back to us whenever we want them to. But that doesn't mean the memories are gone."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**Kingdom Hearts**](https://myanimelist.net/search/all?q=Kingdom%20Hearts&cat=all)
