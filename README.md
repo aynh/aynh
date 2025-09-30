@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It just so happens that I was caught in a web. A web known as malice. Whether you put up with it, or put up a fight, it makes no difference. In the end, you get killed. If you don't like that... risk your life... and retaliate."
+> "How can a snake fly? It's not even a man!"
 
-&mdash; [**Fujisawa Ayana**](https://myanimelist.net/character.php?q=Fujisawa%20Ayana&cat=character), [**Fukushuu Kyoushitsu**](https://myanimelist.net/search/all?q=Fukushuu%20Kyoushitsu&cat=all)
+&mdash; [**Elfman Strauss**](https://myanimelist.net/character.php?q=Elfman%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
