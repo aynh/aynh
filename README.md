@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you guys weren't here, I don't know what would have happened to me. You can't live in this world alone, no matter how you look at it."
+> "I don't like practice. I just hate losing even more."
 
-&mdash; [**Manato**](https://myanimelist.net/character.php?q=Manato&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Atsushi Murasakibara**](https://myanimelist.net/character.php?q=Atsushi%20Murasakibara&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
