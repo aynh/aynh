@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past you've lost will never come back. I myself have made so many mistakes... But we can learn from the past so we don't repeat it."
+> "Forget about me, and starting tomorrow live your own life. Don't keep dragging the dead into your life, otherwise your life would get screwed up and you won't be happy in the future, okay?"
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Misa Kurobane**](https://myanimelist.net/character.php?q=Misa%20Kurobane&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
