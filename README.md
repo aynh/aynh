@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Memories, even important ones — don't come back to us whenever we want them to. But that doesn't mean the memories are gone."
+> "True freedom can't lean on anything. It's transient, lonely, and arduous."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**Kingdom Hearts**](https://myanimelist.net/search/all?q=Kingdom%20Hearts&cat=all)
+&mdash; [**Yoshii Kazuho**](https://myanimelist.net/character.php?q=Yoshii%20Kazuho&cat=character), [**Texhnolyze**](https://myanimelist.net/search/all?q=Texhnolyze&cat=all)
