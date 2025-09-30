@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The earth's rowdier than a group of five high school guys living under the same roof."
+> "Kyon. The contest begins the second someone challenges you. Anything the loser says otherwise is merely an excuse."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
