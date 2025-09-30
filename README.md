@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Romance can strengthen people, but it can also make them useless."
+> "Love. I myself have never loved another person.  Most likely, I don't even love myself.  I do have knowledge of it.  But I am incapable of determining whether or not it is vital in my life."
 
-&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Vorona**](https://myanimelist.net/character.php?q=Vorona&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
