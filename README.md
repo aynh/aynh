@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll tattle-tale to Yachiru if you keep that up, Ikkaku!"
+> "I, Okazaki Nagisa, will no longer cry. No matter what painful things I face, I’ll hang in there and overcome it. But, I might cry during moments of happiness. I hope that you can get along… with someone like me."
 
-&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
