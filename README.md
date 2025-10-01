@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know about it, don't you, Witch Medusa? About the Kishin beneath the DWMA."
+> "Don't touch the poster at the Game Corner! There's no secret switch behind it!"
 
-&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Rocket Grunt**](https://myanimelist.net/character.php?q=Rocket%20Grunt&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
