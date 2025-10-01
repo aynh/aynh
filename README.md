@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The present will always be different from the past. That's what makes life good and at the same time sad. That sadness in turn gives our everyday life some flavor. Just like coffee."
+> "History is always made by the wisdom of the old and the passion of the young. Pave the way for a new age, youngsters of the next generation!"
 
-&mdash; [**Tamako Love Story**](https://myanimelist.net/character.php?q=Tamako%20Love%20Story&cat=character), [**Tamako Love Story**](https://myanimelist.net/search/all?q=Tamako%20Love%20Story&cat=all)
+&mdash; [**Donten ni Warau**](https://myanimelist.net/character.php?q=Donten%20ni%20Warau&cat=character), [**Donten ni Warau**](https://myanimelist.net/search/all?q=Donten%20ni%20Warau&cat=all)
