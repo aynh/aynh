@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are some people who are rich and stay in beautiful places but are still unhappy. There are some people who are poor, but happy. In the end, happiness or sadness, only the person can determine."
+> "A flower can't choose the place where it blooms and a child can't choose the parents he's born to."
 
-&mdash; [**Alicia Florence**](https://myanimelist.net/character.php?q=Alicia%20Florence&cat=character), [**Aria the Animation**](https://myanimelist.net/search/all?q=Aria%20the%20Animation&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
