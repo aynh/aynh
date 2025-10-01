@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "History is always made by the wisdom of the old and the passion of the young. Pave the way for a new age, youngsters of the next generation!"
+> "Yuusuke... Dammit Yuusuke, listen to me! Everyone has to fight with time to find their place before their inevitable death. Toguro... he ran away from that fight. Don't you ever do the same. No human is ever a one man show. Every decision that you make will affect the countless people who care about you. Do you understand? You can't be a cocky kid anymore."
 
-&mdash; [**Donten ni Warau**](https://myanimelist.net/character.php?q=Donten%20ni%20Warau&cat=character), [**Donten ni Warau**](https://myanimelist.net/search/all?q=Donten%20ni%20Warau&cat=all)
+&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
