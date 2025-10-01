@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I was little, I was teased because of my weight. I tried dieting, but diets always failed. Little by little I started feeling gloomy. I got to the point where I couldn't make friends, and I started hating myself more and more. I became completely unable to smile. I thought, no one in the world would ever like me the way I am now. But at the same time I also thought, if that's the way it is, then I should at least like myself."
+> "You know about it, don't you, Witch Medusa? About the Kishin beneath the DWMA."
 
-&mdash; [**Tsumugi Motohashi**](https://myanimelist.net/character.php?q=Tsumugi%20Motohashi&cat=character), [**Pochama ni**](https://myanimelist.net/search/all?q=Pochama%20ni&cat=all)
+&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
