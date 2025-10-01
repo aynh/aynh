@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Leave people to their own thoughts, and sooner or later they start questioning the powers that be. If you're in a position of power, the last thing you want folks to ask is whether or not the way things are, is the way they have to be."
+> "Hunger is the enemy."
 
-&mdash; [**Sunda Granitz**](https://myanimelist.net/character.php?q=Sunda%20Granitz&cat=character), [**Fractale**](https://myanimelist.net/search/all?q=Fractale&cat=all)
+&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
