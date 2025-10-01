@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The longer one holds on to a memory, the longer one lives in the past. The deeper the memory they hold onto, the more beautiful the past will become. The beautiful memories will eventually turn into hate. Even if they look ahead, they lose the ability to walk. As long as the heavy chain called revenge continues to bind the heart, the tears of sadness will continue to flow."
+> "'I'm different.', 'It has nothing to do with me.', 'It's all happening in a different world.' Turning away from reality like that is just a kind of inadvertent malice..."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Tieria Erde**](https://myanimelist.net/character.php?q=Tieria%20Erde&cat=character), [**Mobile Suit Gundam 00 2nd.Season**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000%202nd.Season&cat=all)
