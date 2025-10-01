@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't touch the poster at the Game Corner! There's no secret switch behind it!"
+> "If fate were real, then I would say meeting someone new would constitute such a thing."
 
-&mdash; [**Rocket Grunt**](https://myanimelist.net/character.php?q=Rocket%20Grunt&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Takahiro Mizuno**](https://myanimelist.net/character.php?q=Takahiro%20Mizuno&cat=character), [**Walkure Romanze**](https://myanimelist.net/search/all?q=Walkure%20Romanze&cat=all)
