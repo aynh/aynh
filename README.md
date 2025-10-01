@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If fate were real, then I would say meeting someone new would constitute such a thing."
+> "Wrongly placed jealousy is ugly when it goes too far."
 
-&mdash; [**Takahiro Mizuno**](https://myanimelist.net/character.php?q=Takahiro%20Mizuno&cat=character), [**Walkure Romanze**](https://myanimelist.net/search/all?q=Walkure%20Romanze&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
