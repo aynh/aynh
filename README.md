@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The curtain that falls down at the end, shall be pulled down by the blade of my sword."
+> "The present will always be different from the past. That's what makes life good and at the same time sad. That sadness in turn gives our everyday life some flavor. Just like coffee."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tamako Love Story**](https://myanimelist.net/character.php?q=Tamako%20Love%20Story&cat=character), [**Tamako Love Story**](https://myanimelist.net/search/all?q=Tamako%20Love%20Story&cat=all)
