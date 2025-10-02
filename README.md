@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What if that fruit you've worked so hard to nurture gets pulled off the branch the next morning? You'll regret that you didn't choose to harvest it the previous day instead of complaining. That regret really hurts. It'll make you crawl through hell."
+> "I want you to be happy. I want you to laugh a lot. I don't know what exactly I'll be able to do for you, but I'll always be by your side."
 
-&mdash; [**Ushiromiya Kyrie**](https://myanimelist.net/character.php?q=Ushiromiya%20Kyrie&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
