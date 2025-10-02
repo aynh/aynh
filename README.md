@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to defeat the me that's dragging this failure around. I don't want to forget my failure. But if I carry it with me as a bad memory and keep running away, I will never change."
+> "Having feelings for someone just brings sorrow to someone else. Someone always gets sacrificed and suffers. If this is what it means to fall in love, then falling in love is terrible."
 
-&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Hikari Sakishima**](https://myanimelist.net/character.php?q=Hikari%20Sakishima&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
