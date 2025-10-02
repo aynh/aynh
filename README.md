@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "With Roku gone and the Great Comet returning, the timing was perfect to change the world. I knew the next Avatar would be born an Air Nomad so I wiped out the Air Temples, but somehow the new Avatar eluded me. I wasted the remainder of my life searching in vain. I know he's hiding out there somewhere: the Fire Nation's greatest threat, the last Airbender."
+> "The death of a culture, is the death of a people."
 
-&mdash; [**Sozin**](https://myanimelist.net/character.php?q=Sozin&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Miles**](https://myanimelist.net/character.php?q=Miles&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
