@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Happiness isn't something you divide in halves."
+> "...Watermelon. Or like a panda with a mean face, or like sandals with pressure points drawn on them, or the smell of a blackboard eraser, or a Sunday morning where you wake up and it's raining. Well, I like him more than hard bread."
 
-&mdash; [**L-elf**](https://myanimelist.net/character.php?q=L-elf&cat=character), [**Kakumeiki Valvrave**](https://myanimelist.net/search/all?q=Kakumeiki%20Valvrave&cat=all)
+&mdash; [**Mamimi Samejima**](https://myanimelist.net/character.php?q=Mamimi%20Samejima&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
