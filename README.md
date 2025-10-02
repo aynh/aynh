@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether you like it or not, time will leave you behind. In the same way that your beauty will wither away with time. In order to cling to the glorious past, people achieve peace by hurting others. People know it isn't the right thing to do, but they're unable to stop any of it. Wouldn't you agree that someone needs to teach them a lesson?"
+> "Of course they are my family, isn't it obvious? And a wonderful family they were. It happened long ago when I was still in the flower of my youth. The cities began to grow wild, people lost hope for the future, they became lazy idol time wasters. And to my everlasting shame I was no exception. Thus I began to watch the 7 O'Clock news religiously every night!"
 
-&mdash; [**Ribbons Almark**](https://myanimelist.net/character.php?q=Ribbons%20Almark&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
