@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The day before yesterday, I saw a rabbit. Yesterday, it was a deer. And today, it’s you."
+> "Black leg!"
 
-&mdash; [**Ichinose Kotomi**](https://myanimelist.net/character.php?q=Ichinose%20Kotomi&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
