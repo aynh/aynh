@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Black leg!"
+> "Why does the scenery of a town that no longer exists wring my heart so?"
 
-&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Taki Tachibana**](https://myanimelist.net/character.php?q=Taki%20Tachibana&cat=character), [**Kimi no Na wa**](https://myanimelist.net/search/all?q=Kimi%20no%20Na%20wa&cat=all)
