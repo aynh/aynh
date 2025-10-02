@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...Watermelon. Or like a panda with a mean face, or like sandals with pressure points drawn on them, or the smell of a blackboard eraser, or a Sunday morning where you wake up and it's raining. Well, I like him more than hard bread."
+> "The subtle light that is born when people's feelings come together. That light embraces felicity, evil, sin, and happiness. The light blazes forth... illuminating the whole truth."
 
-&mdash; [**Mamimi Samejima**](https://myanimelist.net/character.php?q=Mamimi%20Samejima&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
