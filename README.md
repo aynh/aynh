@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You make a fine octopus, Pupil Aang."
+> "I want to defeat the me that's dragging this failure around. I don't want to forget my failure. But if I carry it with me as a bad memory and keep running away, I will never change."
 
-&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
