@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why does the scenery of a town that no longer exists wring my heart so?"
+> "What if that fruit you've worked so hard to nurture gets pulled off the branch the next morning? You'll regret that you didn't choose to harvest it the previous day instead of complaining. That regret really hurts. It'll make you crawl through hell."
 
-&mdash; [**Taki Tachibana**](https://myanimelist.net/character.php?q=Taki%20Tachibana&cat=character), [**Kimi no Na wa**](https://myanimelist.net/search/all?q=Kimi%20no%20Na%20wa&cat=all)
+&mdash; [**Ushiromiya Kyrie**](https://myanimelist.net/character.php?q=Ushiromiya%20Kyrie&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
