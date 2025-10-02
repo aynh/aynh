@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The subtle light that is born when people's feelings come together. That light embraces felicity, evil, sin, and happiness. The light blazes forth... illuminating the whole truth."
+> "With Roku gone and the Great Comet returning, the timing was perfect to change the world. I knew the next Avatar would be born an Air Nomad so I wiped out the Air Temples, but somehow the new Avatar eluded me. I wasted the remainder of my life searching in vain. I know he's hiding out there somewhere: the Fire Nation's greatest threat, the last Airbender."
 
-&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Sozin**](https://myanimelist.net/character.php?q=Sozin&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
