@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't see Kyoko-san...anymore. But she left me something. Her advice, her feelings... and Tohru. They all... all become fertilizer to help me grow."
+> "You can take control of my mind and my body, but there is one thing a Saiyan always keep... his PRIDE!"
 
-&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
