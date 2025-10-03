@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People change. And as the years go by, so do our environments. I think it’s alright for there not to be a 'proper' way of living. But I do believe that instead of trying to be satisfied on just one answer and blocking out the rest, searching for more answers, despite the pain they may bring, is a much more honest way of living."
+> "People who can see get to choose... if you want them to know you can see. To pretend to be able to see, even when you can't... Or to pretend that you can't see even when you can."
 
-&mdash; [**Harumi Shuntarou**](https://myanimelist.net/character.php?q=Harumi%20Shuntarou&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Akagi Shigeru**](https://myanimelist.net/character.php?q=Akagi%20Shigeru&cat=character), [**Touhai Densetsu Akagi: Yami Ni Maiorita Tensai**](https://myanimelist.net/search/all?q=Touhai%20Densetsu%20Akagi%3A%20Yami%20Ni%20Maiorita%20Tensai&cat=all)
