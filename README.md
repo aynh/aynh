@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are bad ways to win and good ways to lose. What's interesting and troubling, is that it's not always clear which is which. A flipped coin doesn't always land heads or tails. Sometimes it may never land at all."
+> "I can't see Kyoko-san...anymore. But she left me something. Her advice, her feelings... and Tohru. They all... all become fertilizer to help me grow."
 
-&mdash; [**Grimsley**](https://myanimelist.net/character.php?q=Grimsley&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
