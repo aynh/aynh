@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can take control of my mind and my body, but there is one thing a Saiyan always keep... his PRIDE!"
+> "You don't have any power or technique like Jack Johnson or Jack Dempsey either! You know any boxer names? You know I'm right? If you're an American, of course you know! If you say you don't know, or something, I won't forgive you! I will never forgive you! And even if you know them, I still won't forgive you, though!"
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Ladd Russo**](https://myanimelist.net/character.php?q=Ladd%20Russo&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
