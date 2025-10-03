@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter who I am. You can just think of me as the talking air."
+> "The day before yesterday, I saw a rabbit. Yesterday, it was a deer. And today, it’s you."
 
-&mdash; [**Claire Stanfield**](https://myanimelist.net/character.php?q=Claire%20Stanfield&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Ichinose Kotomi**](https://myanimelist.net/character.php?q=Ichinose%20Kotomi&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
