@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't have any power or technique like Jack Johnson or Jack Dempsey either! You know any boxer names? You know I'm right? If you're an American, of course you know! If you say you don't know, or something, I won't forgive you! I will never forgive you! And even if you know them, I still won't forgive you, though!"
+> "I can't promise you that good things will come to your life, but I do know that no one but you have the power to give meaning to your life in this world."
 
-&mdash; [**Ladd Russo**](https://myanimelist.net/character.php?q=Ladd%20Russo&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Rin Asogi**](https://myanimelist.net/character.php?q=Rin%20Asogi&cat=character), [**Rin ~Daughters of Mnemosyne~**](https://myanimelist.net/search/all?q=Rin%20~Daughters%20of%20Mnemosyne~&cat=all)
