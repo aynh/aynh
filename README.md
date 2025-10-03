@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The day before yesterday, I saw a rabbit. Yesterday, it was a deer. And today, it’s you."
+> "The longer you're with someone, the tougher it is to part ways."
 
-&mdash; [**Ichinose Kotomi**](https://myanimelist.net/character.php?q=Ichinose%20Kotomi&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
