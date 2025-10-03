@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's when things are tough that you have to keep your head up high. You won't find hope lying on the ground."
+> "Courage is the mindset of not surrendering even if you lack the strength."
 
-&mdash; [**Inspector Sayama**](https://myanimelist.net/character.php?q=Inspector%20Sayama&cat=character), [**Zetman**](https://myanimelist.net/search/all?q=Zetman&cat=all)
+&mdash; [**Chun-Woo Han**](https://myanimelist.net/character.php?q=Chun-Woo%20Han&cat=character), [**The Breaker**](https://myanimelist.net/search/all?q=The%20Breaker&cat=all)
