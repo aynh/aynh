@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm sure that the boy I killed, who shared that skill, must also have grown up knowing the pain of which I speak. We are special. We are powerful. And we are feared."
+> "It doesn't matter who I am. You can just think of me as the talking air."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Claire Stanfield**](https://myanimelist.net/character.php?q=Claire%20Stanfield&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
