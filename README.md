@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't promise you that good things will come to your life, but I do know that no one but you have the power to give meaning to your life in this world."
+> "There’s no use. There’s no such thing as a victory that can be won through effort. It doesn’t exist."
 
-&mdash; [**Rin Asogi**](https://myanimelist.net/character.php?q=Rin%20Asogi&cat=character), [**Rin ~Daughters of Mnemosyne~**](https://myanimelist.net/search/all?q=Rin%20~Daughters%20of%20Mnemosyne~&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
