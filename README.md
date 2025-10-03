@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Despair to the ones who become swelled with pride."
+> "I'll do whatever it takes to have everything make sense again!"
 
-&mdash; [**Truth**](https://myanimelist.net/character.php?q=Truth&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
