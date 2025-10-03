@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We've got nothing left at home but salt and sugar."
+> "You can't perform the same trick twice with one audience. If performed only once, the magic leaves a strong impression. It will then blossom into a beautiful miracle in their hearts. But, when used twice, rather than the audience enjoying the magic, they focus on unraveling the trick. As such, the chance of it being unveiled is high."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
