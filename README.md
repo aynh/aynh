@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You kids don't understand anything! By declaring that you're neutral and have nothing to do with this, you can still distance yourselves from what's happening? You don't really believe that, do you?"
+> "Do you know about the Happy Prince? It's such a happy story. The Prince helps everyone together with a little swallow, then he dies happily. But I wonder how the swallow felt? His wish wasn't granted because he helped the foolish Prince. Was the swallow really happy? It's always like that. The Prince and all the people he helped are happy, but what about the swallow? He helped the Prince more than anyone, so why is he ignored completely?"
 
-&mdash; [**Murrue Ramius**](https://myanimelist.net/character.php?q=Murrue%20Ramius&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Azusa Azuki**](https://myanimelist.net/character.php?q=Azusa%20Azuki&cat=character), [**Hentai Ouji To Warawanai Neko**](https://myanimelist.net/search/all?q=Hentai%20Ouji%20To%20Warawanai%20Neko&cat=all)
