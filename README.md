@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think there are some things that you have to do, even if they're a crime. Someone has to do them, even if it means taking the blame."
+> "There's only one world for us, and things in it are set up so that we can find happiness in it."
 
-&mdash; [**Yuri Lowell**](https://myanimelist.net/character.php?q=Yuri%20Lowell&cat=character), [**Tales Of Vesperia**](https://myanimelist.net/search/all?q=Tales%20Of%20Vesperia&cat=all)
+&mdash; [**Ryuuguu Rena**](https://myanimelist.net/character.php?q=Ryuuguu%20Rena&cat=character), [**Higurashi no Naku Koro ni Rei**](https://myanimelist.net/search/all?q=Higurashi%20no%20Naku%20Koro%20ni%20Rei&cat=all)
