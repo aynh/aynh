@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't achieve anything if you don't make a move. Love is an all-out assault."
+> "If you feel yourself hitting up against your limit remember for what cause you clench your fists... remember why you started down this path, and let that memory carry you beyond your limit."
 
-&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
