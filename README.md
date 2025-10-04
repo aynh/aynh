@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm so hungry, I can't even move."
+> "If you hurt somebody or if someone hurts you, - the same red blood will be shed."
 
-&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
