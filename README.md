@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why have I come to have this conscience? If it’s this agonizing, I shouldn’t have had it. Just what am I?"
+> "All truths are easy to understand once they are discovered. The point is to discover them."
 
-&mdash; [**Alcor**](https://myanimelist.net/character.php?q=Alcor&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Galilei**](https://myanimelist.net/character.php?q=Galilei&cat=character), [**Galilei Donna**](https://myanimelist.net/search/all?q=Galilei%20Donna&cat=all)
