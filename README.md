@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This guy's a special kind of stupid."
+> "I think there are some things that you have to do, even if they're a crime. Someone has to do them, even if it means taking the blame."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Yuri Lowell**](https://myanimelist.net/character.php?q=Yuri%20Lowell&cat=character), [**Tales Of Vesperia**](https://myanimelist.net/search/all?q=Tales%20Of%20Vesperia&cat=all)
