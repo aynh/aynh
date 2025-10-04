@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Romance is like an extra in life. I don't mind having it, but I'm not in the mood to chase it."
+> "A left... and then a right. Or is it a right and then a left? Hmm... maybe the postcard's upside-down."
 
-&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
+&mdash; [**Hikari**](https://myanimelist.net/character.php?q=Hikari&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
