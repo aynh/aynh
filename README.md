@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am an instrument of divine judgment!"
+> "Come on let's dance... aw yeah don't be afraid."
 
-&mdash; [**Scar**](https://myanimelist.net/character.php?q=Scar&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
