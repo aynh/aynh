@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past is the past and the future is the future. A man is a man and a woman is a woman. The present is the present. I am who I am and you are who you are. That's all there is to it. Does it really matter? Or do we just think it does?"
+> "Why have I come to have this conscience? If it’s this agonizing, I shouldn’t have had it. Just what am I?"
 
-&mdash; [**Faye Valentine**](https://myanimelist.net/character.php?q=Faye%20Valentine&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Alcor**](https://myanimelist.net/character.php?q=Alcor&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
