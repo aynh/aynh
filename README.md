@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you feel yourself hitting up against your limit remember for what cause you clench your fists... remember why you started down this path, and let that memory carry you beyond your limit."
+> "Every individual must be aware of themselves. If not, those who watch them think fools of themselves."
 
-&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
+&mdash; [**Fuyumi Irisu**](https://myanimelist.net/character.php?q=Fuyumi%20Irisu&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
