@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every individual must be aware of themselves. If not, those who watch them think fools of themselves."
+> "When surviving today is so simple and matter-of-fact people tend to forget. They forget what it means to eat a pig. They say all life is equal, but how much life is consumed to keep them alive everyday?"
 
-&mdash; [**Fuyumi Irisu**](https://myanimelist.net/character.php?q=Fuyumi%20Irisu&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Tanaka Misumi**](https://myanimelist.net/character.php?q=Tanaka%20Misumi&cat=character), [**Bokurano**](https://myanimelist.net/search/all?q=Bokurano&cat=all)
