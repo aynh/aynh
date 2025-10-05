@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In society, those who don't have many abilities, tend to complain more."
+> "Welcome home. Thank you for your great efforts."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Komui Lee**](https://myanimelist.net/character.php?q=Komui%20Lee&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
