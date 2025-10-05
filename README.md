@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Me? A liar? That's almost hurtful. I just don't feel like telling the whole truth."
+> "I never once thought that the world was fair, but some things will never change. If you want things to change, don't wait for someone to do it for you, go change it yourself."
 
-&mdash; [**William Macbeth**](https://myanimelist.net/character.php?q=William%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
