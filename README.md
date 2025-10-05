@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll do what I can, because I'm desperate."
+> "I don't want the precious time we have together to be taken away by anyone!"
 
-&mdash; [**Kai Miyagusuku**](https://myanimelist.net/character.php?q=Kai%20Miyagusuku&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
