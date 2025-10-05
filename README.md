@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human emotions are just black or white sometimes there and consistent and can even be contradictory, but that's all right."
+> "I'll do what I can, because I'm desperate."
 
-&mdash; [**Murasaki**](https://myanimelist.net/character.php?q=Murasaki&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
+&mdash; [**Kai Miyagusuku**](https://myanimelist.net/character.php?q=Kai%20Miyagusuku&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
