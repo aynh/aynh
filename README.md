@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end, the best way to live down here is to be smart. You've got to be clever to survive."
+> "Let me teach you a thing. Normally the weak person's weakness is the strong person, but the strong person's weakness is also the weak person."
 
-&mdash; [**Mikaela Hyakuya**](https://myanimelist.net/character.php?q=Mikaela%20Hyakuya&cat=character), [**Owari no Seraph**](https://myanimelist.net/search/all?q=Owari%20no%20Seraph&cat=all)
+&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
