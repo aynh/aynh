@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A choice isn't something someone gives you, it's something you make for yourself."
+> "I don't need someone as unreliable as you for a partner! (To Tohru)"
 
-&mdash; [**Papillon**](https://myanimelist.net/character.php?q=Papillon&cat=character), [**Busou Renkin**](https://myanimelist.net/search/all?q=Busou%20Renkin&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
