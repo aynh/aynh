@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If what you lost was too big and you can’t replace it with something else, you don’t have to replace it with just one thing, right? If you get ten small things or a hundred small things, all together it will be enough of a reason for you to keep going!"
+> "We're all born with selfish desires so we can relate to those feelings in others. But kindness is created individually by each person... So it's easy to misunderstand when someone is trying to be kind to you... But, Tohru, people's differences are something to celebrate."
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
