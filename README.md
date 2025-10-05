@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never once thought that the world was fair, but some things will never change. If you want things to change, don't wait for someone to do it for you, go change it yourself."
+> "What is education? Isn't education meant to create a person that conforms to society? What kind of education must be administrated to create a human being that meets the society's demands? Education is an experiment."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Mikhail Petrov**](https://myanimelist.net/character.php?q=Mikhail%20Petrov&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
