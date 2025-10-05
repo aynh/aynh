@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why did you run away, Chitoge-chan? No... I don't want this... I won't be happy with you just giving up... To end up liking the same person. It's painful, for sure but Chitoge-chan, you like him enough to not be able to face him again after that, don't you? Regardless of who ends up with him, I want to be satisfied when it happens. I thought for sure that you think the same way. Is there a reason why that can't happen? Tell me Chitoge-chan..."
+> "In the end, the best way to live down here is to be smart. You've got to be clever to survive."
 
-&mdash; [**Onodera Kosaki**](https://myanimelist.net/character.php?q=Onodera%20Kosaki&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Mikaela Hyakuya**](https://myanimelist.net/character.php?q=Mikaela%20Hyakuya&cat=character), [**Owari no Seraph**](https://myanimelist.net/search/all?q=Owari%20no%20Seraph&cat=all)
