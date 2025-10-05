@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don’t want to change. I want to change. We all hold in our hearts conflicting feelings, each back to back. And so, we live our days."
+> "Can you do me a favor? Could you kill me with your fangs? Can you still not forgive me? Am I still a traitor?"
 
-&mdash; [**Dera Mochimazzi**](https://myanimelist.net/character.php?q=Dera%20Mochimazzi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
+&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
