@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ruling over death means ruling over life. Death is the climax of life. To have the best death, you must honor life."
+> "One ought to experience loneliness at least once or twice in life. No, you have to experience it. The idea of being chained to another person without reprieve is far more abnormal and disquieting. One has no choice but to learn about loneliness. I’m sure some things can’t be experienced without it."
 
-&mdash; [**Rory Mercury**](https://myanimelist.net/character.php?q=Rory%20Mercury&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
