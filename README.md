@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Welcome home. Thank you for your great efforts."
+> "Me? A liar? That's almost hurtful. I just don't feel like telling the whole truth."
 
-&mdash; [**Komui Lee**](https://myanimelist.net/character.php?q=Komui%20Lee&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**William Macbeth**](https://myanimelist.net/character.php?q=William%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
