@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One ought to experience loneliness at least once or twice in life. No, you have to experience it. The idea of being chained to another person without reprieve is far more abnormal and disquieting. One has no choice but to learn about loneliness. I’m sure some things can’t be experienced without it."
+> "A girlfriend isn't something you get just because you want one. You meet someone you like, and you want to spend time together. That's why you'd want that person as your girlfriend, right?"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
