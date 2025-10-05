@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment you find the courage to give up your life for someone... Would be the moment you understand love."
+> "Human emotions are just black or white sometimes there and consistent and can even be contradictory, but that's all right."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Murasaki**](https://myanimelist.net/character.php?q=Murasaki&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
