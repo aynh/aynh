@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Celebrating Mr. Jesus's birthday (Christmas) was fun, why don't we celebrate Buddha's and Muhammad's birthday next time?"
+> "That kid's good point is that he feels he doesn't have much skill. It's this kind of person that will keep on improving."
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Mizuno Tatsuya**](https://myanimelist.net/character.php?q=Mizuno%20Tatsuya&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
