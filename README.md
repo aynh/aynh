@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Wake up princess, I'm tired of your useless ideals. It's gotten pathetic. What good are your happy ideals if you can't do anything to make them a reality? They're nothing but dreams, and your dreams don't stand a chance."
+> "I refuse to stand by and watch you give up. I won't lose you, I can't. We'll walk away from this battle together."
 
-&mdash; [**Crocodile**](https://myanimelist.net/character.php?q=Crocodile&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
