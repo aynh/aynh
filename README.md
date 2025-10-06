@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If people want to, they can become angels or demons themselves."
+> "Father, you're so tough and proud, hard and cold like a rock. But still, deep down, your heart beats like mine does... I know you feel... I'm your son and I will always love you."
 
-&mdash; [**Rika Suzuki**](https://myanimelist.net/character.php?q=Rika%20Suzuki&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
+&mdash; [**Trunks Brief**](https://myanimelist.net/character.php?q=Trunks%20Brief&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
