@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The important thing is to think of something nobody else is thinking of. 'Ignorance is a sin' is not about knowledge - it's about wisdom."
+> "If people want to, they can become angels or demons themselves."
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Rika Suzuki**](https://myanimelist.net/character.php?q=Rika%20Suzuki&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
