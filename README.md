@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's nothing more boring than a perfect heroine!"
+> "Water is the greatest enemy of games."
 
-&mdash; [**Drosselmeyer**](https://myanimelist.net/character.php?q=Drosselmeyer&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
