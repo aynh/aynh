@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People save themselves on their own. Nobody can ever save anyone else."
+> "A cowardly thief would sneak away in the night; the King of Conquerors leaves with his loot amidst songs of victory!"
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
