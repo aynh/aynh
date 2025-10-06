@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I refuse to stand by and watch you give up. I won't lose you, I can't. We'll walk away from this battle together."
+> "It's kinda scary how much people trust me."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
