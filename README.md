@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Duke Nightray* You've let your own son die for the honor of your household and other such rubbish. You've lost almost all of your family, and yet all you can think of is your own interests."
+> "I always lied to you telling you to forgive me. I used these hands to keep you at distance... I did not want you to get involved. But now... I think you could have changed father and mother. Perhaps even the entire Uchiha. If I would have stood in front of you and looked you in the eyes from the very beginning... talked to you instead of down to you... and been open about everything. But I failed, and speaking to you now, like this, isn't going to undo the permanent damage that's already been done to you. That's why I wanted to show you the truth. Even if it's just a little. And no matter what you decide to do from here on out, you never have to forgive me - I will always love you."
 
-&mdash; [**Vincent Nightray**](https://myanimelist.net/character.php?q=Vincent%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
