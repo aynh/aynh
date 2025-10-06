@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Father, you're so tough and proud, hard and cold like a rock. But still, deep down, your heart beats like mine does... I know you feel... I'm your son and I will always love you."
+> "If this is all it takes to tear us apart, then maybe we weren't all that close to begin with."
 
-&mdash; [**Trunks Brief**](https://myanimelist.net/character.php?q=Trunks%20Brief&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Yukino Yukinoshita**](https://myanimelist.net/character.php?q=Yukino%20Yukinoshita&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
