@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as one person still lives...it shall be proof eternal that mankind ever existed."
+> "Always skillfully manipulate your pieces, that's how you survive. Use me and madam red, any piece within your reach. Even if the bodies of your pawns pile up in front of your thrown. Because if the king falls - this game is over."
 
-&mdash; [**Yui Ikari**](https://myanimelist.net/character.php?q=Yui%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
