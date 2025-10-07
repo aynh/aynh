@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I were to lose a friend...then I couldn't die in peace!"
+> "When you come to hate something you liked it is incredibly painful."
 
-&mdash; [**Tsunayoshi Sawada**](https://myanimelist.net/character.php?q=Tsunayoshi%20Sawada&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
