@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I always wished to be accepted by my surroundings. I tried to change myself for that reason. But, I don't care if I'm disliked. I don't care if I don't have a place where I belong. I don't mind if everybody rejects me starting tomorrow. I will even become a devil for the person who is trying to protect me."
+> "My new family is just so kind. It's almost if there's been some kind of mistake... like, I'll have to pay back for all this happiness later on."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Nao Yasumori**](https://myanimelist.net/character.php?q=Nao%20Yasumori&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
