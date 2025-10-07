@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment you challenged me, you had already lost."
+> "Keep on living your life in such a way that love doesn't fade away. I shall work... so that love may shine brightly, even today."
 
-&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
