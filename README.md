@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To live is to die, to die is to live. Pure is unpure, unpure is pure."
+> "As long as one person still lives...it shall be proof eternal that mankind ever existed."
 
-&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Yui Ikari**](https://myanimelist.net/character.php?q=Yui%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
