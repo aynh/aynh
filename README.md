@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Overall, I think people tend to reveal their true selves when they step into an avatar. As I said earlier, they probably feel some sense of freedom. But freedom easily gained quickly turns into a false sense of omnipotence."
+> "The result is the most important thing."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
+&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
