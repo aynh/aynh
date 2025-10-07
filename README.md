@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm bothered by the very fact that people exist, but you're an exception."
+> "As long as the kindness received from others... is returned back, it's fine even if it takes time."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Isogi Toshio**](https://myanimelist.net/character.php?q=Isogi%20Toshio&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
