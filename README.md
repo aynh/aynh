@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Always skillfully manipulate your pieces, that's how you survive. Use me and madam red, any piece within your reach. Even if the bodies of your pawns pile up in front of your thrown. Because if the king falls - this game is over."
+> "Overall, I think people tend to reveal their true selves when they step into an avatar. As I said earlier, they probably feel some sense of freedom. But freedom easily gained quickly turns into a false sense of omnipotence."
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
