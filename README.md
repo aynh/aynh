@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are only two paths you can choose. You can sit quietly and be selected out of this world, or you can adapt and change."
+> "I'm bothered by the very fact that people exist, but you're an exception."
 
-&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
