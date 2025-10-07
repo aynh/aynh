@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anyone can die. It's living that requires courage."
+> "There are only two paths you can choose. You can sit quietly and be selected out of this world, or you can adapt and change."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
