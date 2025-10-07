@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you come to hate something you liked it is incredibly painful."
+> "[thinking after Soifon asks why she didn't take her with her] You've gotten stronger since the last time we were together, Soifon."
 
-&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
