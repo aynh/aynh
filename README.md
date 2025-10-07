@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Obviously you are underestimating Kurama. Do you know why I chose him to be my partner? To avoid fighting him myself. Watch, he's more cut-throat then I am when it comes to battle, and unbelievably precise."
+> "It is a virtue to devote one's self to something, firmly believing in one's own ideals. But that does not mean it's alright to belittle the ideals or feelings of others. If you lead such a busy life and you don't realize how your parents feel, it's only self-satisfaction. It's alright to stop every now and again, if you want a moment's rest, if you want to feel what other people feel."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
