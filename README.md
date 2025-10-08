@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We simply cannot see the world as it is. The world people see is nothing more than how our brains translate it. In other words, it's subjective."
+> "Humans have the ability to actively put things to an end rather than simply accept what's in store."
 
-&mdash; [**Alis Color**](https://myanimelist.net/character.php?q=Alis%20Color&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
+&mdash; [**Souda Manatsu**](https://myanimelist.net/character.php?q=Souda%20Manatsu&cat=character), [**RDG: Red Data Girl**](https://myanimelist.net/search/all?q=RDG%3A%20Red%20Data%20Girl&cat=all)
