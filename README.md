@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If all humans were saints and sages, all truths would be exposed. And every just cause, expedient, ideal, and lie would no longer be necessary, yes?"
+> "You can run away, but that'll just make it worse!"
 
-&mdash; [**Kaishou Rinroku**](https://myanimelist.net/character.php?q=Kaishou%20Rinroku&cat=character), [**Un-Go**](https://myanimelist.net/search/all?q=Un-Go&cat=all)
+&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
