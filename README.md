@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every human being thinks different things are right, and different things are wrong. Whether something is normal or not, it is still different for every person. Happiness is the same – everyone has their own definition of it."
+> "I've been thinking about this for a long time. We put all our trust in alchemy but in the end... what is it? 'Alchemy is the science of understanding the flow of matter and its laws. The process of comprehension, deconstruction, and reconstruction. The world flows too. It must also follow laws. Everything circulates. Even death is a part of that circulation. You must accept the flow.' Hmm, Teacher sure drummed that into our heads, didn't she? I thought I understood it. But I don't understand anything... Mom proves that. Now here I am again, trying desperately to figure out a way to do the impossible. I'm such a hopeless idiot. All this time and I haven't grown up one bit. I thought maybe the rain would wash away some of this gloom that's been following me... but right now, every drop that hits my face is even more depressing."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
