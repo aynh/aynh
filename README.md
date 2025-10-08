@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Loving a person isn’t about logic or reason."
+> "It doesn't matter whether this world is crazy or not. It doesn't matter if this absurdity is real. It doesn't matter how messed up this place may be... I want to survive."
 
-&mdash; [**Yukari Hayasaka**](https://myanimelist.net/character.php?q=Yukari%20Hayasaka&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
+&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
