@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Girls are more fragile than you think. They can be hurt by the smallest things."
+> "It would be enough for the depressing things in life to only exist in reality. It is because that I think the birth of a story is from people dreaming of a happy ending."
 
-&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Shiori Misaka**](https://myanimelist.net/character.php?q=Shiori%20Misaka&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
