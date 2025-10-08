@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Saying that people's personalities are products of their pasts isn't totally wrong. The way people live depends on their experiences."
+> "Humans cannot reject temptation. When they are plunged into the depths of despair, likened to hell, they will hold on to anything that may help them escape from the situation they are in, even if it's merely a spider's thread, no matter what sort of humans they are."
 
-&mdash; [**Kirie Kanoe**](https://myanimelist.net/character.php?q=Kirie%20Kanoe&cat=character), [**Dusk maiden of Amnesia**](https://myanimelist.net/search/all?q=Dusk%20maiden%20of%20Amnesia&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
