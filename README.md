@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter whether this world is crazy or not. It doesn't matter if this absurdity is real. It doesn't matter how messed up this place may be... I want to survive."
+> "I kinda like that about you. If only everyone had the guts to fight for each other like you do, the world might have been a better place."
 
-&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Maria Cadenzavna Eve**](https://myanimelist.net/character.php?q=Maria%20Cadenzavna%20Eve&cat=character), [**Senki Zesshō Symphogear G**](https://myanimelist.net/search/all?q=Senki%20Zessh%C5%8D%20Symphogear%20G&cat=all)
