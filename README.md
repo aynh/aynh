@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My new family is just so kind. It's almost if there's been some kind of mistake... like, I'll have to pay back for all this happiness later on."
+> "People like you disgust me. You can't even face your own weakness."
 
-&mdash; [**Nao Yasumori**](https://myanimelist.net/character.php?q=Nao%20Yasumori&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Murasaki**](https://myanimelist.net/character.php?q=Murasaki&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
