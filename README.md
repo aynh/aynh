@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans cannot reject temptation. When they are plunged into the depths of despair, likened to hell, they will hold on to anything that may help them escape from the situation they are in, even if it's merely a spider's thread, no matter what sort of humans they are."
+> "I'd been wondering all this time, whether there's any meaning to a failed love. Is it something that will disappear, the same as something that never existed. Now I know, there is meaning...there was a meaning...right here."
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
