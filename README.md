@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The opposite of boredom is not pleasure... but excitement. People will gladly seek out any kind of excitement, even pain."
+> "Loving a person isn’t about logic or reason."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Yukari Hayasaka**](https://myanimelist.net/character.php?q=Yukari%20Hayasaka&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
