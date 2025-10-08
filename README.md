@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I kinda like that about you. If only everyone had the guts to fight for each other like you do, the world might have been a better place."
+> "You didn't raise a weapon. You raised a son."
 
-&mdash; [**Maria Cadenzavna Eve**](https://myanimelist.net/character.php?q=Maria%20Cadenzavna%20Eve&cat=character), [**Senki Zesshō Symphogear G**](https://myanimelist.net/search/all?q=Senki%20Zessh%C5%8D%20Symphogear%20G&cat=all)
+&mdash; [**Shura Kirigakure**](https://myanimelist.net/character.php?q=Shura%20Kirigakure&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
