@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're slow, even when you're falling."
+> "We simply cannot see the world as it is. The world people see is nothing more than how our brains translate it. In other words, it's subjective."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Alis Color**](https://myanimelist.net/character.php?q=Alis%20Color&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
