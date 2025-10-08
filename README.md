@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It would be enough for the depressing things in life to only exist in reality. It is because that I think the birth of a story is from people dreaming of a happy ending."
+> "Every human being thinks different things are right, and different things are wrong. Whether something is normal or not, it is still different for every person. Happiness is the same – everyone has their own definition of it."
 
-&mdash; [**Shiori Misaka**](https://myanimelist.net/character.php?q=Shiori%20Misaka&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
