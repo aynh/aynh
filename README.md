@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's nothing known for certain. Adolescence is like that anyway. It's like a train ride with no destination and nobody. There's no destination and outside everything is flashing by so you can't see anything."
+> "Time will try to constantly try to catch up with you. And with a roar, it will overcome you. Do not look ahead. Hope only lies within the unforeseeable current that will close in from behind."
 
-&mdash; [**Choi Yool**](https://myanimelist.net/character.php?q=Choi%20Yool&cat=character), [**Gaussian Blur**](https://myanimelist.net/search/all?q=Gaussian%20Blur&cat=all)
+&mdash; [**Ginjo Kugo**](https://myanimelist.net/character.php?q=Ginjo%20Kugo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
