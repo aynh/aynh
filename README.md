@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Justice cannot save the world. It is useless."
+> "I could give you baseless hope through empty encouragement, but you'd just make the same mistake again. You won't live long if you don't own up to your failures."
 
-&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Mononobe Yuu**](https://myanimelist.net/character.php?q=Mononobe%20Yuu&cat=character), [**Juuou Mujin no Fafnir**](https://myanimelist.net/search/all?q=Juuou%20Mujin%20no%20Fafnir&cat=all)
