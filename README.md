@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Then let me ask you, if your God would allow my madness to flourish across the globe, then wouldn't it seem to you that any god like that would be just as mad as I?"
+> "No person can become a replacement for another. Not even the past version of themselves."
 
-&mdash; [**Montana Max**](https://myanimelist.net/character.php?q=Montana%20Max&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
+&mdash; [**Ushiromiya Ange**](https://myanimelist.net/character.php?q=Ushiromiya%20Ange&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
