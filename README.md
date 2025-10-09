@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let me tell you the truth. The truth behind fighting. Fighting continues forever. After you've defeated one person, someone stronger appears. If you manage to defeat him, then an even stronger person comes along. If you don't have the resolve to endure that eternal struggle, then eventually your confidence will erode. But it doesn't end there! The battle will continue elsewhere, fought by others. It's an endless cycle! And it doesn't end with a person's death. The cycle will continue! As long as people and their souls exist, there will be disputes and those disputes will lead to fights. And those fights will continue without limit, for all eternity."
+> "A world created through oppresing others with brute force has no meaning!"
 
-&mdash; [**Kariya Jin**](https://myanimelist.net/character.php?q=Kariya%20Jin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yuzu Hiiragi**](https://myanimelist.net/character.php?q=Yuzu%20Hiiragi&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
