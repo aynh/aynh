@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're not supposed to find yourself, you're supposed to choose yourself!"
+> "There's nothing known for certain. Adolescence is like that anyway. It's like a train ride with no destination and nobody. There's no destination and outside everything is flashing by so you can't see anything."
 
-&mdash; [**Grizzly-san**](https://myanimelist.net/character.php?q=Grizzly-san&cat=character), [**Polar Bear's Café**](https://myanimelist.net/search/all?q=Polar%20Bear's%20Caf%C3%A9&cat=all)
+&mdash; [**Choi Yool**](https://myanimelist.net/character.php?q=Choi%20Yool&cat=character), [**Gaussian Blur**](https://myanimelist.net/search/all?q=Gaussian%20Blur&cat=all)
