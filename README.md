@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop making me repeat myself! Its bad for my health!"
+> "Dictatorship itself isn't absolutely evil, it's just another form of government. The point is how you can run it for the benefit of society."
 
-&mdash; [**Duo Maxwell**](https://myanimelist.net/character.php?q=Duo%20Maxwell&cat=character), [**Mobile Suit Gundam Wing**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Wing&cat=all)
+&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
