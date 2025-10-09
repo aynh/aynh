@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anyone stronger than the god of destruction does not exist."
+> "Don't give up, the beginning is always the hardest, so let's keep on going till the very end."
 
-&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
