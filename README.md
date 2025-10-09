@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dictatorship itself isn't absolutely evil, it's just another form of government. The point is how you can run it for the benefit of society."
+> "Justice cannot save the world. It is useless."
 
-&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
