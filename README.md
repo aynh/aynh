@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I could give you baseless hope through empty encouragement, but you'd just make the same mistake again. You won't live long if you don't own up to your failures."
+> "Forgiving someone and being forgiven, that’s what binds people together."
 
-&mdash; [**Mononobe Yuu**](https://myanimelist.net/character.php?q=Mononobe%20Yuu&cat=character), [**Juuou Mujin no Fafnir**](https://myanimelist.net/search/all?q=Juuou%20Mujin%20no%20Fafnir&cat=all)
+&mdash; [**Nagi Sanzenin**](https://myanimelist.net/character.php?q=Nagi%20Sanzenin&cat=character), [**Hayate no Gotoku!**](https://myanimelist.net/search/all?q=Hayate%20no%20Gotoku!&cat=all)
