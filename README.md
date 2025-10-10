@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A localized, non-corrosive amalgamation of asynchronous space is independently occurring in restricted condition mode."
+> "Flowers are fragile and ephemeral... Even if you meant to protect them with a surrounding fence from wind and rain, they would die without sunlight...and a spindly fence has no power against a strong wind. Are you fully aware of that, Kudo-kun?.."
 
-&mdash; [**Yuki Nagato**](https://myanimelist.net/character.php?q=Yuki%20Nagato&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
