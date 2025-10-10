@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time will try to constantly try to catch up with you. And with a roar, it will overcome you. Do not look ahead. Hope only lies within the unforeseeable current that will close in from behind."
+> "*to Urameshi* Sacrificing your life to save billions of others. You've lit our torches and I won't let your death be in vain... even if it means I'll be joining you soon."
 
-&mdash; [**Ginjo Kugo**](https://myanimelist.net/character.php?q=Ginjo%20Kugo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
