@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My mom told me, it's better to trust people than to doubt them. She said that people aren't born with kind hearts. When we're born, all we have are desires for food and material things. Selfish instincts, I guess. But she said that kindness is something that grows inside of each person's body, but it's up to us to nurture that kindness in our hearts. That's why kindness is different for every person."
+> "And what's the real lesson? Don't leave things in the fridge."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
