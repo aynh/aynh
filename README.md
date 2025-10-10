@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't retreat, Tetsuzaemon. No matter what. You stand firm right behind me!"
+> "Destiny is a mysterious thing. It lets people reach their intended destinations."
 
-&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Iraha Lemercier**](https://myanimelist.net/character.php?q=Iraha%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
