@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Destiny is a mysterious thing. It lets people reach their intended destinations."
+> "Everyone has an ability. And it means that everyone should use that ability to the fullest."
 
-&mdash; [**Iraha Lemercier**](https://myanimelist.net/character.php?q=Iraha%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Chitoge Kirisaki**](https://myanimelist.net/character.php?q=Chitoge%20Kirisaki&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
