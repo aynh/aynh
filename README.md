@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's a foolish thing, the human heart. Sometimes we fail to operate logically, and act on emotions."
+> "To be sure, love can kill, but always remember, hate can never save. Never!"
 
-&mdash; [**Ichijiku Chisato**](https://myanimelist.net/character.php?q=Ichijiku%20Chisato&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Odette Bouquet**](https://myanimelist.net/character.php?q=Odette%20Bouquet&cat=character), [**Noir**](https://myanimelist.net/search/all?q=Noir&cat=all)
