@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Flowers are fragile and ephemeral... Even if you meant to protect them with a surrounding fence from wind and rain, they would die without sunlight...and a spindly fence has no power against a strong wind. Are you fully aware of that, Kudo-kun?.."
+> "The sky is so low."
 
-&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Alto Saotome**](https://myanimelist.net/character.php?q=Alto%20Saotome&cat=character), [**Macross Frontier**](https://myanimelist.net/search/all?q=Macross%20Frontier&cat=all)
