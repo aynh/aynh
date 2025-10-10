@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To be sure, love can kill, but always remember, hate can never save. Never!"
+> "Face it kid, I'm much too big of a guy for you to handle and you know it. Do you see how the very ground shakes beneath me feet?"
 
-&mdash; [**Odette Bouquet**](https://myanimelist.net/character.php?q=Odette%20Bouquet&cat=character), [**Noir**](https://myanimelist.net/search/all?q=Noir&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
