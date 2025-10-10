@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A pig who doesn't fly is just an ordinary pig."
+> "You can't carry me AND dodge at the same time, Tetsuzaemon!"
 
-&mdash; [**Porco Rosso**](https://myanimelist.net/character.php?q=Porco%20Rosso&cat=character), [**Porco Rosso**](https://myanimelist.net/search/all?q=Porco%20Rosso&cat=all)
+&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
