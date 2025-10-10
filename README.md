@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't carry me AND dodge at the same time, Tetsuzaemon!"
+> "Don't retreat, Tetsuzaemon. No matter what. You stand firm right behind me!"
 
-&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
