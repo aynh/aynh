@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People's mind are like alien existence. We don't know where they are, and we can barely scratch the surface of what they really are."
+> "People become themselves through their encounters. With different things, people, and emotions."
 
-&mdash; [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/character.php?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
+&mdash; [**Joutarou Kawasumi**](https://myanimelist.net/character.php?q=Joutarou%20Kawasumi&cat=character), [**Inu X Boku SS**](https://myanimelist.net/search/all?q=Inu%20X%20Boku%20SS&cat=all)
