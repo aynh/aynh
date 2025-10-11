@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even when times are at their hardest, don't let it show on your face. If the captain is shaken, the team will waver."
+> "We really are weak creatures, but that's why we can strive to become stronger. Even if you feel it's useless, each step we take leads to something great. That's why I'm sure we'll be able to change. Because we're weak... and because death is inevitable. Humans try their best to live and end up becoming stronger."
 
-&mdash; [**Tetsuya Yūki**](https://myanimelist.net/character.php?q=Tetsuya%20Y%C5%ABki&cat=character), [**Diamond No Ace**](https://myanimelist.net/search/all?q=Diamond%20No%20Ace&cat=all)
+&mdash; [**Trisha Elric**](https://myanimelist.net/character.php?q=Trisha%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
