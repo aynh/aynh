@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[About Naruto] Well that's typical. Not happy unless he's giving people a heart attack."
+> "Ah... Everything is such a bother. Even living."
 
-&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka? of the Dead**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F%20of%20the%20Dead&cat=all)
