@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The ones who suffer from the loss of the game, become stronger. They will challenge us by throwing away everything like their pride and past glories."
+> "Be Yourself because an Original is worth more than a Copy"
 
-&mdash; [**Tezuka Kunimitsu**](https://myanimelist.net/character.php?q=Tezuka%20Kunimitsu&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
