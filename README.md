@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to defeat the me that's dragging this failure around. I don't want to forget my failure. But if I carry it with me as a bad memory and keep running away, I will never change."
+> "Only two kinds of people exist in this world, those who steal and those who are stolen from."
 
-&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
