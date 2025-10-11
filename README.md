@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate waiting, but if waiting means being able to be with you I'll wait for as long as forever."
+> "Abuelo... That means grandpa."
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
