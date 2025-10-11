@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only two kinds of people exist in this world, those who steal and those who are stolen from."
+> "Even when times are at their hardest, don't let it show on your face. If the captain is shaken, the team will waver."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Tetsuya Yūki**](https://myanimelist.net/character.php?q=Tetsuya%20Y%C5%ABki&cat=character), [**Diamond No Ace**](https://myanimelist.net/search/all?q=Diamond%20No%20Ace&cat=all)
