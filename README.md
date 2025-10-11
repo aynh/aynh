@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fighting's fine, but losing looks like it'll hurt... so that'd suck."
+> "You may be able to get stronger with simply the right attitude. In other words, train your spirit before worrying about strength through power and technology."
 
-&mdash; [**Fay D. Flourite**](https://myanimelist.net/character.php?q=Fay%20D.%20Flourite&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
