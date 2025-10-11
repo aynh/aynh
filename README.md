@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Shut up! I did what I had to do. People lie to survive. No one is blameless."
+> "I understand now... What I really need to protect isn't myself, much less my money. It's my pride."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Kubota Yoshinobu**](https://myanimelist.net/character.php?q=Kubota%20Yoshinobu&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
