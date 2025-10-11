@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey, yo, check this out! It's a moonwalk, it's a moonwalk! Head spin!"
+> "No need to be afraid of the end, because this world is infinite!"
 
-&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Kuroyukihime**](https://myanimelist.net/character.php?q=Kuroyukihime&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
