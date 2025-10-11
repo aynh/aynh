@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You may be able to get stronger with simply the right attitude. In other words, train your spirit before worrying about strength through power and technology."
+> "[About Naruto] Well that's typical. Not happy unless he's giving people a heart attack."
 
-&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
