@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We really are weak creatures, but that's why we can strive to become stronger. Even if you feel it's useless, each step we take leads to something great. That's why I'm sure we'll be able to change. Because we're weak... and because death is inevitable. Humans try their best to live and end up becoming stronger."
+> "I hate waiting, but if waiting means being able to be with you I'll wait for as long as forever."
 
-&mdash; [**Trisha Elric**](https://myanimelist.net/character.php?q=Trisha%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
