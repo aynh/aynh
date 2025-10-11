@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Be Yourself because an Original is worth more than a Copy"
+> "Hey, yo, check this out! It's a moonwalk, it's a moonwalk! Head spin!"
 
-&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
