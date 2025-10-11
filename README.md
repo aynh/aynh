@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There won't be any pain if you don't do anything stupid."
+> "People's mind are like alien existence. We don't know where they are, and we can barely scratch the surface of what they really are."
 
-&mdash; [**Himeko Inaba**](https://myanimelist.net/character.php?q=Himeko%20Inaba&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/character.php?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
