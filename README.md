@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People become themselves through their encounters. With different things, people, and emotions."
+> "Fighting's fine, but losing looks like it'll hurt... so that'd suck."
 
-&mdash; [**Joutarou Kawasumi**](https://myanimelist.net/character.php?q=Joutarou%20Kawasumi&cat=character), [**Inu X Boku SS**](https://myanimelist.net/search/all?q=Inu%20X%20Boku%20SS&cat=all)
+&mdash; [**Fay D. Flourite**](https://myanimelist.net/character.php?q=Fay%20D.%20Flourite&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
