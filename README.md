@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Laziness is the mother of all bad habits. But ultimately she is a mother and we should respect her."
+> "You got two legs and a heart beat. What's stopping you?"
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
