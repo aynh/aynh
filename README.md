@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A clever retreat? Throw that to the dogs! Once you've dived into the battlefield, you can only devote yourself to the fight, regardless of your opponent!"
+> "[about 500 feet behind InuYasha] I can see why being called a mutt by Koga would upset him... but now that I see him sitting there sniffing the ground he does look like a dog."
 
-&mdash; [**Kuroyukihime**](https://myanimelist.net/character.php?q=Kuroyukihime&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
