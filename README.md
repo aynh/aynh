@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whenever I look at you, I'm reminded about everything I hate about myself. It hurts."
+> "If I show people how weak I am, they won't need me anymore."
 
-&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Himeko Inaba**](https://myanimelist.net/character.php?q=Himeko%20Inaba&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
