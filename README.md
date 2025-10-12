@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life sometimes deals you a bad hand and you make a lot of mistakes along the way, but as long as you believe in yourself and walk along your chosen path with a smile, everything will be alright."
+> "[about his deceased friend] I never overcame my shyness and told her that I actually liked clouds."
 
-&mdash; [**Narumi Anjo**](https://myanimelist.net/character.php?q=Narumi%20Anjo&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
