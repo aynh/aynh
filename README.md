@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate it when knowledge is misused by people who have lost sight of reality, due to biased perceptions and prejudices. It is the source of misunderstanding, ignorance and conflict. I want us to understand each other."
+> "A clever retreat? Throw that to the dogs! Once you've dived into the battlefield, you can only devote yourself to the fight, regardless of your opponent!"
 
-&mdash; [**Aeolia Schenberg**](https://myanimelist.net/character.php?q=Aeolia%20Schenberg&cat=character), [**Gundam 00**](https://myanimelist.net/search/all?q=Gundam%2000&cat=all)
+&mdash; [**Kuroyukihime**](https://myanimelist.net/character.php?q=Kuroyukihime&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
