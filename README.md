@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sakura-chan, you sure do love Sasuke, don't you?"
+> "If the father's responsibility is to protect the child... then my responsibility is to exceed the father."
 
 &mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
