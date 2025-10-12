@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But they say a woman is better off with an unloved man, versus a man who loves her."
+> "There are some things that can only be conveyed through words."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Winry Rockbell**](https://myanimelist.net/character.php?q=Winry%20Rockbell&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
