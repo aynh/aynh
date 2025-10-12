@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'd rather be a pig than a fascist."
+> "If you think reality is just living comfortably and following your own whims, can you seriously dare to call yourself a soldier?"
 
-&mdash; [**Porco Rosso**](https://myanimelist.net/character.php?q=Porco%20Rosso&cat=character), [**Porco Rosso**](https://myanimelist.net/search/all?q=Porco%20Rosso&cat=all)
+&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
