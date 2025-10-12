@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Control'... you say? When you stand before me... that word holds no meaning. Bankai. Senbonzakura Kageyoshi."
+> "Whenever I look at you, I'm reminded about everything I hate about myself. It hurts."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
