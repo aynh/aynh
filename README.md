@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[telling Mustang about the investigation on Scar] His bloodstained clothes washed up further downstream. We don't know if that means that he's dead, or just naked."
+> "'Control'... you say? When you stand before me... that word holds no meaning. Bankai. Senbonzakura Kageyoshi."
 
-&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
