@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the father's responsibility is to protect the child... then my responsibility is to exceed the father."
+> "But they say a woman is better off with an unloved man, versus a man who loves her."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
