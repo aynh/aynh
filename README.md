@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are some things that can only be conveyed through words."
+> "[telling Mustang about the investigation on Scar] His bloodstained clothes washed up further downstream. We don't know if that means that he's dead, or just naked."
 
-&mdash; [**Winry Rockbell**](https://myanimelist.net/character.php?q=Winry%20Rockbell&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
