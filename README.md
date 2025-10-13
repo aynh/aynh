@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "“Expectations” are what you have when you have given up. Expectations are born from a despairingly large difference in skill."
+> "No matter what happens, you are still you...our family."
 
-&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Kai Miyagusuku**](https://myanimelist.net/character.php?q=Kai%20Miyagusuku&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
