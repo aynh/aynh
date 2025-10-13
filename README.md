@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have a mind of a genius and a strong sense of justice."
+> "Most birds fly, but there are some species of flightless birds. I suspect that Princess Asseylum might say that she find it sad that they cannot fly even though they have wings. But their inability to fly does not trouble them in the least. On the contrary, perhaps the ones to be pitied are the birds who can fly, but kept in a cage."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Slaine Troyard**](https://myanimelist.net/character.php?q=Slaine%20Troyard&cat=character), [**Aldnoah.Zero 2nd Season**](https://myanimelist.net/search/all?q=Aldnoah.Zero%202nd%20Season&cat=all)
