@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hard work betrays none, but dreams betray many."
+> "The harder you try to see the good in people the easier it is to fake you out."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!×2 Ten**](https://myanimelist.net/search/all?q=Durarara!!%C3%972%20Ten&cat=all)
