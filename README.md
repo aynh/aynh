@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Most birds fly, but there are some species of flightless birds. I suspect that Princess Asseylum might say that she find it sad that they cannot fly even though they have wings. But their inability to fly does not trouble them in the least. On the contrary, perhaps the ones to be pitied are the birds who can fly, but kept in a cage."
+> "Hard work betrays none, but dreams betray many."
 
-&mdash; [**Slaine Troyard**](https://myanimelist.net/character.php?q=Slaine%20Troyard&cat=character), [**Aldnoah.Zero 2nd Season**](https://myanimelist.net/search/all?q=Aldnoah.Zero%202nd%20Season&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
