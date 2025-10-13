@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If all things are in fact preordained, then why... why is humanity able to think for itself?"
+> "Just because you're tough doesn't mean you can do whatever you want, right?"
 
-&mdash; [**Alcor**](https://myanimelist.net/character.php?q=Alcor&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Ayumu Kato**](https://myanimelist.net/character.php?q=Ayumu%20Kato&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
