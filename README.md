@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Communication is the only way people can move ahead."
+> "Evil doesn't always seep out. It's possible to hide it if you’re careful and skilled."
 
-&mdash; [**Tsukiko Tsutsukakushi**](https://myanimelist.net/character.php?q=Tsukiko%20Tsutsukakushi&cat=character), [**Hentai Ouji To Warawanai Neko**](https://myanimelist.net/search/all?q=Hentai%20Ouji%20To%20Warawanai%20Neko&cat=all)
+&mdash; [**Dog**](https://myanimelist.net/character.php?q=Dog&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
