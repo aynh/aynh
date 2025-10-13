@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don’t need a good reason to save a friend. If you want to save them, then save them. I know someone who kept saying those stupid things even when he was driven to the brink of death, and he really did save over 10,000 people in the end. And that idiot that saved so many people is trying to save someone today like always. I know I can’t stop him. No matter how much I don’t want him to do anything dangerous, seeing him off with a push to the back is the sign of a good woman!"
+> "Every living person is bound to have embarrassing memories and things that they want to keep secret."
 
-&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
