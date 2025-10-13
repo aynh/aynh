@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The others taught me something. That one needn't fear the future. That one needn't hate the world. From now on, the world will not simply be my fantasy. It will be our one and only, real future."
+> "You don’t need a good reason to save a friend. If you want to save them, then save them. I know someone who kept saying those stupid things even when he was driven to the brink of death, and he really did save over 10,000 people in the end. And that idiot that saved so many people is trying to save someone today like always. I know I can’t stop him. No matter how much I don’t want him to do anything dangerous, seeing him off with a push to the back is the sign of a good woman!"
 
-&mdash; [**Kozakura Marry**](https://myanimelist.net/character.php?q=Kozakura%20Marry&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
+&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
