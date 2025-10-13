@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just because you're tough doesn't mean you can do whatever you want, right?"
+> "There's a limit to the strength of people who are isolated. If we do the best we can we should be fine. We don't grab a hold of the entire future. Let's just think about grabbing tomorrow. I think that's plenty for us, don't you?"
 
-&mdash; [**Ayumu Kato**](https://myanimelist.net/character.php?q=Ayumu%20Kato&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
+&mdash; [**Kouji Aiba**](https://myanimelist.net/character.php?q=Kouji%20Aiba&cat=character), [**Infinite Ryvius**](https://myanimelist.net/search/all?q=Infinite%20Ryvius&cat=all)
