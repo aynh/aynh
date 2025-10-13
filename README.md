@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It most certainly isn't pleasant being called a 'traitor' by creatures you've never met."
+> "Well, I don't think we can deny the distinct possibility that the world we are in now was freshly created, by Her, last night! In any case, it's an honor to meet you and Miss Suzumiya again. *laughing softly* Be seeing you after class!"
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Itsuki Koizumi**](https://myanimelist.net/character.php?q=Itsuki%20Koizumi&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
