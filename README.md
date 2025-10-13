@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every living person is bound to have embarrassing memories and things that they want to keep secret."
+> "“Expectations” are what you have when you have given up. Expectations are born from a despairingly large difference in skill."
 
-&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
