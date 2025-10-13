@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Afterall, the fate of the world rests on my pitching. The world sure isn't worth much these days."
+> "If all things are in fact preordained, then why... why is humanity able to think for itself?"
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Alcor**](https://myanimelist.net/character.php?q=Alcor&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
