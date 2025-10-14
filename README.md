@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh? I thought I severed your body from the waist-down, but...It seems the cut was too shallow."
+> "If you need to run, you should run the best you can! Then you can just take your time to think."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Hajime Ichinose**](https://myanimelist.net/character.php?q=Hajime%20Ichinose&cat=character), [**Gatchaman Crowds**](https://myanimelist.net/search/all?q=Gatchaman%20Crowds&cat=all)
