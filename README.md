@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are only two paths you can choose. You can sit quietly and be selected out of this world, or you can adapt and change."
+> "[after Zuko calls him a child] Well, you're just a teenager."
 
-&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
