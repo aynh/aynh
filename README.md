@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want others to hear the words that I've been waiting anxiously for... I want to be the only one to hear them."
+> "A woman who can talk tough while completely naked...amazing. (about Rin, the horse)"
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
