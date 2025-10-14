@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's so much easier to believe that only your own thoughts and beliefs are absolutely correct."
+> "Sorry I'm late guys, a black cat crossed my path so I had to go the long way."
 
-&mdash; [**Guy Cecil**](https://myanimelist.net/character.php?q=Guy%20Cecil&cat=character), [**Tales of the Abyss**](https://myanimelist.net/search/all?q=Tales%20of%20the%20Abyss&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
