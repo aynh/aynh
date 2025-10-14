@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A normal detective eavesdrops, goes on stakeouts, and gathers information by foot to find out what they're looking for. But a NEET detective can search the world over to find the truth without stepping out of their room!"
+> "You're not the first person I went out with... But you're my first love."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
