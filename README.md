@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why can't I steal him from her? There are no rules in the game of love!"
+> "When some things contradict each other, you should look at the opposite side of everything. And when the meanings behind the seemingly unnatural actions are made clear, a completely different answer might be reached... Justice can become evil. Reality can become an illusion. Meaning can be found in something that appears meaningless. Think. And find the answer for yourselves. A human ceases to be once he or she stops thinking."
 
-&mdash; [**Odagiri Nene**](https://myanimelist.net/character.php?q=Odagiri%20Nene&cat=character), [**Yamada-kun to 7-nin no Majo**](https://myanimelist.net/search/all?q=Yamada-kun%20to%207-nin%20no%20Majo&cat=all)
+&mdash; [**Merlin**](https://myanimelist.net/character.php?q=Merlin&cat=character), [**Nanatsu no Taizai**](https://myanimelist.net/search/all?q=Nanatsu%20no%20Taizai&cat=all)
