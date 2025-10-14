@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When cats are near death, they leave their owner's side, right? I'm sure that's exactly how I feel. I want to disappear while they can think, 'What a noisy, stupid girl she was, I wonder if she's doing okay.'"
+> "Oh? I thought I severed your body from the waist-down, but...It seems the cut was too shallow."
 
-&mdash; [**Makina Irisu**](https://myanimelist.net/character.php?q=Makina%20Irisu&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
