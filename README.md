@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who can't do what they have to when the time comes for action will find their presence fading in our classroom. An assassin who neglects to sharpen his blade is no assassin at all. He's just a boastful brat swinging around a rusty sword."
+> "I hate butterflies. I hate them for being pretty. I hate them for being easy to catch. And having pins stuck through their body and being turned into specimens is what I hate most."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Agatsuma Soubi**](https://myanimelist.net/character.php?q=Agatsuma%20Soubi&cat=character), [**Loveless**](https://myanimelist.net/search/all?q=Loveless&cat=all)
