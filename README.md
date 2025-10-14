@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you need to run, you should run the best you can! Then you can just take your time to think."
+> "Those who can't do what they have to when the time comes for action will find their presence fading in our classroom. An assassin who neglects to sharpen his blade is no assassin at all. He's just a boastful brat swinging around a rusty sword."
 
-&mdash; [**Hajime Ichinose**](https://myanimelist.net/character.php?q=Hajime%20Ichinose&cat=character), [**Gatchaman Crowds**](https://myanimelist.net/search/all?q=Gatchaman%20Crowds&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
