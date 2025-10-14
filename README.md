@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're not the first person I went out with... But you're my first love."
+> "Even if I know you'll reject me, even if I'm afraid you won't accept me, even if I know it will really hurt if you dump me - I still have to tell you how I feel!"
 
-&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Kousaka Kyousuke**](https://myanimelist.net/character.php?q=Kousaka%20Kyousuke&cat=character), [**Ore No Imouto Ga Konna Ni Kawaii Wake Ga Nai**](https://myanimelist.net/search/all?q=Ore%20No%20Imouto%20Ga%20Konna%20Ni%20Kawaii%20Wake%20Ga%20Nai&cat=all)
