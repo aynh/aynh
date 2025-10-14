@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't give alcohol to minors!"
+> "A normal detective eavesdrops, goes on stakeouts, and gathers information by foot to find out what they're looking for. But a NEET detective can search the world over to find the truth without stepping out of their room!"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
