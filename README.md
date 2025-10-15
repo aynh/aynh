@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In a real fight, there is no next time. You can't choose your opponent's strength. Losing would mean death. If a duty-bound person dies, a hundred more innocent people would die. We exorcists cannot die easily, and that is a responsibility."
+> "Our bodies get bigger, but our hearts get torn up."
 
-&mdash; [**Tsuchimiya Kagura**](https://myanimelist.net/character.php?q=Tsuchimiya%20Kagura&cat=character), [**Ga-Rei:Zero**](https://myanimelist.net/search/all?q=Ga-Rei%3AZero&cat=all)
+&mdash; [**Mikoto Suoh**](https://myanimelist.net/character.php?q=Mikoto%20Suoh&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
