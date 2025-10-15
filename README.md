@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The truth is the truth, regardless of whether it comes out of a genius' mouth or a commoner's."
+> "You sent me into a battle armed with a mere hunch?"
 
-&mdash; [**Tsuchimikado Natsume**](https://myanimelist.net/character.php?q=Tsuchimikado%20Natsume&cat=character), [**Tokyo Ravens**](https://myanimelist.net/search/all?q=Tokyo%20Ravens&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
