@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You suddenly appeared in front of me in this hell. The day that I would get to meet you...I always wanted to apologize to you...I only endured because of that! I kept on living."
+> "In a real fight, there is no next time. You can't choose your opponent's strength. Losing would mean death. If a duty-bound person dies, a hundred more innocent people would die. We exorcists cannot die easily, and that is a responsibility."
 
-&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Tsuchimiya Kagura**](https://myanimelist.net/character.php?q=Tsuchimiya%20Kagura&cat=character), [**Ga-Rei:Zero**](https://myanimelist.net/search/all?q=Ga-Rei%3AZero&cat=all)
