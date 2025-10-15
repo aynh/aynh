@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Often people have it wrong, mistakenly believing...that showing mercy to an enemy is kindness. They spare the foe whose life is in their hands... But don't you see? It's an empty existence... to go on living... alone and unloved... when defeat's already cost you your dream!"
+> "Kill me. Make it quick. I no longer have the strength left in me to even walk. If you do not cut me down now, then this will go unsettled for eternity."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
