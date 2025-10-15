@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our bodies get bigger, but our hearts get torn up."
+> "Our battle will be concluded, and I will begin my reign from the summit of victory!"
 
-&mdash; [**Mikoto Suoh**](https://myanimelist.net/character.php?q=Mikoto%20Suoh&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
