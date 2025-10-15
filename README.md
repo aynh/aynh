@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there's something you don't understand, learn to understand it."
+> "Working hard alone doesn't assure you that you'll achieve your dreams. Actually there are more cases where you don't. Even so, working hard and achieving something is some consolation at least."
 
-&mdash; [**Hange Zoe**](https://myanimelist.net/character.php?q=Hange%20Zoe&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
