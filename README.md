@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think I would like someone else to kill me. I want someone else to interfere with my life. Is that not what wanting to be loved means, Saikawa-sensei? No life is born of it's own volition. Isn't the instinctive desire of beings, born not of their own volition, for their lives to be taken in the same way?"
+> "Inside my memories lies sad thoughts and it's hard to forget, but I try everyday to keep moving forward in life, so why can't you, living in saddness isn't living at all."
 
-&mdash; [**Magata Shiki**](https://myanimelist.net/character.php?q=Magata%20Shiki&cat=character), [**Subete ga F ni Naru**](https://myanimelist.net/search/all?q=Subete%20ga%20F%20ni%20Naru&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
