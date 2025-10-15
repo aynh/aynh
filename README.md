@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You sent me into a battle armed with a mere hunch?"
+> "It will be alright, have faith in yourself. Crona, you will be a Kishin."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
