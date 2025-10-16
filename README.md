@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether you like me or not, the fact that you're precious to me won't change, no matter what."
+> "*chanting* Blessed be the Lord! For he hath heard the voice of my supplication. The Lord is my helper...and my protector. Thou shalt perish where thou standeth!"
 
-&mdash; [**Hikari Sakishima**](https://myanimelist.net/character.php?q=Hikari%20Sakishima&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
+&mdash; [**Fujimoto Shirou**](https://myanimelist.net/character.php?q=Fujimoto%20Shirou&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
