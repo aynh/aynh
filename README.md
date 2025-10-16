@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's game time!"
+> "Sometimes violence is the only way to get the message across."
 
-&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Eikichi Onizuka**](https://myanimelist.net/character.php?q=Eikichi%20Onizuka&cat=character), [**Great Teacher Onizuka**](https://myanimelist.net/search/all?q=Great%20Teacher%20Onizuka&cat=all)
