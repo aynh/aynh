@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The guards will show you to your chamber. The one that used to be the bad chamber, until the recent refurbishing that is. Of course, we've been calling it the new chamber, but we really should number them. Uh, take them to the refurbished chamber that was once bad!"
+> "I thought growing older would turn me into an adult. I believed I'd find work, get married, and become an adult. But none of those things have happened. Even though I've grown older, I feel like nothing's changed."
 
-&mdash; [**King Bumi**](https://myanimelist.net/character.php?q=King%20Bumi&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kimi To Boku.**](https://myanimelist.net/character.php?q=Kimi%20To%20Boku.&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
