@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The cold tears of a vampire, whose body is without warmth..."
+> "I can't help you. I belong to a world where all is death. Your world of choices was not meant for me to interfere with."
 
-&mdash; [**Yuuki Natsuno**](https://myanimelist.net/character.php?q=Yuuki%20Natsuno&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
