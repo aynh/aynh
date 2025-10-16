@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past is the past. We cannot indulge ourselves in memories and destroy the present."
+> "Only a genuine wish makes one's own soul shine beautifully in this life. That light is a messenger from heaven lighting the way for our unwavering souls to be brought to the God's side."
 
-&mdash; [**Murata Ken**](https://myanimelist.net/character.php?q=Murata%20Ken&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
+&mdash; [**Bastien**](https://myanimelist.net/character.php?q=Bastien&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
