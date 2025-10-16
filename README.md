@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People's thoughts don't always mirror how they feel. That's why they sometimes make decisions that seem nonsensical."
+> "*to Okita, who tells him that he should take his job more seriously* Shall I put you to sleep, ingrate?"
 
-&mdash; [**Shizuka Hiratsuka**](https://myanimelist.net/character.php?q=Shizuka%20Hiratsuka&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
