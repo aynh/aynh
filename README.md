@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes violence is the only way to get the message across."
+> "We are taught never to shed tears. For to shed tears means that the body has been defeated by emotion. And to us, this simple act of crying proves, without question, that the existence of emotion is nothing but a burden."
 
-&mdash; [**Eikichi Onizuka**](https://myanimelist.net/character.php?q=Eikichi%20Onizuka&cat=character), [**Great Teacher Onizuka**](https://myanimelist.net/search/all?q=Great%20Teacher%20Onizuka&cat=all)
+&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
