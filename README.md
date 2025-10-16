@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I thought growing older would turn me into an adult. I believed I'd find work, get married, and become an adult. But none of those things have happened. Even though I've grown older, I feel like nothing's changed."
+> "If so many people believe in this, the lies will become reality. That's the so called group mentality."
 
-&mdash; [**Kimi To Boku.**](https://myanimelist.net/character.php?q=Kimi%20To%20Boku.&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
+&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
