@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm the one who's in the wrong, so if you really want to break someone's nose, break mine."
+> "I think it's fun to get to know a person little by little, through looking at their personality."
 
-&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
+&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
