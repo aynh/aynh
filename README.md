@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*chanting* Blessed be the Lord! For he hath heard the voice of my supplication. The Lord is my helper...and my protector. Thou shalt perish where thou standeth!"
+> "The past is the past. We cannot indulge ourselves in memories and destroy the present."
 
-&mdash; [**Fujimoto Shirou**](https://myanimelist.net/character.php?q=Fujimoto%20Shirou&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Murata Ken**](https://myanimelist.net/character.php?q=Murata%20Ken&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
