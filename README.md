@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't help you. I belong to a world where all is death. Your world of choices was not meant for me to interfere with."
+> "Whether you like me or not, the fact that you're precious to me won't change, no matter what."
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Hikari Sakishima**](https://myanimelist.net/character.php?q=Hikari%20Sakishima&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
