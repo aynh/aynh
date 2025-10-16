@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In order to save a life, you must throw another life away."
+> "I'm the one who's in the wrong, so if you really want to break someone's nose, break mine."
 
-&mdash; [**Nishi Joichiro**](https://myanimelist.net/character.php?q=Nishi%20Joichiro&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
+&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
