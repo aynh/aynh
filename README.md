@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, there are very few people who actually trust each other."
+> "I hate deserts. It's nothing but sand. *collapses* If there was some grass, I could turn it into bread. I'm starving! Huh? Hey! Al, where'd you go? Al? Hey!"
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
