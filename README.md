@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As for me, I have a lot of things that I'm not good at and that I need to work on. My comrades make up for those weaknesses by help me out, and maybe that's how we've found a balance in our party."
+> "Since I was a little girl, I acted before I spoke. Sometimes I inconvenienced those around me. I wasn't very good at expressing myself and was awkward... But that's when I found songs! Songs allow you to honestly convey your feelings. By singing, you can feel the same as others. By singing, you can connect with others. That's why I love songs. I love singing!"
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Honoka Kousaka**](https://myanimelist.net/character.php?q=Honoka%20Kousaka&cat=character), [**Love Live! School Idol Project 2nd Season**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20Idol%20Project%202nd%20Season&cat=all)
