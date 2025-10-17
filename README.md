@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as our love is stronger than the hatred within us, we can keep it sealed away."
+> "For people like us, we do not have a choice over the environment we're in, but we get to decide what we will make of it and what path we will take from there."
 
-&mdash; [**Yayoi Kanbara**](https://myanimelist.net/character.php?q=Yayoi%20Kanbara&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
+&mdash; [**Yu Fujikura**](https://myanimelist.net/character.php?q=Yu%20Fujikura&cat=character), [**Princess Lover!**](https://myanimelist.net/search/all?q=Princess%20Lover!&cat=all)
