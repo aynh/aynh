@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay to live, even if there's no greater point to living."
+> "I'm gonna slit your stomach, take out your guts, and put them in a bowl. By the time I'm through with you, you're going to wish it was you who was dead."
 
-&mdash; [**Konno Yuuki**](https://myanimelist.net/character.php?q=Konno%20Yuuki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
