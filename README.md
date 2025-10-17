@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are too young to worry about failure. In a pinch, just muddle through. The outcome won't change, so that's best."
+> "You can lose the match and the game, but if you don't lose to yourself, it isn't a loss."
 
-&mdash; [**Bang**](https://myanimelist.net/character.php?q=Bang&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Karen Araragi**](https://myanimelist.net/character.php?q=Karen%20Araragi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
