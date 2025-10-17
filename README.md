@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Revenge never does anyone any good. Killing the person you hate will never ease the pain. Always look forward! Follow the path of light!"
+> "As for me, I have a lot of things that I'm not good at and that I need to work on. My comrades make up for those weaknesses by help me out, and maybe that's how we've found a balance in our party."
 
-&mdash; [**Mikage**](https://myanimelist.net/character.php?q=Mikage&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
