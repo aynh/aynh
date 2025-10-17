@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Was I able to live inside someone’s heart? Was I able to live inside your heart? Do you think you’ll remember me at least a little? You’d better not hit 'reset!' Don’t forget me, okay? That’s a promise, okay? I'm glad it’s you, after all. Will I reach you? I hope I can reach you."
+> "Yes, I have no reason to take part in the Absurd and Unreasonable real world."
 
-&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
