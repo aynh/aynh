@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're your own worst enemy. If your worries and doubts torment you, then just stop thinking about them."
+> "Even crabs have to go on a journey sometime."
 
-&mdash; [**Binboda Momiji**](https://myanimelist.net/character.php?q=Binboda%20Momiji&cat=character), [**Binbougami Ga!**](https://myanimelist.net/search/all?q=Binbougami%20Ga!&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
