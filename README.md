@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can lose the match and the game, but if you don't lose to yourself, it isn't a loss."
+> "As long as our love is stronger than the hatred within us, we can keep it sealed away."
 
-&mdash; [**Karen Araragi**](https://myanimelist.net/character.php?q=Karen%20Araragi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Yayoi Kanbara**](https://myanimelist.net/character.php?q=Yayoi%20Kanbara&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
