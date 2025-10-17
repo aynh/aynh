@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[repeatedly] Inuyasha, sit, boy."
+> "It's okay to live, even if there's no greater point to living."
 
-&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Konno Yuuki**](https://myanimelist.net/character.php?q=Konno%20Yuuki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
