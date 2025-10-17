@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For people like us, we do not have a choice over the environment we're in, but we get to decide what we will make of it and what path we will take from there."
+> "As a rule, they say humans haunted by a shinigami have nothing but misfortune."
 
-&mdash; [**Yu Fujikura**](https://myanimelist.net/character.php?q=Yu%20Fujikura&cat=character), [**Princess Lover!**](https://myanimelist.net/search/all?q=Princess%20Lover!&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
