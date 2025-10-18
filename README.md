@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Okay. I will protect all of you. I will never let another friend die."
+> "Mysterious things are everywhere. So bizarre as often as you can hear of them. Without witness, with sight unseen, without a care it is simply a phenomenon. Merely not of concern. In this world, mankind itself has its own fantastic wonders."
 
-&mdash; [**Mary**](https://myanimelist.net/character.php?q=Mary&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
