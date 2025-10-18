@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We do have a lot in common. The same earth, the same air, the same sky. Maybe if we started looking at what's the same, instead of always looking at what is different... well, who knows?"
+> "It's so much easier to believe that only your own thoughts and beliefs are absolutely correct."
 
-&mdash; [**Nyarth**](https://myanimelist.net/character.php?q=Nyarth&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Guy Cecil**](https://myanimelist.net/character.php?q=Guy%20Cecil&cat=character), [**Tales of the Abyss**](https://myanimelist.net/search/all?q=Tales%20of%20the%20Abyss&cat=all)
