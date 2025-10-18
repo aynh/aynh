@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if my left arm can transform into a monstrous claw and can destroy Akuma, im just a normal person with a promise..."
+> "Sometimes I'm such a big star that I can't handle it."
 
-&mdash; [**Allen Walker**](https://myanimelist.net/character.php?q=Allen%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
