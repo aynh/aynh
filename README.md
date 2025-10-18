@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A lot of something is ugly in itself."
+> "Ancient creatures died and left naught but fossil fuels, like coal and petroleum. Without that sacrifice, our present energy civilization would not exist. That sort of sacrifice is what is always demanded."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Souji Mikage**](https://myanimelist.net/character.php?q=Souji%20Mikage&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
