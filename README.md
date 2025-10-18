@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To hate something that you used to love is such a painful feeling."
+> "Not all people in prison are criminals"
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Cardina Baumeister**](https://myanimelist.net/character.php?q=Cardina%20Baumeister&cat=character), [**Shingeki no Kyojin: Before the Fall**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Before%20the%20Fall&cat=all)
