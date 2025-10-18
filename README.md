@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not all people in prison are criminals"
+> "Thinking you'll understand without being told anything is an illusion."
 
-&mdash; [**Cardina Baumeister**](https://myanimelist.net/character.php?q=Cardina%20Baumeister&cat=character), [**Shingeki no Kyojin: Before the Fall**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Before%20the%20Fall&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
