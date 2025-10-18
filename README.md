@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes I'm such a big star that I can't handle it."
+> "I want to possess her...to make her belong to me, and only me. (about Rin)"
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
