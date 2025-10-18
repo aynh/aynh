@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now I got some common sense for you,if I wore a tie, it wouldn't change who I am, if I had no piercings it wouldn't mean I'm nice, and if my hair was black it wouldn't stop me from kicking your ass!"
+> "People derive their happiness in a variety of ways, even though it might seem cruel."
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Adashino**](https://myanimelist.net/character.php?q=Adashino&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
