@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you dislike the situation, use your strength to change it."
+> "This is the end of my dream. My wings forgot how to fly, since I only kept pretending to flap them. Is there a meaning to wings that can't fly?"
 
-&mdash; [**Hoshimura Junichirou**](https://myanimelist.net/character.php?q=Hoshimura%20Junichirou&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Misuzu Kamio**](https://myanimelist.net/character.php?q=Misuzu%20Kamio&cat=character), [**Air**](https://myanimelist.net/search/all?q=Air&cat=all)
