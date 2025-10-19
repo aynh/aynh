@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Evil is when you use the weak for your own gain and crush them under your foot."
+> "Whether a fish lives in a clear stream or a water ditch, so long as it continues swimming forward, it will grow up beautifully."
 
-&mdash; [**Jotaro Kujo**](https://myanimelist.net/character.php?q=Jotaro%20Kujo&cat=character), [**JoJo's Bizarre Adventure: Stardust Crusaders**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Stardust%20Crusaders&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
