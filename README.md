@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I think too much, my brains get itchy."
+> "*referring to Haruhi* It would appear that she views guys on the same level as potatoes."
 
-&mdash; [**Kanako Sasa**](https://myanimelist.net/character.php?q=Kanako%20Sasa&cat=character), [**Hourou Musuko**](https://myanimelist.net/search/all?q=Hourou%20Musuko&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
