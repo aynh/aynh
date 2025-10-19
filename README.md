@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ignorance is bliss, isn't it?"
+> "Your high school life will be over before you know it. There are things you can only do now. You should do as many of them as you can."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Youichi Tanaka**](https://myanimelist.net/character.php?q=Youichi%20Tanaka&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
