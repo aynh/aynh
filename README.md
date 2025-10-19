@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't care where I get hurt, as long as my injuries are visible."
+> "What is really wicked... is judging people without even trying to get to know them!"
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Ada Vessalius**](https://myanimelist.net/character.php?q=Ada%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
