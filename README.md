@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The three pleasures of life are 'eating', 'bathing' and 'sleeping'!!"
+> "I'm the only one who can bear the full brunt of your hate! It's my job, no one else's! I'll bear the burden of your hatred... and we'll die together!"
 
-&mdash; [**Girl**](https://myanimelist.net/character.php?q=Girl&cat=character), [**Tabi ni Deyou Horobiyuku Sekai no Hate Made**](https://myanimelist.net/search/all?q=Tabi%20ni%20Deyou%20Horobiyuku%20Sekai%20no%20Hate%20Made&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
