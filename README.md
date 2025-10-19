@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's easy for girls to take advantage of your kindness, so be careful."
+> "Nobody knows what will happen in the future. Something even better might happen tomorrow."
 
-&mdash; [**Suruga Kanbaru**](https://myanimelist.net/character.php?q=Suruga%20Kanbaru&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
