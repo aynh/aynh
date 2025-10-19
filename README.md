@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is the end of my dream. My wings forgot how to fly, since I only kept pretending to flap them. Is there a meaning to wings that can't fly?"
+> "Since childhood, my body was weak. There was a limit to what I could do. A weak body... A life which I don't know how long I would live for. Well, life has its limits. I felt like my limit was exceeding faster than others' limit."
 
-&mdash; [**Misuzu Kamio**](https://myanimelist.net/character.php?q=Misuzu%20Kamio&cat=character), [**Air**](https://myanimelist.net/search/all?q=Air&cat=all)
+&mdash; [**Kanata Nanami**](https://myanimelist.net/character.php?q=Kanata%20Nanami&cat=character), [**Starry Sky**](https://myanimelist.net/search/all?q=Starry%20Sky&cat=all)
