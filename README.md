@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Since childhood, my body was weak. There was a limit to what I could do. A weak body... A life which I don't know how long I would live for. Well, life has its limits. I felt like my limit was exceeding faster than others' limit."
+> "There are people out there who would say there's nothing more important than love. But is love really that great? There are women, who because of love, get chased around by men. And there are men, who because of love, get killed by women. To put it down, for love to be so great, there's gotta be something else behind it that's even greater."
 
-&mdash; [**Kanata Nanami**](https://myanimelist.net/character.php?q=Kanata%20Nanami&cat=character), [**Starry Sky**](https://myanimelist.net/search/all?q=Starry%20Sky&cat=all)
+&mdash; [**Dante**](https://myanimelist.net/character.php?q=Dante&cat=character), [**Devil May Cry**](https://myanimelist.net/search/all?q=Devil%20May%20Cry&cat=all)
