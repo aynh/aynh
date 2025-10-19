@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*referring to Haruhi* It would appear that she views guys on the same level as potatoes."
+> "Evil is when you use the weak for your own gain and crush them under your foot."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Jotaro Kujo**](https://myanimelist.net/character.php?q=Jotaro%20Kujo&cat=character), [**JoJo's Bizarre Adventure: Stardust Crusaders**](https://myanimelist.net/search/all?q=JoJo's%20Bizarre%20Adventure%3A%20Stardust%20Crusaders&cat=all)
