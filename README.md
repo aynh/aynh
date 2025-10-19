@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nobody knows what will happen in the future. Something even better might happen tomorrow."
+> "When I think too much, my brains get itchy."
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Kanako Sasa**](https://myanimelist.net/character.php?q=Kanako%20Sasa&cat=character), [**Hourou Musuko**](https://myanimelist.net/search/all?q=Hourou%20Musuko&cat=all)
