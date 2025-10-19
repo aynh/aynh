@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Coming together and working hard with everyone is a really fun thing!"
+> "If you dislike the situation, use your strength to change it."
 
-&mdash; [**Masaru Ōfuna**](https://myanimelist.net/character.php?q=Masaru%20%C5%8Cfuna&cat=character), [**Hanayamata**](https://myanimelist.net/search/all?q=Hanayamata&cat=all)
+&mdash; [**Hoshimura Junichirou**](https://myanimelist.net/character.php?q=Hoshimura%20Junichirou&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
