@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not stupid enough to use a cannon to hunt a rabbit."
+> "In this world, when you face forward, that's the future. When you look back, it's a memory. And if you clip a part of it out, that becomes a story."
 
-&mdash; [**Dracule Mihawk**](https://myanimelist.net/character.php?q=Dracule%20Mihawk&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
