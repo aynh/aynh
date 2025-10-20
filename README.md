@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if the questions change, it makes no difference to me."
+> "People who know how painful it can be to be alive, are fascinating."
 
-&mdash; [**Karma Akabane**](https://myanimelist.net/character.php?q=Karma%20Akabane&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Soichiro Arima**](https://myanimelist.net/character.php?q=Soichiro%20Arima&cat=character), [**His and Her Circumstances**](https://myanimelist.net/search/all?q=His%20and%20Her%20Circumstances&cat=all)
