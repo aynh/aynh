@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who know how painful it can be to be alive, are fascinating."
+> "A sword wields no strength, unless the hand that holds it has courage."
 
-&mdash; [**Soichiro Arima**](https://myanimelist.net/character.php?q=Soichiro%20Arima&cat=character), [**His and Her Circumstances**](https://myanimelist.net/search/all?q=His%20and%20Her%20Circumstances&cat=all)
+&mdash; [**Link**](https://myanimelist.net/character.php?q=Link&cat=character), [**Legend of Zelda**](https://myanimelist.net/search/all?q=Legend%20of%20Zelda&cat=all)
