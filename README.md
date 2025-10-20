@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The sea’s blue reflects because of the sky’s blue. Just like detectives and thieves. We’re all toying with the human mind. But the one who pries for others’ secrets is the one who’s truly impolite."
+> "L, do you know gods of death love apples?"
 
-&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
