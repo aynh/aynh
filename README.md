@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is vengeance, so I am to ferry you to hell."
+> "Even if the questions change, it makes no difference to me."
 
-&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
+&mdash; [**Karma Akabane**](https://myanimelist.net/character.php?q=Karma%20Akabane&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
