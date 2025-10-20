@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A sword wields no strength, unless the hand that holds it has courage."
+> "You can come after me as many times as you want. I'll cut you down every time."
 
-&mdash; [**Link**](https://myanimelist.net/character.php?q=Link&cat=character), [**Legend of Zelda**](https://myanimelist.net/search/all?q=Legend%20of%20Zelda&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
