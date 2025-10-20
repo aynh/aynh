@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans can possibly exist without actually having to fight. But, many of us have chosen to fight. For what reason? To protect something? Protect what? Ourselves? The future? If we kill people to protect ourselves and this future, then what sort of future is it, and what will we have become? There is no future for those who have died. And what of those who did the killing? Is happiness to be found in a future that is grasped with blood stained hands? Is that the truth?"
+> "I may be inept, but at least I don't forget to aim high!"
 
-&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Aoi Toori**](https://myanimelist.net/character.php?q=Aoi%20Toori&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
