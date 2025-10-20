@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, when you face forward, that's the future. When you look back, it's a memory. And if you clip a part of it out, that becomes a story."
+> "A rose will be born a rose. Different soil and water wouldn't change it into a different flower."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**Kara no Kyoukai**](https://myanimelist.net/search/all?q=Kara%20no%20Kyoukai&cat=all)
