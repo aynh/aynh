@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can come after me as many times as you want. I'll cut you down every time."
+> "No matter where you are, people find a way to entertain themselves."
 
-&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Shuusei Kagari**](https://myanimelist.net/character.php?q=Shuusei%20Kagari&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
