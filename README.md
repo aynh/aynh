@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even death can't cure idiocy."
+> "Courage is a word that gives you the strength to do what's right, you should not use it as an excuse to murder someone."
 
-&mdash; [**Yui**](https://myanimelist.net/character.php?q=Yui&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
