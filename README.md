@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether a fish lives in a clear stream or a water ditch, so long as it continues swimming forward, it will grow up beautifully."
+> "If you are afraid to get hurt, you won't obtain what you really desire."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Tsukimori Youko**](https://myanimelist.net/character.php?q=Tsukimori%20Youko&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
