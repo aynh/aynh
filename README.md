@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you have a wish, don't go back to the past and redo everything. If you want to change yourself, don't change the past, but change who you are now!"
+> "Music speaks to people's hearts, all throughout the world. I believe it's a powerful language."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Kawashima Sapphire**](https://myanimelist.net/character.php?q=Kawashima%20Sapphire&cat=character), [**Hibike! Euphonium**](https://myanimelist.net/search/all?q=Hibike!%20Euphonium&cat=all)
