@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes one must lose the battle in order to win the war."
+> "Our mom put us in one of those *points to dresses* when we were little. We still get called 'her darling little girls' at our family reunions."
 
-&mdash; [**Sylphy**](https://myanimelist.net/character.php?q=Sylphy&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
+&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
