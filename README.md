@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*points to Jet*Don't give me that art of war crap! And you!*points to the other man*You take too long to take a sh*t!"
+> "Hmmm...how do I put this? My first impression of this group...you're a bunch of idiots!"
 
-&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
