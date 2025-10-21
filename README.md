@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Doesn't matter if you're weak. If you struggle hard enough, you can make a miracle happen."
+> "*points to Jet*Don't give me that art of war crap! And you!*points to the other man*You take too long to take a sh*t!"
 
-&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
