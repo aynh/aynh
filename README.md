@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, we have to look beyond what we want and do what's best."
+> "Forgiveness is the only way to end the war."
 
-&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Yūya Sakaki**](https://myanimelist.net/character.php?q=Y%C5%ABya%20Sakaki&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
