@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Youmu or Spirit Warrior... In the end, none of that really matters. Nor does the question of who you are. All that matters is to be close to the ones you care about."
+> "Sometimes, we have to look beyond what we want and do what's best."
 
-&mdash; [**Yayoi Kanbara**](https://myanimelist.net/character.php?q=Yayoi%20Kanbara&cat=character), [**Gekijou-ban Kyoukai no Kanata -I'll Be Here- Mirai-hen**](https://myanimelist.net/search/all?q=Gekijou-ban%20Kyoukai%20no%20Kanata%20-I'll%20Be%20Here-%20Mirai-hen&cat=all)
+&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
