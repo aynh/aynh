@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If so many people believe in this, the lies will become reality. That's the so called group mentality."
+> "No matter how big the place is, we'll eventually reach the edge if we keep moving forward!"
 
-&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
