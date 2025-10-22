@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how big the place is, we'll eventually reach the edge if we keep moving forward!"
+> "All meetings must end with partings."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Dera Mochimazzi**](https://myanimelist.net/character.php?q=Dera%20Mochimazzi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
