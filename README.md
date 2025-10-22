@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, the questions are complicated - and the answers are simple."
+> "The time when you're happy is also the time when you're afraid that the happiness will end."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Subarashii Sekai**](https://myanimelist.net/character.php?q=Subarashii%20Sekai&cat=character), [**Subarashii Sekai**](https://myanimelist.net/search/all?q=Subarashii%20Sekai&cat=all)
