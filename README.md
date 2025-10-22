@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Victory is everything in this world. The victory is acknowledged, and the vanquished is disavowed. Because I am victorious overall, I am always the just."
+> "Who'd want to date girls that talk smack about your friends?"
 
-&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko's Basketball TV 3**](https://myanimelist.net/search/all?q=Kuroko's%20Basketball%20TV%203&cat=all)
+&mdash; [**Makoto Sunakawa**](https://myanimelist.net/character.php?q=Makoto%20Sunakawa&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
