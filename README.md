@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's my job to make school fun."
+> "[About Omashu] There really is no fathoming the depths of my hatred for this place."
 
-&mdash; [**Eikichi Onizuka**](https://myanimelist.net/character.php?q=Eikichi%20Onizuka&cat=character), [**Great Teacher Onizuka**](https://myanimelist.net/search/all?q=Great%20Teacher%20Onizuka&cat=all)
+&mdash; [**Mai**](https://myanimelist.net/character.php?q=Mai&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
