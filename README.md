@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who'd want to date girls that talk smack about your friends?"
+> "Are you ready now to witness a power not seen for thousands of years?"
 
-&mdash; [**Makoto Sunakawa**](https://myanimelist.net/character.php?q=Makoto%20Sunakawa&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
