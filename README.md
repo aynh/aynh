@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm getting wet!"
+> "Look at the sky, it's so far away. But right here, right now, it seems so close."
 
-&mdash; [**Saeko Busujima**](https://myanimelist.net/character.php?q=Saeko%20Busujima&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Lee Yunlee**](https://myanimelist.net/character.php?q=Lee%20Yunlee&cat=character), [**Nineteen Twenty-one**](https://myanimelist.net/search/all?q=Nineteen%20Twenty-one&cat=all)
