@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look at the sky, it's so far away. But right here, right now, it seems so close."
+> "This body comes with many inconveniences. But inconveniences don't make me miserable! There is no reason for you to pity me! My life was put back together with alchemy by my brother. If I deny myself, that would mean I'm denying my brother, along with alchemy. I believe in the potential that alchemy holds. I want to believe in it!"
 
-&mdash; [**Lee Yunlee**](https://myanimelist.net/character.php?q=Lee%20Yunlee&cat=character), [**Nineteen Twenty-one**](https://myanimelist.net/search/all?q=Nineteen%20Twenty-one&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
