@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can't see what's important, then it's because you're too ashamed to open your eyes."
+> "Sometimes, the questions are complicated - and the answers are simple."
 
-&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
