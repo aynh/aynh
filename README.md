@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you're upset, try making the intelligent decision. And then, you might actually get something you want for a change."
+> "If you can't see what's important, then it's because you're too ashamed to open your eyes."
 
-&mdash; [**Tōdō Kaoru**](https://myanimelist.net/character.php?q=T%C5%8Dd%C5%8D%20Kaoru&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
