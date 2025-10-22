@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This body comes with many inconveniences. But inconveniences don't make me miserable! There is no reason for you to pity me! My life was put back together with alchemy by my brother. If I deny myself, that would mean I'm denying my brother, along with alchemy. I believe in the potential that alchemy holds. I want to believe in it!"
+> "I'll never dream about things that I know won't come true."
 
-&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Chiriko Tsurumi**](https://myanimelist.net/character.php?q=Chiriko%20Tsurumi&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
