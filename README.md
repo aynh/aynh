@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The power of imagination is what changes everything."
+> "You can make a rain of 1,000 needles. I will make it rain blood."
 
-&mdash; [**Shinsekai Yori**](https://myanimelist.net/character.php?q=Shinsekai%20Yori&cat=character), [**Shinsekai Yori**](https://myanimelist.net/search/all?q=Shinsekai%20Yori&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
