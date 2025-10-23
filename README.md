@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe nothing in this world happens by accident. As everything happens for a reason, our destiny slowly takes form..."
+> "Fear is what creates order."
 
-&mdash; [**Silvers Rayleigh**](https://myanimelist.net/character.php?q=Silvers%20Rayleigh&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
