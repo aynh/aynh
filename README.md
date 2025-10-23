@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A sword wields no strength, unless the hand that holds it has courage."
+> "Every brilliant day should be lived for those who passed away."
 
-&mdash; [**Link**](https://myanimelist.net/character.php?q=Link&cat=character), [**Legend of Zelda**](https://myanimelist.net/search/all?q=Legend%20of%20Zelda&cat=all)
+&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
