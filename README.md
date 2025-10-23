@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "By the way, I don't get my skills from a pocketwatch."
+> "When I look at their kind smiles and thought that I was supposed to be there smiling too... I couldn't stop crying. It hurt so much that I wanted to forget."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
