@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's human nature. We have regrets, and go on blaming ourselves forever."
+> "For murderers, there is no good or evil. I know that."
 
-&mdash; [**Kazuki Kuwanomi**](https://myanimelist.net/character.php?q=Kazuki%20Kuwanomi&cat=character), [**Plastic Memories**](https://myanimelist.net/search/all?q=Plastic%20Memories&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
