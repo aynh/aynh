@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think the only time people really have value is when they act according to their own will."
+> "Think of your shivers as excitement rather than fear. Cover the anxiety on your face with a smile."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Kurusu Keigo**](https://myanimelist.net/character.php?q=Kurusu%20Keigo&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
