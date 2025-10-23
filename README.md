@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I look at their kind smiles and thought that I was supposed to be there smiling too... I couldn't stop crying. It hurt so much that I wanted to forget."
+> "A sword wields no strength, unless the hand that holds it has courage."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Link**](https://myanimelist.net/character.php?q=Link&cat=character), [**Legend of Zelda**](https://myanimelist.net/search/all?q=Legend%20of%20Zelda&cat=all)
