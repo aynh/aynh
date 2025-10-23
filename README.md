@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's what I call smallness as a human being. No matter how much I'm irritated by it, I can't do anything about it. It's not complex, just stunted. Because as a human being I'm small, or something."
+> "I don't know if you noticed, but you just called him 'Captain.'"
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
