@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Gin Ichimaru] If you make Hinamori shed even one drop of blood, I'll kill you."
+> "That's human nature. We have regrets, and go on blaming ourselves forever."
 
-&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kazuki Kuwanomi**](https://myanimelist.net/character.php?q=Kazuki%20Kuwanomi&cat=character), [**Plastic Memories**](https://myanimelist.net/search/all?q=Plastic%20Memories&cat=all)
