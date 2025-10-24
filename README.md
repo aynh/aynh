@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When people focus on what they want to do, they’ll show off an inexplicable charm."
+> "You know, a lot of people make excuses when they lose."
 
-&mdash; [**Kinoshita Yuuko**](https://myanimelist.net/character.php?q=Kinoshita%20Yuuko&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Ryoma Echizen**](https://myanimelist.net/character.php?q=Ryoma%20Echizen&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
