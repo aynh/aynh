@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Think of your shivers as excitement rather than fear. Cover the anxiety on your face with a smile."
+> "He who is blessed with strength should become the guide. That is all."
 
-&mdash; [**Kurusu Keigo**](https://myanimelist.net/character.php?q=Kurusu%20Keigo&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
