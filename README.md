@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I always say what exactly what I'm feeling, and if they don't like me, that's fine! It doesn't change the fact that I was close to their hearts."
+> "No matter whether you win or not, there's no meaning to war."
 
-&mdash; [**Konno Yuuki**](https://myanimelist.net/character.php?q=Konno%20Yuuki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
