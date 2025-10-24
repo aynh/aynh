@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The difference between the novice and the master is that the master has failed more times than the novice has tried."
+> "This isn’t a situation where you can stand on principle. If there’s something you want to protect, get your hands dirty."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**L-elf Karlstein**](https://myanimelist.net/character.php?q=L-elf%20Karlstein&cat=character), [**Valvrave the Liberator**](https://myanimelist.net/search/all?q=Valvrave%20the%20Liberator&cat=all)
