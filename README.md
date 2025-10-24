@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being strong isn't just about having power or move, it about one's spirit"
+> "The human world is a boring place with boring people doing boring things."
 
-&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
