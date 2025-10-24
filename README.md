@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One day I'd like to become something precious to others."
+> "Unless someone makes the first move, nothing will happen."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Misa Amane**](https://myanimelist.net/character.php?q=Misa%20Amane&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
