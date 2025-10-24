@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He who is blessed with strength should become the guide. That is all."
+> "Being strong isn't just about having power or move, it about one's spirit"
 
-&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
