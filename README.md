@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This isn’t a situation where you can stand on principle. If there’s something you want to protect, get your hands dirty."
+> "A ninja must see underneath the underneath."
 
-&mdash; [**L-elf Karlstein**](https://myanimelist.net/character.php?q=L-elf%20Karlstein&cat=character), [**Valvrave the Liberator**](https://myanimelist.net/search/all?q=Valvrave%20the%20Liberator&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
