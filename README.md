@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Knowing what's in store for me means I have nothing to look forward to. If I know something good's going to happen... then when it does, I'm only half as happy about it because I knew in advance. And then when I know something bad is going to happen... when it does, I get overwhelmed with this sense of defeat... and feel even worse."
+> "We do have a lot in common. The same earth, the same air, the same sky. Maybe if we started looking at what's the same, instead of always looking at what is different... well, who knows?"
 
-&mdash; [**Sarushima Maria**](https://myanimelist.net/character.php?q=Sarushima%20Maria&cat=character), [**Yamada-kun to 7-nin no Majo**](https://myanimelist.net/search/all?q=Yamada-kun%20to%207-nin%20no%20Majo&cat=all)
+&mdash; [**Nyarth**](https://myanimelist.net/character.php?q=Nyarth&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
