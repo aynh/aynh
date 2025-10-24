@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no such thing as 'truth' or 'lies' in this world; there never has been. There are only plain, hard facts. And yet, all beings who exist in this world acknowledge only those 'facts' that are convenient to them, and take them to be the 'truth'. They do so because they know no other way of living. However, for those powerless beings who comprise the majority of this world's population, inconvenient facts that affirm their very existence, are their only truth."
+> "You probably weren't wrong, but you went about it the wrong way."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Akatsuki Kojou**](https://myanimelist.net/character.php?q=Akatsuki%20Kojou&cat=character), [**Strike the Blood**](https://myanimelist.net/search/all?q=Strike%20the%20Blood&cat=all)
