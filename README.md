@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I always knew you were no mere mortal... but I had no idea that you were a cat."
+> "The first one to move wins. Stay on the defensive and you'll lose your chance."
 
-&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Nobutaka Oda**](https://myanimelist.net/character.php?q=Nobutaka%20Oda&cat=character), [**Btooom!**](https://myanimelist.net/search/all?q=Btooom!&cat=all)
