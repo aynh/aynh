@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why do you still want to be my friend? Is it because you feel comfortable being with me? Because I understand your awkward and useless self, and yet still love you? Quit acting so spoiled. When you rejected me, you lost the right to want those things!"
+> "Romance is just trying to convey your feelings to another person."
 
-&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Tadashi Isogai**](https://myanimelist.net/character.php?q=Tadashi%20Isogai&cat=character), [**Living for the Day After Tomorrow**](https://myanimelist.net/search/all?q=Living%20for%20the%20Day%20After%20Tomorrow&cat=all)
