@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans have the ability to actively put things to an end rather than simply accept what's in store."
+> "For a pregnant woman to give birth, she's gotta feel the pain of pulling a watermelon out of her nostril. For an Artist to create a masterpiece, he's gotta feel the pain of pulling entire galaxies out  of his ass."
 
-&mdash; [**Souda Manatsu**](https://myanimelist.net/character.php?q=Souda%20Manatsu&cat=character), [**RDG: Red Data Girl**](https://myanimelist.net/search/all?q=RDG%3A%20Red%20Data%20Girl&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
