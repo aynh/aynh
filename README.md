@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times in a man's life when he must STRIP"
+> "If I don't understand how a friend feels, am I not allowed to worry about them? If I don't experience what you do, am I not allowed to worry about you, my friend?"
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
