@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After all cool men don't cheat on their partners, do they?"
+> "[After seeing Yuki, Shigure, and Kyo Sohma transform for the first time] THEY'RE ALL ANIMALS!"
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
