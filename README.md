@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Come on. I don't like this trend of explaining anything and everything about my love life. It's impossible."
+> "Hey hun! I've got a great idea, let's trade! Yo take my spot and I'll fight Hercule!"
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
