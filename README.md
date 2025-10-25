@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At the end of my life, it was just the two of us... You told me not to leave then so I decided not to go anywhere."
+> "Humans have the ability to actively put things to an end rather than simply accept what's in store."
 
-&mdash; [**Atsushi Shimao**](https://myanimelist.net/character.php?q=Atsushi%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
+&mdash; [**Souda Manatsu**](https://myanimelist.net/character.php?q=Souda%20Manatsu&cat=character), [**RDG: Red Data Girl**](https://myanimelist.net/search/all?q=RDG%3A%20Red%20Data%20Girl&cat=all)
