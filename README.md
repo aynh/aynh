@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I don't understand how a friend feels, am I not allowed to worry about them? If I don't experience what you do, am I not allowed to worry about you, my friend?"
+> "No, order exists to protect the people. We must not aim our guns at the wrong people. What we should eliminate are our doubting hearts and minds."
 
-&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Yomogawa Ayame**](https://myanimelist.net/character.php?q=Yomogawa%20Ayame&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
