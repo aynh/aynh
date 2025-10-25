@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "God's not at home. He's on vacation at Vegas."
+> "WHO ARE YOU CALLING A RUNT SO TINY HE COULD ONLY BE SEEN WITH A MAGNIFYING GLASS, YOU JERK!"
 
-&mdash; [**Eda**](https://myanimelist.net/character.php?q=Eda&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
