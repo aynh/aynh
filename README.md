@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No, order exists to protect the people. We must not aim our guns at the wrong people. What we should eliminate are our doubting hearts and minds."
+> "Come on. I don't like this trend of explaining anything and everything about my love life. It's impossible."
 
-&mdash; [**Yomogawa Ayame**](https://myanimelist.net/character.php?q=Yomogawa%20Ayame&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
