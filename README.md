@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The first one to panic is the first one to lose. No matter if they're the hunter or the hunted."
+> "After all cool men don't cheat on their partners, do they?"
 
-&mdash; [**Zarik Kajiwara**](https://myanimelist.net/character.php?q=Zarik%20Kajiwara&cat=character), [**Rakuen Tsuihō - Expelled from Paradise**](https://myanimelist.net/search/all?q=Rakuen%20Tsuih%C5%8D%20-%20Expelled%20from%20Paradise&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
