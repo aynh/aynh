@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And I thought you were going to buy a stone to evolve yourself."
+> "Why do you still want to be my friend? Is it because you feel comfortable being with me? Because I understand your awkward and useless self, and yet still love you? Quit acting so spoiled. When you rejected me, you lost the right to want those things!"
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
