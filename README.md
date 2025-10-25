@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Justice and charity don't mix."
+> "God's not at home. He's on vacation at Vegas."
 
-&mdash; [**Myouri Unzen**](https://myanimelist.net/character.php?q=Myouri%20Unzen&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Eda**](https://myanimelist.net/character.php?q=Eda&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
