@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not bad, for an early prototype."
+> "At the end of my life, it was just the two of us... You told me not to leave then so I decided not to go anywhere."
 
-&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Atsushi Shimao**](https://myanimelist.net/character.php?q=Atsushi%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
