@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Romance is just trying to convey your feelings to another person."
+> "I will do anything it takes to be the man she loves. I will survive this war. And when I return home, I will swallow every horrible thing I've done here, and I will smile when I'm with her. I swear on my life."
 
-&mdash; [**Tadashi Isogai**](https://myanimelist.net/character.php?q=Tadashi%20Isogai&cat=character), [**Living for the Day After Tomorrow**](https://myanimelist.net/search/all?q=Living%20for%20the%20Day%20After%20Tomorrow&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist: Brotherhood OAV**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood%20OAV&cat=all)
