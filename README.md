@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's overpriced, but that's okay, HERE'S YOUR CHANGE!"
+> "Honestly, someone who asks someone else to convey their feelings for them is the worst."
 
-&mdash; [**Touji Suzuhara**](https://myanimelist.net/character.php?q=Touji%20Suzuhara&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Daiki Mamura**](https://myanimelist.net/character.php?q=Daiki%20Mamura&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
