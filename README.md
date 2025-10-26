@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I'm away from you, even though I can't be around crowds, I want to go see you."
+> "I've told you before, he's not one to trust, Otae-san. No trustworthy man has eyes that look like a dead fish's eyes."
 
-&mdash; [**Gin**](https://myanimelist.net/character.php?q=Gin&cat=character), [**Hotarubi no Mori e**](https://myanimelist.net/search/all?q=Hotarubi%20no%20Mori%20e&cat=all)
+&mdash; [**Isao Kondō**](https://myanimelist.net/character.php?q=Isao%20Kond%C5%8D&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
