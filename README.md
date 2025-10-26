@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can see through you, you're lying, you want to gobble up my hot body!"
+> "Um well Miss Maka? Can you do me a favor and help me out with your father? I can't get him off my leg."
 
-&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
