@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I really do like you. You pissed me off, so I considered giving up for a minute, but I'd never lie about my feelings. So I won't quit. Even if you don't believe me now, I'll keep saying it until you do! I'll keep trying! This isn't over!"
+> "It is a simple story. There is nothing that brings me happiness. It does not matter, let it be believing in people or having people believe in me. What other people called happiness did not bring me any joy."
 
-&mdash; [**Erika Shinohara**](https://myanimelist.net/character.php?q=Erika%20Shinohara&cat=character), [**Wolf Girl & Black Prince**](https://myanimelist.net/search/all?q=Wolf%20Girl%20%26%20Black%20Prince&cat=all)
+&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
