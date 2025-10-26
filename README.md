@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Honestly, someone who asks someone else to convey their feelings for them is the worst."
+> "I've never seen a hero fall down stairs, cry, and get first aid from demons."
 
-&mdash; [**Daiki Mamura**](https://myanimelist.net/character.php?q=Daiki%20Mamura&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Maou Sadao**](https://myanimelist.net/character.php?q=Maou%20Sadao&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
