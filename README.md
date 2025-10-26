@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If history repeats itself, and moves in a circular path, then believing that whatever force is turning it is perfect, is all we can do as we move ahead. Pushed along by forces beyond our control, waiting, for the blade to be swung."
+> "Thanks for such a boring time, it was a blast!"
 
-&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
