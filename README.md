@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've told you before, he's not one to trust, Otae-san. No trustworthy man has eyes that look like a dead fish's eyes."
+> "*to Haruhi* Are you a moron?"
 
-&mdash; [**Isao Kondō**](https://myanimelist.net/character.php?q=Isao%20Kond%C5%8D&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
