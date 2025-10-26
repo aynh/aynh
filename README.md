@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dad left... A long time ago, when brother and I were still boys. Mom stared off into the distance a lot. But she carried on as if nothing were wrong."
+> "Death and pain are just a small price to pay for the enjoyment of battle!"
 
-&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
