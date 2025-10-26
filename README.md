@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is a simple story. There is nothing that brings me happiness. It does not matter, let it be believing in people or having people believe in me. What other people called happiness did not bring me any joy."
+> "Even if you're a main character, you can still die... I better be careful-ttebayo."
 
-&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
