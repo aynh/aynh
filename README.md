@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is he living his dreams in death? Or.. is death the end of dreams?"
+> "It's overpriced, but that's okay, HERE'S YOUR CHANGE!"
 
-&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Touji Suzuhara**](https://myanimelist.net/character.php?q=Touji%20Suzuhara&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
