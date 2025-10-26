@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every individual human affects the surrounding environment. But humans do not exist for the things and people around them. Often, they mistakenly think that they wish to exist for the sake of others, or to help everyone. They can not accept that they don't know why they exist, yes? They always want an answer. That is the nature of the animals called 'humans'."
+> "I was glad you did not pretend to be a saint and claim to love the world despite everything. That is why I decided that I would be your true friend. I would accept your sorrow. And I would share my joy. If you strayed I would reprimand you. If you made mistakes, I would forgive you. And when you found yourself in trouble, I would be there for you. So that you who learn to hate the world, would come to love it once more."
 
-&mdash; [**Magata Shiki**](https://myanimelist.net/character.php?q=Magata%20Shiki&cat=character), [**Subete ga F ni Naru**](https://myanimelist.net/search/all?q=Subete%20ga%20F%20ni%20Naru&cat=all)
+&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
