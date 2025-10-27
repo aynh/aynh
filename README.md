@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Souls are so yummy."
+> "People don't kill people, really. Monsters do. Monsters like war, hungry nobles, and greedy kingdoms. And monsters like me, not you."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ryner Lute**](https://myanimelist.net/character.php?q=Ryner%20Lute&cat=character), [**The Legend of the Legendary Heroes**](https://myanimelist.net/search/all?q=The%20Legend%20of%20the%20Legendary%20Heroes&cat=all)
