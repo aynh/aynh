@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who cares about snow? Snow can't touch me, I could be naked out here and it wouldn't bother me at all."
+> "There's a limit to the amount of pleasure a person can obtain. But pleasure brought out by intellect is infinite."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kouzaburou Touma**](https://myanimelist.net/character.php?q=Kouzaburou%20Touma&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
