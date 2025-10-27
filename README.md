@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've forged my own way alone. While you were consoling and fighting with one another, I faced everything myself, head on. Now look at how strong I am."
+> "There's nothing more repulsive than being touched by a guy you don't like."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Natsume Asako**](https://myanimelist.net/character.php?q=Natsume%20Asako&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
