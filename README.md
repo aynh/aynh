@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People don't kill people, really. Monsters do. Monsters like war, hungry nobles, and greedy kingdoms. And monsters like me, not you."
+> "A misty moonlight night washes over the land and though darkness ebbs with the glow of the full moon, shadows still remain. They conceal an evil which exists just beyond our grasp. Sides are chosen. Lines are drawn, ones that we dare not cross. But in the distance a ray of light shines to expose our path. It is then that we realize that some things in life are better left unseen."
 
-&mdash; [**Ryner Lute**](https://myanimelist.net/character.php?q=Ryner%20Lute&cat=character), [**The Legend of the Legendary Heroes**](https://myanimelist.net/search/all?q=The%20Legend%20of%20the%20Legendary%20Heroes&cat=all)
+&mdash; [**Gen Fudou**](https://myanimelist.net/character.php?q=Gen%20Fudou&cat=character), [**Sousei no Aquarion**](https://myanimelist.net/search/all?q=Sousei%20no%20Aquarion&cat=all)
