@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People live in order to be satisfied. And they hope to die while still satisfied. So, not knowing how to make yourself become satisfied is very tough."
+> "There is a difference in the look of the ordinary vagabond and that of a determined man."
 
-&mdash; [**Ushiromiya Ange**](https://myanimelist.net/character.php?q=Ushiromiya%20Ange&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
