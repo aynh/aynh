@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is a difference in the look of the ordinary vagabond and that of a determined man."
+> "Yo...time to pay the piper rat boy...I'm here to collect"
 
-&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
