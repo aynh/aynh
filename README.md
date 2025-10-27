@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every single one of them died while furiously giving off the light that resided within them and that light is then inherited by the next person where it will go on to shine with an even greater radiance. And thus people are connected together... allowing us to work towards a better tomorrow."
+> "If I get reincarnated... I wanna become a clam."
 
-&mdash; [**Ei Sei**](https://myanimelist.net/character.php?q=Ei%20Sei&cat=character), [**Kingdom**](https://myanimelist.net/search/all?q=Kingdom&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
