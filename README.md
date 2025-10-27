@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A misty moonlight night washes over the land and though darkness ebbs with the glow of the full moon, shadows still remain. They conceal an evil which exists just beyond our grasp. Sides are chosen. Lines are drawn, ones that we dare not cross. But in the distance a ray of light shines to expose our path. It is then that we realize that some things in life are better left unseen."
+> "I'm a devilish and talented butler."
 
-&mdash; [**Gen Fudou**](https://myanimelist.net/character.php?q=Gen%20Fudou&cat=character), [**Sousei no Aquarion**](https://myanimelist.net/search/all?q=Sousei%20no%20Aquarion&cat=all)
+&mdash; [**Gian Carlo**](https://myanimelist.net/character.php?q=Gian%20Carlo&cat=character), [**Lucky Dog**](https://myanimelist.net/search/all?q=Lucky%20Dog&cat=all)
