@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you think I can shoulder everyone's lives and not feel any weight? I don't want to be indifferent. I want to be worthy of everyone's feelings."
+> "One face is given to us by God. The other - we make ourselves."
 
-&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Skull Man**](https://myanimelist.net/character.php?q=Skull%20Man&cat=character), [**The Skull Man**](https://myanimelist.net/search/all?q=The%20Skull%20Man&cat=all)
