@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who kill too much, turn into dragons one day. Beasts that rule the land atop piles of money and fly the skies with authority. They become more and more violent, until they can no longer understand the language of men. We cannot allow dragons to remain in this world, even though we are the ones from which they are spawned. To slay a dragon is the greatest of honors."
+> "Do you think I can shoulder everyone's lives and not feel any weight? I don't want to be indifferent. I want to be worthy of everyone's feelings."
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
