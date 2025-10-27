@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's a limit to the amount of pleasure a person can obtain. But pleasure brought out by intellect is infinite."
+> "Every single one of them died while furiously giving off the light that resided within them and that light is then inherited by the next person where it will go on to shine with an even greater radiance. And thus people are connected together... allowing us to work towards a better tomorrow."
 
-&mdash; [**Kouzaburou Touma**](https://myanimelist.net/character.php?q=Kouzaburou%20Touma&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Ei Sei**](https://myanimelist.net/character.php?q=Ei%20Sei&cat=character), [**Kingdom**](https://myanimelist.net/search/all?q=Kingdom&cat=all)
