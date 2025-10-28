@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Panicking leads to an early grave."
+> "It feels like time is passing so quickly. Damn you, Einstein! Your science is crowding in on our kiss! He was right. The passage of time depends entirely on where you're standing. Relativity Theory... it's so romantic. But it's just so tragic too."
 
-&mdash; [**Esdeath**](https://myanimelist.net/character.php?q=Esdeath&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
