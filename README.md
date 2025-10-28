@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I haven't relied on luck since the moment I was born. Everything has been the result of my choices. That is what leads my existence towards the future."
+> "Trunks, Bulma, I’m doing this for you. And yes, even for you, Kakarot."
 
-&mdash; [**Kagura Mikazuchi**](https://myanimelist.net/character.php?q=Kagura%20Mikazuchi&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
