@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I cried alone every single night. It felt like every day that passed here stole another piece of my real life away. After I cried, I'd go and fight as hard as I could. My only thought was winning, moving forward and getting stronger."
+> "This has nothing to do with will. There is neither an egg that refuses to hatch nor a seed that evades it's eventual sprouting."
 
-&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Scythe Master**](https://myanimelist.net/character.php?q=Scythe%20Master&cat=character), [**Phantom: Requiem For The Phantom**](https://myanimelist.net/search/all?q=Phantom%3A%20Requiem%20For%20The%20Phantom&cat=all)
