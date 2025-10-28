@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I started crying. It was the first time in my life that I felt forgiven. Like I was saved. Like the frozen snow that's melted by spring, the tears wouldn't stop."
+> "I'm sorry, but I never lose to the same opponent twice."
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Fuji Shuusuke**](https://myanimelist.net/character.php?q=Fuji%20Shuusuke&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
