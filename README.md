@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I watch over Gin-san to protect him. Just like a fairy, like Tinkerbell!"
+> "The moment you find the courage to give up your life for someone... Would be the moment you understand love."
 
-&mdash; [**Sarutobi Ayame**](https://myanimelist.net/character.php?q=Sarutobi%20Ayame&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
