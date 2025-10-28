@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past isn't something you can just throw away. It stays with us forever. It's the same for everyone. We must live on, and carry the burdens of the past with us. That's why it's important that you carry the burden of what you do now and how you've decided to live your life today."
+> "I haven't relied on luck since the moment I was born. Everything has been the result of my choices. That is what leads my existence towards the future."
 
-&mdash; [**Train Heartnet**](https://myanimelist.net/character.php?q=Train%20Heartnet&cat=character), [**Black Cat**](https://myanimelist.net/search/all?q=Black%20Cat&cat=all)
+&mdash; [**Kagura Mikazuchi**](https://myanimelist.net/character.php?q=Kagura%20Mikazuchi&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
