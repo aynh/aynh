@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why? Why do humans always look to the sky? Why do you try so hard to fly when you don't have any wings? We'll run on our own legs."
+> "Adoration never leads to a balanced relationship."
 
-&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Ami Kawashima**](https://myanimelist.net/character.php?q=Ami%20Kawashima&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
