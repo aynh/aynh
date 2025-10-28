@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you keep saving butterflies, spiders will starve to death! But... wanting to save them both is a contradiction. What would you rather do? Keep deliberating? The butterfly will be eaten in the meantime."
+> "Kyon. The contest begins the second someone challenges you. Anything the loser says otherwise is merely an excuse."
 
-&mdash; [**Millions Knives**](https://myanimelist.net/character.php?q=Millions%20Knives&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
