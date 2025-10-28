@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It feels like time is passing so quickly. Damn you, Einstein! Your science is crowding in on our kiss! He was right. The passage of time depends entirely on where you're standing. Relativity Theory... it's so romantic. But it's just so tragic too."
+> "Even innocent foolish children will grow up in the face of pain, until their thoughts and beliefs are the same as their doubts."
 
-&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
