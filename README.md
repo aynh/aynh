@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm sorry, but I never lose to the same opponent twice."
+> "The past isn't something you can just throw away. It stays with us forever. It's the same for everyone. We must live on, and carry the burdens of the past with us. That's why it's important that you carry the burden of what you do now and how you've decided to live your life today."
 
-&mdash; [**Fuji Shuusuke**](https://myanimelist.net/character.php?q=Fuji%20Shuusuke&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Train Heartnet**](https://myanimelist.net/character.php?q=Train%20Heartnet&cat=character), [**Black Cat**](https://myanimelist.net/search/all?q=Black%20Cat&cat=all)
