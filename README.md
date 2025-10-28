@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I thought that the closer the real and virtual world got, the better the future would be. But the more the boundary between them blurs, the more it starts to trick people."
+> "It's you that I want. Do you not want me? Don't you want to be together? (to Rin)"
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
