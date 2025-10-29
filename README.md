@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey hun! I’ve got a great idea, let’s trade! Yo take my spot and I’ll fight Hercule!"
+> "You need three types of power to control the world. One is influence. One is wealth. The third is... force."
 
-&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Ushiromiya George**](https://myanimelist.net/character.php?q=Ushiromiya%20George&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
