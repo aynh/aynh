@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*talking about Gintoki* It's the same as always. He doesn't pursue those who leave, and ignores those who come."
+> "I CAN DO THAT TOO!' *He takes out a banana and squishes it, giggling evilly*"
 
-&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Imadori Kyousuke**](https://myanimelist.net/character.php?q=Imadori%20Kyousuke&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
