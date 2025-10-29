@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Because I won’t die if I miss.' I can totally understand the words of that slugger. We won’t die just because our dreams and efforts prove futile, nor do we need to despair. We both faced much greater despair, so we aren’t afraid of the obstacles that lie before us. We can easily bet on a coin flip while others are too frightened to even pick heads or tails."
+> "What do you think people are made of? I'm not talking about blood or flesh. We do care about what's on the exterior, but we want to focus more on what people even now still call the 'inside.' You can also call it 'nature'. I guess you are either born this way or raised to act this way. Are people born like this or do they become like this? The answer is..."
 
-&mdash; [**Usui Haruaki**](https://myanimelist.net/character.php?q=Usui%20Haruaki&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Fumito Nanahara**](https://myanimelist.net/character.php?q=Fumito%20Nanahara&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
