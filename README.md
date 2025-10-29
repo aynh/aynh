@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What you need are feelings and experiences. The feelings of the person seeking the rain must be in concert with those of the person making it."
+> "'Hero of Justice? A world where no one is hurt?' Don't be absurd. 'Humanity' is the name for an animal that cannot find joy in life without sacrifice. The pretty lie that is 'equality' is nonsense spouted by weaklings who cannot look upon the darkness. Nothing but an excuse to cover up life's ugliness."
 
-&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate Stay Night - Unlimited Blade Works**](https://myanimelist.net/search/all?q=Fate%20Stay%20Night%20-%20Unlimited%20Blade%20Works&cat=all)
