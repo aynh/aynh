@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's true that I'm not very tall. However! I can jump!"
+> "You stole this world and it's people. You're a king of thieves, alone upon a stolen throne!"
 
-&mdash; [**Shōyō Hinata**](https://myanimelist.net/character.php?q=Sh%C5%8Dy%C5%8D%20Hinata&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
