@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What do you think people are made of? I'm not talking about blood or flesh. We do care about what's on the exterior, but we want to focus more on what people even now still call the 'inside.' You can also call it 'nature'. I guess you are either born this way or raised to act this way. Are people born like this or do they become like this? The answer is..."
+> "'Obey the ones with power'. That's the true meaning of the law of the jungle. If you don't wish to be bound by that, obtain greater power. Because there's always times one must fight power with power."
 
-&mdash; [**Fumito Nanahara**](https://myanimelist.net/character.php?q=Fumito%20Nanahara&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
+&mdash; [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/character.php?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
