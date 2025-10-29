@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trunks, Bulma, I’m doing this for you. And yes, even for you, Kakarot."
+> "*talking about Gintoki* It's the same as always. He doesn't pursue those who leave, and ignores those who come."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
