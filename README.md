@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A mission's one thing, but I can't put them in danger for personal reasons. The only life I can do that to is my own."
+> "People in reality spout off all in unison about love and friendship but in fact it's a dirty little world full of lies and desires, isn't it?"
 
-&mdash; [**Itami Youji**](https://myanimelist.net/character.php?q=Itami%20Youji&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Satou Tatsuhiro**](https://myanimelist.net/character.php?q=Satou%20Tatsuhiro&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
