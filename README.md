@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one knows what the future holds in life.  We must take that endless bit of darkness and turn it to our advantage."
+> "What you need are feelings and experiences. The feelings of the person seeking the rain must be in concert with those of the person making it."
 
-&mdash; [**Higuchi Seitarou**](https://myanimelist.net/character.php?q=Higuchi%20Seitarou&cat=character), [**Yojouhan Shinwa Taikei**](https://myanimelist.net/search/all?q=Yojouhan%20Shinwa%20Taikei&cat=all)
+&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
