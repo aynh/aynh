@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We will never laugh at ourselves. Just as earthworms do not fear darkness and penguins are not ashamed of their inability to fly. That's the meaning of life, is it not?"
+> "No one knows what the future holds in life.  We must take that endless bit of darkness and turn it to our advantage."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Higuchi Seitarou**](https://myanimelist.net/character.php?q=Higuchi%20Seitarou&cat=character), [**Yojouhan Shinwa Taikei**](https://myanimelist.net/search/all?q=Yojouhan%20Shinwa%20Taikei&cat=all)
