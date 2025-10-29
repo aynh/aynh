@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The scars that you can't see are the hardest to heal."
+> "'Because I won’t die if I miss.' I can totally understand the words of that slugger. We won’t die just because our dreams and efforts prove futile, nor do we need to despair. We both faced much greater despair, so we aren’t afraid of the obstacles that lie before us. We can easily bet on a coin flip while others are too frightened to even pick heads or tails."
 
-&mdash; [**Nao Tomori**](https://myanimelist.net/character.php?q=Nao%20Tomori&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
+&mdash; [**Usui Haruaki**](https://myanimelist.net/character.php?q=Usui%20Haruaki&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
