@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You sure can talk the talk, but you're not quite ready to walk the walk. Time's up, it's my turn."
+> "A mission's one thing, but I can't put them in danger for personal reasons. The only life I can do that to is my own."
 
-&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Itami Youji**](https://myanimelist.net/character.php?q=Itami%20Youji&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
