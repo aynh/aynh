@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to know what others think, you first have to say what you think."
+> "The guards will show you to your chamber. The one that used to be the bad chamber, until the recent refurbishing that is. Of course, we've been calling it the new chamber, but we really should number them. Uh, take them to the refurbished chamber that was once bad!"
 
-&mdash; [**Akise Aru**](https://myanimelist.net/character.php?q=Akise%20Aru&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**King Bumi**](https://myanimelist.net/character.php?q=King%20Bumi&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
