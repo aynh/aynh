@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not fighting frantically for your life is all right, too. The important thing is… to decide on your own what you should do."
+> "If you want to know what others think, you first have to say what you think."
 
-&mdash; [**Hakuren Oak**](https://myanimelist.net/character.php?q=Hakuren%20Oak&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Akise Aru**](https://myanimelist.net/character.php?q=Akise%20Aru&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
