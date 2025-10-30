@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every moment hesitated is a moment gone from life."
+> "The Camellia Blossom also know as Tsubaki, is a flower without fragrance. It proclaims nothing, blooming in silence. When the blossomed pettles scatter, it's quietly tragic. I am Tsubaki. A silent flower without fragrance."
 
-&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
