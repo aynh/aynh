@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For all our sake I will sing and pee my heart out in the name of spirit!"
+> "The real fun is in constantly pushing beyond your limits. So if you're thinking of everything as a game, you won't be able to fully experience it."
 
-&mdash; [**Yui**](https://myanimelist.net/character.php?q=Yui&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
