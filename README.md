@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter what you do, if you live and die as you like. However, no matter what road you end up taking, remember to protect the people that are precious to you."
+> "Even if I DO sacrifice my own life, I will only do it to save my friends."
 
-&mdash; [**Hiruzen Sarutobi**](https://myanimelist.net/character.php?q=Hiruzen%20Sarutobi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Lenalee Lee**](https://myanimelist.net/character.php?q=Lenalee%20Lee&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
