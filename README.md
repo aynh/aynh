@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The guards will show you to your chamber. The one that used to be the bad chamber, until the recent refurbishing that is. Of course, we've been calling it the new chamber, but we really should number them. Uh, take them to the refurbished chamber that was once bad!"
+> "If you wanna climb a mountain, you obviously aim for the top, but you gotta enjoy the scenery too."
 
-&mdash; [**King Bumi**](https://myanimelist.net/character.php?q=King%20Bumi&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
