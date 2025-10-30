@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I DO sacrifice my own life, I will only do it to save my friends."
+> "*to Ohana* You can't do everything by yourself!... But I can't do it by myself, either. I need your help."
 
-&mdash; [**Lenalee Lee**](https://myanimelist.net/character.php?q=Lenalee%20Lee&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Minko Tsurugi**](https://myanimelist.net/character.php?q=Minko%20Tsurugi&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
