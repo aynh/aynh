@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The Camellia Blossom also know as Tsubaki, is a flower without fragrance. It proclaims nothing, blooming in silence. When the blossomed pettles scatter, it's quietly tragic. I am Tsubaki. A silent flower without fragrance."
+> "They say that if you change yourself, you'll change the world. but that's a complete lie. They're just forcing you to compromise, by feeding you a convenient little fib."
 
-&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
