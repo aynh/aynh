@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let me teach you a thing. Normally the weak person's weakness is the strong person, but the strong person's weakness is also the weak person."
+> "Being strong isn't just about having power or move, it about one's spirit"
 
-&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
