@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's nothing more satisfying than conquering all types of girls."
+> "You're right, all efforts are pointless... If you don't believe in yourself."
 
-&mdash; [**Mikoto Mikoshiba**](https://myanimelist.net/character.php?q=Mikoto%20Mikoshiba&cat=character), [**Gekkan Shoujo Nozaki-kun**](https://myanimelist.net/search/all?q=Gekkan%20Shoujo%20Nozaki-kun&cat=all)
+&mdash; [**Might Guy**](https://myanimelist.net/character.php?q=Might%20Guy&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
