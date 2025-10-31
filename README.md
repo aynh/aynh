@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no such thing as no such thing."
+> "There are times we can't run away, no matter how bad the odds are. When the people we're supposed to protect are threatened, we have to enter the fray and shield them. And it doesn't matter who or what the enemy is. We need to master skills and get stronger, with artillery as well as hand-do-hand combat. I think that's our responsibility as strong soldiers."
 
-&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Reiner Braun**](https://myanimelist.net/character.php?q=Reiner%20Braun&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
