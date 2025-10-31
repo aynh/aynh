@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*after Joey offers him to duel* No thanks, I think I'll have much more of a challenge playing solitaire."
+> "ADW is a severe, incurable ailment that makes the patient Able to Do only what he Wants to do."
 
-&mdash; [**Seto Kaiba**](https://myanimelist.net/character.php?q=Seto%20Kaiba&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
