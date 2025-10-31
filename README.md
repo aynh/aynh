@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "ADW is a severe, incurable ailment that makes the patient Able to Do only what he Wants to do."
+> "Everyone is the main character of their own life."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Kaito Kuroba**](https://myanimelist.net/character.php?q=Kaito%20Kuroba&cat=character), [**Magic Kaito**](https://myanimelist.net/search/all?q=Magic%20Kaito&cat=all)
