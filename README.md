@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Infinite wisdom requires infinite perspective. Only by experiencing each element, each moment separately and in their own time, does the beauty of the whole become apparent."
+> "If you are afraid to get hurt, you won't obtain what you really desire."
 
-&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Bubblegum Crisis: Tokyo 2040**](https://myanimelist.net/search/all?q=Bubblegum%20Crisis%3A%20Tokyo%202040&cat=all)
+&mdash; [**Tsukimori Youko**](https://myanimelist.net/character.php?q=Tsukimori%20Youko&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
