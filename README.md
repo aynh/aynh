@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone is the main character of their own life."
+> "Infinite wisdom requires infinite perspective. Only by experiencing each element, each moment separately and in their own time, does the beauty of the whole become apparent."
 
-&mdash; [**Kaito Kuroba**](https://myanimelist.net/character.php?q=Kaito%20Kuroba&cat=character), [**Magic Kaito**](https://myanimelist.net/search/all?q=Magic%20Kaito&cat=all)
+&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Bubblegum Crisis: Tokyo 2040**](https://myanimelist.net/search/all?q=Bubblegum%20Crisis%3A%20Tokyo%202040&cat=all)
