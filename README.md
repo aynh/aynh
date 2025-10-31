@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's very difficult for me to step on an ant without crushing it."
+> "I've wanted to make him taste his own pathetic failure with all my heart."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
