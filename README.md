@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For me, despair is not a goal, or a set of principles, or a lifestyle, or even an instinct... It's what defines me as Junko Enoshima! It's just my characterization! That's why I'm able to pursue despair with such purity!"
+> "Every dream has an end...No matter how nice the dream might be, or how scary it is. Under your warm blanket, the dream comes to an abrupt end, when mother shakes you awake. Forever and ever, the morning scene remains the same. But now I... I wonder... when the dreams began to never end."
 
-&mdash; [**Junko Enoshima**](https://myanimelist.net/character.php?q=Junko%20Enoshima&cat=character), [**Danganronpa The Animation**](https://myanimelist.net/search/all?q=Danganronpa%20The%20Animation&cat=all)
+&mdash; [**Aizawa Yuuichi**](https://myanimelist.net/character.php?q=Aizawa%20Yuuichi&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
