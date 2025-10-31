@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no sense in worrying about something you cannot control, so why bother?"
+> "*after Joey offers him to duel* No thanks, I think I'll have much more of a challenge playing solitaire."
 
-&mdash; [**Yoh Asakura**](https://myanimelist.net/character.php?q=Yoh%20Asakura&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Seto Kaiba**](https://myanimelist.net/character.php?q=Seto%20Kaiba&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
