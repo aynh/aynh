@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not the goodbyes that hurt, it's the flashbacks that follow..."
+> "The slight difference between those who always aim for the top and those who don't... It'll come to matter in a big way once you all emerge into society."
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
