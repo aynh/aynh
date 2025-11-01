@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The slight difference between those who always aim for the top and those who don't... It'll come to matter in a big way once you all emerge into society."
+> "If I'm protecting someone, I won't let her die, and if I'm attacking, I'll cut you."
 
-&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
