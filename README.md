@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you are afraid to get hurt, you won't obtain what you really desire."
+> "First you must decide, then you must follow through. I believe that’s the only way you can get anything accomplished."
 
-&mdash; [**Tsukimori Youko**](https://myanimelist.net/character.php?q=Tsukimori%20Youko&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
+&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
