@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time is not money. You can't buy time, now can you?"
+> "If you're here, can you prove you're really here?"
 
-&mdash; [**Kirisaki Hana**](https://myanimelist.net/character.php?q=Kirisaki%20Hana&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Mei Misaki**](https://myanimelist.net/character.php?q=Mei%20Misaki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
