@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't get hurt without also hurting others."
+> "Don't tell me what to do, you seaweed head."
 
-&mdash; [**Mato Kuroi**](https://myanimelist.net/character.php?q=Mato%20Kuroi&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
+&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
