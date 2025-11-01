@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I'm protecting someone, I won't let her die, and if I'm attacking, I'll cut you."
+> "You are right. I am not a detective, but a thief. And stealing is what thieves do best, even if it's a persons heart."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
