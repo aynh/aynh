@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once in a while when I wake up, I find myself crying. The dream I must’ve had, I can never seem to recall...But the sensation that I’ve lost something lingers for a long time after I wake up."
+> "You can't get hurt without also hurting others."
 
-&mdash; [**Taki Tachibana**](https://myanimelist.net/character.php?q=Taki%20Tachibana&cat=character), [**Kimi no Na wa**](https://myanimelist.net/search/all?q=Kimi%20no%20Na%20wa&cat=all)
+&mdash; [**Mato Kuroi**](https://myanimelist.net/character.php?q=Mato%20Kuroi&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
