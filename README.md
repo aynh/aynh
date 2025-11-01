@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is the first time in my life that I've been provoked to hit a woman."
+> "Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one's heart."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
