@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't tell me what to do, you seaweed head."
+> "The truth has power because it's the truth. And because it is the truth, that makes it just. It's persuasive, isn't it? Don't you want truth like that?"
 
-&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Taro**](https://myanimelist.net/character.php?q=Taro&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
