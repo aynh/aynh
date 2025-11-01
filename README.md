@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are right. I am not a detective, but a thief. And stealing is what thieves do best, even if it's a persons heart."
+> "Once in a while when I wake up, I find myself crying. The dream I must’ve had, I can never seem to recall...But the sensation that I’ve lost something lingers for a long time after I wake up."
 
-&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Taki Tachibana**](https://myanimelist.net/character.php?q=Taki%20Tachibana&cat=character), [**Kimi no Na wa**](https://myanimelist.net/search/all?q=Kimi%20no%20Na%20wa&cat=all)
