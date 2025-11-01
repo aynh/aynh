@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What would you ask for if you could have your wishes granted? Would you ask to be rich? Or to have the woman you're in love with be yours?  You can wish for whatever you want, it's your business, but to have one's wishes come true always comes with a price. Every deal has a catch. You'd better be nice and careful."
+> "A girlfriend isn't something you get just because you want one. You meet someone you like, and you want to spend time together. That's why you'd want that person as your girlfriend, right?"
 
-&mdash; [**Dante**](https://myanimelist.net/character.php?q=Dante&cat=character), [**Devil May Cry**](https://myanimelist.net/search/all?q=Devil%20May%20Cry&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
