@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Heh, I guess somehow without me knowing, it just feels so natural now, to have Kagome by my side."
+> "Phones, the internet - having the means alone doesn't lead to communication."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Saitō-sensei**](https://myanimelist.net/character.php?q=Sait%C5%8D-sensei&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
