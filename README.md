@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone's reality is freight with some degree of pain. What's wrong with seeing what makes you happy in your dreams?"
+> "You have no intention of reciprocating my daughter's feelings, do you? So what gives you the right to speak in that way? Perhaps you wish to appease your guilty conscience. Would you not call that 'hypocrisy'?"
 
-&mdash; [**Natsume**](https://myanimelist.net/character.php?q=Natsume&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
+&mdash; [**Tachibana Chika**](https://myanimelist.net/character.php?q=Tachibana%20Chika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
