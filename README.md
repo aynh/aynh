@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have no intention of reciprocating my daughter's feelings, do you? So what gives you the right to speak in that way? Perhaps you wish to appease your guilty conscience. Would you not call that 'hypocrisy'?"
+> "Fear is what creates order."
 
-&mdash; [**Tachibana Chika**](https://myanimelist.net/character.php?q=Tachibana%20Chika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
