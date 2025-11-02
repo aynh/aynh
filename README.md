@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Phones, the internet - having the means alone doesn't lead to communication."
+> "I want to see and understand the world outside. I don't want to die inside these walls without knowing what's out there!"
 
-&mdash; [**Saitō-sensei**](https://myanimelist.net/character.php?q=Sait%C5%8D-sensei&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
+&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
