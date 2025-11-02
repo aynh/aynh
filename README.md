@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to see and understand the world outside. I don't want to die inside these walls without knowing what's out there!"
+> "Hmm... *puts on a happy face* Delectable tea... *changes to serious face* or deadly poison?.."
 
-&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
