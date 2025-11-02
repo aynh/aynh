@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "<About Ciel> He turns his back towards the light without hesitation. That figure that charges into the abyss at a dignified pace. How beautiful and foolish."
+> "People like you disgust me. You can't even face your own weakness."
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Murasaki**](https://myanimelist.net/character.php?q=Murasaki&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
