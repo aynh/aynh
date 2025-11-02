@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fear is what creates order."
+> "If the being casting judgment is perfect, then it has to judge itself as well."
 
-&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Jouji Saiga**](https://myanimelist.net/character.php?q=Jouji%20Saiga&cat=character), [**Psycho-Pass 2**](https://myanimelist.net/search/all?q=Psycho-Pass%202&cat=all)
