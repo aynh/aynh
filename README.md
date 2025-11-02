@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen, girls like guys who are strong and can protect them. So if you keep working hard and get stronger, she just might like you back."
+> "[thinking as Nel tells her to cheer for Ichigo] That's right. To begin with, I came here just thinking I wanted to protect everyone. But when I heard they had come to save me, I couldn't help but feel a little glad, just a bit in my heart. When I look at Kurosaki-kun in that mask, I think that he might not have come here to save me at all. Even though it's wrong, they shouldn't be going that far for me."
 
-&mdash; [**Eina Tulle**](https://myanimelist.net/character.php?q=Eina%20Tulle&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
+&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
