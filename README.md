@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Uh, sorry... I forgot I'm supposed to airsit, I mean babybend, I-i mean babysit the kids."
+> "Liars always say the same things. 'I'll believe in you. I'll protect you. I care about you.' I'll never believe that again... No one will ever protect me. I won't even think about it. I'll fight alone, live alone, and die alone. I know... I've felt it on my skin and in my body... That it's better not to believe in anyone than believe and be betrayed!"
 
-&mdash; [**Korra**](https://myanimelist.net/character.php?q=Korra&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
+&mdash; [**Fremy Speedraw**](https://myanimelist.net/character.php?q=Fremy%20Speedraw&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
