@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more exciting it was to meet, the sadder it feels to say goodbye, right?"
+> "The slight difference between those who always aim for the top and those who don't... It'll come to matter in a big way once you all emerge into society."
 
-&mdash; [**Haruto Kirishima**](https://myanimelist.net/character.php?q=Haruto%20Kirishima&cat=character), [**Kimi no Iru Machi**](https://myanimelist.net/search/all?q=Kimi%20no%20Iru%20Machi&cat=all)
+&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
