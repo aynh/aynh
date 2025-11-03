@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So fucking what if I'm not you?! That doesn't mean it's okay for you to give up! If you do, I'll never forgive you as long as I live. God knows I'm not perfect either. I've made tons of stupid mistakes and later I regretted them. And I've done it over and over again, thousands of times. A cycle of hollow joy and vicious self-hatred. But even so, every time I learned something about myself."
+> "I'm actually a hardcore otaku who likes maids more than having three meals a day. And I only read books related to maids. Also, I only visit maid cafes. Of course, I also collect maid figurines. I play games which feature female maids and it turns me on so much. Then I wear maid uniforms and jump in joy. I'll take my leave now."
 
-&mdash; [**Misato Katsuragi**](https://myanimelist.net/character.php?q=Misato%20Katsuragi&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
