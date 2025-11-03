@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Farewell, warrior of the sky. I pray... you don't forgive me."
+> "A soul naturally seeks pleasure, consciously or not."
 
-&mdash; [**Kira Izuru**](https://myanimelist.net/character.php?q=Kira%20Izuru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
