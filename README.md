@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to know if it is a crime to live as you are, when you are different from others."
+> "Farewell, warrior of the sky. I pray... you don't forgive me."
 
-&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Kira Izuru**](https://myanimelist.net/character.php?q=Kira%20Izuru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
