@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A soul naturally seeks pleasure, consciously or not."
+> "When we were still in the world of living, death was something that came indiscriminately and randomly. So, there was no way to fight it."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
