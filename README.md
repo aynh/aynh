@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can see the ending!"
+> "*to Reim* Like I said before!! To me, being blind is nothing! It's only because I had just woken up, that's why Oz found out. Give me 3 more days. By then, I'll have assimilated. Then I'll be recovered and everything will be like normal. Even if I were thrown in a midst of Pandora members, I have faith that I will be able to kill them all!"
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
