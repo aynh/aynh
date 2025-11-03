@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after Hisagi thanks him] Aren't you clever? Is that supposed to be sarcastic?"
+> "I want to know if it is a crime to live as you are, when you are different from others."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
