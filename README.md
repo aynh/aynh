@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's pointless to force people to do their best if they don't want to."
+> "The more exciting it was to meet, the sadder it feels to say goodbye, right?"
 
-&mdash; [**Hansode Shiranui**](https://myanimelist.net/character.php?q=Hansode%20Shiranui&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Haruto Kirishima**](https://myanimelist.net/character.php?q=Haruto%20Kirishima&cat=character), [**Kimi no Iru Machi**](https://myanimelist.net/search/all?q=Kimi%20no%20Iru%20Machi&cat=all)
