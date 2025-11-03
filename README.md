@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I show people how weak I am, they won't need me anymore."
+> "The words you've said cannot be taken back. So you must take action to paint over what you have already said."
 
-&mdash; [**Himeko Inaba**](https://myanimelist.net/character.php?q=Himeko%20Inaba&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Dyne Woodwonder**](https://myanimelist.net/character.php?q=Dyne%20Woodwonder&cat=character), [**Overlord**](https://myanimelist.net/search/all?q=Overlord&cat=all)
