@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what kind of 'strength' you possess. There are places you can never reach no matter how hard you try. The farther it is... The higher it is..."
+> "Kings do not become kings by themselves. If the poor raise up together, declaring that they don't want any money, kings will be overthrown. However, poor seek money so that they can become kings themselves. Which in turn only strengthens the position of the current king."
 
-&mdash; [**Rika Noyamano**](https://myanimelist.net/character.php?q=Rika%20Noyamano&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Hyoudou Kazutaka**](https://myanimelist.net/character.php?q=Hyoudou%20Kazutaka&cat=character), [**Kaiji**](https://myanimelist.net/search/all?q=Kaiji&cat=all)
