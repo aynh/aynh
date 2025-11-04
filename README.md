@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you walk down the path that you believe is right, you cannot be wrong."
+> "I have no fear of watching you grow old while I remain young. I'll even watch you on your death bed. I am no stranger to death. But your heart is like that of an innocent child. It has always accepted everything about me, without hesitation. Because of that I am very afraid."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
