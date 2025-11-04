@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't know what state you wounds are in, of where you're hurting if you don't know that for yourself, there's no point in trying to share it with others, is there?"
+> "Know that the only people you can save like that are the ones that survive."
 
-&mdash; [**Hisomu Yoshiharu**](https://myanimelist.net/character.php?q=Hisomu%20Yoshiharu&cat=character), [**Kiznaiver**](https://myanimelist.net/search/all?q=Kiznaiver&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
