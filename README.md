@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once the revenge is dealt, you are required to pay the compensation."
+> "People should be doubted. Many people misunderstand this concept. Doubting people is just a part of getting to know them. What many people call 'trust' is really just giving up on trying to understand others, and that very act is far worse than doubting. It is actually 'apathy'."
 
-&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
