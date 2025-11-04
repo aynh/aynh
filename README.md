@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People don't vanish from this world the moment they die. Their true death is when they are forgotten by the living."
+> "Don't you ever worry about it? Wonder if there's something wrong with you? When you're always alone... you start comparing yourself with others. You want to make sure you're normal. But... when you're around lots of people, you don't compare yourself with them. You want to be yourself. It's okay to be weird... You want to be special. That's how it balances out."
 
-&mdash; [**Tokou Nanami**](https://myanimelist.net/character.php?q=Tokou%20Nanami&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Miyaichi Rio**](https://myanimelist.net/character.php?q=Miyaichi%20Rio&cat=character), [**Ana Satsujin**](https://myanimelist.net/search/all?q=Ana%20Satsujin&cat=all)
