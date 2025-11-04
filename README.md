@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think that what people who've committed crimes need isn't punishment, but rather the knowledge of the pain of being forgiven."
+> "It was like you brought color to my life. You changed my life, all by yourself."
 
-&mdash; [**Isogi Toshio**](https://myanimelist.net/character.php?q=Isogi%20Toshio&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
