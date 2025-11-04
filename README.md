@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People should be doubted. Many people misunderstand this concept. Doubting people is just a part of getting to know them. What many people call 'trust' is really just giving up on trying to understand others, and that very act is far worse than doubting. It is actually 'apathy'."
+> "In my next life, I want to be me, and meet you again."
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Gon Freecss**](https://myanimelist.net/character.php?q=Gon%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
