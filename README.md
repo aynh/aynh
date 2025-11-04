@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "She was stolen away before I even realized I liked her."
+> "When you notice an insect on the ground, do you stop to consider it a fool? The life of an insect is so beneath you that it would be a waste of your time to even consider judging it. That would be an accurate summation of my feelings towards you, humans."
 
-&mdash; [**Kento Miura**](https://myanimelist.net/character.php?q=Kento%20Miura&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Father**](https://myanimelist.net/character.php?q=Father&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
