@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It was like you brought color to my life. You changed my life, all by yourself."
+> "Oreki, you're strange!"
 
-&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Mayaka Ibara**](https://myanimelist.net/character.php?q=Mayaka%20Ibara&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
