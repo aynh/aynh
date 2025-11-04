@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The words you've said cannot be taken back. So you must take action to paint over what you have already said."
+> "I think that what people who've committed crimes need isn't punishment, but rather the knowledge of the pain of being forgiven."
 
-&mdash; [**Dyne Woodwonder**](https://myanimelist.net/character.php?q=Dyne%20Woodwonder&cat=character), [**Overlord**](https://myanimelist.net/search/all?q=Overlord&cat=all)
+&mdash; [**Isogi Toshio**](https://myanimelist.net/character.php?q=Isogi%20Toshio&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
