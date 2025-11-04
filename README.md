@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Smile. Not for anyone else, but for yourself. Show yourself your own smile. You'll feel better then."
+> "She was stolen away before I even realized I liked her."
 
-&mdash; [**Rintarou Tatewaki**](https://myanimelist.net/character.php?q=Rintarou%20Tatewaki&cat=character), [**Magic-Kyun! Renaissance**](https://myanimelist.net/search/all?q=Magic-Kyun!%20Renaissance&cat=all)
+&mdash; [**Kento Miura**](https://myanimelist.net/character.php?q=Kento%20Miura&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
