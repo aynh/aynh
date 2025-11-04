@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everything doesn't have to be decided by life and death. Just think about the future."
+> "Smile. Not for anyone else, but for yourself. Show yourself your own smile. You'll feel better then."
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Rintarou Tatewaki**](https://myanimelist.net/character.php?q=Rintarou%20Tatewaki&cat=character), [**Magic-Kyun! Renaissance**](https://myanimelist.net/search/all?q=Magic-Kyun!%20Renaissance&cat=all)
