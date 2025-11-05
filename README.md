@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Remember that everyone you meet is afraid of something, loves something, and has lost something."
+> "I want to live... I want to hold something in my hands and feel its warmth."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Dune**](https://myanimelist.net/character.php?q=Dune&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
