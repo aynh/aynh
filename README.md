@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Simplicity is the easiest path to true beauty."
+> "I choose my own battlefields. Not by my blood, but by my heart! I stand on the battlefield to protect what's important to me. And if anyone stands in my way, I don't care if it's one of my kind, my brother or anyone else… I'll crush them all!"
 
-&mdash; [**Handa Seishū**](https://myanimelist.net/character.php?q=Handa%20Seish%C5%AB&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
