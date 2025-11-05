@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The desire to fly with ''real wings'' is what motivates you."
+> "I am crazy and stubborn."
 
-&mdash; [**Ringo Noyamano**](https://myanimelist.net/character.php?q=Ringo%20Noyamano&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Franky**](https://myanimelist.net/character.php?q=Franky&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
