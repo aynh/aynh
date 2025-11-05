@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to live... I want to hold something in my hands and feel its warmth."
+> "Panicking leads to an early grave."
 
-&mdash; [**Dune**](https://myanimelist.net/character.php?q=Dune&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
+&mdash; [**Esdeath**](https://myanimelist.net/character.php?q=Esdeath&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
