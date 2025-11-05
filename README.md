@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What we cannot speak about, we must pass over in silence."
+> "Simplicity is the easiest path to true beauty."
 
-&mdash; [**Kurosu Etsurou**](https://myanimelist.net/character.php?q=Kurosu%20Etsurou&cat=character), [**Ana Satsujin**](https://myanimelist.net/search/all?q=Ana%20Satsujin&cat=all)
+&mdash; [**Handa Seishū**](https://myanimelist.net/character.php?q=Handa%20Seish%C5%AB&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
