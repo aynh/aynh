@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Panicking leads to an early grave."
+> "I'll rip that mouth of yours apart, so you can never again utter such spells!"
 
-&mdash; [**Esdeath**](https://myanimelist.net/character.php?q=Esdeath&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Reiji Shiratori**](https://myanimelist.net/character.php?q=Reiji%20Shiratori&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
