@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This world that we live in is gentle yet sad, fun yet sorrowful, strong yet ephemeral... ...but as long as you're alive, something good is bound to happen. I'm sure of it."
+> "I'm crazy!? What's crazy is this world that refuses to let me be with you!!!"
 
-&mdash; [**Subarashii Sekai**](https://myanimelist.net/character.php?q=Subarashii%20Sekai&cat=character), [**Subarashii Sekai**](https://myanimelist.net/search/all?q=Subarashii%20Sekai&cat=all)
+&mdash; [**Gasai Yuno**](https://myanimelist.net/character.php?q=Gasai%20Yuno&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
