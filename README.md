@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm getting a litte bored of this curse of yours Ashitaka just let me cut the damn thing off."
+> "Remember that everyone you meet is afraid of something, loves something, and has lost something."
 
-&mdash; [**Lady Eboshi**](https://myanimelist.net/character.php?q=Lady%20Eboshi&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
