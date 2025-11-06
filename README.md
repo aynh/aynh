@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There can be no going back once you come to love someone."
+> "I wanted to be saved too..."
 
-&mdash; [**Miyagi**](https://myanimelist.net/character.php?q=Miyagi&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
+&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
