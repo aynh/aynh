@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kyon-kun. If I become ruined for marriage will you take me?"
+> "Humans must think about living on. And, must also understand death. Most important, we must learn to understand the truth."
 
-&mdash; [**Mikuru Asahina**](https://myanimelist.net/character.php?q=Mikuru%20Asahina&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
