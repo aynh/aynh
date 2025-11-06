@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Besides, it doesn't really matter, does it? Why should I care about appearances and labels anyway. It's what's on the inside that counts."
+> "I bet that when they run out of delicacy points, girls turn into old ladies."
 
-&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
