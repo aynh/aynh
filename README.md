@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll be waiting for you to get your asses back here!"
+> "Our world is like a terminal cancer. Saying you'll change things through individual will is rambling of a peace-loving fool."
 
-&mdash; [**Sawako Yamanaka**](https://myanimelist.net/character.php?q=Sawako%20Yamanaka&cat=character), [**K-ON!**](https://myanimelist.net/search/all?q=K-ON!&cat=all)
+&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
