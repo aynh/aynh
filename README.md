@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How could I let this happen to my son? He has sacrificed everything for me! And I have done nothing but ignore him!"
+> "Kyon-kun. If I become ruined for marriage will you take me?"
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Mikuru Asahina**](https://myanimelist.net/character.php?q=Mikuru%20Asahina&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
