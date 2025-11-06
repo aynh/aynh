@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Music speaks louder than words."
+> "[To Yuuri Shibuya] Does your Majesty believe in Time? Time gives us happiness, but it can also take everything away from us. During the 15 years that I waited for your Majesty to grow up and for the day when you would come to this world, Time gave me happiness every day. And after you came to this world... This is my conclusion, made during all the time that I have been with you."
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Conrad Weller**](https://myanimelist.net/character.php?q=Conrad%20Weller&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
