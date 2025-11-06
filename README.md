@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Yuuri Shibuya] Does your Majesty believe in Time? Time gives us happiness, but it can also take everything away from us. During the 15 years that I waited for your Majesty to grow up and for the day when you would come to this world, Time gave me happiness every day. And after you came to this world... This is my conclusion, made during all the time that I have been with you."
+> "It takes an idiot to do cool things. That's why it's cool."
 
-&mdash; [**Conrad Weller**](https://myanimelist.net/character.php?q=Conrad%20Weller&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
+&mdash; [**Haruko Haruhara**](https://myanimelist.net/character.php?q=Haruko%20Haruhara&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
