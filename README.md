@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our world is like a terminal cancer. Saying you'll change things through individual will is rambling of a peace-loving fool."
+> "If you live life by other people's standards, then your life is no longer yours."
 
-&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Eddie Lee**](https://myanimelist.net/character.php?q=Eddie%20Lee&cat=character), [**Beck**](https://myanimelist.net/search/all?q=Beck&cat=all)
