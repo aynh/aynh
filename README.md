@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It takes an idiot to do cool things. That's why it's cool."
+> "If you have enough breath to say you don't have energy, I haven't push you far enough!"
 
-&mdash; [**Haruko Haruhara**](https://myanimelist.net/character.php?q=Haruko%20Haruhara&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Barbara**](https://myanimelist.net/character.php?q=Barbara&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
