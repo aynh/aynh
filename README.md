@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But that's enough. If there is overwhelming power and speed, there is no room for technique. Techniques are something humans invented to compensate for their weaknesses."
+> "From this day on, I don't need freedom. As we struggle using our strength to grasp what's above us. We will eventually reach something, that is the meaning of the word freedom."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Ringo Noyamano**](https://myanimelist.net/character.php?q=Ringo%20Noyamano&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
