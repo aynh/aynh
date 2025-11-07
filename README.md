@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is a case of personal feelings: there's no way to force someone into saying that he or she loves someone. Besides, only the person knows whether the love truly exists. Even if it's said out with false feelings, it'll just cause damage on both sides."
+> "There's nothing more repulsive than being touched by a guy you don't like."
 
-&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Natsume Asako**](https://myanimelist.net/character.php?q=Natsume%20Asako&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
