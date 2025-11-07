@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Taking away someone's freedom is the ugliest thing one can do in this world. People like that ought to decay into dirt and come back as thorny roses."
+> "I have told you before, I'm an avenger. I don't care about this test, Chunin or whatever. 'Am I strong?' that's the answer I want."
 
-&mdash; [**Jae-ha**](https://myanimelist.net/character.php?q=Jae-ha&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
