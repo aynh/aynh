@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One can hardly lose what one does not already have."
+> "If you have money, life is the same no matter where you go. But if you don't have money, your life can adapt to where you are."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Balsa**](https://myanimelist.net/character.php?q=Balsa&cat=character), [**Seirei No Moribito**](https://myanimelist.net/search/all?q=Seirei%20No%20Moribito&cat=all)
