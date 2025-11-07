@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't need a reason to love someone."
+> "Because I wished for everyone to live, I did everything I could."
 
-&mdash; [**Makoto Isshiki**](https://myanimelist.net/character.php?q=Makoto%20Isshiki&cat=character), [**Chuunibyo Demo Koi ga Shitai!**](https://myanimelist.net/search/all?q=Chuunibyo%20Demo%20Koi%20ga%20Shitai!&cat=all)
+&mdash; [**Sakura Kinomoto**](https://myanimelist.net/character.php?q=Sakura%20Kinomoto&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
