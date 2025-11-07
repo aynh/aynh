@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there is a pure wish in this world, it must be the desire to be born."
+> "If love is just a word, then why does it hurt so much if you realize it isn't there?"
 
-&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
