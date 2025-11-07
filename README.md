@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you have money, life is the same no matter where you go. But if you don't have money, your life can adapt to where you are."
+> "But our world as we knew it had already been completely destroyed."
 
-&mdash; [**Balsa**](https://myanimelist.net/character.php?q=Balsa&cat=character), [**Seirei No Moribito**](https://myanimelist.net/search/all?q=Seirei%20No%20Moribito&cat=all)
+&mdash; [**Takashi Komuro**](https://myanimelist.net/character.php?q=Takashi%20Komuro&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
