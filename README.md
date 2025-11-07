@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's nothing more repulsive than being touched by a guy you don't like."
+> "Noooo, there's no way I, a mere handsome and sexy shopkeeper, could possibly have bankai!"
 
-&mdash; [**Natsume Asako**](https://myanimelist.net/character.php?q=Natsume%20Asako&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
