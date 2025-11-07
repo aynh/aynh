@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder how you're suppose to give up... Do I just decide to give up and act accordingly? And move further and further away from what my heart really wants? Then will I forget everything one day?.. Everything including the pain in my heart? Everything? Without a trace as if nothing was there to begin with?"
+> "I'm not going there to die. I'm going there to find out if I'm really alive."
 
-&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
