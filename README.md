@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Noooo, there's no way I, a mere handsome and sexy shopkeeper, could possibly have bankai!"
+> "One can hardly lose what one does not already have."
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
