@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are all different from each other and that's what makes us all special."
+> "She's been like that ever since I bought a box of donuts and had one more than her."
 
-&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
