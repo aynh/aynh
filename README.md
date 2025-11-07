@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "From this day on, I don't need freedom. As we struggle using our strength to grasp what's above us. We will eventually reach something, that is the meaning of the word freedom."
+> "You don't need a reason to love someone."
 
-&mdash; [**Ringo Noyamano**](https://myanimelist.net/character.php?q=Ringo%20Noyamano&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Makoto Isshiki**](https://myanimelist.net/character.php?q=Makoto%20Isshiki&cat=character), [**Chuunibyo Demo Koi ga Shitai!**](https://myanimelist.net/search/all?q=Chuunibyo%20Demo%20Koi%20ga%20Shitai!&cat=all)
