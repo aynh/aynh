@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have told you before, I'm an avenger. I don't care about this test, Chunin or whatever. 'Am I strong?' that's the answer I want."
+> "My happiness can only be... can only be made with my own hands! My happiness doesn't depend on anyone but me!"
 
-&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
