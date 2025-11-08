@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You may be able to get stronger with simply the right attitude. In other words, train your spirit before worrying about strength through power and technology."
+> "Are you, what they call, a heart?"
 
-&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Argentine**](https://myanimelist.net/character.php?q=Argentine&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
