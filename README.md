@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I probably won't be able to look forward to summer for a long time. My chest will hurt. My tears will be overflowing. But this warmth in my hands and these summer memories will live on in my heart."
+> "I am not strong in the least, I merely started walking steps earlier than you. The only difference between you and me is the distance between us at this moment."
 
-&mdash; [**Hotaru Takegawa**](https://myanimelist.net/character.php?q=Hotaru%20Takegawa&cat=character), [**Hotarubi no Mori e**](https://myanimelist.net/search/all?q=Hotarubi%20no%20Mori%20e&cat=all)
+&mdash; [**Ewan Remington**](https://myanimelist.net/character.php?q=Ewan%20Remington&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
