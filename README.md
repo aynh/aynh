@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you, what they call, a heart?"
+> "You are really red. It would be fun to hang you from a traffic light, and stop cars."
 
-&mdash; [**Argentine**](https://myanimelist.net/character.php?q=Argentine&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Kuroyukihime**](https://myanimelist.net/character.php?q=Kuroyukihime&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
