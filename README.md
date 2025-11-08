@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The bells are very loud today."
+> "You may be able to get stronger with simply the right attitude. In other words, train your spirit before worrying about strength through power and technology."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
