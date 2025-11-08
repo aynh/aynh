@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are really red. It would be fun to hang you from a traffic light, and stop cars."
+> "It's not that you can fall in love with someone new because you forgot the old. It's because you fall in love with someone new, that you're able to forget about the old. Only love can heal a heart that was hurt by love."
 
-&mdash; [**Kuroyukihime**](https://myanimelist.net/character.php?q=Kuroyukihime&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
+&mdash; [**Bokura ga Ita**](https://myanimelist.net/character.php?q=Bokura%20ga%20Ita&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
