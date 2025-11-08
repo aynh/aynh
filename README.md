@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how scared you are, it is important that you learn about what you fear."
+> "This has nothing to do with will. There is neither an egg that refuses to hatch nor a seed that evades it's eventual sprouting."
 
-&mdash; [**Adolf Reinhardt**](https://myanimelist.net/character.php?q=Adolf%20Reinhardt&cat=character), [**Terraformars**](https://myanimelist.net/search/all?q=Terraformars&cat=all)
+&mdash; [**Scythe Master**](https://myanimelist.net/character.php?q=Scythe%20Master&cat=character), [**Phantom: Requiem For The Phantom**](https://myanimelist.net/search/all?q=Phantom%3A%20Requiem%20For%20The%20Phantom&cat=all)
