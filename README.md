@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am not strong in the least, I merely started walking steps earlier than you. The only difference between you and me is the distance between us at this moment."
+> "Hamlets mistake is that he believed in something like a ghost, that doesn't exist. The second he believed in something irrational, he was doomed. Those are just delusions imagined by the living. Once you're dead, that's it. The dead don't return, nor do they hear our wishes. It's all an illusion. Things you forgot to say, things you couldn't say... they want ghosts to hear them, so they dream one up. It's also possible that people imagine their desire as ghosts."
 
-&mdash; [**Ewan Remington**](https://myanimelist.net/character.php?q=Ewan%20Remington&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
+&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
