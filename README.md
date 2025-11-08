@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This has nothing to do with will. There is neither an egg that refuses to hatch nor a seed that evades it's eventual sprouting."
+> "It's not always easy to see the good in people. In some people, you might even doubt that it's there at all. But if you can somehow, find a way to believe...sometimes that's all it takes to help someone, to give them the strength to find the good in themselves."
 
-&mdash; [**Scythe Master**](https://myanimelist.net/character.php?q=Scythe%20Master&cat=character), [**Phantom: Requiem For The Phantom**](https://myanimelist.net/search/all?q=Phantom%3A%20Requiem%20For%20The%20Phantom&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
