@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll tattle-tale to Yachiru if you keep that up, Ikkaku!"
+> "Even when the sky's so dark you can't see a thing, there are still stars shining out there. So if she can learn to shine brighter, we'll be able to see her."
 
-&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
