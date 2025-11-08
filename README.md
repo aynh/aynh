@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not always easy to see the good in people. In some people, you might even doubt that it's there at all. But if you can somehow, find a way to believe...sometimes that's all it takes to help someone, to give them the strength to find the good in themselves."
+> "Oh, it IS a chore. Risking your life and keeping busy are all the same!"
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
