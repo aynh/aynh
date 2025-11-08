@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't tell me he wants to conquer the world? Can't he come up with something more original?"
+> "I never... [chuckles]... laughed this hard in front of my parents.(to Tohru)"
 
-&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
