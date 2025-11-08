@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you find a raw diamond, wanting it to become polished is natural right?"
+> "Even if all we accomplished were small steps forward... We continued to give our lives if it meant that one day... humanity would be free from this terror."
 
-&mdash; [**Kuu Hizuri**](https://myanimelist.net/character.php?q=Kuu%20Hizuri&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
+&mdash; [**Hange Zoe**](https://myanimelist.net/character.php?q=Hange%20Zoe&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
