@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if all we accomplished were small steps forward... We continued to give our lives if it meant that one day... humanity would be free from this terror."
+> "Don't tell me he wants to conquer the world? Can't he come up with something more original?"
 
-&mdash; [**Hange Zoe**](https://myanimelist.net/character.php?q=Hange%20Zoe&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
