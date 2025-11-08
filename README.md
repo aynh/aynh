@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no encounter without meaning. I've encountered many people on my journey, and those meetings meant something."
+> "Legends from the distant past are always exaggerated, but eventually, someone outdoes them... that's when new legends are born!"
 
-&mdash; [**Cardfight!! Vanguard G**](https://myanimelist.net/character.php?q=Cardfight!!%20Vanguard%20G&cat=character), [**Cardfight!! Vanguard G**](https://myanimelist.net/search/all?q=Cardfight!!%20Vanguard%20G&cat=all)
+&mdash; [**Shikaku Nara**](https://myanimelist.net/character.php?q=Shikaku%20Nara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
