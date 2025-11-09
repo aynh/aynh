@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is not beautiful; and that, in a way, lends it a sort of beauty."
+> "Justice is a weapon. It can be used to cause harm, but it cannot protect or save others."
 
-&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
+&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
