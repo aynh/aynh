@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Charm is reserved for dealing with people with more power than you."
+> "If everyone were perfect, there would be no need to look out for others. Sympathy or love is needed because people are imperfect. A perfect human cannot love anyone."
 
-&mdash; [**Chihayafuru 2**](https://myanimelist.net/character.php?q=Chihayafuru%202&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
