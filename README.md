@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mistaking lust for love shows that you're caught in an inflationary spiral of sexual frustration."
+> "Charm is reserved for dealing with people with more power than you."
 
-&mdash; [**Tsukihi Araragi**](https://myanimelist.net/character.php?q=Tsukihi%20Araragi&cat=character), [**Nekomonogatari: Kuro**](https://myanimelist.net/search/all?q=Nekomonogatari%3A%20Kuro&cat=all)
+&mdash; [**Chihayafuru 2**](https://myanimelist.net/character.php?q=Chihayafuru%202&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
