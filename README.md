@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life isn't that sweet. That's why everyone wants sweet things."
+> "Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one's heart."
 
-&mdash; [**Undertaker**](https://myanimelist.net/character.php?q=Undertaker&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
