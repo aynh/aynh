@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ahh, don't get your underwear in a knot."
+> "Life itself is a frightening image for every human being... being strong in life isn't easy."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
