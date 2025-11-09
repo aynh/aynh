@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one's heart."
+> "I haven't said anything about letting them commit murder...yet."
 
-&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
