@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder why people make promises they won't be able to keep."
+> "You're either incompetent or you're spineless cowards. How pathetic. You can just sit here and suck on your fingers. Yeah, do that."
 
-&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
