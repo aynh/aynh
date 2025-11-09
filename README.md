@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life itself is a frightening image for every human being... being strong in life isn't easy."
+> "Life isn't that sweet. That's why everyone wants sweet things."
 
-&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Undertaker**](https://myanimelist.net/character.php?q=Undertaker&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
