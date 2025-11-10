@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can kill anything that exists - even if it's a god."
+> "Over the course of several hundred years, I've seen many ages end, conflict between people, hatred, wicked hearts. I always have hope that the new age will purify all of that. How many times has it happened? People repeat themselves. They commit the same mistakes, over and over.... They haven't survived, not in true sense. The precious race called people has become extinct."
 
-&mdash; [**Ryougi Shiki**](https://myanimelist.net/character.php?q=Ryougi%20Shiki&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Zeref**](https://myanimelist.net/character.php?q=Zeref&cat=character), [**Fairy Tail TV 2/2014**](https://myanimelist.net/search/all?q=Fairy%20Tail%20TV%202%2F2014&cat=all)
