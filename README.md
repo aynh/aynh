@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Living your life to the fullest 'til the moment of your death, this is the rule to live by in any world."
+> "Those who close their eyes to the past, become blind to the future."
 
-&mdash; [**Crusty**](https://myanimelist.net/character.php?q=Crusty&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Juzo Okita**](https://myanimelist.net/character.php?q=Juzo%20Okita&cat=character), [**Space Battleship Yamato**](https://myanimelist.net/search/all?q=Space%20Battleship%20Yamato&cat=all)
