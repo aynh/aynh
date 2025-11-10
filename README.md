@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But I have a fear stronger than the fear of losing. It's the fear of boredom. I fear those days full of boredom."
+> "Greed may not be good, but it’s not so bad either. You humans think greed is just for money or power, but everyone wants something they can’t have."
 
-&mdash; [**Berserker**](https://myanimelist.net/character.php?q=Berserker&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
+&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
