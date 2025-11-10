@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fear beyond rational limits, forces people to cling to normality."
+> "If you keep saving butterflies, spiders will starve to death! But... wanting to save them both is a contradiction. What would you rather do? Keep deliberating? The butterfly will be eaten in the meantime."
 
-&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
+&mdash; [**Millions Knives**](https://myanimelist.net/character.php?q=Millions%20Knives&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
