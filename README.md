@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The strength of life lies in the possibility of dying."
+> "You are from a world Su will never understand."
 
-&mdash; [**Kouichi Aizawa**](https://myanimelist.net/character.php?q=Kouichi%20Aizawa&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Su**](https://myanimelist.net/character.php?q=Su&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
