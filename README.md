@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Small animals have their own ways of surviving."
+> "Although my heart may be weak, it’s not alone. It’s grom with each new experience. And it’s found a home with all the friends I’ve made. I’ve become a part of their heart, just as they’ve become part of mine. And if they think of me now and then, if they don’t forget me, then our hearts will be one. I don’t need a weapon. My friends are my power!"
 
-&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**Kingdom Hearts**](https://myanimelist.net/search/all?q=Kingdom%20Hearts&cat=all)
