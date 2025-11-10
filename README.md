@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no point in the world. But isn't that wonderful? Because if there isn't one, then you can decide what it is for yourself."
+> "Fear beyond rational limits, forces people to cling to normality."
 
-&mdash; [**Filicia Heideman**](https://myanimelist.net/character.php?q=Filicia%20Heideman&cat=character), [**Sora No Woto**](https://myanimelist.net/search/all?q=Sora%20No%20Woto&cat=all)
+&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
