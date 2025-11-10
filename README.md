@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what happens, no matter what, never stop, always keep walking."
+> "There's no point in the world. But isn't that wonderful? Because if there isn't one, then you can decide what it is for yourself."
 
-&mdash; [**Mana Walker**](https://myanimelist.net/character.php?q=Mana%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Filicia Heideman**](https://myanimelist.net/character.php?q=Filicia%20Heideman&cat=character), [**Sora No Woto**](https://myanimelist.net/search/all?q=Sora%20No%20Woto&cat=all)
