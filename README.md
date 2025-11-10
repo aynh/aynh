@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Books are information. And information that isn't correct is worthless."
+> "But I have a fear stronger than the fear of losing. It's the fear of boredom. I fear those days full of boredom."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Berserker**](https://myanimelist.net/character.php?q=Berserker&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
