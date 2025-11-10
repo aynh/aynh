@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What pride... are you saying that you are God's equal?"
+> "The strength of life lies in the possibility of dying."
 
-&mdash; [**Rose Tomas**](https://myanimelist.net/character.php?q=Rose%20Tomas&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kouichi Aizawa**](https://myanimelist.net/character.php?q=Kouichi%20Aizawa&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
