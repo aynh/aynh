@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Over the course of several hundred years, I've seen many ages end, conflict between people, hatred, wicked hearts. I always have hope that the new age will purify all of that. How many times has it happened? People repeat themselves. They commit the same mistakes, over and over.... They haven't survived, not in true sense. The precious race called people has become extinct."
+> "Books are information. And information that isn't correct is worthless."
 
-&mdash; [**Zeref**](https://myanimelist.net/character.php?q=Zeref&cat=character), [**Fairy Tail TV 2/2014**](https://myanimelist.net/search/all?q=Fairy%20Tail%20TV%202%2F2014&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
