@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Katsura, just stop this. No matter how elegant you think dying is, your death won't appease your conscience and won't change anything."
+> "Tohru, I can't stand not being with you... I... because I love you."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
