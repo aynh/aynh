@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as she's alive and well, that's all I hope for. I can't bear to see another woman die."
+> "Hey bitch, get off me! I'm supposed to be on top!"
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Jan Valentine**](https://myanimelist.net/character.php?q=Jan%20Valentine&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
