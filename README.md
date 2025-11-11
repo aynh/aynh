@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Sophie* You're wearing that hat? After all the magic I used to make your dress pretty?"
+> "To become a monster like me, is to admit you were too weak to remain a human."
 
-&mdash; [**Howl**](https://myanimelist.net/character.php?q=Howl&cat=character), [**Howl's Moving Castle**](https://myanimelist.net/search/all?q=Howl's%20Moving%20Castle&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
