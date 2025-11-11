@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you think everyone can make their dreams come true through hard work? Hard work isn't always rewarded."
+> "Does a death wish cause you to talk to me that way?"
 
-&mdash; [**Atsushi Murasakibara**](https://myanimelist.net/character.php?q=Atsushi%20Murasakibara&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
