@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To become a monster like me, is to admit you were too weak to remain a human."
+> "If I get reincarnated... I wanna become a clam."
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
