@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you ever feel like dying to help the universe, just let me know. I'll be waiting."
+> "[To Orihime, after she had being taken from Ichigo once again] A girl like you should smile more often. Overcast skies blot out the sun, and that always brings people's spirits down. So why not let the sun shine...For just a while longer?"
 
-&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
