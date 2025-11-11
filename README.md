@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People live to save themselves."
+> "*to Sophie* You're wearing that hat? After all the magic I used to make your dress pretty?"
 
-&mdash; [**Sakunosuke Oda**](https://myanimelist.net/character.php?q=Sakunosuke%20Oda&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
+&mdash; [**Howl**](https://myanimelist.net/character.php?q=Howl&cat=character), [**Howl's Moving Castle**](https://myanimelist.net/search/all?q=Howl's%20Moving%20Castle&cat=all)
