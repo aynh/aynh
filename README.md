@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's interesting. Don't do it again."
+> "Those who wallow in power are destroyed by it."
 
-&mdash; [**Eucliwood Hellscythe**](https://myanimelist.net/character.php?q=Eucliwood%20Hellscythe&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
+&mdash; [**Leon Sōryū**](https://myanimelist.net/character.php?q=Leon%20S%C5%8Dry%C5%AB&cat=character), [**Cardfight!! Vanguard**](https://myanimelist.net/search/all?q=Cardfight!!%20Vanguard&cat=all)
