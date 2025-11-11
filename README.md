@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tohru, I can't stand not being with you... I... because I love you."
+> "*To Russia* You were such a cute country when you were born and now your all grown up..."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**France**](https://myanimelist.net/character.php?q=France&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
