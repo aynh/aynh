@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is pure offense. They gave up fighting with their brains a long time ago."
+> "As long as she's alive and well, that's all I hope for. I can't bear to see another woman die."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
