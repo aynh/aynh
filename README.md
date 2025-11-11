@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Does a death wish cause you to talk to me that way?"
+> "Normally I hate people who whine all the time, but in your case... it would be okay to complain, be selfish and say what you want once in a while. It's okay to let yourself be sad."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
