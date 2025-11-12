@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Aang* You need to find someone who WAITS and LISTENS before striking."
+> "I don't wanna live a thousand years. If I just live through today, that'll be enough."
 
-&mdash; [**King Bumi**](https://myanimelist.net/character.php?q=King%20Bumi&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
