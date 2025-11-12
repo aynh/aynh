@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what happens, no matter what, never stop, always keep walking."
+> "The stars sure are beautiful tonight. [angrily] Too bad you can't see them, Toph!"
 
-&mdash; [**Mana Walker**](https://myanimelist.net/character.php?q=Mana%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
