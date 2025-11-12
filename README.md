@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Country of birth, time period, parents, location... various factors make people's lives unequal from the very beginning."
+> "No matter what happens, no matter what, never stop, always keep walking."
 
-&mdash; [**Death Parade**](https://myanimelist.net/character.php?q=Death%20Parade&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Mana Walker**](https://myanimelist.net/character.php?q=Mana%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
