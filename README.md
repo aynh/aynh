@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're happy enough, so don't take away the happiness of others. You should share it."
+> "Country of birth, time period, parents, location... various factors make people's lives unequal from the very beginning."
 
-&mdash; [**Simon Brezhnev**](https://myanimelist.net/character.php?q=Simon%20Brezhnev&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Death Parade**](https://myanimelist.net/character.php?q=Death%20Parade&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
