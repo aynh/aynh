@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey! It looks like now is a good time to do a little tail fishing!"
+> "You're happy enough, so don't take away the happiness of others. You should share it."
 
-&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Simon Brezhnev**](https://myanimelist.net/character.php?q=Simon%20Brezhnev&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
