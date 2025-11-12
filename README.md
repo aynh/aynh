@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Normally I hate people who whine all the time, but in your case... it would be okay to complain, be selfish and say what you want once in a while. It's okay to let yourself be sad."
+> "If you're going to make a wish, you must put forth the effort to ensure that it comes true!"
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kouki Akune**](https://myanimelist.net/character.php?q=Kouki%20Akune&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
