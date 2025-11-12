@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Konoha's Uchiha clan and the Mist's Seven Shinobi-gatana seem petty before his name."
+> "Can we really be proud of our own survival that's predicated on sacrificing our own? There lives aren't all we lose."
 
-&mdash; [**Kisame Hoshigaki**](https://myanimelist.net/character.php?q=Kisame%20Hoshigaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ikoma**](https://myanimelist.net/character.php?q=Ikoma&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
