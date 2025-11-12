@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You still haven’t noticed that something precious to you has been replaced."
+> "Konoha's Uchiha clan and the Mist's Seven Shinobi-gatana seem petty before his name."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
+&mdash; [**Kisame Hoshigaki**](https://myanimelist.net/character.php?q=Kisame%20Hoshigaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
