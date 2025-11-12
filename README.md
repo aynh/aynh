@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen up numbskull, if Kasumi isn't back by dinnertime, we're gonna have to eat Akane's cooking, and if we do that, man oh man we're gonna wish we were lost at sea!"
+> "You know, Okabe, whether time is slow or fast, depends on perception. Theory of relativity is so romantic."
 
-&mdash; [**Ranma Saotome**](https://myanimelist.net/character.php?q=Ranma%20Saotome&cat=character), [**Ranma ½**](https://myanimelist.net/search/all?q=Ranma%20%C2%BD&cat=all)
+&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
