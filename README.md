@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The stars sure are beautiful tonight. [angrily] Too bad you can't see them, Toph!"
+> "I prefer to be a humble dreamer, with visions to be realized, rather than the ruler of people with no dreams or desires."
 
-&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
