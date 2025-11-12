@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We've just witnessed a classic example of what I like to call 'misdirected rage'. Though I believe the technical term is being an ass."
+> "Well, nothing in life is ever certain."
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
