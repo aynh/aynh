@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no such thing as parents who don’t think about their children. But there are few children who understand their parents feelings."
+> "We've just witnessed a classic example of what I like to call 'misdirected rage'. Though I believe the technical term is being an ass."
 
-&mdash; [**Ichi Terakado**](https://myanimelist.net/character.php?q=Ichi%20Terakado&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
