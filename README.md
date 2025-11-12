@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I prefer to be a humble dreamer, with visions to be realized, rather than the ruler of people with no dreams or desires."
+> "There’s no such thing as parents who don’t think about their children. But there are few children who understand their parents feelings."
 
-&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Ichi Terakado**](https://myanimelist.net/character.php?q=Ichi%20Terakado&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
