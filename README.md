@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're going to make a wish, you must put forth the effort to ensure that it comes true!"
+> "Listen up numbskull, if Kasumi isn't back by dinnertime, we're gonna have to eat Akane's cooking, and if we do that, man oh man we're gonna wish we were lost at sea!"
 
-&mdash; [**Kouki Akune**](https://myanimelist.net/character.php?q=Kouki%20Akune&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Ranma Saotome**](https://myanimelist.net/character.php?q=Ranma%20Saotome&cat=character), [**Ranma ½**](https://myanimelist.net/search/all?q=Ranma%20%C2%BD&cat=all)
