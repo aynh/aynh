@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end the shape and form don't matter at all, it's only the soul that matters, right? Nothing else."
+> "We are all different from each other and that's what makes us all special."
 
-&mdash; [**Soul Eater**](https://myanimelist.net/character.php?q=Soul%20Eater&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
