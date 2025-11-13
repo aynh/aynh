@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes you have to fight for the things that are worth fighting for."
+> "It's not just grief. There are as many emotions as there are people. The fragility of someone who lets their anger get the best of them... The strength to overcome fear because of love... You can't comprehend anything about them."
 
-&mdash; [**Arrietty**](https://myanimelist.net/character.php?q=Arrietty&cat=character), [**Karigurashi no Arrietty**](https://myanimelist.net/search/all?q=Karigurashi%20no%20Arrietty&cat=all)
+&mdash; [**Chiyuki**](https://myanimelist.net/character.php?q=Chiyuki&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
