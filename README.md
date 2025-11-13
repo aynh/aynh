@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Transfer students, no mater what world or time they're in - exist to be stared at."
+> "In the end the shape and form don't matter at all, it's only the soul that matters, right? Nothing else."
 
-&mdash; [**Ohtorizawa Akatsuki**](https://myanimelist.net/character.php?q=Ohtorizawa%20Akatsuki&cat=character), [**Hagure Yuusha No Estetica**](https://myanimelist.net/search/all?q=Hagure%20Yuusha%20No%20Estetica&cat=all)
+&mdash; [**Soul Eater**](https://myanimelist.net/character.php?q=Soul%20Eater&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
