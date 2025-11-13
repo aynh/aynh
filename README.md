@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The one who holds power has no self-awareness of his responsibilities and the one aware of the responsibilities has no power at all."
+> "Come on now. Is that anyway to talk to your new boss, landlord, and all-around overseer?"
 
-&mdash; [**Arslan**](https://myanimelist.net/character.php?q=Arslan&cat=character), [**The Heroic Legend of Arslan**](https://myanimelist.net/search/all?q=The%20Heroic%20Legend%20of%20Arslan&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
