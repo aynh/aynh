@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hotaru, do you think the day will come that I'll lose it (the ability to see spirits) as well?  A one-sided visit and troublesome days...is that freedom? or...At that time, a small firefly (Hotaru) passed by and whispered something to me.  But I could not understand the words of a bug.  Farewell, Hotaru.  I wonder if that person understood...just that person."
+> "We have to live a life of no regrets."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
