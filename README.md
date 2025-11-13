@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bury the pain of losing your loved ones... into the arms of your friends."
+> "What must triumph here is the knight's path of chivalry that we champion. Is that not so, Heroic Spirit Arturia?"
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Lancer**](https://myanimelist.net/character.php?q=Lancer&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
