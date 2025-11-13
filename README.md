@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not just grief. There are as many emotions as there are people. The fragility of someone who lets their anger get the best of them... The strength to overcome fear because of love... You can't comprehend anything about them."
+> "No one's more aware of discrimination than the ones being discriminated against, huh?"
 
-&mdash; [**Chiyuki**](https://myanimelist.net/character.php?q=Chiyuki&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Tatsuya Shiba**](https://myanimelist.net/character.php?q=Tatsuya%20Shiba&cat=character), [**Mahouka Koukou no Rettousei**](https://myanimelist.net/search/all?q=Mahouka%20Koukou%20no%20Rettousei&cat=all)
