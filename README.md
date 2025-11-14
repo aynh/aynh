@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It looks like you're wishing you had died instead of someone else, but... isn't it wrong to think that way? No one can take the place of another. Each person has his own destiny."
+> "If you're gonna send people after me, bring on the strongest you have."
 
-&mdash; [**Momo**](https://myanimelist.net/character.php?q=Momo&cat=character), [**Shinigami no Ballad**](https://myanimelist.net/search/all?q=Shinigami%20no%20Ballad&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
