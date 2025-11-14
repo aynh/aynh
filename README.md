@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We have walked through the darkness of this world, that’s why we are able to see even a sliver of light."
+> "Sometimes the best way to solve your own problems is to help someone else."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
