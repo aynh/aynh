@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes the best way to solve your own problems is to help someone else."
+> "Life hurts, you think we don't know that? But some of us choose to go on regardless. Some of us don't have time to die cause people count on us to survive."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
+&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
