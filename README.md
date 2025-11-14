@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one's more aware of discrimination than the ones being discriminated against, huh?"
+> "[Fuu passed out after one drink and is asleep] Sleeping so carelessly. I could do something to you so easily."
 
-&mdash; [**Tatsuya Shiba**](https://myanimelist.net/character.php?q=Tatsuya%20Shiba&cat=character), [**Mahouka Koukou no Rettousei**](https://myanimelist.net/search/all?q=Mahouka%20Koukou%20no%20Rettousei&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
