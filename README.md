@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trying to improve by learning from others that is what calls friendship."
+> "Words are like swords. If you use them the wrong way, they can turn into ugly weapons."
 
-&mdash; [**Shino Aburame**](https://myanimelist.net/character.php?q=Shino%20Aburame&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
