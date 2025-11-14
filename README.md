@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no such thing as a limit on being the best. You can always go for more. That's what it means to be human. No... That's what it means to be me."
+> "[to Chad and Orihime] Your transformation is not a disease. You were just given the key to the door in front of you. There's no need to know the cause. No need for sorrow or sadness. What comes next is up to you. You can use your keys to open the door...or lock it tight. And if you do choose to open it... You can still decide not to pass through."
 
-&mdash; [**Claire Stanfield**](https://myanimelist.net/character.php?q=Claire%20Stanfield&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
