@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Chad and Orihime] Your transformation is not a disease. You were just given the key to the door in front of you. There's no need to know the cause. No need for sorrow or sadness. What comes next is up to you. You can use your keys to open the door...or lock it tight. And if you do choose to open it... You can still decide not to pass through."
+> "*after Misa-chan says that she can't imagine a world without Light* Hmmm... Yes, it would be dark!"
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
