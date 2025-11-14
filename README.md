@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Before I am a Servant, I am a knight. I can only serve but one lord."
+> "Humming and the nightly news share a very tight connection indeed."
 
-&mdash; [**Lancer**](https://myanimelist.net/character.php?q=Lancer&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
