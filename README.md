@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humming and the nightly news share a very tight connection indeed."
+> "Smiles and laughter are always good, but never forget your Poker Face!"
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
