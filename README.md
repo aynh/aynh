@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're gonna send people after me, bring on the strongest you have."
+> "He's just...he's still a child. There are still a lot of things he can't give up. There's no rush. (To Ayame about Yuki)"
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
