@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*after Misa-chan says that she can't imagine a world without Light* Hmmm... Yes, it would be dark!"
+> "Do you think your sin will disappear if you lie?"
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Johann Liebert**](https://myanimelist.net/character.php?q=Johann%20Liebert&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
