@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The coin is appreciated...but not as much as your smile."
+> "You have gone and taken all those lives, and not even because you were thirsty! Is it fun... Huh! Is that what it takes for filth like you to get off..? Cheap little two bit terrors."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
