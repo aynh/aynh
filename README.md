@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The scars that you can't see are the hardest to heal."
+> "There's no such thing as a limit on being the best. You can always go for more. That's what it means to be human. No... That's what it means to be me."
 
-&mdash; [**Nao Tomori**](https://myanimelist.net/character.php?q=Nao%20Tomori&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
+&mdash; [**Claire Stanfield**](https://myanimelist.net/character.php?q=Claire%20Stanfield&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
