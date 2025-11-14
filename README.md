@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What do you think killed the most people in history? It wasn't explosives or drugs. It was information. To know is to die."
+> "Trying to improve by learning from others that is what calls friendship."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Shino Aburame**](https://myanimelist.net/character.php?q=Shino%20Aburame&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
