@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[his parting words to Arrietty] My heart is stronger now, because you're in it."
+> "This is called the 'Rippling Sword'. 'Rippling Ophelia'... Great name, don't you think? But it's not too well known yet. Because most of the people who've seen it are dead."
 
-&mdash; [**Shawn**](https://myanimelist.net/character.php?q=Shawn&cat=character), [**Karigurashi no Arrietty**](https://myanimelist.net/search/all?q=Karigurashi%20no%20Arrietty&cat=all)
+&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
