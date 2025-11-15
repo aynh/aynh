@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Prince Zuko, pride is not the opposite of shame, but rather it's source. True humility is the only antidote to shame."
+> "No matter how hard or impossible it is, never lose sight of your goal."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
