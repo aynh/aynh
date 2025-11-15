@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We're all the same. No one really remembers the day he was born. We all have to trust another's word on the matter. It doesn't matter if it's true or not. Just having a birthday makes one happy I think."
+> "Justice without a great cause begets nothing more than slaughter. That same slaughter in a great cause...Is Justice."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
