@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is called the 'Rippling Sword'. 'Rippling Ophelia'... Great name, don't you think? But it's not too well known yet. Because most of the people who've seen it are dead."
+> "We're all the same. No one really remembers the day he was born. We all have to trust another's word on the matter. It doesn't matter if it's true or not. Just having a birthday makes one happy I think."
 
-&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
