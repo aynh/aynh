@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We simply cannot see the world as it is. The world people see is nothing more than how our brains translate it. In other words, it's subjective."
+> "Songs are good. Singing brings us joy. It is the highest point in the culture that Lilims have created."
 
-&mdash; [**Alis Color**](https://myanimelist.net/character.php?q=Alis%20Color&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
+&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
