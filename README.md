@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're always positive, good luck will eventually find you."
+> "Lies are told prevent yourself from getting hurt."
 
-&mdash; [**Fe-chan**](https://myanimelist.net/character.php?q=Fe-chan&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
+&mdash; [**Kamiyama**](https://myanimelist.net/character.php?q=Kamiyama&cat=character), [**Mayoiga**](https://myanimelist.net/search/all?q=Mayoiga&cat=all)
