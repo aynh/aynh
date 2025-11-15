@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Jyugo* You're such a gloomy Gus, aren't you? You're so gloomy, indecisive, and so pessimistic. You're also dull, have bad handwriting, can't learn, insensitive, weak, a slow runner, a poor talker, and a poor liar. You really can't do anything other than break out of jail. Also you have short legs. But... that means you have lots of character traits, right? That's all you need to know for now, don't you think? If you don't know something, we'll teach you. We're gonna make your life more fun. It doesn't matter whether we're in jail or hell. If we live happily, we win. So let's take it slow and make sure you'll enjoy tomorrow."
+> "When the guarantee of safety is dangled right in front of their eyes, humans will turn their eye from probability."
 
-&mdash; [**Uno**](https://myanimelist.net/character.php?q=Uno&cat=character), [**Nanbaka**](https://myanimelist.net/search/all?q=Nanbaka&cat=all)
+&mdash; [**Saori Shibuki**](https://myanimelist.net/character.php?q=Saori%20Shibuki&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
