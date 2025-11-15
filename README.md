@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never ask them to trust me at all. I told them to come with me but I never told them to trust me. And I always tell them not to trust anyone, including myself. But sadly, there are not many strong enough to do that."
+> "If you're always positive, good luck will eventually find you."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Fe-chan**](https://myanimelist.net/character.php?q=Fe-chan&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
