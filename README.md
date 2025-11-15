@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When the guarantee of safety is dangled right in front of their eyes, humans will turn their eye from probability."
+> "The world... is a very small place, but... for those who know it, it is very, very large. And the world... when it is viewed by those who know... is far larger than just one world can hold."
 
-&mdash; [**Saori Shibuki**](https://myanimelist.net/character.php?q=Saori%20Shibuki&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
