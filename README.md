@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world... is a very small place, but... for those who know it, it is very, very large. And the world... when it is viewed by those who know... is far larger than just one world can hold."
+> "Prince Zuko, pride is not the opposite of shame, but rather it's source. True humility is the only antidote to shame."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
