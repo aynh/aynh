@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's over when you give up."
+> "[his parting words to Arrietty] My heart is stronger now, because you're in it."
 
-&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Shawn**](https://myanimelist.net/character.php?q=Shawn&cat=character), [**Karigurashi no Arrietty**](https://myanimelist.net/search/all?q=Karigurashi%20no%20Arrietty&cat=all)
