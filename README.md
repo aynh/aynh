@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how hard or impossible it is, never lose sight of your goal."
+> "I realized why I was lost. It's not because I didn't have a map... It was because I didn't have a destination."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
