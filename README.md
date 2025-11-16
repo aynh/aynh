@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being too rigid makes you fragile. You'll end up breaking yourself and those around you."
+> "Everyone will always question your ideals. That's simply reality."
 
-&mdash; [**Yukina Himeragi**](https://myanimelist.net/character.php?q=Yukina%20Himeragi&cat=character), [**Strike the Blood**](https://myanimelist.net/search/all?q=Strike%20the%20Blood&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
