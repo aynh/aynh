@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I shouldn't think about losing before the match has even begun."
+> "Athrun Zala. Justice. Launching!"
 
-&mdash; [**Eiichirou Maruo**](https://myanimelist.net/character.php?q=Eiichirou%20Maruo&cat=character), [**Baby Steps**](https://myanimelist.net/search/all?q=Baby%20Steps&cat=all)
+&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
