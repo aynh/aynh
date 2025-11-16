@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah, I'm being stupid.  I know that it's out of question. I know how this will end. I'll be left with nothing.  Even so, I want us to think, writhe, struggle... and find... [something genuine]."
+> "Dedication is a talent all on its own."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
