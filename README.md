@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In addition to knowing the secrets of the universe, I can assure you, I am quite potty trained."
+> "Do you know what the most primitive emotion people have is? It’s fear."
 
-&mdash; [**Koenma**](https://myanimelist.net/character.php?q=Koenma&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Nona**](https://myanimelist.net/character.php?q=Nona&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
