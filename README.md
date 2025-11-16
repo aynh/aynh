@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't lose against myself. There's no element that would make me lose if our powers are equal. To admit defeat against such an enemy is to declare that I'm wrong."
+> "A former teacher of mine, Okabe-sensei, was always saying this to me: 'To believe people is to doubt them.'... meaning if you keep doubting people and searching what's inside them, sooner or later you're bound to understand something about them. And when you do, you'll be able to entrust something to them. That is what it means to trust and believe."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
