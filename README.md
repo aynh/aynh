@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone will always question your ideals. That's simply reality."
+> "Yes, Children can be quite demanding about their games."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
