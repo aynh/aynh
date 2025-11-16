@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[thinking] I only take family as patients and I still get worked to death."
+> "Yeah, I'm being stupid.  I know that it's out of question. I know how this will end. I'll be left with nothing.  Even so, I want us to think, writhe, struggle... and find... [something genuine]."
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
