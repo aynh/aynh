@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Memories, even important ones — don't come back to us whenever we want them to. But that doesn't mean the memories are gone."
+> "...but as they say, it ain't over till the fat lady sings. I don't know which fat lady is doing the singing or where she's planning on doing her singing. But if I find out where she is, I'd like to put her out of commission for a year!"
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**Kingdom Hearts**](https://myanimelist.net/search/all?q=Kingdom%20Hearts&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
