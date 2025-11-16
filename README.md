@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've set fire to my frozen heart, I shall engrave this anger and sadness that's running through my blood onto you."
+> "[thinking] I only take family as patients and I still get worked to death."
 
-&mdash; [**Alexander Nikolaevich Hell**](https://myanimelist.net/character.php?q=Alexander%20Nikolaevich%20Hell&cat=character), [**Seikon no Qwaser**](https://myanimelist.net/search/all?q=Seikon%20no%20Qwaser&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
