@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Athrun Zala. Justice. Launching!"
+> "Memories, even important ones — don't come back to us whenever we want them to. But that doesn't mean the memories are gone."
 
-&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**Kingdom Hearts**](https://myanimelist.net/search/all?q=Kingdom%20Hearts&cat=all)
