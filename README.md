@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how many years it's been since they met, brothers are brothers, aren't they? Even without having seen, I can tell."
+> "For a winner, there is nothing to say to a loser."
 
-&mdash; [**Matahachi Hon'iden**](https://myanimelist.net/character.php?q=Matahachi%20Hon'iden&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
+&mdash; [**Daiki Aomine**](https://myanimelist.net/character.php?q=Daiki%20Aomine&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
