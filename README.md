@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I stole a death note."
+> "Not even your closest friends get to see your true blade."
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kaede Kayano**](https://myanimelist.net/character.php?q=Kaede%20Kayano&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
