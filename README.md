@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...but as they say, it ain't over till the fat lady sings. I don't know which fat lady is doing the singing or where she's planning on doing her singing. But if I find out where she is, I'd like to put her out of commission for a year!"
+> "No matter how many years it's been since they met, brothers are brothers, aren't they? Even without having seen, I can tell."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Matahachi Hon'iden**](https://myanimelist.net/character.php?q=Matahachi%20Hon'iden&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
