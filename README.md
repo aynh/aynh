@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Justice without a great cause begets nothing more than slaughter. That same slaughter in a great cause...Is Justice."
+> "You've set fire to my frozen heart, I shall engrave this anger and sadness that's running through my blood onto you."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Alexander Nikolaevich Hell**](https://myanimelist.net/character.php?q=Alexander%20Nikolaevich%20Hell&cat=character), [**Seikon no Qwaser**](https://myanimelist.net/search/all?q=Seikon%20no%20Qwaser&cat=all)
