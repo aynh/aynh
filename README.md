@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm too naive. With thoughts like 'If I saved someone maybe I can start all over again.'"
+> "What is it, you? Bang bang banging on people's heads like that. Are you hoping to become a tambourine player? If you don't like Shin-chan, then how about Sen-chan from secret operation?"
 
-&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
