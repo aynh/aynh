@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You see everyone wants everything, that's the way the world is. But I just might actually get it."
+> "Sometimes I'm such a big star that I can't handle it."
 
-&mdash; [**Jigo**](https://myanimelist.net/character.php?q=Jigo&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
