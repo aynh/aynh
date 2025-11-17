@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because of the existence of love - sacrifice is born. As well as hate. Then one comprehends... one knows PAIN."
+> "Individuality that stands apart from the rest is a great asset."
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Mitsuki Nase**](https://myanimelist.net/character.php?q=Mitsuki%20Nase&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
