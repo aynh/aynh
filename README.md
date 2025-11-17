@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you get all worked up yourself, you’ll always get someone who’ll rebel. Being too eager brings negative results."
+> "To climb a hill on a difficult road, you need to be walking steadily."
 
-&mdash; [**Sagara Misae**](https://myanimelist.net/character.php?q=Sagara%20Misae&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
