@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate sweets."
+> "I won't run, I will stand and look ahead to what I must do, I must face the fear, I won't let it control me anymore, I will use my heart that holds my courage and my bravery to move me forward to what I must do."
 
-&mdash; [**Yu Kanda**](https://myanimelist.net/character.php?q=Yu%20Kanda&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
