@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't judge me if you don't stand in my position."
+> "Messing around at night together... This calls for punishment."
 
-&mdash; [**Satsuki Shishio**](https://myanimelist.net/character.php?q=Satsuki%20Shishio&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Kanade Tachibana**](https://myanimelist.net/character.php?q=Kanade%20Tachibana&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
