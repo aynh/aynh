@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Care to little, you lose them. Care too much, you get hurt."
+> "I'm going to kill you, have a beautiful laugh, then dance until I go mad."
 
-&mdash; [**Gajeel Redfox**](https://myanimelist.net/character.php?q=Gajeel%20Redfox&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Ladd Russo**](https://myanimelist.net/character.php?q=Ladd%20Russo&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
