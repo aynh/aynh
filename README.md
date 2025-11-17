@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know what the most primitive emotion people have is? It’s fear."
+> "The world is beautiful. Even if you're full of tears and sadness, open your eyes. Do what you want to do. Be what you want to be. Find friends. Don't be in a hurry to grow up. Take your time."
 
-&mdash; [**Nona**](https://myanimelist.net/character.php?q=Nona&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**CLANNAD**](https://myanimelist.net/character.php?q=CLANNAD&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
