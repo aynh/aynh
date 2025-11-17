@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Okay, here's the plan: We go in, start hitting people, and see where it takes us."
+> "Truth can change its form depending on the observer."
 
-&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Ushiromiya Maria**](https://myanimelist.net/character.php?q=Ushiromiya%20Maria&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
