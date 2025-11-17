@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes I'm such a big star that I can't handle it."
+> "Because of the existence of love - sacrifice is born. As well as hate. Then one comprehends... one knows PAIN."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
