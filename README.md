@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even at a time like this there's not a single word of rescue from the one you worship. You see? That is the truth of this world. He doesn't watch anything and doesn't save anyone."
+> "Don't judge me if you don't stand in my position."
 
-&mdash; [**Aion**](https://myanimelist.net/character.php?q=Aion&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
+&mdash; [**Satsuki Shishio**](https://myanimelist.net/character.php?q=Satsuki%20Shishio&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
