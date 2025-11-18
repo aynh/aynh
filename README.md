@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Individuality that stands apart from the rest is a great asset."
+> "Once you look up to someone, you can't overtake them."
 
-&mdash; [**Mitsuki Nase**](https://myanimelist.net/character.php?q=Mitsuki%20Nase&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
+&mdash; [**Kise Ryouta**](https://myanimelist.net/character.php?q=Kise%20Ryouta&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
