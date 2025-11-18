@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have no fear of watching you grow old while I remain young. I'll even watch you on your death bed. I am no stranger to death. But your heart is like that of an innocent child. It has always accepted everything about me, without hesitation. Because of that I am very afraid."
+> "Ah, Kurosaki. I'm glad to see you've finally realized the importance of a cape."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
