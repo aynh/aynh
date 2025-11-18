@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Gin Ichimaru] If you make Hinamori shed even one drop of blood, I'll kill you."
+> "If you don't let me see Rin... I'll kill myself! If I don't kill you, I'll kill myself! (to Akito)"
 
-&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
