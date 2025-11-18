@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A grenade that's thrown should not come back."
+> "Don't go thinking you're my rival, you circus freak!"
 
-&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
