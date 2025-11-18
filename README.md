@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are human, are you not? You are allowed to make mistakes."
+> "If you come across an event that's too good to be true, it's probably poison."
 
-&mdash; [**Bishamonten**](https://myanimelist.net/character.php?q=Bishamonten&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
