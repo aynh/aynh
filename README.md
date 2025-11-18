@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The probability of you remaining yourself until the day you die is extremely low. The hopeless spark you have now will be corrupted and in the most awful way there is."
+> "I realized once again that my life is stuck on hard mode."
 
-&mdash; [**Hampnie Hambart**](https://myanimelist.net/character.php?q=Hampnie%20Hambart&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
+&mdash; [**Kazunari Usa**](https://myanimelist.net/character.php?q=Kazunari%20Usa&cat=character), [**Bokura wa Minna Kawaisou**](https://myanimelist.net/search/all?q=Bokura%20wa%20Minna%20Kawaisou&cat=all)
