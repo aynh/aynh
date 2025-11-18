@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you look up to someone, you can't overtake them."
+> "If there is a creator, he surely made this world too large. This is inconvenient for us small, fearful humans. For all the world's vastness, we can't measure the distance between ourselves. There are 6 billion of us, yet still, everyone is alone. That is why we are all frantically searching for that one person we need no distance from."
 
-&mdash; [**Kise Ryouta**](https://myanimelist.net/character.php?q=Kise%20Ryouta&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Kou Ichinomiya**](https://myanimelist.net/character.php?q=Kou%20Ichinomiya&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
