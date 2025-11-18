@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hmmm...how do I put this? My first impression of this group...you're a bunch of idiots!"
+> "You are human, are you not? You are allowed to make mistakes."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Bishamonten**](https://myanimelist.net/character.php?q=Bishamonten&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
