@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If training hard can make you number one, then how many number one do you think this world will have!?"
+> "That's right... This world... is cruel. It hit me that living was like a miracle."
 
-&mdash; [**Kazuma Mikura**](https://myanimelist.net/character.php?q=Kazuma%20Mikura&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
