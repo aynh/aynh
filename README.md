@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, I don't see what's so funny. I'm honest, I speak my mind, and I don't hold back. It's sneaky people like Kaoru who are the troublemakers."
+> "[to Gin Ichimaru] If you make Hinamori shed even one drop of blood, I'll kill you."
 
-&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
