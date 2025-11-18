@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's right... This world... is cruel. It hit me that living was like a miracle."
+> "I have no fear of watching you grow old while I remain young. I'll even watch you on your death bed. I am no stranger to death. But your heart is like that of an innocent child. It has always accepted everything about me, without hesitation. Because of that I am very afraid."
 
-&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
