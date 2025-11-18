@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ah, Kurosaki. I'm glad to see you've finally realized the importance of a cape."
+> "A grenade that's thrown should not come back."
 
-&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
