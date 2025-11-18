@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't let me see Rin... I'll kill myself! If I don't kill you, I'll kill myself! (to Akito)"
+> "Only brute warriors find glory in destruction!"
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
