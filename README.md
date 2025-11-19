@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When people truly get serious about something, all you can do is stay quiet and watch."
+> "Sins you've committed cling to your soul and then continue to haunt you forever.The sins that have gone unpunished don't get forgiven until you die."
 
-&mdash; [**Ai Kotani**](https://myanimelist.net/character.php?q=Ai%20Kotani&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Koichiro Marito**](https://myanimelist.net/character.php?q=Koichiro%20Marito&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
