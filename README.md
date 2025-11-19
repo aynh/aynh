@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are some flowers you only see when you take detours."
+> "Ninjas are revolting, they stole my idea. I'll have to kill them now."
 
-&mdash; [**Tanaka Saeko**](https://myanimelist.net/character.php?q=Tanaka%20Saeko&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
