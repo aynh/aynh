@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's always best to believe in one's self but with a little help from others can be a great blessing!"
+> "My arm did not obey a certain command I gave it, so I decided it needed to be punished."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
