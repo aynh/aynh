@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sins you've committed cling to your soul and then continue to haunt you forever.The sins that have gone unpunished don't get forgiven until you die."
+> "I have to accept that who I want to become and who I can actually become are different."
 
-&mdash; [**Koichiro Marito**](https://myanimelist.net/character.php?q=Koichiro%20Marito&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
