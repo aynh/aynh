@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Really, what a joke. I just didn’t understand what these nice guys were thinking about. Because they were so in love with everyone getting along, they ended up opening up other problems when they try to fix one. I didn’t even ask to be thrown into that circle either."
+> "I feel confined, only free to expand myself within boundaries."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Motoko Kusanagi**](https://myanimelist.net/character.php?q=Motoko%20Kusanagi&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
