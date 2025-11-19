@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I feel confined, only free to expand myself within boundaries."
+> "I do not deny evil, nor do I believe that any human is completely free of malice. Everything must be in balance. As long as evil and good maintain an equilibrium in this world, there is no problem. Perfect balance is the key to everything."
 
-&mdash; [**Motoko Kusanagi**](https://myanimelist.net/character.php?q=Motoko%20Kusanagi&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
