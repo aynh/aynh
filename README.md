@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have to accept that who I want to become and who I can actually become are different."
+> "It's not the final judgement of 'good' and 'evil' that's important. What matters is that you come to that decision yourself. That you agonize over it and eventually accept it."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Akane Tsunemori**](https://myanimelist.net/character.php?q=Akane%20Tsunemori&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
