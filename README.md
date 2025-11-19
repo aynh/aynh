@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everything we see, everyone we meet, is caught up in a great unseen flow. But it's bigger than that. It's the entire world, the entire universe even. And compared to something as big as that, Al, you and I are tiny, not even the size of ants. Only one small part within a much greater flow. Nothing more than a fraction of the whole. But by putting all those 'ones' together, you get one great 'All', just like Teacher said. The flow of this universe follows laws of such magnitude that you and I can't even imagine them."
+> "There's no meaningful difference between a real and a virtual world. It's pointless to ask anyone who they really are. All you can do is accept and believe in them, because whoever they are in your mind, is their true identity."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
