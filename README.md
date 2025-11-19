@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if it's a rule... whether or not I follow it is up to me. Whether I obey the rule or break it and get killed by my comrades... is my choice."
+> "What do you think a truly unusual life would be like? Something really unique. It'd be the kind of life where every single day, nothing new ever happened. Nothing changed. That kind of a life is truly unusual."
 
-&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Anri Sonohara**](https://myanimelist.net/character.php?q=Anri%20Sonohara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
