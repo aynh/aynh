@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I do not deny evil, nor do I believe that any human is completely free of malice. Everything must be in balance. As long as evil and good maintain an equilibrium in this world, there is no problem. Perfect balance is the key to everything."
+> "I do not want to wake from my dream and discover that I am all alone. I am tired of being alone! I do not want to be cold! I do not want to be lonely!"
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
