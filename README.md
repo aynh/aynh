@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, everyone's unsure of their fighting abilities. When that happens, just train more! When you're afraid, just train! When something doesn't feel right, just train! When you don't believe in yourself anymore, just train! The only thing that won't betray you is your training."
+> "I am lightning. No matter how hard they try, mankind can never overcome lightning. Since ancient times, mankind has labeled the unknowns of nature as God. And anything they could not understand, they feared. Everything which befalls mankind is said to be the work of God. Mankind accepts that it cannot defeat natural disasters. And I am one of them."
 
-&mdash; [**Shio Sakaki**](https://myanimelist.net/character.php?q=Shio%20Sakaki&cat=character), [**KenIchi the Mightiest Disciple**](https://myanimelist.net/search/all?q=KenIchi%20the%20Mightiest%20Disciple&cat=all)
+&mdash; [**Enel**](https://myanimelist.net/character.php?q=Enel&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
