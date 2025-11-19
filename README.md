@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Can you not be something unless you're already somebody else's something?"
+> "Even if it's a rule... whether or not I follow it is up to me. Whether I obey the rule or break it and get killed by my comrades... is my choice."
 
-&mdash; [**Ross**](https://myanimelist.net/character.php?q=Ross&cat=character), [**Senyuu. 2**](https://myanimelist.net/search/all?q=Senyuu.%202&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
