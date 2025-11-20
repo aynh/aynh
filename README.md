@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I fell for you out of my own free will. So if I ever fall out of love, that'll be my own decision too."
+> "Those who seem kindest, are often the most insidiously cruel."
 
-&mdash; [**Chiho Sasaki**](https://myanimelist.net/character.php?q=Chiho%20Sasaki&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
+&mdash; [**Karyuudo Tsukishima**](https://myanimelist.net/character.php?q=Karyuudo%20Tsukishima&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
