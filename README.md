@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, well, if it isn't the holy monk."
+> "SLEEPING is the only TALENT I have."
 
-&mdash; [**Naraku**](https://myanimelist.net/character.php?q=Naraku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Nagi Sanzenin**](https://myanimelist.net/character.php?q=Nagi%20Sanzenin&cat=character), [**Hayate no Gotoku!**](https://myanimelist.net/search/all?q=Hayate%20no%20Gotoku!&cat=all)
