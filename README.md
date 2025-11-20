@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But... If you're the kind of person who can devote herself like that to someone, then I'll bet you anything there's someone out there who'll fall in love with you."
+> "After the first note resonated through the hall, You became everything I yearn for."
 
-&mdash; [**Ichijou Raku**](https://myanimelist.net/character.php?q=Ichijou%20Raku&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
