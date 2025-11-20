@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[About Naruto] Well that's typical. Not happy unless he's giving people a heart attack."
+> "You're as good as naked before my spear."
 
-&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Lancer**](https://myanimelist.net/character.php?q=Lancer&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
