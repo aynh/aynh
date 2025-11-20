@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who seem kindest, are often the most insidiously cruel."
+> "Fulfilled people are just an urban legend."
 
-&mdash; [**Karyuudo Tsukishima**](https://myanimelist.net/character.php?q=Karyuudo%20Tsukishima&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Shiro**](https://myanimelist.net/character.php?q=Shiro&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
