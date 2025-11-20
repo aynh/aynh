@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After the first note resonated through the hall, You became everything I yearn for."
+> "I fell for you out of my own free will. So if I ever fall out of love, that'll be my own decision too."
 
-&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Chiho Sasaki**](https://myanimelist.net/character.php?q=Chiho%20Sasaki&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
