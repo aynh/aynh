@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you go to save someone you have to consider yourself, as well. If you can’t all say “Thank Goodness” together, then those who are saved aren’t saved."
+> "Why have I come to have this conscience? If it’s this agonizing, I shouldn’t have had it. Just what am I?"
 
-&mdash; [**Miharu Rokujou**](https://myanimelist.net/character.php?q=Miharu%20Rokujou&cat=character), [**Nibari No Ou**](https://myanimelist.net/search/all?q=Nibari%20No%20Ou&cat=all)
+&mdash; [**Alcor**](https://myanimelist.net/character.php?q=Alcor&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
