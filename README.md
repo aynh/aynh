@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You see everyone wants everything, that's the way the world is. But I just might actually get it."
+> "[About Naruto] Well that's typical. Not happy unless he's giving people a heart attack."
 
-&mdash; [**Jigo**](https://myanimelist.net/character.php?q=Jigo&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
