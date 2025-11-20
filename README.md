@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're as good as naked before my spear."
+> "I was in the avatar state... But I was outside my body watching myself. It was scary. I was scary..."
 
-&mdash; [**Lancer**](https://myanimelist.net/character.php?q=Lancer&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
