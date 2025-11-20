@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Justice without a great cause begets nothing more than slaughter. That same slaughter in a great cause...Is Justice."
+> "Blaming others isn't going to resolve anything. There'll be a lot of things that are injust throughout your life. You will have to stand up by yourself."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kazuichi Arai**](https://myanimelist.net/character.php?q=Kazuichi%20Arai&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
