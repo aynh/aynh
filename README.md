@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Huh?!? Aliens!? What kind of a person believes in aliens anyway?! I know. A STUPID ONE."
+> "If you’ve got time to point fingers, then how about using your head to figure out what you want to do about it?"
 
-&mdash; [**Maebara Keiichi**](https://myanimelist.net/character.php?q=Maebara%20Keiichi&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
+&mdash; [**Karma Akabane**](https://myanimelist.net/character.php?q=Karma%20Akabane&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
