@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "SLEEPING is the only TALENT I have."
+> "When you go to save someone you have to consider yourself, as well. If you can’t all say “Thank Goodness” together, then those who are saved aren’t saved."
 
-&mdash; [**Nagi Sanzenin**](https://myanimelist.net/character.php?q=Nagi%20Sanzenin&cat=character), [**Hayate no Gotoku!**](https://myanimelist.net/search/all?q=Hayate%20no%20Gotoku!&cat=all)
+&mdash; [**Miharu Rokujou**](https://myanimelist.net/character.php?q=Miharu%20Rokujou&cat=character), [**Nibari No Ou**](https://myanimelist.net/search/all?q=Nibari%20No%20Ou&cat=all)
