@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Blaming others isn't going to resolve anything. There'll be a lot of things that are injust throughout your life. You will have to stand up by yourself."
+> "Let's value our lives."
 
-&mdash; [**Kazuichi Arai**](https://myanimelist.net/character.php?q=Kazuichi%20Arai&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
