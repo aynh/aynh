@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, Nana... Even now, sometimes on street corners... when I meet someone, I see your shadow. I'm sure that even now, you're still wearing that man's cologne... so you can sleep, even alone..."
+> "Justice without a great cause begets nothing more than slaughter. That same slaughter in a great cause...Is Justice."
 
-&mdash; [**Nana Osaki**](https://myanimelist.net/character.php?q=Nana%20Osaki&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
