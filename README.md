@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you’ve got time to point fingers, then how about using your head to figure out what you want to do about it?"
+> "Once you expect something in return, your good deed is no longer just a good deed."
 
-&mdash; [**Karma Akabane**](https://myanimelist.net/character.php?q=Karma%20Akabane&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Kayo Senju**](https://myanimelist.net/character.php?q=Kayo%20Senju&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
