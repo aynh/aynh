@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you expect something in return, your good deed is no longer just a good deed."
+> "You see everyone wants everything, that's the way the world is. But I just might actually get it."
 
-&mdash; [**Kayo Senju**](https://myanimelist.net/character.php?q=Kayo%20Senju&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
+&mdash; [**Jigo**](https://myanimelist.net/character.php?q=Jigo&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
