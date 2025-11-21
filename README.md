@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Songs move people's hearts and make them passionate."
+> "Every one of us must do what's in their power! If we're going to die anyway, then it's better to die fighting than to do nothing!"
 
-&mdash; [**Haruka Nanami**](https://myanimelist.net/character.php?q=Haruka%20Nanami&cat=character), [**Uta no Prince-sama**](https://myanimelist.net/search/all?q=Uta%20no%20Prince-sama&cat=all)
+&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
