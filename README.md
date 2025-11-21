@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As a human, what kind of achievements will you leave behind?  I bet you'll leave behind a legacy as a psychotic killer, and that thrills me!"
+> "This body comes with many inconveniences. But inconveniences don't make me miserable! There is no reason for you to pity me! My life was put back together with alchemy by my brother. If I deny myself, that would mean I'm denying my brother, along with alchemy. I believe in the potential that alchemy holds. I want to believe in it!"
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!×2**](https://myanimelist.net/search/all?q=Durarara!!%C3%972&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
