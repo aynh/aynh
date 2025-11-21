@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don’t have the resolve to take responsibility for her until the very end, then don’t do anything unnecessary."
+> "The Time is now for us to start something new. Everybody's struggling, you think you're special - you're not. Forget it, there's no time. Don't try to hide in the corner barking and don't take your aggression out on others. If you got time for that, step forward and stand tall, it's our future and no one is gonna give it to us. It's a future that we're gonna build for ourselves, with our very own hands. What's the point in being at the mercy of others. You can't lose as long as you don't give up. No matter how trapped you feel, no matter how unfair you think it is. The only thing that matters is what you see, with your own two eyes. What hope do you have if you turn away from that? What can you hope to achieve without facing the cold hard truth? A person has to have a reason to live, but you don't need any excuse to die."
 
-&mdash; [**Itami Youji**](https://myanimelist.net/character.php?q=Itami%20Youji&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Hibiki Tokai**](https://myanimelist.net/character.php?q=Hibiki%20Tokai&cat=character), [**Vandread**](https://myanimelist.net/search/all?q=Vandread&cat=all)
