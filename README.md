@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Give a man a break, and you'll end up broken."
+> "You always seem to look back. The scenery in front of you, the people near you, don't you see it? Live right now. That's what life is."
 
-&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
+&mdash; [**Izumi Yukihira**](https://myanimelist.net/character.php?q=Izumi%20Yukihira&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
