@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is based on unpredictable events."
+> "Give a man a break, and you'll end up broken."
 
-&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
