@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't mistake borrowed power for your own ability!"
+> "If it’s an important memory, then you shouldn't forget it. Since those who aren't with us only live on in our memories."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Wataru Takagi**](https://myanimelist.net/character.php?q=Wataru%20Takagi&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
