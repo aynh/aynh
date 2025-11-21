@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I'd known that the end would come so fast, I would have said so much more."
+> "Don't mistake borrowed power for your own ability!"
 
-&mdash; [**Daiki Mamura**](https://myanimelist.net/character.php?q=Daiki%20Mamura&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
