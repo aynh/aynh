@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every one of us must do what's in their power! If we're going to die anyway, then it's better to die fighting than to do nothing!"
+> "Even if you hate it or whatever, I'll never let go of you. If you run away, I'll probably come after you and lock you up."
 
-&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
