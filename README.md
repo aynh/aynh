@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it’s an important memory, then you shouldn't forget it. Since those who aren't with us only live on in our memories."
+> "A Gun is Good. Unlike A sword or a knife, it doesn't leave the feeling of a person dying in your hands."
 
-&mdash; [**Wataru Takagi**](https://myanimelist.net/character.php?q=Wataru%20Takagi&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
