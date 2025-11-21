@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm bothered by the very fact that people exist, but you're an exception."
+> "Love is based on unpredictable events."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
