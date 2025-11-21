@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To win, but not destroy; to conquer, but not humiliate: That is what true conquest is!"
+> "True freedom can't lean on anything. It's transient, lonely, and arduous."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Yoshii Kazuho**](https://myanimelist.net/character.php?q=Yoshii%20Kazuho&cat=character), [**Texhnolyze**](https://myanimelist.net/search/all?q=Texhnolyze&cat=all)
