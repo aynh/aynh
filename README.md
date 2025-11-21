@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why have I come to have this conscience? If it’s this agonizing, I shouldn’t have had it. Just what am I?"
+> "If I'd known that the end would come so fast, I would have said so much more."
 
-&mdash; [**Alcor**](https://myanimelist.net/character.php?q=Alcor&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Daiki Mamura**](https://myanimelist.net/character.php?q=Daiki%20Mamura&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
