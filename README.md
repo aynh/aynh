@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You always seem to look back. The scenery in front of you, the people near you, don't you see it? Live right now. That's what life is."
+> "[In his Resurrección form] I can see! I can see! I can see!!! So this is the sky!! So this is blood!! So this is the world!! ...So this is what you look like. Komamura. You are uglier... than I thought."
 
-&mdash; [**Izumi Yukihira**](https://myanimelist.net/character.php?q=Izumi%20Yukihira&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
