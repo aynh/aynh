@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "On this hand, imagine that these four fingers represent the animals, and the thumb represents plants. Then let's say people are here... On the tip of the middle finger, farthest from the heart."
+> "Sometimes the best way to solve your own problems is to help someone else."
 
-&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
