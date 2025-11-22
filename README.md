@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A peaceful every day life hides its fragility. Fear and violence aren't just something in another world, completely unrelated to us. If a disaster happens, we can't change it. But as long as we small gears are linked together, we can keep moving forward, even if it's only one small step at a time."
+> "Laugh at love and love will make you cry."
 
-&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Yasushi Takagi**](https://myanimelist.net/character.php?q=Yasushi%20Takagi&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
