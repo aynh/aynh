@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Remember this. The only words that can keep you alive are 'I want to live.'"
+> "Love is more afraid of change than destruction."
 
-&mdash; [**Hampnie Hambart**](https://myanimelist.net/character.php?q=Hampnie%20Hambart&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
+&mdash; [**Akari Koumoto**](https://myanimelist.net/character.php?q=Akari%20Koumoto&cat=character), [**Jitsu wa Watashi wa**](https://myanimelist.net/search/all?q=Jitsu%20wa%20Watashi%20wa&cat=all)
