@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you hate it or whatever, I'll never let go of you. If you run away, I'll probably come after you and lock you up."
+> "Someone get this creature off meeeeeee!"
 
-&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Kusajishi Yachiru**](https://myanimelist.net/character.php?q=Kusajishi%20Yachiru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
