@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "D-mn! I just stepped in a pile of chiroptoran sh-t!"
+> "It's simple. Even the strongest tree will die if left in the dark. I find that to be the best way to describe us. A giant oak, crashing through a dark soil, bringing order to an otherwise chaotic land. The Shinobi have done their job for centuries, and done it well. But in recent years, we have caught glimpses of the outside world, and asked: 'Why not us? Have we not earned the privilege others take for free?'."
 
-&mdash; [**Saya Otonashi**](https://myanimelist.net/character.php?q=Saya%20Otonashi&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
+&mdash; [**Touya**](https://myanimelist.net/character.php?q=Touya&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
