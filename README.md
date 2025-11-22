@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you trip while running down a hallway, you'll get a nosebleed. If you trip in life, you'll cry."
+> "And, Araragi-kun....I love you."
 
-&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
