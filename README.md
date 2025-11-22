@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In order to achieve something there are some things that you have to be unsatisfied with in the first place. Having a complex is the source to greatness."
+> "D-mn! I just stepped in a pile of chiroptoran sh-t!"
 
-&mdash; [**Takane Saibara**](https://myanimelist.net/character.php?q=Takane%20Saibara&cat=character), [**Takane to Hana**](https://myanimelist.net/search/all?q=Takane%20to%20Hana&cat=all)
+&mdash; [**Saya Otonashi**](https://myanimelist.net/character.php?q=Saya%20Otonashi&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
