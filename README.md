@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The spell always breaks in the end. Girls will always transform back into their original shabby form. After that, you only have your own strength to rely on to accomplish anything."
+> "Even though you like someone already, your partner is decided for you... and you can't do anything about that crush. Because everyone keeps getting in the way... and saying you can't... But... when you're the one in love... the only thing that feels true... is that feeling."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Nejima Yukari**](https://myanimelist.net/character.php?q=Nejima%20Yukari&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
