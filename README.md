@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's only natural for the girl you're crushing on to be in love with someone else. Since you're in love with her, she sparkles in your eyes. That's why people fall so irrationally in love."
+> "Loving a person isn’t about logic or reason."
 
-&mdash; [**Watari Ryouta**](https://myanimelist.net/character.php?q=Watari%20Ryouta&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Yukari Hayasaka**](https://myanimelist.net/character.php?q=Yukari%20Hayasaka&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
