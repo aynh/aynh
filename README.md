@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The chickens have earned their right to live, while the humans will go hungry."
+> "If you trip while running down a hallway, you'll get a nosebleed. If you trip in life, you'll cry."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
