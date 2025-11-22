@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's simple. Even the strongest tree will die if left in the dark. I find that to be the best way to describe us. A giant oak, crashing through a dark soil, bringing order to an otherwise chaotic land. The Shinobi have done their job for centuries, and done it well. But in recent years, we have caught glimpses of the outside world, and asked: 'Why not us? Have we not earned the privilege others take for free?'."
+> "The chickens have earned their right to live, while the humans will go hungry."
 
-&mdash; [**Touya**](https://myanimelist.net/character.php?q=Touya&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
