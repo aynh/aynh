@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are weak... but we want to live. Even if we're wounded... or tortured... we feel the pain."
+> "A certain scripture mentions that humans are superior to angels. Why? Because there are people who know of evil, but do not become evil. It's different from angels, who know only of good since birth. Humans have evil, but can live as good, so they are superior to angels, who know only good."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
