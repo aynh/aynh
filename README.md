@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want that kind of twisted love."
+> "Come on. I don't like this trend of explaining anything and everything about my love life. It's impossible."
 
 &mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
