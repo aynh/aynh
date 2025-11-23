@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A rose will be born a rose. Different soil and water wouldn't change it into a different flower."
+> "Happiness isn't something you divide in halves."
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**Kara no Kyoukai**](https://myanimelist.net/search/all?q=Kara%20no%20Kyoukai&cat=all)
+&mdash; [**L-elf**](https://myanimelist.net/character.php?q=L-elf&cat=character), [**Kakumeiki Valvrave**](https://myanimelist.net/search/all?q=Kakumeiki%20Valvrave&cat=all)
