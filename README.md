@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Identity? What? The people who yap about identities all the time are usually the ones with no identity. Like something that changes so easily could really be an 'identity', anyway."
+> "When you lose sight of your path, listen for the destination in your heart."
 
-&mdash; [**Komachi Hikigaya**](https://myanimelist.net/character.php?q=Komachi%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Allen Walker**](https://myanimelist.net/character.php?q=Allen%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
