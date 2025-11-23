@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The brain is a microcosm, creating its own stories. People then live out these stories."
+> "There are three things I hate the most: Kids, pets, and women with attitude. So tell me, why do we have all of them packed into our ship!?"
 
-&mdash; [**Seiichi Kirima**](https://myanimelist.net/character.php?q=Seiichi%20Kirima&cat=character), [**Boogiepop Phantom**](https://myanimelist.net/search/all?q=Boogiepop%20Phantom&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
