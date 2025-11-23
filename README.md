@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Come on. I don't like this trend of explaining anything and everything about my love life. It's impossible."
+> "A rose will be born a rose. Different soil and water wouldn't change it into a different flower."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**Kara no Kyoukai**](https://myanimelist.net/search/all?q=Kara%20no%20Kyoukai&cat=all)
