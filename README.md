@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A half moon. A bright half and a dark half. Just like me."
+> "I wonder if it's the selfish people who get ahead in this world, after all."
 
-&mdash; [**Gasai Yuno**](https://myanimelist.net/character.php?q=Gasai%20Yuno&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Shū Ouma**](https://myanimelist.net/character.php?q=Sh%C5%AB%20Ouma&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
