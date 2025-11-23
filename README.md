@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A certain scripture mentions that humans are superior to angels. Why? Because there are people who know of evil, but do not become evil. It's different from angels, who know only of good since birth. Humans have evil, but can live as good, so they are superior to angels, who know only good."
+> "A half moon. A bright half and a dark half. Just like me."
 
-&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Gasai Yuno**](https://myanimelist.net/character.php?q=Gasai%20Yuno&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
