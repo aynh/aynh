@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "While we talk,  look forward to making up for all the time you've wasted looking back! We can start by talking about tomorrow. You can say anything like, whether you'll make Japanese or Western style breakfast tomorrow, or whether you'll put on your right or left shoe first. It can be something silly like that. No matter how silly it is, you can talk about tomorrow because you have a tomorrow."
+> "Laziness is the mother of all bad habits. But ultimately she is a mother and we should respect her."
 
-&mdash; [**Subaru Natsuki**](https://myanimelist.net/character.php?q=Subaru%20Natsuki&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
