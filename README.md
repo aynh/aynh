@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Happiness isn't something you divide in halves."
+> "Do you really intend to lose even more of your friends for something like that? I'll pass on that. As long as I'm alive, I'll live by my own rules. I'll live as I see fit and protect that which I hold dear."
 
-&mdash; [**L-elf**](https://myanimelist.net/character.php?q=L-elf&cat=character), [**Kakumeiki Valvrave**](https://myanimelist.net/search/all?q=Kakumeiki%20Valvrave&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
