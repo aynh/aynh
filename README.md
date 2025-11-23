@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "An illusion is darkness. Those who cannot see the darkness cannot resist its sweet temptation and are stained black. Eventually the darkness envelops the light controlling everything."
+> "I don't know much about you. You were the one who selfishly entered my world...yet you immediately plunged into silence. What were you thinking? Did you really pick on me just because it was fun? Which one is serious and which one of it is just a joke? That's enough now, making me all messed up like this."
 
-&mdash; [**Luka Crosszeria**](https://myanimelist.net/character.php?q=Luka%20Crosszeria&cat=character), [**Uragiri Wa Boku No Namae Wo Shitteiru**](https://myanimelist.net/search/all?q=Uragiri%20Wa%20Boku%20No%20Namae%20Wo%20Shitteiru&cat=all)
+&mdash; [**Misaki Ayuzawa**](https://myanimelist.net/character.php?q=Misaki%20Ayuzawa&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
