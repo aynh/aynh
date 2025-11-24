@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What do you think about your world? Is it fun? Is it easy to live in?"
+> "Are we friends? Or are we foes? That kind of thing you decide for yourselves!"
 
-&mdash; [**Tet**](https://myanimelist.net/character.php?q=Tet&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
