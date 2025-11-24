@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't make yourself weigh your pride against your friends."
+> "What must be done... Must be done. No matter what. Complete your mission. You were born into this world so that you could complete your mission."
 
-&mdash; [**Hephaestus**](https://myanimelist.net/character.php?q=Hephaestus&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
+&mdash; [**Annie Leonhardt**](https://myanimelist.net/character.php?q=Annie%20Leonhardt&cat=character), [**Shingeki no Kyojin: Lost Girls**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Lost%20Girls&cat=all)
