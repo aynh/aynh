@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This steak is too well done. Take it back and make it rare."
+> "Don't make yourself weigh your pride against your friends."
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Hephaestus**](https://myanimelist.net/character.php?q=Hephaestus&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
