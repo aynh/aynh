@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He wouldn't notice if I got a crew cut, shaved my head bald, or even grew an afro!"
+> "Let's share the fruit of fate."
 
-&mdash; [**Riku Harada**](https://myanimelist.net/character.php?q=Riku%20Harada&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Kanba Takakura**](https://myanimelist.net/character.php?q=Kanba%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
