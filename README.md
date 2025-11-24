@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Loyalty is only given meaning through one's actions."
+> "He wouldn't notice if I got a crew cut, shaved my head bald, or even grew an afro!"
 
-&mdash; [**Futayo Honda**](https://myanimelist.net/character.php?q=Futayo%20Honda&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
+&mdash; [**Riku Harada**](https://myanimelist.net/character.php?q=Riku%20Harada&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
