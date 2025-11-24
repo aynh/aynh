@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And if when everything ends, nothing is left in my hands...that's alright."
+> "In addition to knowing the secrets of the universe, I can assure you, I am quite potty trained."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Koenma**](https://myanimelist.net/character.php?q=Koenma&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
