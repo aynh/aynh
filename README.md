@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It’s good that good friends can say their true thoughts out, as it shows how good their relationship. It’s something worth celebrating over… but things just won’t be that smooth sailing. Some things are only ‘good’ once they’re hidden. Once others know of the truth, what’s left in the heart may only be regret."
+> "This steak is too well done. Take it back and make it rare."
 
-&mdash; [**Baka to Test to Shoukanjuu**](https://myanimelist.net/character.php?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
