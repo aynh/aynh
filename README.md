@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "True power is forged from the desire smoldering in the heart, it fans into a flame and begins to burn with an intensity one scarcely imagines to be possible..."
+> "I wonder if there really is a God... If such an entity really existed, wouldn't all honest, hard-working people be happy?"
 
-&mdash; [**Orochimaru**](https://myanimelist.net/character.php?q=Orochimaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Vermouth**](https://myanimelist.net/character.php?q=Vermouth&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
