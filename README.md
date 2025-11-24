@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are we friends? Or are we foes? That kind of thing you decide for yourselves!"
+> "And if when everything ends, nothing is left in my hands...that's alright."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
