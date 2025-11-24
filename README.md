@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "At last, the sea lion has crossed the ocean and is heading up the hill! Attention soldiers of the Millennium battalion, this is a message from your commander! Friends, let's bring them Hell."
+> "This frustrating happiness... Days so warm it almost makes you dizzy. By this time next year... It may be time for me to stop looking away and know for real. Since I've decided to protect the Book of Friends... Since I decided to accept what I hear and see."
 
-&mdash; [**Montana Max**](https://myanimelist.net/character.php?q=Montana%20Max&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
