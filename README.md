@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In addition to knowing the secrets of the universe, I can assure you, I am quite potty trained."
+> "True power is forged from the desire smoldering in the heart, it fans into a flame and begins to burn with an intensity one scarcely imagines to be possible..."
 
-&mdash; [**Koenma**](https://myanimelist.net/character.php?q=Koenma&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Orochimaru**](https://myanimelist.net/character.php?q=Orochimaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
