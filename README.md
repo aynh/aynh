@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let's share the fruit of fate."
+> "Crying is a nosebleed of the heart."
 
-&mdash; [**Kanba Takakura**](https://myanimelist.net/character.php?q=Kanba%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
