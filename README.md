@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Up, up! Down, down! Left, right, left, right! Bringing the motherfucking death by Konami! Ahh I'm so fucking hard right now! [laughs]"
+> "What do you think about your world? Is it fun? Is it easy to live in?"
 
-&mdash; [**Jan Valentine**](https://myanimelist.net/character.php?q=Jan%20Valentine&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Tet**](https://myanimelist.net/character.php?q=Tet&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
