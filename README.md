@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The always naughty woodpecker. Today, too, you open holes and ruin the forest. The angry wood god turned your beak to poison. Poor woodpecker, your nest has been poisoned. Your food has been poisoned. If you touch your friends, they all die. The sad little woodpecker. Your tears of poison sparkle brightly..."
+> "Loyalty is only given meaning through one's actions."
 
-&mdash; [**Shiro**](https://myanimelist.net/character.php?q=Shiro&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Futayo Honda**](https://myanimelist.net/character.php?q=Futayo%20Honda&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
