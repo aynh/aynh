@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What must be done... Must be done. No matter what. Complete your mission. You were born into this world so that you could complete your mission."
+> "Up, up! Down, down! Left, right, left, right! Bringing the motherfucking death by Konami! Ahh I'm so fucking hard right now! [laughs]"
 
-&mdash; [**Annie Leonhardt**](https://myanimelist.net/character.php?q=Annie%20Leonhardt&cat=character), [**Shingeki no Kyojin: Lost Girls**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Lost%20Girls&cat=all)
+&mdash; [**Jan Valentine**](https://myanimelist.net/character.php?q=Jan%20Valentine&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
