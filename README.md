@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "On the one hand, humans seek out new stimuli with insatiable desire. On the other, they're also odd creatures that value old and very rare things."
+> "Looks like most of what you say immediately vanishes from your head once you say it. I really envy you for a brain with such a lively metabolism."
 
-&mdash; [**Victorique de Blois**](https://myanimelist.net/character.php?q=Victorique%20de%20Blois&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
+&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
