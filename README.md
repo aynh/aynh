@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Looks like most of what you say immediately vanishes from your head once you say it. I really envy you for a brain with such a lively metabolism."
+> "Raise your head, Wabisuke."
 
-&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Kira Izuru**](https://myanimelist.net/character.php?q=Kira%20Izuru&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
