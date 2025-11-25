@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no sense in going out of your way just to get somebody to like you."
+> "There's is no such thing as a useless player."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Daiki Aomine**](https://myanimelist.net/character.php?q=Daiki%20Aomine&cat=character), [**Kuroko no Basket: Mou Ikkai Yarimasen ka**](https://myanimelist.net/search/all?q=Kuroko%20no%20Basket%3A%20Mou%20Ikkai%20Yarimasen%20ka&cat=all)
