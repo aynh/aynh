@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There isn't anything that's evil to everyone. Even the worst evil saves something. On the other hand, even the greatest good hurts someone. The phrase 'There are no absolutes in this world' means there isn't any absolute good or absolute evil."
+> "In this world, there's no such thing as 'failure' in the first place. The one who knows the 'ways to win' more than anyone is also the one who's experienced the most 'mistakes'. In other words... You could say 'failure' is equal to 'success'... Couldn't you?"
 
-&mdash; [**Rouka Numachi**](https://myanimelist.net/character.php?q=Rouka%20Numachi&cat=character), [**Hanamonogatari**](https://myanimelist.net/search/all?q=Hanamonogatari&cat=all)
+&mdash; [**Toriko**](https://myanimelist.net/character.php?q=Toriko&cat=character), [**Toriko**](https://myanimelist.net/search/all?q=Toriko&cat=all)
