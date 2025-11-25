@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When a person loses their sense of belonging, they want someone else to hand it back to them on a platter."
+> "There isn't anything that's evil to everyone. Even the worst evil saves something. On the other hand, even the greatest good hurts someone. The phrase 'There are no absolutes in this world' means there isn't any absolute good or absolute evil."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Rouka Numachi**](https://myanimelist.net/character.php?q=Rouka%20Numachi&cat=character), [**Hanamonogatari**](https://myanimelist.net/search/all?q=Hanamonogatari&cat=all)
