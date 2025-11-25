@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, there's no such thing as 'failure' in the first place. The one who knows the 'ways to win' more than anyone is also the one who's experienced the most 'mistakes'. In other words... You could say 'failure' is equal to 'success'... Couldn't you?"
+> "You should try persuasion when people are mentally defenseless. The fascist who proposed that was a demonic genius."
 
-&mdash; [**Toriko**](https://myanimelist.net/character.php?q=Toriko&cat=character), [**Toriko**](https://myanimelist.net/search/all?q=Toriko&cat=all)
+&mdash; [**Tanya Degurechaff**](https://myanimelist.net/character.php?q=Tanya%20Degurechaff&cat=character), [**Youjo Senki**](https://myanimelist.net/search/all?q=Youjo%20Senki&cat=all)
