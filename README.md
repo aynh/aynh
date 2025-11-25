@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You’ll laugh at your fears when you find out who you are."
+> "When you entrust so much of your everyday life to those electronic devices, the argument that you aren't a cyborg isn't very convincing. To you, those portable terminals are already your second brain. Isn't that right? It can be said that the history of science is a history of the expansion of the human body's functionality, in other words, the history of man's cyberization. That's why it's a matter of degree."
 
-&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Toyohisa Senguji**](https://myanimelist.net/character.php?q=Toyohisa%20Senguji&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
