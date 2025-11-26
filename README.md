@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[when Naruto transforms into a woman in front of the whole class] CUT THE STUPID TRICKS! THIS IS YOUR LAST WARNING!!"
+> "Hope and passion slip through your fingers like sand."
 
-&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Takada**](https://myanimelist.net/character.php?q=Takada&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
