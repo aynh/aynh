@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Captain Kuro* So, you don’t like to get hit, huh? Well, you’re about to have a very bad day."
+> "I didn’t choose you. Don’t you see this is all just an accident. You actually thought you were chosen because you’re so smart or something? Don’t be so vain. It just happened to fall around here and you just happen to pick it up, and that’s all there is to it."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
