@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hope and passion slip through your fingers like sand."
+> "If you believe it was destined to happen it is most likely to happen, if you believe nothing has been decided then most likely nothing has been decided."
 
-&mdash; [**Takada**](https://myanimelist.net/character.php?q=Takada&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
