@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When we first met, you set my heart ablaze. When I see you, all I can do is gaze. Gaze at the beauty and wonder that is you. The constellation Gemini will make me think of me and you. You are my Yami and I am your Hikari. I love you, my Yami. Now and forever."
+> "You will not touch these innocent people with even one inch of your dirty blades, if you require an opponent, I will fight you. If you wanna taste the ground, feel free to attack me."
 
-&mdash; [**Yūgi Mutō**](https://myanimelist.net/character.php?q=Y%C5%ABgi%20Mut%C5%8D&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
