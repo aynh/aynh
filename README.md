@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I didn’t choose you. Don’t you see this is all just an accident. You actually thought you were chosen because you’re so smart or something? Don’t be so vain. It just happened to fall around here and you just happen to pick it up, and that’s all there is to it."
+> "When we first met, you set my heart ablaze. When I see you, all I can do is gaze. Gaze at the beauty and wonder that is you. The constellation Gemini will make me think of me and you. You are my Yami and I am your Hikari. I love you, my Yami. Now and forever."
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Yūgi Mutō**](https://myanimelist.net/character.php?q=Y%C5%ABgi%20Mut%C5%8D&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
