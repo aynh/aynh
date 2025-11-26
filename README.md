@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The reason the Yamadas get along fine is because all three adults are nuts. If one of you were normal it would unbalance the rest."
+> "Is it painful to be the person who waits? Or is it more painful to be the person who makes others wait? Either way, there's no need to wait anymore. That's what is most painful."
 
-&mdash; [**Noboru Yamada**](https://myanimelist.net/character.php?q=Noboru%20Yamada&cat=character), [**My Neighbors the Yamadas**](https://myanimelist.net/search/all?q=My%20Neighbors%20the%20Yamadas&cat=all)
+&mdash; [**Takada**](https://myanimelist.net/character.php?q=Takada&cat=character), [**Aoi Bungaku Series**](https://myanimelist.net/search/all?q=Aoi%20Bungaku%20Series&cat=all)
