@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not a question of can or can't. There are some things in life you just do."
+> "I'm sure it's not wrong for people to want to understand each other. And even if it is, I want us to understand each other."
 
-&mdash; [**Éclair Farron**](https://myanimelist.net/character.php?q=%C3%89clair%20Farron&cat=character), [**Final Fantasy XIII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20XIII&cat=all)
+&mdash; [**Chiyuki**](https://myanimelist.net/character.php?q=Chiyuki&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
