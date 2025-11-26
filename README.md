@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you believe it was destined to happen it is most likely to happen, if you believe nothing has been decided then most likely nothing has been decided."
+> "The reason the Yamadas get along fine is because all three adults are nuts. If one of you were normal it would unbalance the rest."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Noboru Yamada**](https://myanimelist.net/character.php?q=Noboru%20Yamada&cat=character), [**My Neighbors the Yamadas**](https://myanimelist.net/search/all?q=My%20Neighbors%20the%20Yamadas&cat=all)
