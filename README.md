@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every sword belongs in its sheath. Go back to the sheath your master holds. Go back to Griffith."
+> "I'm so hungry, I can't even move."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
