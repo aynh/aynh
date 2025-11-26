@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And I'll be happy to vouch for his insanity!"
+> "Oh, silly me. I must have forgotten to turn on my hearing aid. When you're a washed up old hag like me, the memory is the first to go."
 
-&mdash; [**Haruka**](https://myanimelist.net/character.php?q=Haruka&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
