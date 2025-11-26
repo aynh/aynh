@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unwavering Faith and Resilient Bonds will bring even miracles to your side."
+> "The worst kind of pain is when you're smiling just to stop the tears from falling."
 
-&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
