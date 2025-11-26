@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, silly me. I must have forgotten to turn on my hearing aid. When you're a washed up old hag like me, the memory is the first to go."
+> "If you keep trying to reason with yourself instead of listening to your feelings, you'll never be able to feel true happiness."
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Hiroomi Nase**](https://myanimelist.net/character.php?q=Hiroomi%20Nase&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
