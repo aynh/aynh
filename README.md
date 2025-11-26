@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You will not touch these innocent people with even one inch of your dirty blades, if you require an opponent, I will fight you. If you wanna taste the ground, feel free to attack me."
+> "If we continue on the same path, we are likely to meet again."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Handa Seishū**](https://myanimelist.net/character.php?q=Handa%20Seish%C5%AB&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
