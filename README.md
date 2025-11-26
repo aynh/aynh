@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you keep trying to reason with yourself instead of listening to your feelings, you'll never be able to feel true happiness."
+> "Every sword belongs in its sheath. Go back to the sheath your master holds. Go back to Griffith."
 
-&mdash; [**Hiroomi Nase**](https://myanimelist.net/character.php?q=Hiroomi%20Nase&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
