@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's alright to feel sad. When you're sad, you should experience that sorrow fully. It's not too late to move on after that."
+> "Your name sounds like an air conditioner."
 
-&mdash; [**Urutori**](https://myanimelist.net/character.php?q=Urutori&cat=character), [**Utawarerumono**](https://myanimelist.net/search/all?q=Utawarerumono&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
