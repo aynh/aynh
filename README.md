@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans aren't made perfectly. Everyone lies. Even so... I've been careful not to tell lies that hurt others."
+> "The role of the young is to break new ground without fear of failure. Remain in memories, not record books! Lose the battle, win the war!"
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kawafuji Takao**](https://myanimelist.net/character.php?q=Kawafuji%20Takao&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
