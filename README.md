@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Know what makes Ganta so amazing? He always gets up again."
+> "The choice we're making might be one of evil as well. For we call for peace, but with weapons in our hands. Nevertheless, allow us to break of endless conflict. Give us strength."
 
-&mdash; [**Shiro**](https://myanimelist.net/character.php?q=Shiro&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
