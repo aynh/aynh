@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But I think... I want to live with all my memories. Even if they're bad memories. Even if they're memories that only hurt me... that I'd rather forget. If I keep them and keep trying, without running away, then someday I'll be strong enough that those memories can't defeat me. I believe that because I want to think that there's no such thing as a memory that's ok to forget."
+> "Well, I give up. Can't win against fools."
 
-&mdash; [**Sohma Momiji**](https://myanimelist.net/character.php?q=Sohma%20Momiji&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Jigo**](https://myanimelist.net/character.php?q=Jigo&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
