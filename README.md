@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you have faith, your dreams will surely come true."
+> "You've just gained the privilege to kill."
 
-&mdash; [**Katsura Kotarou**](https://myanimelist.net/character.php?q=Katsura%20Kotarou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
