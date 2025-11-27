@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It’s vulgar and foolish to spend all your time thinking about love!"
+> "Humans aren't made perfectly. Everyone lies. Even so... I've been careful not to tell lies that hurt others."
 
-&mdash; [**Kanade Ōe**](https://myanimelist.net/character.php?q=Kanade%20%C5%8Ce&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
