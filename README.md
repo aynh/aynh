@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The role of the young is to break new ground without fear of failure. Remain in memories, not record books! Lose the battle, win the war!"
+> "If you are weak, don't bare your fangs."
 
-&mdash; [**Kawafuji Takao**](https://myanimelist.net/character.php?q=Kawafuji%20Takao&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
+&mdash; [**Kiyomasa Senji**](https://myanimelist.net/character.php?q=Kiyomasa%20Senji&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
