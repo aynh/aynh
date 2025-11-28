@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your name sounds like an air conditioner."
+> "Teachings that do not speak of pain have no meaning, for humankind cannot gain anything in return."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
