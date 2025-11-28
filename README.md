@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death by sword. Death by broken bones. Death by crushing. There's not much difference, right? You die at the end."
+> "Even if all we accomplished were small steps forward... We continued to give our lives if it meant that one day... humanity would be free from this terror."
 
-&mdash; [**Ainz Ooal Gown**](https://myanimelist.net/character.php?q=Ainz%20Ooal%20Gown&cat=character), [**Overlord**](https://myanimelist.net/search/all?q=Overlord&cat=all)
+&mdash; [**Hange Zoe**](https://myanimelist.net/character.php?q=Hange%20Zoe&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
