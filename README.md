@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate the fox, but the boy - I don't hate the boy."
+> "I believe being an author is a lonely line of work that asks you to pass through a narrow gate alone."
 
-&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kanako Sakurai**](https://myanimelist.net/character.php?q=Kanako%20Sakurai&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
