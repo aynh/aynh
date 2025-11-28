@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone in this world carries around their own sins, and they never go away...but that doesn't change the fact that we do what we must."
+> "Death by sword. Death by broken bones. Death by crushing. There's not much difference, right? You die at the end."
 
-&mdash; [**Wolfgang Grimmer**](https://myanimelist.net/character.php?q=Wolfgang%20Grimmer&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Ainz Ooal Gown**](https://myanimelist.net/character.php?q=Ainz%20Ooal%20Gown&cat=character), [**Overlord**](https://myanimelist.net/search/all?q=Overlord&cat=all)
