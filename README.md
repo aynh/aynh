@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A sound soul dwells within sound skin and sound cuticles."
+> "If you claim to love humans, that should include their lies and betrayals, their sins and ugliness, their jealousy and immaturity, their hatred and conflicts."
 
-&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Myouri Unzen**](https://myanimelist.net/character.php?q=Myouri%20Unzen&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
