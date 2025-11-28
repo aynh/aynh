@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no guarantee that your dreams are just good ones."
+> "Mere scores do not measure a person’s worth."
 
-&mdash; [**Haji**](https://myanimelist.net/character.php?q=Haji&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
+&mdash; [**Aoi Yamada**](https://myanimelist.net/character.php?q=Aoi%20Yamada&cat=character), [**Working!!**](https://myanimelist.net/search/all?q=Working!!&cat=all)
