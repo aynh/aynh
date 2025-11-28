@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I despise common sense. I’ve seen the world from every possible angle. This cruel, ridiculous, beautiful world."
+> "[To Yammy] They're all trash...kill them all."
 
-&mdash; [**Lacie Baskerville**](https://myanimelist.net/character.php?q=Lacie%20Baskerville&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
