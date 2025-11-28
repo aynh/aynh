@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe being an author is a lonely line of work that asks you to pass through a narrow gate alone."
+> "Everyone in this world carries around their own sins, and they never go away...but that doesn't change the fact that we do what we must."
 
-&mdash; [**Kanako Sakurai**](https://myanimelist.net/character.php?q=Kanako%20Sakurai&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
+&mdash; [**Wolfgang Grimmer**](https://myanimelist.net/character.php?q=Wolfgang%20Grimmer&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
