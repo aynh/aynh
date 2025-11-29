@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't you want to hang out and waste your life with us?"
+> "In this world, filled with violence, blood and scheming, the promise we made on that day was my one and only refuge."
 
-&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Mina Tepeş**](https://myanimelist.net/character.php?q=Mina%20Tepe%C5%9F&cat=character), [**Dance in the Vampire Bund**](https://myanimelist.net/search/all?q=Dance%20in%20the%20Vampire%20Bund&cat=all)
