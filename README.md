@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm sure there's a reason that, even after I stopped being lost, I stayed here. I won't leave until I know what that reason is."
+> "What defines humans... Defines us? Nobody will notice a change on the inside if you look the same on the outside."
 
-&mdash; [**Mayoi Hachikuji**](https://myanimelist.net/character.php?q=Mayoi%20Hachikuji&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
