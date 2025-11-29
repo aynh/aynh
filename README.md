@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I really liked him I should hope for his happiness. But like you said in the car, I actually hoped they would break up."
+> "Time might separate us some day. But, even still, until then, let's stay together."
 
-&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Hotaru Takegawa**](https://myanimelist.net/character.php?q=Hotaru%20Takegawa&cat=character), [**Hotarubi no Mori e**](https://myanimelist.net/search/all?q=Hotarubi%20no%20Mori%20e&cat=all)
