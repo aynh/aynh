@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'If I do this, I can stop the rebellion”, “if I do that, I can stop the rebellion”... Open your eyes, princess! Your zealous idealism disgusts me! Ideals can only be spoken by those powerful enough to carry them out. And that excludes you!"
+> "Sorry, a trick is nothing but a puzzle mankind came up with. If you use your head, you can uncover the logical answer. It’s disappointing. No matter the explanation I think of, I cannot understand why one person would kill another. Even if I can see why, I can’t understand why."
 
-&mdash; [**Crocodile**](https://myanimelist.net/character.php?q=Crocodile&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
