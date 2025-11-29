@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The double grief of a lost bliss is to recall its happy hour in pain."
+> "If your opponent is of choleric temper, seek to irritate."
 
-&mdash; [**Shuichiro Keido**](https://myanimelist.net/character.php?q=Shuichiro%20Keido&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
