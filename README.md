@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time might separate us some day. But, even still, until then, let's stay together."
+> "Not all people in prison are criminals"
 
-&mdash; [**Hotaru Takegawa**](https://myanimelist.net/character.php?q=Hotaru%20Takegawa&cat=character), [**Hotarubi no Mori e**](https://myanimelist.net/search/all?q=Hotarubi%20no%20Mori%20e&cat=all)
+&mdash; [**Cardina Baumeister**](https://myanimelist.net/character.php?q=Cardina%20Baumeister&cat=character), [**Shingeki no Kyojin: Before the Fall**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Before%20the%20Fall&cat=all)
