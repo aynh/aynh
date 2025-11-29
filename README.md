@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not all people in prison are criminals"
+> "I'm sure there's a reason that, even after I stopped being lost, I stayed here. I won't leave until I know what that reason is."
 
-&mdash; [**Cardina Baumeister**](https://myanimelist.net/character.php?q=Cardina%20Baumeister&cat=character), [**Shingeki no Kyojin: Before the Fall**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Before%20the%20Fall&cat=all)
+&mdash; [**Mayoi Hachikuji**](https://myanimelist.net/character.php?q=Mayoi%20Hachikuji&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
