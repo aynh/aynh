@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're going to dig, dig to pierce the heavens. Even if it's my grave I'm digging, I'll keep going! When I break through, that means I've WON! Who the hell do you think I am? I'm Simon. I'm not my bro, Kamina. I'm ME! Simon the Digger!"
+> "Listen here. Don't say you can't. Words bind you the minute you say them. Believe in yourself! You can do anything!"
 
-&mdash; [**Simon**](https://myanimelist.net/character.php?q=Simon&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
+&mdash; [**Tenka Kumō**](https://myanimelist.net/character.php?q=Tenka%20Kum%C5%8D&cat=character), [**Donten ni Warau**](https://myanimelist.net/search/all?q=Donten%20ni%20Warau&cat=all)
