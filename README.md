@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To kill the one you love... If someone else will do it anyway, I'd rather do it myself."
+> "There's no master who deliberately lets his birds escape from his birdcage"
 
-&mdash; [**Kurome**](https://myanimelist.net/character.php?q=Kurome&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Blue Owl**](https://myanimelist.net/character.php?q=Blue%20Owl&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
