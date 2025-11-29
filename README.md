@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen here. Don't say you can't. Words bind you the minute you say them. Believe in yourself! You can do anything!"
+> "If I can protect, I want to protect."
 
-&mdash; [**Tenka Kumō**](https://myanimelist.net/character.php?q=Tenka%20Kum%C5%8D&cat=character), [**Donten ni Warau**](https://myanimelist.net/search/all?q=Donten%20ni%20Warau&cat=all)
+&mdash; [**Syaoran Li**](https://myanimelist.net/character.php?q=Syaoran%20Li&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
