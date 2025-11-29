@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm on TV! I gotta call my folks!"
+> "The double grief of a lost bliss is to recall its happy hour in pain."
 
-&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Shuichiro Keido**](https://myanimelist.net/character.php?q=Shuichiro%20Keido&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
