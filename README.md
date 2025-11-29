@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was glad you did not pretend to be a saint and claim to love the world despite everything. That is why I decided that I would be your true friend. I would accept your sorrow. And I would share my joy. If you strayed I would reprimand you. If you made mistakes, I would forgive you. And when you found yourself in trouble, I would be there for you. So that you who learn to hate the world, would come to love it once more."
+> "If I really liked him I should hope for his happiness. But like you said in the car, I actually hoped they would break up."
 
-&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
