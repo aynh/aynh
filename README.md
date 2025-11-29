@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, filled with violence, blood and scheming, the promise we made on that day was my one and only refuge."
+> "Death is never an apology."
 
-&mdash; [**Mina Tepeş**](https://myanimelist.net/character.php?q=Mina%20Tepe%C5%9F&cat=character), [**Dance in the Vampire Bund**](https://myanimelist.net/search/all?q=Dance%20in%20the%20Vampire%20Bund&cat=all)
+&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
