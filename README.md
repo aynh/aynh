@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it’s an important memory, then you shouldn't forget it. Since those who aren't with us only live on in our memories."
+> "[After Gin offers to kill some Arrancars] No thanks, for that would be boring."
 
-&mdash; [**Wataru Takagi**](https://myanimelist.net/character.php?q=Wataru%20Takagi&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
