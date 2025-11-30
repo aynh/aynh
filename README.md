@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone's the same, no exceptions.  All of them, equal before god."
+> "When a human is victorious is when they're most vulnerable."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
