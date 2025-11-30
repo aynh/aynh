@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Spoiling stories... is an unforgivable sin in this world."
+> "Those who close their eyes to the past, become blind to the future."
 
-&mdash; [**Leo Baskerville**](https://myanimelist.net/character.php?q=Leo%20Baskerville&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Juzo Okita**](https://myanimelist.net/character.php?q=Juzo%20Okita&cat=character), [**Space Battleship Yamato**](https://myanimelist.net/search/all?q=Space%20Battleship%20Yamato&cat=all)
