@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing disappears from the heart."
+> "Time and titles do not matter in the bonds between people."
 
-&mdash; [**Tsukasa Amakawa**](https://myanimelist.net/character.php?q=Tsukasa%20Amakawa&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
+&mdash; [**Sakagami Tomoyo**](https://myanimelist.net/character.php?q=Sakagami%20Tomoyo&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
