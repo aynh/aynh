@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Matt... I never thought you'd be killed... I'm sorry."
+> "Spoiling stories... is an unforgivable sin in this world."
 
-&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Leo Baskerville**](https://myanimelist.net/character.php?q=Leo%20Baskerville&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
