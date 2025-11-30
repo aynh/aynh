@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who close their eyes to the past, become blind to the future."
+> "I want to see and understand the world outside. I don't want to die inside these walls without knowing what's out there!"
 
-&mdash; [**Juzo Okita**](https://myanimelist.net/character.php?q=Juzo%20Okita&cat=character), [**Space Battleship Yamato**](https://myanimelist.net/search/all?q=Space%20Battleship%20Yamato&cat=all)
+&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
