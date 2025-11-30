@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Wrong, holy man. All we want is to get our bodies normal again. See, we don't lie about what's possible. We didn't start a cult."
+> "The sun may be wonderful but can you live on that alone? We all live because of the wind, the clouds, and the rain. They're not things you can throw out just because they're temporarily inconvenient, right?"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
