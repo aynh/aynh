@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[After Gin offers to kill some Arrancars] No thanks, for that would be boring."
+> "Why torment yourself saying, 'Eventually, someday?' How long have you been fighting with your thoughts clouded by that brand of sweet poison?"
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
