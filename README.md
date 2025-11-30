@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you stupid?"
+> "Matt... I never thought you'd be killed... I'm sorry."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
