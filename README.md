@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now that I think about it, I really didn't understand anything back then. Neither what it meant to pray for a miracle...nor the price of one."
+> "If it’s an important memory, then you shouldn't forget it. Since those who aren't with us only live on in our memories."
 
-&mdash; [**Sayaka Miki**](https://myanimelist.net/character.php?q=Sayaka%20Miki&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Wataru Takagi**](https://myanimelist.net/character.php?q=Wataru%20Takagi&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
