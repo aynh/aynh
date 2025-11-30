@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's too bad I don't think of you as anything. If you get in my way... I'll kill you."
+> "Let's see what kind of heart you have!"
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
