@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ash to ashes, dust to dust, trash to trash can and useless people to uselessness box."
+> "It's too bad I don't think of you as anything. If you get in my way... I'll kill you."
 
-&mdash; [**Tsukiko Tsutsukakushi**](https://myanimelist.net/character.php?q=Tsukiko%20Tsutsukakushi&cat=character), [**Hentai Ouji To Warawanai Neko**](https://myanimelist.net/search/all?q=Hentai%20Ouji%20To%20Warawanai%20Neko&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
