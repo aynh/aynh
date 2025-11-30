@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to see and understand the world outside. I don't want to die inside these walls without knowing what's out there!"
+> "Nothing disappears from the heart."
 
-&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Tsukasa Amakawa**](https://myanimelist.net/character.php?q=Tsukasa%20Amakawa&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
