@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's the sky...that allows the clouds to move about freely."
+> "I pity you. You just don't get it at all... there's not a thing I don't cherish!"
 
-&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Cloud Strife**](https://myanimelist.net/character.php?q=Cloud%20Strife&cat=character), [**Final Fantasy VII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII&cat=all)
