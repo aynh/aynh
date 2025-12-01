@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Most people are irresponsible, changing their opinions easily based on unconfirmed information or convenient rumors."
+> "A cowardly thief would sneak away in the night; the King of Conquerors leaves with his loot amidst songs of victory!"
 
-&mdash; [**Saki Morimi**](https://myanimelist.net/character.php?q=Saki%20Morimi&cat=character), [**Eden of the East**](https://myanimelist.net/search/all?q=Eden%20of%20the%20East&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
