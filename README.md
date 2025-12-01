@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't develop feelings. That's how most idiots screw up."
+> "If you trip while running down a hallway, you'll get a nosebleed. If you trip in life, you'll cry."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
