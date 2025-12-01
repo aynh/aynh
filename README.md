@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A cowardly thief would sneak away in the night; the King of Conquerors leaves with his loot amidst songs of victory!"
+> "In the human world, truth and reality aren't always one and the same. Humans just call their desires and ambitions as 'truth'. Humans will even kill other humans if they have 'truth' as an excuse."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Sanetoshi Watase**](https://myanimelist.net/character.php?q=Sanetoshi%20Watase&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
