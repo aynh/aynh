@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I envy you. You've been betrayed and hurt, yet you can still forgive each other. I envy you for having such a great friend."
+> "I will acknowledge you as my enemy and destroy you."
 
-&mdash; [**Kuroyukihime**](https://myanimelist.net/character.php?q=Kuroyukihime&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
+&mdash; [**Acnologia**](https://myanimelist.net/character.php?q=Acnologia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
