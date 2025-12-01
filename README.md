@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Aki, you can't lie when you confess to someone. I'm trying to comfort you know, but if I just wanted to comfort you, I won't confess to you. I confessed to you like this because I really like you. But I do find it a little annoying how you fidget around like this, and I really hate you for blaming yourself and regretting your actions. -- and I really hate you when you said that a girl, who summoned all her courage to confess to you, is lying."
+> "But you're thinking on too large a scale there, kid... If we don't want to drive ourselves crazy, we can only deal with what's directly in front of us."
 
-&mdash; [**Shimada Minami**](https://myanimelist.net/character.php?q=Shimada%20Minami&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
