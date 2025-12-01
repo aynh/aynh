@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Courage is a word that gives you the strength to do what's right, you should not use it as an excuse to murder someone."
+> "Listen up, brats! Today’s defeat is the seed for tomorrow’s victory! We’ll rise up and show them! We don’t know the meaning of giving up!"
 
-&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
