@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This area feels weird, it's been throbbing hard since that time. When you told me not to go. When you held me so tight. It won't go away. Your voice is still in my ear. What happened to me? Is this... love?"
+> "There is strength in words... Sometimes, they become words of power. I thought that if I said I'm fine, then I really would be fine. But it's no use... It doesn't work."
 
-&mdash; [**Mashiro Shiina**](https://myanimelist.net/character.php?q=Mashiro%20Shiina&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Ik-su**](https://myanimelist.net/character.php?q=Ik-su&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
