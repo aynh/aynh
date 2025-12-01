@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The heart becomes scratched and dented and repaired over time, and with one glance, you'd be able to tell your own from others."
+> "It's the sky...that allows the clouds to move about freely."
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
