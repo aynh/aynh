@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the human world, truth and reality aren't always one and the same. Humans just call their desires and ambitions as 'truth'. Humans will even kill other humans if they have 'truth' as an excuse."
+> "Courage is a word that gives you the strength to do what's right, you should not use it as an excuse to murder someone."
 
-&mdash; [**Sanetoshi Watase**](https://myanimelist.net/character.php?q=Sanetoshi%20Watase&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
