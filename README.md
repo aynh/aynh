@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know the truth of the battlefield? Kill a man normally, and it's considered a crime. But kill many on the battlefield and you become a hero!"
+> "This area feels weird, it's been throbbing hard since that time. When you told me not to go. When you held me so tight. It won't go away. Your voice is still in my ear. What happened to me? Is this... love?"
 
-&mdash; [**Luciano Bradley**](https://myanimelist.net/character.php?q=Luciano%20Bradley&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Mashiro Shiina**](https://myanimelist.net/character.php?q=Mashiro%20Shiina&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
