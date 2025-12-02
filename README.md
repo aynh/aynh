@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you simply obey orders without question to protect your master, that isn't your greatest wish, but your greatest tragedy."
+> "Whether it's on the other side of the planet, or right in front of one's eyes, as long as one is safe, it doesn't matter how many others die. Isn't that humanity?"
 
-&mdash; [**Jae-ha**](https://myanimelist.net/character.php?q=Jae-ha&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Shuntarou Chishiya**](https://myanimelist.net/character.php?q=Shuntarou%20Chishiya&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
