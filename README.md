@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your so-called 'self-sacrifice' only satisfies yourself. Do you think you can save people with it? You're only protecting yourself! You don't know the suffering endured by those left alive. With your childish actions, you're only pushing the pain onto other people!"
+> "The phony peace that heroes create will dye people with evil. That's why I'm doing this. I will be the Count Devil that plunges humanity into terror! In a world with no room for survival, evil will disappear. And so will bullying, and discrimination, even war! What this world needs is not biased Justice but unbiased, absolute Evil! I'm fighting for world peace. No justice will be able to overthrow me. I will be stronger than anyone! I will be an absolute MONSTER!"
 
-&mdash; [**Elliot Nightray**](https://myanimelist.net/character.php?q=Elliot%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Garou**](https://myanimelist.net/character.php?q=Garou&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
