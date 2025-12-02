@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I already told you...you can't kill me with that sword anymore!"
+> "It is a sad truth that greater the authority a person possesses, the more he tends to fear change."
 
-&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Jimbei**](https://myanimelist.net/character.php?q=Jimbei&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
