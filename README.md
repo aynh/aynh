@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry, I don't have time to be arrested."
+> "Thanks for the real vote of confidence. You two should be cheerleaders, you'd look cute in skirts!"
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
