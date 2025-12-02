@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what we learn, no matter what we obtain, nothing ever changes! People are amazing that way! They become envious, hate each other, and destroy each other! If that's what they truly desire, why don't they simply exterminate each other!?"
+> "Honestly, there isn't much meaning to the splendid names given to you by your parents. What does have meaning, is what the person behind that name does during their actual lifetime. The name doesn't make the person. The name simply remains gently within the footprint left on the path a person walks."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
