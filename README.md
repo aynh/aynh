@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as the kindness received from others... is returned back, it's fine even if it takes time."
+> "The warmth of another person's flesh is scary. It thaws out the loneliness that you had forgotten about so easily."
 
-&mdash; [**Isogi Toshio**](https://myanimelist.net/character.php?q=Isogi%20Toshio&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Rokka Shimao**](https://myanimelist.net/character.php?q=Rokka%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
