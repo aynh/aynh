@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is a sad truth that greater the authority a person possesses, the more he tends to fear change."
+> "Even death can't cure idiocy."
 
-&mdash; [**Jimbei**](https://myanimelist.net/character.php?q=Jimbei&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Yui**](https://myanimelist.net/character.php?q=Yui&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
