@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Could you stop skipping the thinking process when you respond?"
+> "I already told you...you can't kill me with that sword anymore!"
 
-&mdash; [**Kagami Hiiragi**](https://myanimelist.net/character.php?q=Kagami%20Hiiragi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
