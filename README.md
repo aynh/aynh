@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is strength in words... Sometimes, they become words of power. I thought that if I said I'm fine, then I really would be fine. But it's no use... It doesn't work."
+> "Fighting without hope is no way to live. It's just a way to die."
 
-&mdash; [**Ik-su**](https://myanimelist.net/character.php?q=Ik-su&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Éclair Farron**](https://myanimelist.net/character.php?q=%C3%89clair%20Farron&cat=character), [**Final Fantasy XIII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20XIII&cat=all)
