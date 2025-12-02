@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Honestly, there isn't much meaning to the splendid names given to you by your parents. What does have meaning, is what the person behind that name does during their actual lifetime. The name doesn't make the person. The name simply remains gently within the footprint left on the path a person walks."
+> "Hey God, if you're there, my life has really sucked. So please, for once, let me have a sweet dream."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Kyōko Sakura**](https://myanimelist.net/character.php?q=Ky%C5%8Dko%20Sakura&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
