@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The warmth of another person's flesh is scary. It thaws out the loneliness that you had forgotten about so easily."
+> "How do you prove that you exist...? Maybe we don't exist."
 
-&mdash; [**Rokka Shimao**](https://myanimelist.net/character.php?q=Rokka%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
+&mdash; [**Vivi Ornitier**](https://myanimelist.net/character.php?q=Vivi%20Ornitier&cat=character), [**Final Fantasy IX**](https://myanimelist.net/search/all?q=Final%20Fantasy%20IX&cat=all)
