@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah, if I saw her smiling to herself while reading this, I might think it was creepy. But there's something wrong with people who talk trash and laugh behind another's back, too."
+> "*to Edward* So, you hooked up with your mechanic, huh? Not too shabby, sprout."
 
-&mdash; [**Shougo Kiryuu**](https://myanimelist.net/character.php?q=Shougo%20Kiryuu&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
