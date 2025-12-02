@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The phony peace that heroes create will dye people with evil. That's why I'm doing this. I will be the Count Devil that plunges humanity into terror! In a world with no room for survival, evil will disappear. And so will bullying, and discrimination, even war! What this world needs is not biased Justice but unbiased, absolute Evil! I'm fighting for world peace. No justice will be able to overthrow me. I will be stronger than anyone! I will be an absolute MONSTER!"
+> "I’ve been in your shoes. I was also given a chance. There’s no rush. You’ll get better very soon."
 
-&mdash; [**Garou**](https://myanimelist.net/character.php?q=Garou&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Tsutomu Komano**](https://myanimelist.net/character.php?q=Tsutomu%20Komano&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
