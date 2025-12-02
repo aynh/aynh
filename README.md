@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether it's on the other side of the planet, or right in front of one's eyes, as long as one is safe, it doesn't matter how many others die. Isn't that humanity?"
+> "I had no intention of deceiving anyone. It's just that none of you could understand...My true self."
 
-&mdash; [**Shuntarou Chishiya**](https://myanimelist.net/character.php?q=Shuntarou%20Chishiya&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
