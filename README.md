@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Thanks for the real vote of confidence. You two should be cheerleaders, you'd look cute in skirts!"
+> "As long as the kindness received from others... is returned back, it's fine even if it takes time."
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Isogi Toshio**](https://myanimelist.net/character.php?q=Isogi%20Toshio&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
