@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fighting without hope is no way to live. It's just a way to die."
+> "If you simply obey orders without question to protect your master, that isn't your greatest wish, but your greatest tragedy."
 
-&mdash; [**Éclair Farron**](https://myanimelist.net/character.php?q=%C3%89clair%20Farron&cat=character), [**Final Fantasy XIII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20XIII&cat=all)
+&mdash; [**Jae-ha**](https://myanimelist.net/character.php?q=Jae-ha&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
