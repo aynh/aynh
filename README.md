@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I had no intention of deceiving anyone. It's just that none of you could understand...My true self."
+> "Your so-called 'self-sacrifice' only satisfies yourself. Do you think you can save people with it? You're only protecting yourself! You don't know the suffering endured by those left alive. With your childish actions, you're only pushing the pain onto other people!"
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Elliot Nightray**](https://myanimelist.net/character.php?q=Elliot%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
