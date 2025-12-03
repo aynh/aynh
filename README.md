@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why not just try hard again? Quit mopping around. Stop lying to yourself and try once more."
+> "It might be for the better if there are amusing people around me. Because any tragedy may seem a comedy, as long as I am with them."
 
-&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Kagaku no Railgun**](https://myanimelist.net/search/all?q=Toaru%20Kagaku%20no%20Railgun&cat=all)
+&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
