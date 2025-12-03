@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you try to acquire something, you'll lose something else along the way. That's the truth of this world. No matter how sad it is."
+> "The many lives lost during long years of conflict... because of those selfless sacrifices, we are able to bathe in peace and prosperity now. To ingrain this history within the new generation will be a vital cog in helping to maintain the peace."
 
-&mdash; [**Lilith Bristol**](https://myanimelist.net/character.php?q=Lilith%20Bristol&cat=character), [**Absolute Duo**](https://myanimelist.net/search/all?q=Absolute%20Duo&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Boruto: Naruto Next Generations**](https://myanimelist.net/search/all?q=Boruto%3A%20Naruto%20Next%20Generations&cat=all)
