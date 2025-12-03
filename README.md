@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That’s important, isn’t it? Whether you look good or pathetic in your own eyes."
+> "When one thing ends, another begins."
 
-&mdash; [**Reiko Mikami**](https://myanimelist.net/character.php?q=Reiko%20Mikami&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
+&mdash; [**Riko Aida**](https://myanimelist.net/character.php?q=Riko%20Aida&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
