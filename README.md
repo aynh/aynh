@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't be distracted by the what-if's, should-have's, and if-only's. The one thing you choose for yourself - that is the truth of your universe."
+> "That’s important, isn’t it? Whether you look good or pathetic in your own eyes."
 
-&mdash; [**Kamina**](https://myanimelist.net/character.php?q=Kamina&cat=character), [**Tengen Toppa Gurren Laggan**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Laggan&cat=all)
+&mdash; [**Reiko Mikami**](https://myanimelist.net/character.php?q=Reiko%20Mikami&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
