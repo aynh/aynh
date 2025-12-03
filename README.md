@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Cute, cute Nanao-chaaaan. Lovely, lovely Nanao -- AHHHHHHH!!!!"
+> "I’m just trying to live my life, but it seems as if sadness always piles itself up around me. It’s in my bed, the toothbrush in my bathroom, and the memory of my cellphone. Over the past few years, I’ve wanted to move on, I’ve wanted to take hold of something I couldn’t reach. What that is, I have no idea. Not knowing where such obsessive thoughts were coming from, I simply drowned myself in my work. Then one day I realized that my heart was withering, and in it there was nothing but pain. And that my beliefs, that I once held so passionately, had completely disappeared."
 
-&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Takaki Tohno**](https://myanimelist.net/character.php?q=Takaki%20Tohno&cat=character), [**5 Centimeters per Second**](https://myanimelist.net/search/all?q=5%20Centimeters%20per%20Second&cat=all)
