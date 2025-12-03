@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not defined by my abilities alone."
+> "If this is the path you choose to walk... I will not interfere. But if you turn the people against you... Will you be able to function as a hero? This worries me. But if you ever get in a tight spot... I will be there."
 
-&mdash; [**Kira Yamato**](https://myanimelist.net/character.php?q=Kira%20Yamato&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Genos**](https://myanimelist.net/character.php?q=Genos&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
