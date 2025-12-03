@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It might be for the better if there are amusing people around me. Because any tragedy may seem a comedy, as long as I am with them."
+> "To fulfill your dream, you need to have a dream first. You can have an image, a desire, or a wish of what you want to become. Don't forget about it, and keep wishing for it. That's the first step to fulfilling your dream."
 
-&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Kuze Shuuichi**](https://myanimelist.net/character.php?q=Kuze%20Shuuichi&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
