@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The many lives lost during long years of conflict... because of those selfless sacrifices, we are able to bathe in peace and prosperity now. To ingrain this history within the new generation will be a vital cog in helping to maintain the peace."
+> "If fate is a principle beyond Human comprehension which capriciously torments man, then it is karma that man confront fate by embracing sorcery."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Boruto: Naruto Next Generations**](https://myanimelist.net/search/all?q=Boruto%3A%20Naruto%20Next%20Generations&cat=all)
+&mdash; [**Void**](https://myanimelist.net/character.php?q=Void&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
