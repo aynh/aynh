@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Attention, gun-toting extremists! Can you hear me all right, or did you blow your ears out playing target practice?"
+> "At times like these, you shouldn't depend on people's advice, but think about it thoroughly by yourself and make a decision. Because there's no right answer when it comes to love. Whatever your answer is, if it's your own choice, then it's right."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Yuyuka Nekota**](https://myanimelist.net/character.php?q=Yuyuka%20Nekota&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
