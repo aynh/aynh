@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Cherry blossoms in Spring. Stars cover the sky on Summer. Full moon shines on Autumn and in Winter, the snow covers the ground. All these things make sake taste good. If it tastes bad, it's because there is something wrong in you."
+> "If you have memories no one else remembers, what's the point in remembering them?"
 
-&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Liu Cheng-Long**](https://myanimelist.net/character.php?q=Liu%20Cheng-Long&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
