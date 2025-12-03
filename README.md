@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human emotions are just black or white sometimes there and consistent and can even be contradictory, but that's all right."
+> "Examined from another angle, your faults and weaknesses can be weapons."
 
-&mdash; [**Murasaki**](https://myanimelist.net/character.php?q=Murasaki&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
+&mdash; [**Nagisa Shiota**](https://myanimelist.net/character.php?q=Nagisa%20Shiota&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
