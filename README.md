@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To fulfill your dream, you need to have a dream first. You can have an image, a desire, or a wish of what you want to become. Don't forget about it, and keep wishing for it. That's the first step to fulfilling your dream."
+> "My grandfather's deck has no pathetic cards, Kaiba. But it does contain... the unstoppable Exodia!"
 
-&mdash; [**Kuze Shuuichi**](https://myanimelist.net/character.php?q=Kuze%20Shuuichi&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
