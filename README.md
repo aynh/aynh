@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Examined from another angle, your faults and weaknesses can be weapons."
+> "Cherry blossoms in Spring. Stars cover the sky on Summer. Full moon shines on Autumn and in Winter, the snow covers the ground. All these things make sake taste good. If it tastes bad, it's because there is something wrong in you."
 
-&mdash; [**Nagisa Shiota**](https://myanimelist.net/character.php?q=Nagisa%20Shiota&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
