@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even death can't cure idiocy."
+> "Human emotions are just black or white sometimes there and consistent and can even be contradictory, but that's all right."
 
-&mdash; [**Yui**](https://myanimelist.net/character.php?q=Yui&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Murasaki**](https://myanimelist.net/character.php?q=Murasaki&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
