@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Where's the fun in it if everything is going just as planned?"
+> "Why not just try hard again? Quit mopping around. Stop lying to yourself and try once more."
 
-&mdash; [**Takeshi Tatsumi**](https://myanimelist.net/character.php?q=Takeshi%20Tatsumi&cat=character), [**Giant Killing**](https://myanimelist.net/search/all?q=Giant%20Killing&cat=all)
+&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Kagaku no Railgun**](https://myanimelist.net/search/all?q=Toaru%20Kagaku%20no%20Railgun&cat=all)
