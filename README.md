@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When one thing ends, another begins."
+> "Attention, gun-toting extremists! Can you hear me all right, or did you blow your ears out playing target practice?"
 
-&mdash; [**Riko Aida**](https://myanimelist.net/character.php?q=Riko%20Aida&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
