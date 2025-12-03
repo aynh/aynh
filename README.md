@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "May those who accept their fate be granted Happiness, may those who defy their fate be granted Glory."
+> "If you try to acquire something, you'll lose something else along the way. That's the truth of this world. No matter how sad it is."
 
-&mdash; [**Edel**](https://myanimelist.net/character.php?q=Edel&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
+&mdash; [**Lilith Bristol**](https://myanimelist.net/character.php?q=Lilith%20Bristol&cat=character), [**Absolute Duo**](https://myanimelist.net/search/all?q=Absolute%20Duo&cat=all)
