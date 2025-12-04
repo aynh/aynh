@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes the blood rushes to my head and I feel like, if I run I'll lose something important."
+> "Don't tell me he wants to conquer the world? Can't he come up with something more original?"
 
-&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
