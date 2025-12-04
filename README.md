@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is being silent and suppressing  your own feelings really being thoughtful of the other person?"
+> "Aren't you the least bit curious? About the ultimate extent of humanity's insatiable desires? About the fools who pursued their insane dream in the name of progress? Because after all, Kira, you're a child of this too."
 
-&mdash; [**Tsukushi Makino**](https://myanimelist.net/character.php?q=Tsukushi%20Makino&cat=character), [**Boys Over Flowers**](https://myanimelist.net/search/all?q=Boys%20Over%20Flowers&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
