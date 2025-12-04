@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am crazy and stubborn."
+> "My arm did not obey a certain command I gave it, so I decided it needed to be punished."
 
-&mdash; [**Franky**](https://myanimelist.net/character.php?q=Franky&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
