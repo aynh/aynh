@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can never get angry at anything, that probably means you have nothing that you like, either."
+> "For me to call a man my friend, he must be equal to me in all respects."
 
-&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
