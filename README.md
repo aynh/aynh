@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everything in the world is actually connected. That means, even if we get separated, we'll never be alone."
+> "'Hero of Justice? A world where no one is hurt?' Don't be absurd. 'Humanity' is the name for an animal that cannot find joy in life without sacrifice. The pretty lie that is 'equality' is nonsense spouted by weaklings who cannot look upon the darkness. Nothing but an excuse to cover up life's ugliness."
 
-&mdash; [**Aladdin**](https://myanimelist.net/character.php?q=Aladdin&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate Stay Night - Unlimited Blade Works**](https://myanimelist.net/search/all?q=Fate%20Stay%20Night%20-%20Unlimited%20Blade%20Works&cat=all)
