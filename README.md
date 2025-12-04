@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't tell me he wants to conquer the world? Can't he come up with something more original?"
+> "If you come across an event that's too good to be true, it's probably poison."
 
-&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
