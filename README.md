@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If fate is a principle beyond Human comprehension which capriciously torments man, then it is karma that man confront fate by embracing sorcery."
+> "If you can never get angry at anything, that probably means you have nothing that you like, either."
 
-&mdash; [**Void**](https://myanimelist.net/character.php?q=Void&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
