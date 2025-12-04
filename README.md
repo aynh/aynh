@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A castle that vanishes at the first gust of wind is worthless. A skyscraper within your mind will never fall down."
+> "Is being silent and suppressing  your own feelings really being thoughtful of the other person?"
 
-&mdash; [**Satsuki Kiryuuin**](https://myanimelist.net/character.php?q=Satsuki%20Kiryuuin&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
+&mdash; [**Tsukushi Makino**](https://myanimelist.net/character.php?q=Tsukushi%20Makino&cat=character), [**Boys Over Flowers**](https://myanimelist.net/search/all?q=Boys%20Over%20Flowers&cat=all)
