@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Hero of Justice? A world where no one is hurt?' Don't be absurd. 'Humanity' is the name for an animal that cannot find joy in life without sacrifice. The pretty lie that is 'equality' is nonsense spouted by weaklings who cannot look upon the darkness. Nothing but an excuse to cover up life's ugliness."
+> "I am crazy and stubborn."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate Stay Night - Unlimited Blade Works**](https://myanimelist.net/search/all?q=Fate%20Stay%20Night%20-%20Unlimited%20Blade%20Works&cat=all)
+&mdash; [**Franky**](https://myanimelist.net/character.php?q=Franky&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
