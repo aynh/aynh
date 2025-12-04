@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can catch a mouse that's shut in a cage. However, catching a mouse in a field is like trying to catch a cloud."
+> "There is great value in the time spent in ones own company, but a life time of total isolation is a fate no one should endure."
 
-&mdash; [**Beatrice**](https://myanimelist.net/character.php?q=Beatrice&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Makarov**](https://myanimelist.net/character.php?q=Makarov&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
