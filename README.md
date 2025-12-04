@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Aren't you the least bit curious? About the ultimate extent of humanity's insatiable desires? About the fools who pursued their insane dream in the name of progress? Because after all, Kira, you're a child of this too."
+> "Everything in the world is actually connected. That means, even if we get separated, we'll never be alone."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Aladdin**](https://myanimelist.net/character.php?q=Aladdin&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
