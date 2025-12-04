@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For me to call a man my friend, he must be equal to me in all respects."
+> "I laugh at gravity all the time. Hahaha, gravity..."
 
-&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
