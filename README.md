@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don’t win alone. That’s just how it is."
+> "I don’t mind getting in trouble. But I won’t let my friends' kindness go to waste."
 
-&mdash; [**Tobio Kageyama**](https://myanimelist.net/character.php?q=Tobio%20Kageyama&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Yuiko Kurugaya**](https://myanimelist.net/character.php?q=Yuiko%20Kurugaya&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
