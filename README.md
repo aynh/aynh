@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We're not going to sneak in, we're gonna bust in. To bust in means to go in from the front, guns blazing."
+> "In this world, there are things you have to protect even if your hands get stained with blood."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
