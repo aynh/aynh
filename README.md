@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The end result is important. But what's truly important... is the journey to get there."
+> "You don’t win alone. That’s just how it is."
 
-&mdash; [**Hikari Hanazono**](https://myanimelist.net/character.php?q=Hikari%20Hanazono&cat=character), [**Special A**](https://myanimelist.net/search/all?q=Special%20A&cat=all)
+&mdash; [**Tobio Kageyama**](https://myanimelist.net/character.php?q=Tobio%20Kageyama&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
