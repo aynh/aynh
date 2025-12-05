@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Killed in action and promoted two ranks for it. Brigadier General Hughes. You were the guy who was supposed to work below me and to push me to the top. Then you get yourself killed and surpass me in the ranks. I don't know what's more absurd, You or the State."
+> "That's like what an evil organization in some anime would do."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
