@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The ideal tool for controlling people is fear. And nothing overwhelms people more than an unseen fear."
+> "Fragility is always lurking behind our peaceful day-to-day life. Terrible things don’t only happen in places far beyond our reach."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Akito the Exiled**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Akito%20the%20Exiled&cat=all)
+&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
