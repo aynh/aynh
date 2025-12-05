@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the first place, the logic that says 'those who play games are kids' is itself an allusion, therefore one might say that shoehorning reality into your stubborn dualism is already a criticism of the self. In short, humans can only recognize reality through the filter called 'me' and so they are unable to escape the constraints of their uncanny existence."
+> "Killed in action and promoted two ranks for it. Brigadier General Hughes. You were the guy who was supposed to work below me and to push me to the top. Then you get yourself killed and surpass me in the ranks. I don't know what's more absurd, You or the State."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
