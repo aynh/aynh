@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human beings don't feel pain with their bodies. The brain is the thing that transmits the pain to the body."
+> "Winning a game is not dependent on surpassing your opponents with your strength or waiting for lucky breaks. Conquer the opponent, crushing them, and stepping over the fallen ones ruthlessly. Winning means dominating over countless dead bodies."
 
-&mdash; [**Madoka Shishito**](https://myanimelist.net/character.php?q=Madoka%20Shishito&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
