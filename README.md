@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's like what an evil organization in some anime would do."
+> "The opposite of boredom is not pleasure... but excitement. People will gladly seek out any kind of excitement, even pain."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
