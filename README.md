@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fragility is always lurking behind our peaceful day-to-day life. Terrible things don’t only happen in places far beyond our reach."
+> "WHO ARE YOU CALLING SO SMALL YOU WANNA CRUSH LIKE AN ANT?!"
 
-&mdash; [**Kyousuke Natsume**](https://myanimelist.net/character.php?q=Kyousuke%20Natsume&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
