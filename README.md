@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My arm did not obey a certain command I gave it, so I decided it needed to be punished."
+> "When something impossible happens, there are only two possibilities. Either your assumptions are wrong, or you have gone crazy."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kougami Shinya**](https://myanimelist.net/character.php?q=Kougami%20Shinya&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
