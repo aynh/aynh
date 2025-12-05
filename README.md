@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, there are things you have to protect even if your hands get stained with blood."
+> "The end result is important. But what's truly important... is the journey to get there."
 
-&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Hikari Hanazono**](https://myanimelist.net/character.php?q=Hikari%20Hanazono&cat=character), [**Special A**](https://myanimelist.net/search/all?q=Special%20A&cat=all)
