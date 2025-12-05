@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Winning a game is not dependent on surpassing your opponents with your strength or waiting for lucky breaks. Conquer the opponent, crushing them, and stepping over the fallen ones ruthlessly. Winning means dominating over countless dead bodies."
+> "The zipper is a window to society."
 
-&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
+&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
