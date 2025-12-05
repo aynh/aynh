@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A world where everyone is equal and receives the same treatment. No such place exists. If there was a world of equality, where talent and aptitude didn't matter, we would all be equally snubbed there."
+> "I'd rather die with someone than let that person die before my eyes. More so if she's a girl like you."
 
-&mdash; [**Tatsuya Shiba**](https://myanimelist.net/character.php?q=Tatsuya%20Shiba&cat=character), [**Mahouka Koukou no Rettousei**](https://myanimelist.net/search/all?q=Mahouka%20Koukou%20no%20Rettousei&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
