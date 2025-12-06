@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The one who holds power has no self-awareness of his responsibilities and the one aware of the responsibilities has no power at all."
+> "Know much about purgatory? It's the place between heaven and hell, where those who were left behind, unable to get into heaven continue to suffer, a place of struggle and pain. In other words, the world that we're in now."
 
-&mdash; [**Arslan**](https://myanimelist.net/character.php?q=Arslan&cat=character), [**The Heroic Legend of Arslan**](https://myanimelist.net/search/all?q=The%20Heroic%20Legend%20of%20Arslan&cat=all)
+&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
