@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sure I'm okay. Because that's how I was built, after all."
+> "When things change, isn't it better to get used to the new situation quickly? If that's the case, it's better to know what you have to do. Rejecting everything and doing things half-heartedly won't make it any easier. Hanging onto your pride will only weigh you down. So, to make life easier, sometimes it's best to go along with what other people want. As I said, it's just like the old saying: 'When in Rome, do as the Romans do'. Instead of others forcing it upon you, it's easier for you to want to do it yourself, right? You should try it, Mikoto. You'll be happier."
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Tooru Kouno**](https://myanimelist.net/character.php?q=Tooru%20Kouno&cat=character), [**Princess Princess**](https://myanimelist.net/search/all?q=Princess%20Princess&cat=all)
