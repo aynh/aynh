@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Fuu passed out after one drink and is asleep] Sleeping so carelessly. I could do something to you so easily."
+> "Facing irrationality doesn't mean not feeling fear, but rather possessing eyes that gaze upon fear and standing against the world."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
