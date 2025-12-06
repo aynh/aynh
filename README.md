@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Facing irrationality doesn't mean not feeling fear, but rather possessing eyes that gaze upon fear and standing against the world."
+> "Water is the greatest enemy of games."
 
-&mdash; [**Ganta Igarashi**](https://myanimelist.net/character.php?q=Ganta%20Igarashi&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
