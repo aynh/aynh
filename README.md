@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm no saint. A sense of duty, a sense of righteousness - they're just nuisances in life."
+> "Sure I'm okay. Because that's how I was built, after all."
 
-&mdash; [**Okajima Rokuro**](https://myanimelist.net/character.php?q=Okajima%20Rokuro&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
+&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
