@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who use cheating as their weapon, will be strangled by cheating in the end."
+> "I'm no saint. A sense of duty, a sense of righteousness - they're just nuisances in life."
 
-&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
+&mdash; [**Okajima Rokuro**](https://myanimelist.net/character.php?q=Okajima%20Rokuro&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
