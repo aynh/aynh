@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One more word Shigure and the entire publishing industry will know every embarrassing thing you've done since you were four."
+> "Those who use cheating as their weapon, will be strangled by cheating in the end."
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
