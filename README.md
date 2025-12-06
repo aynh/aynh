@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Know much about purgatory? It's the place between heaven and hell, where those who were left behind, unable to get into heaven continue to suffer, a place of struggle and pain. In other words, the world that we're in now."
+> "An island from a dream within a dream? I could never pass up a great adventure like this!"
 
-&mdash; [**Vincent Volaju**](https://myanimelist.net/character.php?q=Vincent%20Volaju&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
