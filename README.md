@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "An island from a dream within a dream? I could never pass up a great adventure like this!"
+> "Hijikata-san. I forgot my flute at the headquarters, so I'm gonna go back and get it real quick."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
