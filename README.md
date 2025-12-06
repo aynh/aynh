@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone's carrying something that matters. You just don't realize when you're carrying it. It's only after it slips out of your hand that you realize how heavy it was in the first place. So many times I thought that I'd never carry a load like that ever again. And yet, before I realized it, I was carrying it again. I'd feel so much better if I just got rid of it. But I just can't bring myself to do it."
+> "Maybe I'm not perfect. Maybe I have a long way to go. But someday... someday I'll be able to stand and walk on my own. Without hurting anyone... and without being a burden. (to Kazuma)"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
