@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When things change, isn't it better to get used to the new situation quickly? If that's the case, it's better to know what you have to do. Rejecting everything and doing things half-heartedly won't make it any easier. Hanging onto your pride will only weigh you down. So, to make life easier, sometimes it's best to go along with what other people want. As I said, it's just like the old saying: 'When in Rome, do as the Romans do'. Instead of others forcing it upon you, it's easier for you to want to do it yourself, right? You should try it, Mikoto. You'll be happier."
+> "A world created through oppresing others with brute force has no meaning!"
 
-&mdash; [**Tooru Kouno**](https://myanimelist.net/character.php?q=Tooru%20Kouno&cat=character), [**Princess Princess**](https://myanimelist.net/search/all?q=Princess%20Princess&cat=all)
+&mdash; [**Yuzu Hiiragi**](https://myanimelist.net/character.php?q=Yuzu%20Hiiragi&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
