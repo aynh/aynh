@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don’t mind getting in trouble. But I won’t let my friends' kindness go to waste."
+> "Those who don't give up no matter how many walls they run into, those are the ones who'll make their dreams come true."
 
-&mdash; [**Yuiko Kurugaya**](https://myanimelist.net/character.php?q=Yuiko%20Kurugaya&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Moritaka Mashiro**](https://myanimelist.net/character.php?q=Moritaka%20Mashiro&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
