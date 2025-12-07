@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't wanna live a thousand years. If I just live through today, that'll be enough."
+> "No matter what, if you intend to interfere, I will eliminate you too."
 
-&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Scar**](https://myanimelist.net/character.php?q=Scar&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
