@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have so many things I want to say, so many things I want to ask you, but... When I see your face... None of that matters anymore!"
+> "I'm begging you, don't make me a killer!"
 
-&mdash; [**Esdeath**](https://myanimelist.net/character.php?q=Esdeath&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
