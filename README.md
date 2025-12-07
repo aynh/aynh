@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Destiny is what you create with your own will."
+> "I have so many things I want to say, so many things I want to ask you, but... When I see your face... None of that matters anymore!"
 
-&mdash; [**Shinguji Sakura**](https://myanimelist.net/character.php?q=Shinguji%20Sakura&cat=character), [**Sakura Taisen**](https://myanimelist.net/search/all?q=Sakura%20Taisen&cat=all)
+&mdash; [**Esdeath**](https://myanimelist.net/character.php?q=Esdeath&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
