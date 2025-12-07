@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think manga and life are the same thing. A weekly manga lasts for a week, and life lasts until you die. It's making the best of whatever time you're given. So, you can't hold back. 'Conceit' and 'Luck' are important, but the most important one is 'Hard Work'."
+> "On that day, mankind received a grim reminder. We lived in fear of the titans, and were disgraced to live in these cages we called walls."
 
-&mdash; [**Akito Takagi**](https://myanimelist.net/character.php?q=Akito%20Takagi&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
