@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The weak don't get to decide anything, not even how they die."
+> "I  can neither live with you. Nor without you."
 
-&mdash; [**Trafalgar Law**](https://myanimelist.net/character.php?q=Trafalgar%20Law&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Uta**](https://myanimelist.net/character.php?q=Uta&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
