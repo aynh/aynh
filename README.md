@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Orihime, after she had being taken from Ichigo once again] A girl like you should smile more often. Overcast skies blot out the sun, and that always brings people's spirits down. So why not let the sun shine...For just a while longer?"
+> "The fact that I’m standing here means that I’m resolved to fight for my guild. I do not need your sympathy. As long as I’m still standing, please come at me with all you’ve got! Please do!"
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Wendy Marvell**](https://myanimelist.net/character.php?q=Wendy%20Marvell&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
