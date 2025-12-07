@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tragic he said. I'm tragic?"
+> "Even if they are locked in cage, as long as they have wings, birds can dream of the wide-open sky. But.. If their wings are plucked, they will cease to be birds..."
 
-&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Sion**](https://myanimelist.net/character.php?q=Sion&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
