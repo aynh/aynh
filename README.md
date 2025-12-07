@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what, if you intend to interfere, I will eliminate you too."
+> "Tragic he said. I'm tragic?"
 
-&mdash; [**Scar**](https://myanimelist.net/character.php?q=Scar&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
