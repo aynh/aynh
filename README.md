@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've been thinking... for a long while. For what purpose was I born into this world? Whenever I resolved one question, another would arise in its place. I sought the beginning. I sought the end. I've just been walking and walking, thinking all the while. Perhaps nothing will change, no matter how far I go. If I'm to stop my journey, that is fine, too. Even if I were informed that everything has reached its end, I'd just accept it. But even so, I found an answer to yet another of my questions today."
+> "[To Orihime, after she had being taken from Ichigo once again] A girl like you should smile more often. Overcast skies blot out the sun, and that always brings people's spirits down. So why not let the sun shine...For just a while longer?"
 
-&mdash; [**Tamura Reiko**](https://myanimelist.net/character.php?q=Tamura%20Reiko&cat=character), [**Parasyte -the maxim-**](https://myanimelist.net/search/all?q=Parasyte%20-the%20maxim-&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
