@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "On that day, mankind received a grim reminder. We lived in fear of the titans, and were disgraced to live in these cages we called walls."
+> "Consume wine, don't let the wine consume you."
 
-&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
