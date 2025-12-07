@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if they are locked in cage, as long as they have wings, birds can dream of the wide-open sky. But.. If their wings are plucked, they will cease to be birds..."
+> "I'm telling you, it's just that it's soooooo lolilolilolied that it smokes. Come on, girls. One of you loan me your whistle. I'll lolly it up!"
 
-&mdash; [**Sion**](https://myanimelist.net/character.php?q=Sion&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
