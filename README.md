@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The fact that I’m standing here means that I’m resolved to fight for my guild. I do not need your sympathy. As long as I’m still standing, please come at me with all you’ve got! Please do!"
+> "Songs are good. Singing brings us joy. It is the highest point in the culture that Lilims have created."
 
-&mdash; [**Wendy Marvell**](https://myanimelist.net/character.php?q=Wendy%20Marvell&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
