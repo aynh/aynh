@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is a meaning for wings that cannot fly! It's a precious memory of when you once flew in the sky."
+> "Rely on your Instinct, rather than Logic."
 
-&mdash; [**Yukito Kunisaki**](https://myanimelist.net/character.php?q=Yukito%20Kunisaki&cat=character), [**Air**](https://myanimelist.net/search/all?q=Air&cat=all)
+&mdash; [**Takeshi Yamamoto**](https://myanimelist.net/character.php?q=Takeshi%20Yamamoto&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
