@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Consume wine, don't let the wine consume you."
+> "There is a meaning for wings that cannot fly! It's a precious memory of when you once flew in the sky."
 
-&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Yukito Kunisaki**](https://myanimelist.net/character.php?q=Yukito%20Kunisaki&cat=character), [**Air**](https://myanimelist.net/search/all?q=Air&cat=all)
