@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The way of the sword lies in one's heart. As long as you have your heart, you can live even without the sword."
+> "Only idiots start fights they can't win."
 
-&mdash; [**Mitsuyoshi Jubei Yagyu**](https://myanimelist.net/character.php?q=Mitsuyoshi%20Jubei%20Yagyu&cat=character), [**Jubei-Chan 2: The Counterattack of Siberia Yagyu**](https://myanimelist.net/search/all?q=Jubei-Chan%202%3A%20The%20Counterattack%20of%20Siberia%20Yagyu&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
