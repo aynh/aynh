@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are some scars that never fade."
+> "Once you miss the opportunity to say something, the words become increasingly toxic. The best thing to do is to just say everything."
 
-&mdash; [**Basara Tōjō**](https://myanimelist.net/character.php?q=Basara%20T%C5%8Dj%C5%8D&cat=character), [**Shinmai Maou no Testament**](https://myanimelist.net/search/all?q=Shinmai%20Maou%20no%20Testament&cat=all)
+&mdash; [**Hayashida Nana**](https://myanimelist.net/character.php?q=Hayashida%20Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
