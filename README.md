@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One guy's killed for killing another and then he's killed for killing him. How is that kind of twisted thinking ever gonna bring us peace?"
+> "The way of the sword lies in one's heart. As long as you have your heart, you can live even without the sword."
 
-&mdash; [**Cagalli Yula Athha**](https://myanimelist.net/character.php?q=Cagalli%20Yula%20Athha&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Mitsuyoshi Jubei Yagyu**](https://myanimelist.net/character.php?q=Mitsuyoshi%20Jubei%20Yagyu&cat=character), [**Jubei-Chan 2: The Counterattack of Siberia Yagyu**](https://myanimelist.net/search/all?q=Jubei-Chan%202%3A%20The%20Counterattack%20of%20Siberia%20Yagyu&cat=all)
