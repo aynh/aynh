@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's where all parallel lines meet. Where conflicting ideas are reconciled. It is... above the horizon."
+> "Humans can’t reverse the flow of time. If you try to twist it against its will… You’ll be punished."
 
-&mdash; [**Horizon Ariadust**](https://myanimelist.net/character.php?q=Horizon%20Ariadust&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
