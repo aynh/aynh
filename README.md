@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You play like you're jacking off. [about Ryuu playing piano]"
+> "My mom always says, strangers are just friends you haven't met yet."
 
-&mdash; [**Noda Megumi**](https://myanimelist.net/character.php?q=Noda%20Megumi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
+&mdash; [**Jaune Arc**](https://myanimelist.net/character.php?q=Jaune%20Arc&cat=character), [**RWBY**](https://myanimelist.net/search/all?q=RWBY&cat=all)
