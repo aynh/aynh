@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We probably are.  I can't explain it very well, but it seems that lately it doesn't matter, human or spirit.  If your hearts touch, it's the same thing.  When you're all alone, you get lonely, and the first step is always scary."
+> "You play like you're jacking off. [about Ryuu playing piano]"
 
-&mdash; [**Natsume Takeshi**](https://myanimelist.net/character.php?q=Natsume%20Takeshi&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Noda Megumi**](https://myanimelist.net/character.php?q=Noda%20Megumi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
