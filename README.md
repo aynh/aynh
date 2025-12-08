@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans can’t reverse the flow of time. If you try to twist it against its will… You’ll be punished."
+> "Forgiving someone and being forgiven, that’s what binds people together."
 
-&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Nagi Sanzenin**](https://myanimelist.net/character.php?q=Nagi%20Sanzenin&cat=character), [**Hayate no Gotoku!**](https://myanimelist.net/search/all?q=Hayate%20no%20Gotoku!&cat=all)
