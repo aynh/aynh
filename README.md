@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Some things can't be prevented. The last of which, is death. All we can do is live until the day we die. Control what we can... and fly free!"
+> "You are who you are. You have to do what you can."
 
-&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
