@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Defiance toward parents is an establishment of one's self; it's a sign of independence."
+> "No one actually knows what's best or what the future holds. Until you actually see the results, no one ever knows. So at the very least, why don't we rely on what we do know. Let's keep the feelings that we have right now precious. Even though it seems like our lives never change, they slowly do. And just like how we never notice... the changing of the seasons... the same goes for our hearts."
 
-&mdash; [**Hiroko Seto**](https://myanimelist.net/character.php?q=Hiroko%20Seto&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
