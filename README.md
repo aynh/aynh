@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only idiots start fights they can't win."
+> "Time brings an end to all things. Even if we plug our ears and cover our eyes."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Pharos**](https://myanimelist.net/character.php?q=Pharos&cat=character), [**Persona 3**](https://myanimelist.net/search/all?q=Persona%203&cat=all)
