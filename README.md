@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one actually knows what's best or what the future holds. Until you actually see the results, no one ever knows. So at the very least, why don't we rely on what we do know. Let's keep the feelings that we have right now precious. Even though it seems like our lives never change, they slowly do. And just like how we never notice... the changing of the seasons... the same goes for our hearts."
+> "It's difficult to change someone's emotions, no matter how they are, so long as they are deeply engraved in the heart. I suppose hatred would be the hardest. Many people will say that hatred fades over time, but that doesn't mean it ever really goes away. It's still there. It's just hiding where you can't see it, and given the slightest chance, it will reassert itself. Now then, given hatred's persistence, what should you do if you can't get rid of it? The only possibility is to overwrite it with an equally powerful emotion – with an emotion as strong as hatred… Yes, those would be love and trust."
 
-&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Fumito Nanahara**](https://myanimelist.net/character.php?q=Fumito%20Nanahara&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
