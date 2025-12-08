@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My mom always says, strangers are just friends you haven't met yet."
+> "Some things can't be prevented. The last of which, is death. All we can do is live until the day we die. Control what we can... and fly free!"
 
-&mdash; [**Jaune Arc**](https://myanimelist.net/character.php?q=Jaune%20Arc&cat=character), [**RWBY**](https://myanimelist.net/search/all?q=RWBY&cat=all)
+&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
