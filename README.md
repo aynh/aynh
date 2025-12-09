@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Despair… It hides away propagates, expands, and finally explodes."
+> "People's feelings sometimes go astray and lead to irreversible consequences."
 
-&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
