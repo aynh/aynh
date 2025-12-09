@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's dangerous here. If you stare at the stars long enough, you start thinking you could grab one, and you get this feeling like all your dreams will come true."
+> "I'm sure that things that are truly fun can't be compared. Back then, now, and from now on, in the time you spend with others, lots of small fun things are born and disappear. If you are able to capture each of them, you'll never run out of fun things. Forever and ever. And here's one point of advice. Thinking that now is fun is what makes it the most fun."
 
-&mdash; [**Shinichi Okazaki**](https://myanimelist.net/character.php?q=Shinichi%20Okazaki&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Alicia Florence**](https://myanimelist.net/character.php?q=Alicia%20Florence&cat=character), [**Aria the Animation**](https://myanimelist.net/search/all?q=Aria%20the%20Animation&cat=all)
