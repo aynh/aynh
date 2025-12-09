@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I thought I told you. If you see your allies losing, that's your chance. Don't step between them. Take the enemy down from behind. And if the enemy's so strong, you can't even do that, then just watch your allies get killed. That's what it means to be Special Forces."
+> "Humans who lose the capacity to think become creatures who's existence has no value. Think, you humans who are split into two worlds, unless you want the gulf between humans to expand into oblivion, you must think!"
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Michael Seebach**](https://myanimelist.net/character.php?q=Michael%20Seebach&cat=character), [**The Big O**](https://myanimelist.net/search/all?q=The%20Big%20O&cat=all)
