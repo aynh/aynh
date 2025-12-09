@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Someday... no matter how cold it is now... the snow will melt. Without fail."
+> "I thought I told you. If you see your allies losing, that's your chance. Don't step between them. Take the enemy down from behind. And if the enemy's so strong, you can't even do that, then just watch your allies get killed. That's what it means to be Special Forces."
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
