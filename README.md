@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That, I don't want to do. You may feel that I'm currently an abnormal Nagato Yuki. That judgement is correct. But I myself cannot accept that I am abnormal... because if I do, I'll become alone. I was scared, so I tried to hide it."
+> "The ones who do what they want and enjoy the most of their lives are the ones who win in the end."
 
-&mdash; [**Yuki Nagato**](https://myanimelist.net/character.php?q=Yuki%20Nagato&cat=character), [**The Disappearance of Nagato Yuki-chan**](https://myanimelist.net/search/all?q=The%20Disappearance%20of%20Nagato%20Yuki-chan&cat=all)
+&mdash; [**Charlie Staz**](https://myanimelist.net/character.php?q=Charlie%20Staz&cat=character), [**Blood Lad**](https://myanimelist.net/search/all?q=Blood%20Lad&cat=all)
