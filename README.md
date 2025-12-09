@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is an emotional thing. I will say nothing in praise of it... It is antagonistic to clear reasoning. It's the same in tennis. Love is 0. No matter how many zeroes you add together, you'll just lose miserably."
+> "Mayama, if you can't be with her on every festival, then you have no right to say anything."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Takumi Nomiya**](https://myanimelist.net/character.php?q=Takumi%20Nomiya&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
