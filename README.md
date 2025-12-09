@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to believe that memories, even sad and painful ones, should not be forgotten forever."
+> "I find no fault with you when it comes to standing against your enemy with courage. However, every few have the strength to sheath their sword once it's out."
 
-&mdash; [**Sohma Momiji**](https://myanimelist.net/character.php?q=Sohma%20Momiji&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Gildarts Clive**](https://myanimelist.net/character.php?q=Gildarts%20Clive&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
