@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you let anger and revenge consume you... You'll find yourself unable to behold the beautiful sights right before your eyes."
+> "[in reply to Shunsui Kyōraku] It's true, I know nothing about her (Rukia). It might not be quite enough for me to risk my own life over. But...Ichigo wants to save her. That reason is enough for me."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
