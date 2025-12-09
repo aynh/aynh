@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[About Naruto] Well that's typical. Not happy unless he's giving people a heart attack."
+> "I don't need someone as unreliable as you for a partner! (To Tohru)"
 
-&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
