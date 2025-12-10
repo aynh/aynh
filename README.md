@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*points at Black Star* What is that? Some kind of monkey? Yeah...it must be a monkey."
+> "[To Rukia as she is taken to Sokyoku Hill] Bye Bye, Rukia chan! See 'ya at the execution grounds."
 
-&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
