@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The spell always breaks in the end. Girls will always transform back into their original shabby form. After that, you only have your own strength to rely on to accomplish anything."
+> "Sometimes, I wonder why people fall in love. Why do we abandon ourselves... to these painful and burdensome feelings?"
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Nejima Yukari**](https://myanimelist.net/character.php?q=Nejima%20Yukari&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
