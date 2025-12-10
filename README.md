@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If a technological feat is possible, man will do it. Almost as if it’s wired into the core of our being."
+> "If I'm going to disappear no matter what, I at least want to leave them having fun and smiling."
 
-&mdash; [**Motoko Kusanagi**](https://myanimelist.net/character.php?q=Motoko%20Kusanagi&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Yoake Ryou**](https://myanimelist.net/character.php?q=Yoake%20Ryou&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
