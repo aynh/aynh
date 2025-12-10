@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Adoration never leads to a balanced relationship."
+> "*points at Black Star* What is that? Some kind of monkey? Yeah...it must be a monkey."
 
-&mdash; [**Ami Kawashima**](https://myanimelist.net/character.php?q=Ami%20Kawashima&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
