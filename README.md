@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who win are not strong. It is those who lose and crawl back up who are strong."
+> "Making his presence felt on his favorite piece of work - this is an oppurtunity no otaku would miss."
 
-&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
