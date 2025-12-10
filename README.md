@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hurry up! You can make it! Oh, run to her and hug her tight!"
+> "You can't carry me AND dodge at the same time, Tetsuzaemon!"
 
-&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
