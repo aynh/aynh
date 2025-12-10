@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If someone here were hurt or lost their life because of me, I think I would also be in pain much like Loke. But, it’ll be all right. If everyone works together and unites in power, we can overcome any pinch ahead, right?"
+> "Hurry up! You can make it! Oh, run to her and hug her tight!"
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
