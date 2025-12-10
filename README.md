@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think it's good if someone smiles when you smile at them. The beauty of voluntary acts can foster goodwill in the hearts of others. Love which doesn't ask for collateral gives us respect as people. However it's wrong to sustain that. In time, the strain will bloom into the flower called Lie...the thorny flower which hurts people."
+> "Those who win are not strong. It is those who lose and crawl back up who are strong."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
