@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The ones who do what they want and enjoy the most of their lives are the ones who win in the end."
+> "It's my turn to use you."
 
-&mdash; [**Charlie Staz**](https://myanimelist.net/character.php?q=Charlie%20Staz&cat=character), [**Blood Lad**](https://myanimelist.net/search/all?q=Blood%20Lad&cat=all)
+&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
