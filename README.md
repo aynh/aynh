@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It smells girly. I don't think I like it."
+> "The spell always breaks in the end. Girls will always transform back into their original shabby form. After that, you only have your own strength to rely on to accomplish anything."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
