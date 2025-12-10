@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I'm going to disappear no matter what, I at least want to leave them having fun and smiling."
+> "Sorry I'm late. You wouldn't believe the traffic."
 
-&mdash; [**Yoake Ryou**](https://myanimelist.net/character.php?q=Yoake%20Ryou&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
