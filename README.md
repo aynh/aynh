@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Making his presence felt on his favorite piece of work - this is an oppurtunity no otaku would miss."
+> "Adoration never leads to a balanced relationship."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Ami Kawashima**](https://myanimelist.net/character.php?q=Ami%20Kawashima&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
