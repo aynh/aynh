@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is something my master used to say. 'Kids who are too obedient and never think of themselves are the hardest to watch.'"
+> "If someone here were hurt or lost their life because of me, I think I would also be in pain much like Loke. But, it’ll be all right. If everyone works together and unites in power, we can overcome any pinch ahead, right?"
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
