@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you lose something, you gotta find something to take its place. I guess it's just time... for me to move forward for once."
+> "Keeheehe. I like him. I'm going to make him my cat."
 
-&mdash; [**Kato Kenichi**](https://myanimelist.net/character.php?q=Kato%20Kenichi&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Gajeel Redfox**](https://myanimelist.net/character.php?q=Gajeel%20Redfox&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
