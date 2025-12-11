@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pain isn't something you have to feel, it's something you have to express."
+> "I knew it. The Earth Forces' new mobile weapons. Father, I knew you'd betray us all!"
 
-&mdash; [**Mikiya Kokutō**](https://myanimelist.net/character.php?q=Mikiya%20Kokut%C5%8D&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Cagalli Yula Athha**](https://myanimelist.net/character.php?q=Cagalli%20Yula%20Athha&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
