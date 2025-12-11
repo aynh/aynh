@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I knew it. The Earth Forces' new mobile weapons. Father, I knew you'd betray us all!"
+> "When you lose something, you gotta find something to take its place. I guess it's just time... for me to move forward for once."
 
-&mdash; [**Cagalli Yula Athha**](https://myanimelist.net/character.php?q=Cagalli%20Yula%20Athha&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Kato Kenichi**](https://myanimelist.net/character.php?q=Kato%20Kenichi&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
