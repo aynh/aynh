@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The time known as 'LIFE', cannot be rewound."
+> "Pray not for the future. Rely not on the future or the past. Just stay in the Now."
 
-&mdash; [**Ultear Milkovich**](https://myanimelist.net/character.php?q=Ultear%20Milkovich&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Miyamoto Musashi**](https://myanimelist.net/character.php?q=Miyamoto%20Musashi&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
