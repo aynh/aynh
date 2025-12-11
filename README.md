@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This eternally cursed power. This extremely disgusting existence! May this wretched body help me protect the things most important to me now! This is the only power that makes atonement for my sins possible! Ashes to Ashes, Dust to Dust, Earth to Earth! Amen!"
+> "Schools are facilities where human society secludes the troublesome children by age criteria."
 
-&mdash; [**Abel Nightroad**](https://myanimelist.net/character.php?q=Abel%20Nightroad&cat=character), [**Trinity Blood**](https://myanimelist.net/search/all?q=Trinity%20Blood&cat=all)
+&mdash; [**Hampnie Hambart**](https://myanimelist.net/character.php?q=Hampnie%20Hambart&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
