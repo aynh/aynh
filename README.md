@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pray not for the future. Rely not on the future or the past. Just stay in the Now."
+> "Children don't grow up looking at perfect parents. Rather, using their imperfect parents as anti-teachers, children nourish a spirit of independence."
 
-&mdash; [**Miyamoto Musashi**](https://myanimelist.net/character.php?q=Miyamoto%20Musashi&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
+&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
