@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are searching for a place where we can live our lives in peaceful days. No wars, no stealing; a place that isn’t run by fear; a place where people can live, and actually trust other human beings."
+> "Just live normally. You'll be better off if you can catch some fish. Dig up the caves so you can set sail whenever you need to. It wouldn't be easy. But you have an endless amount of time ahead of you."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
