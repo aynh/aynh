@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...And the unbreaking bonds will... The bonds will... Ah, what was it? Ah, well. There was a bunch of stuff about the unbreakable bonds that you'll have to deal with while your guts overflow! Show the results of your everyday training and guts! Show off that splendor and guts to those weaklings without it! To make this tournament the best memory ever! By overcoming all sorts obstacles through trial and hardship and getting up everytime we fall down! OVERCOME EVERYTHING WITH GUTS!!"
+> "The time known as 'LIFE', cannot be rewound."
 
-&mdash; [**Sogiita Gunha**](https://myanimelist.net/character.php?q=Sogiita%20Gunha&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Ultear Milkovich**](https://myanimelist.net/character.php?q=Ultear%20Milkovich&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
