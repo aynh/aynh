@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A world created through oppresing others with brute force has no meaning!"
+> "He appeared right in front of me, and he wasn't a demon... but what looked like a human. As if he'd been yanked from before into the present unchanged. I gazed at him and for a second... I forgot to kill him."
 
-&mdash; [**Yuzu Hiiragi**](https://myanimelist.net/character.php?q=Yuzu%20Hiiragi&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
