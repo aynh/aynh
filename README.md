@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world is the destiny of mankind controlled by some transcendental entity or law? Is it like the hand of god hovering from above? Perhaps men have no control even over their own will."
+> "Pain isn't something you have to feel, it's something you have to express."
 
-&mdash; [**Berserk**](https://myanimelist.net/character.php?q=Berserk&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Mikiya Kokutō**](https://myanimelist.net/character.php?q=Mikiya%20Kokut%C5%8D&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
