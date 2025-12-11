@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Kyo] Being away from everyone else may be lonely, but being away from you will be even lonelier."
+> "In this world, there is only good and evil, that was the first universal truths I grasped from observing the world around me when I was a child. Every human being without exception ends up falling into one category or the other."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Mikami Teru**](https://myanimelist.net/character.php?q=Mikami%20Teru&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
