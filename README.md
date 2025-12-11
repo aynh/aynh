@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I led me by the hand, as if to fill the niches in the memories in my oozing brain fluid. Without even a destination, we kept walking. Disgusting clouds were floating in the sky. I already know what will happen to me the next time I wake up."
+> "I was wrong, kindness is pointless."
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Shū Ouma**](https://myanimelist.net/character.php?q=Sh%C5%AB%20Ouma&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
