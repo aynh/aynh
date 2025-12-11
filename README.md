@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Schools are facilities where human society secludes the troublesome children by age criteria."
+> "Abuelo... That means grandpa."
 
-&mdash; [**Hampnie Hambart**](https://myanimelist.net/character.php?q=Hampnie%20Hambart&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
+&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
