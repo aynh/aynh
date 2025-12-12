@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Accept me for what I am today, don't reject me because of what I was yesterday."
+> "Water brings healing and life. But fire brings only destruction and pain. It forces those of us burdened with its care to walk a razor's edge between humanity and savagery. Eventually, we are torn apart."
 
-&mdash; [**Russia**](https://myanimelist.net/character.php?q=Russia&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Jeong Jeong**](https://myanimelist.net/character.php?q=Jeong%20Jeong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
