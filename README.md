@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I love you!! Even if you go bald or like underage girls, I can handle it! I'm crazy with love!! (Young Kyoko talking to Tohru's fatherher husband)"
+> "A flower can't choose the place where it blooms and a child can't choose the parents he's born to."
 
-&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
