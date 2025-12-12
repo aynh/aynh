@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You only understand the true value of things after you've lost them."
+> "Chakras, chakras, everybody loves chakras! Chakras, chakras! Chakra sandwich tastes good! Yum!"
 
-&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
+&mdash; [**Pathik**](https://myanimelist.net/character.php?q=Pathik&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
