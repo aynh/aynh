@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll be waiting for you to get your asses back here!"
+> "I, Okazaki Nagisa, will no longer cry. No matter what painful things I face, I’ll hang in there and overcome it. But, I might cry during moments of happiness. I hope that you can get along… with someone like me."
 
-&mdash; [**Sawako Yamanaka**](https://myanimelist.net/character.php?q=Sawako%20Yamanaka&cat=character), [**K-ON!**](https://myanimelist.net/search/all?q=K-ON!&cat=all)
+&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
