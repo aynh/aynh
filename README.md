@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't know much about you. You were the one who selfishly entered my world...yet you immediately plunged into silence. What were you thinking? Did you really pick on me just because it was fun? Which one is serious and which one of it is just a joke? That's enough now, making me all messed up like this."
+> "If you see a girl lookin' unhappy, be a man and help her."
 
-&mdash; [**Misaki Ayuzawa**](https://myanimelist.net/character.php?q=Misaki%20Ayuzawa&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Wave**](https://myanimelist.net/character.php?q=Wave&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
