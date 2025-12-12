@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Chakras, chakras, everybody loves chakras! Chakras, chakras! Chakra sandwich tastes good! Yum!"
+> "Accept me for what I am today, don't reject me because of what I was yesterday."
 
-&mdash; [**Pathik**](https://myanimelist.net/character.php?q=Pathik&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Russia**](https://myanimelist.net/character.php?q=Russia&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
