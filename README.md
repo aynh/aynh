@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let me tell you something about dying. It hurts like hell."
+> "I'll be waiting for you to get your asses back here!"
 
-&mdash; [**Heero Yuy**](https://myanimelist.net/character.php?q=Heero%20Yuy&cat=character), [**Mobile Suit Gundam Wing**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Wing&cat=all)
+&mdash; [**Sawako Yamanaka**](https://myanimelist.net/character.php?q=Sawako%20Yamanaka&cat=character), [**K-ON!**](https://myanimelist.net/search/all?q=K-ON!&cat=all)
