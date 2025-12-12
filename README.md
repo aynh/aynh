@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To ensure that all I've done won't end up a lie. I don't want to talk big game to people, then run away when it matters the most. This is a wall I must overcome on my own. If there's anything I want to change, I have to change myself. If I must become evil to defeat evil, I will become the devil himself. That's all to it."
+> "Quotes were invented in Korea, you know!"
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
+&mdash; [**South Korea**](https://myanimelist.net/character.php?q=South%20Korea&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
