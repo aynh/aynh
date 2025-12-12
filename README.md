@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I, Okazaki Nagisa, will no longer cry. No matter what painful things I face, I’ll hang in there and overcome it. But, I might cry during moments of happiness. I hope that you can get along… with someone like me."
+> "Childish ideals pale when placed before reality."
 
-&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Citan Uzuki**](https://myanimelist.net/character.php?q=Citan%20Uzuki&cat=character), [**Xenogears**](https://myanimelist.net/search/all?q=Xenogears&cat=all)
