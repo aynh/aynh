@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You want to kill me? You couldn't even kill my boredom!"
+> "Let me tell you something about dying. It hurts like hell."
 
-&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Heero Yuy**](https://myanimelist.net/character.php?q=Heero%20Yuy&cat=character), [**Mobile Suit Gundam Wing**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Wing&cat=all)
