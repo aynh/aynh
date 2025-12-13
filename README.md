@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The spell always breaks in the end. Girls will always transform back into their original shabby form. After that, you only have your own strength to rely on to accomplish anything."
+> "*yelling at Fai* You, shut up!! If you want to die that much, I'll kill you myself! But until that day, you're going to live!"
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Kurogane**](https://myanimelist.net/character.php?q=Kurogane&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
