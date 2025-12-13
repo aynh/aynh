@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The human heart will always sway. And only then do we know that it is truly a human heart."
+> "Those bound by superficial rules who do not use their pawns to the utmost are fools."
 
-&mdash; [**Sister Libelle**](https://myanimelist.net/character.php?q=Sister%20Libelle&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
