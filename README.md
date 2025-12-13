@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Could you stop skipping the thinking process when you respond?"
+> "His soul was as pure as snow."
 
-&mdash; [**Kagami Hiiragi**](https://myanimelist.net/character.php?q=Kagami%20Hiiragi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
+&mdash; [**Zabuza Momochi**](https://myanimelist.net/character.php?q=Zabuza%20Momochi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
