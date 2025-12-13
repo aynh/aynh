@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*chuckles* Looks like your little kitties failed. The taste of victory is very sweet!"
+> "If you let anger and revenge consume you... You'll find yourself unable to behold the beautiful sights right before your eyes."
 
-&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
