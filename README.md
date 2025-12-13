@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Clouds... come here. Drops... fall here. Drive out the flames... tell him... that despite all of this... the world is still beautiful."
+> "Because we can’t understand each other, it makes us want to make things clear even more."
 
-&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
