@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll give it a try. Anything that man can do, I'm sure I can do just as well."
+> "They all grow up, the youths that are going to live in this era. Go forward, youths. Like a wind on a field. Your burning blood, sweat, and tears... are as beautiful as a parasol. Show no fear, youths."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
