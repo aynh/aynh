@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only I can help myself, and in the future, I can make up for all my misfortunes and change the world into a place where there's no irrational discrimination and that's why there's no way in hell that I can die here!"
+> "So you're trying to accept everyone and their feelings, aren't you? I think you already know this, but if you keep trying to do this 'accepting' thing with everyone, you're liable to be torn to bits."
 
-&mdash; [**Mine**](https://myanimelist.net/character.php?q=Mine&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Rachnera Arachnera**](https://myanimelist.net/character.php?q=Rachnera%20Arachnera&cat=character), [**Monster Musume no Iru Nichijou**](https://myanimelist.net/search/all?q=Monster%20Musume%20no%20Iru%20Nichijou&cat=all)
