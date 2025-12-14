@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Come down here and face me, you third-rate fraud. I'll show you there's no comparison between us!"
+> "I will hunt down Kikyou's killer and avenge her death"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
