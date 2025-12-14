@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to change, don't wait for someone else to make it happen. Do it yourself."
+> "I can always tell when you’re lying. I also know that you cannot tell me why you do so. So there is no need to convince me, or wrap everything in lies, or try to take the blame on yourself like that. Because I have complete faith in you, Subaru-kun."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Rem (re:zero)**](https://myanimelist.net/character.php?q=Rem%20(re%3Azero)&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
