@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is based on unpredictable events."
+> "I wonder... isn't it that when you become an adult, you have freedom to explore such a large world. I wonder why is it I feel that the world is so constricted at this moment."
 
-&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Yoh Miyagi**](https://myanimelist.net/character.php?q=Yoh%20Miyagi&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
