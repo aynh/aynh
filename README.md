@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't care if you're the son of the president or what. That just shows the success of your father. It doesn't mean you are excellent too."
+> "If it's a fight between a man and man, choose the path you believe is right. Only a fool would stand indecisive after being frightened at the thought of being soiled by the mud."
 
-&mdash; [**Mikoto Kujou**](https://myanimelist.net/character.php?q=Mikoto%20Kujou&cat=character), [**Last Game**](https://myanimelist.net/search/all?q=Last%20Game&cat=all)
+&mdash; [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/character.php?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
