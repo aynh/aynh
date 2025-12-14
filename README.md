@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it's a fight between a man and man, choose the path you believe is right. Only a fool would stand indecisive after being frightened at the thought of being soiled by the mud."
+> "I've been trying so hard... Even though you rejected me, I've been trying my best. But if I go on liking you like this then nothing will change."
 
-&mdash; [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/character.php?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
