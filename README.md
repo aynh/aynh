@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is more than one way to win a game. You can win without fighting!"
+> "[during Tosen, Gin Ichimaru and Sosuke Aizen's escape from Soul Society] Get down here, Tosen! Why did you become a Shingami? Was it not for your deceased friend? Was it not to carry out justice!? Where is your justice now!?"
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
