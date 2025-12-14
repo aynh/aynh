@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, guilds are organizations where wizards gather to share information and find work. You can't be considered a full-fledged wizard unless you're in a guild."
+> "No matter what my heart will be forever yours and I will fight until the day I see you again."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
