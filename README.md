@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[during Tosen, Gin Ichimaru and Sosuke Aizen's escape from Soul Society] Get down here, Tosen! Why did you become a Shingami? Was it not for your deceased friend? Was it not to carry out justice!? Where is your justice now!?"
+> "If you want to change, don't wait for someone else to make it happen. Do it yourself."
 
-&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
