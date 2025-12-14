@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've been trying so hard... Even though you rejected me, I've been trying my best. But if I go on liking you like this then nothing will change."
+> "They've been exposed to the outside world, up close and personal. They've had that fear planted in them. And they've endured it. Overcome it. Each has grown from that experience... and forgotten how to hesitate."
 
-&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
+&mdash; [**Eraserhead**](https://myanimelist.net/character.php?q=Eraserhead&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
