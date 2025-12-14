@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what my heart will be forever yours and I will fight until the day I see you again."
+> "I don't care if you're the son of the president or what. That just shows the success of your father. It doesn't mean you are excellent too."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Mikoto Kujou**](https://myanimelist.net/character.php?q=Mikoto%20Kujou&cat=character), [**Last Game**](https://myanimelist.net/search/all?q=Last%20Game&cat=all)
