@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now, you’ve only got two different options to choose from: Prove that everything I just said was bullshit, or admit your guilt."
+> "Love is based on unpredictable events."
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
