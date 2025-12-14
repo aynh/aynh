@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This world that we live in is gentle yet sad, fun yet sorrowful, strong yet ephemeral... ...but as long as you're alive, something good is bound to happen. I'm sure of it."
+> "Family is the society that you came into contact with first; The people who influence you first. But if that first society banishes you, there will be another society that accepts you."
 
-&mdash; [**Subarashii Sekai**](https://myanimelist.net/character.php?q=Subarashii%20Sekai&cat=character), [**Subarashii Sekai**](https://myanimelist.net/search/all?q=Subarashii%20Sekai&cat=all)
+&mdash; [**Reisi Munakata**](https://myanimelist.net/character.php?q=Reisi%20Munakata&cat=character), [**Project K: Days Of Blue**](https://myanimelist.net/search/all?q=Project%20K%3A%20Days%20Of%20Blue&cat=all)
