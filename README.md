@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even though I don’t mind being alone, I don’t want others to think I’m lonely."
+> "The heroes during times of war, are nothing but mass murderers during times of peace."
 
-&mdash; [**Ritsu Kawai**](https://myanimelist.net/character.php?q=Ritsu%20Kawai&cat=character), [**Bokura wa Minna Kawaisou**](https://myanimelist.net/search/all?q=Bokura%20wa%20Minna%20Kawaisou&cat=all)
+&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
