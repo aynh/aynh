@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sure, it might be warm and comfortable in there... not only safe and sound, but I get all the meals too! But I'd rather be out than be trapped inside this bird cage of yours."
+> "You have to do the things you don't want to do, before you can do the things you truly want to do."
 
-&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Tsutomu Komano**](https://myanimelist.net/character.php?q=Tsutomu%20Komano&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
