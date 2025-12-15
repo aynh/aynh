@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The heroes during times of war, are nothing but mass murderers during times of peace."
+> "What do you think are the most important things in life? Money, dreams, sympathy towards others... Yes, they're all important things as well... But the most important thing is responsibility for your own actions."
 
-&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Yuichi Onodera**](https://myanimelist.net/character.php?q=Yuichi%20Onodera&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
