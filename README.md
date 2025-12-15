@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Remember that a sword held by someone who is about to die… will never be able to protect anything."
+> "Trying to pilot that mobile suit? You're in way over your head, Natural!"
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Miguel Aiman**](https://myanimelist.net/character.php?q=Miguel%20Aiman&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
