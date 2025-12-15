@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You stole this world and it's people. You're a king of thieves, alone upon a stolen throne!"
+> "Those who don't fulfill their obligation to others 'ave no right to ask 'em for such privilege..."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Mr. Blouse**](https://myanimelist.net/character.php?q=Mr.%20Blouse&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
