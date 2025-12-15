@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Miracles are illusions caused by insufficient observation and understanding. They're just... glorious misunderstandings."
+> "That's right! Whatever the tragedy or the blunder is, only the things that actually happened are written in stone!"
 
-&mdash; [**Tanya Degurechaff**](https://myanimelist.net/character.php?q=Tanya%20Degurechaff&cat=character), [**Youjo Senki**](https://myanimelist.net/search/all?q=Youjo%20Senki&cat=all)
+&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
