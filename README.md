@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not like something is going to happen because I believe in it.  Sometimes you end up worse off because you believed in something too much. There are times it's tough to believe in something."
+> "Sure, it might be warm and comfortable in there... not only safe and sound, but I get all the meals too! But I'd rather be out than be trapped inside this bird cage of yours."
 
-&mdash; [**Eureka**](https://myanimelist.net/character.php?q=Eureka&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
