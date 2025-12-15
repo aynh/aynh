@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have to do the things you don't want to do, before you can do the things you truly want to do."
+> "We all live under the same sky. If each of us learns to shine, it won't matter how far apart we are. We'll be able to see each other."
 
-&mdash; [**Tsutomu Komano**](https://myanimelist.net/character.php?q=Tsutomu%20Komano&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
