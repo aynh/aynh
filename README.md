@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We all live under the same sky. If each of us learns to shine, it won't matter how far apart we are. We'll be able to see each other."
+> "Even though I don’t mind being alone, I don’t want others to think I’m lonely."
 
-&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Ritsu Kawai**](https://myanimelist.net/character.php?q=Ritsu%20Kawai&cat=character), [**Bokura wa Minna Kawaisou**](https://myanimelist.net/search/all?q=Bokura%20wa%20Minna%20Kawaisou&cat=all)
