@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I do want to be useful for something and to be of help to people, but I want to decide what that 'something' is by myself."
+> "Every girl is born a princess, some of them just forget is all."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Kuranosuke Koibuchi**](https://myanimelist.net/character.php?q=Kuranosuke%20Koibuchi&cat=character), [**Kuragehime**](https://myanimelist.net/search/all?q=Kuragehime&cat=all)
