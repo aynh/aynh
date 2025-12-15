@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every girl is born a princess, some of them just forget is all."
+> "You stole this world and it's people. You're a king of thieves, alone upon a stolen throne!"
 
-&mdash; [**Kuranosuke Koibuchi**](https://myanimelist.net/character.php?q=Kuranosuke%20Koibuchi&cat=character), [**Kuragehime**](https://myanimelist.net/search/all?q=Kuragehime&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
