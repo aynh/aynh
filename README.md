@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Isn't it funny how the most unforgettable scenes can be so trivial ?"
+> "Don't worry about being so considerate of adults. You can only be a kid for so long, so you might as well enjoy it."
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Charles Beams**](https://myanimelist.net/character.php?q=Charles%20Beams&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
