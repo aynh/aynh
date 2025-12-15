@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All truth is meaningless. In the end, 'meaning' comes from the mind of each individual human. Even when there is a single truth, it can mean different things to different individuals. The truth has no meaning in itself!"
+> "I do want to be useful for something and to be of help to people, but I want to decide what that 'something' is by myself."
 
-&mdash; [**Furudo Erika**](https://myanimelist.net/character.php?q=Furudo%20Erika&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
