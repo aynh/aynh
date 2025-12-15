@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't worry about being so considerate of adults. You can only be a kid for so long, so you might as well enjoy it."
+> "Remember that a sword held by someone who is about to die… will never be able to protect anything."
 
-&mdash; [**Charles Beams**](https://myanimelist.net/character.php?q=Charles%20Beams&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
