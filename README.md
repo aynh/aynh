@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Huh? In a real war, what fool waits for their enemy's 'turn'?"
+> "No matter how much everyone loves me, and no matter how much I love everyone - if I don't like it, I just can't do it."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Shana**](https://myanimelist.net/character.php?q=Shana&cat=character), [**Shakugan no Shana**](https://myanimelist.net/search/all?q=Shakugan%20no%20Shana&cat=all)
