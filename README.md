@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Coming together and working hard with everyone is a really fun thing!"
+> "Sharing your secret with someone means you involve them in your problems. It may make things easier for you, but your family could end up suffering for it too."
 
-&mdash; [**Masaru Ōfuna**](https://myanimelist.net/character.php?q=Masaru%20%C5%8Cfuna&cat=character), [**Hanayamata**](https://myanimelist.net/search/all?q=Hanayamata&cat=all)
+&mdash; [**Mayoi Hachikuji**](https://myanimelist.net/character.php?q=Mayoi%20Hachikuji&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
