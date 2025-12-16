@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They are two types of people. Those who let go and those who are let go. How many times have I watched people leave up until now? I may have been able to reach them if I'd reached out, but I was afraid of being pushed away, so I simply watched them disappear into the distance."
+> "[after Princess Yue unexpectedly kisses him] Okay, now I'm really confused. Happy, but confused."
 
-&mdash; [**Matsuoka Masamune**](https://myanimelist.net/character.php?q=Matsuoka%20Masamune&cat=character), [**Aoharu x Kikanjuu**](https://myanimelist.net/search/all?q=Aoharu%20x%20Kikanjuu&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
