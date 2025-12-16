@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*after Misa-chan says that she can't imagine a world without Light* Hmmm... Yes, it would be dark!"
+> "Don't you think that true memories are a combination of fun ones and painful ones?"
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
