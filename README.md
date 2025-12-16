@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The cold tears of a vampire, whose body is without warmth..."
+> "One guy's killed for killing another and then he's killed for killing him. How is that kind of twisted thinking ever gonna bring us peace?"
 
-&mdash; [**Yuuki Natsuno**](https://myanimelist.net/character.php?q=Yuuki%20Natsuno&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Cagalli Yula Athha**](https://myanimelist.net/character.php?q=Cagalli%20Yula%20Athha&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
