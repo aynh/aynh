@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's right! Whatever the tragedy or the blunder is, only the things that actually happened are written in stone!"
+> "Coming together and working hard with everyone is a really fun thing!"
 
-&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Masaru Ōfuna**](https://myanimelist.net/character.php?q=Masaru%20%C5%8Cfuna&cat=character), [**Hanayamata**](https://myanimelist.net/search/all?q=Hanayamata&cat=all)
