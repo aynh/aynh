@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't you think that true memories are a combination of fun ones and painful ones?"
+> "Huh? In a real war, what fool waits for their enemy's 'turn'?"
 
-&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
