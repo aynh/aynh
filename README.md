@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wanted to be a cat. I was jealous of them. They're liked by everyone... Even though they don't do anything at all. I just wanted everyone to like me."
+> "They are two types of people. Those who let go and those who are let go. How many times have I watched people leave up until now? I may have been able to reach them if I'd reached out, but I was afraid of being pushed away, so I simply watched them disappear into the distance."
 
-&mdash; [**Shiro**](https://myanimelist.net/character.php?q=Shiro&cat=character), [**Neko no Machi no Ko**](https://myanimelist.net/search/all?q=Neko%20no%20Machi%20no%20Ko&cat=all)
+&mdash; [**Matsuoka Masamune**](https://myanimelist.net/character.php?q=Matsuoka%20Masamune&cat=character), [**Aoharu x Kikanjuu**](https://myanimelist.net/search/all?q=Aoharu%20x%20Kikanjuu&cat=all)
