@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sharing your secret with someone means you involve them in your problems. It may make things easier for you, but your family could end up suffering for it too."
+> "I wanted to be a cat. I was jealous of them. They're liked by everyone... Even though they don't do anything at all. I just wanted everyone to like me."
 
-&mdash; [**Mayoi Hachikuji**](https://myanimelist.net/character.php?q=Mayoi%20Hachikuji&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Shiro**](https://myanimelist.net/character.php?q=Shiro&cat=character), [**Neko no Machi no Ko**](https://myanimelist.net/search/all?q=Neko%20no%20Machi%20no%20Ko&cat=all)
