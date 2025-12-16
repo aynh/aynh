@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Crying when you need to cry is another way to show strength."
+> "*after Misa-chan says that she can't imagine a world without Light* Hmmm... Yes, it would be dark!"
 
-&mdash; [**Fay D. Flourite**](https://myanimelist.net/character.php?q=Fay%20D.%20Flourite&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
