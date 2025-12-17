@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "“Miracles don't exist in this world. All that exists are accidents, inevitabilities and the actions that one takes.” That’s Himura’s favorite phrase, isn’t it? But sometimes the outcome of your actions, which becomes inevitable, will overlap with accidents, and fulfill your dream unexpectedly. I don’t know if that can be called a miracle, but there’s one thing I’m certain about. Nothing will happen if you don’t wish for it."
+> "Even if the questions change, it makes no difference to me."
 
-&mdash; [**ef: a tale of memories**](https://myanimelist.net/character.php?q=ef%3A%20a%20tale%20of%20memories&cat=character), [**ef: a tale of memories**](https://myanimelist.net/search/all?q=ef%3A%20a%20tale%20of%20memories&cat=all)
+&mdash; [**Karma Akabane**](https://myanimelist.net/character.php?q=Karma%20Akabane&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
