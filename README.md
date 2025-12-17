@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Young ones! Do you want to hear the legend of me? Do you want to hear a heroic tale?"
+> "Life eventually ends. But that doesn't mean that the fact that we met, or the time we spent together will disappear."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Mei**](https://myanimelist.net/character.php?q=Mei&cat=character), [**Arashi no Yoru ni**](https://myanimelist.net/search/all?q=Arashi%20no%20Yoru%20ni&cat=all)
