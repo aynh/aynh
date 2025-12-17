@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are taught never to shed tears. For to shed tears means that the body has been defeated by emotion. And to us, this simple act of crying proves, without question, that the existence of emotion is nothing but a burden."
+> "I'm not asking you to love me. No, actually, please don't love me. But please let me be in love with you."
 
-&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Fuyou Kaede**](https://myanimelist.net/character.php?q=Fuyou%20Kaede&cat=character), [**Shuffle!**](https://myanimelist.net/search/all?q=Shuffle!&cat=all)
