@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In my memory, I link fragments of the past when we were together, to create a clear image of him in my mind. But I no longer know if that image is really him. The moment I see in my mind, may have never existed."
+> "I wonder if the flowers themselves are happy, being forced to last so long. Eternity doesn't exist in this world, does it? It's just that one could think that a heart that longs for eternity is beautiful."
 
-&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Mamiya Chida**](https://myanimelist.net/character.php?q=Mamiya%20Chida&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
