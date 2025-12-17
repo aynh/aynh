@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now I feel that maybe knowing who I actually am is the key to reach perfection. Because that means knowing what I can and cannot do."
+> "Why torment yourself saying, 'Eventually, someday?' How long have you been fighting with your thoughts clouded by that brand of sweet poison?"
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
