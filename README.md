@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it's fear that you speak of, then I'll stand and face it. I'll never give up. The only time I lose is when I die!"
+> "“Miracles don't exist in this world. All that exists are accidents, inevitabilities and the actions that one takes.” That’s Himura’s favorite phrase, isn’t it? But sometimes the outcome of your actions, which becomes inevitable, will overlap with accidents, and fulfill your dream unexpectedly. I don’t know if that can be called a miracle, but there’s one thing I’m certain about. Nothing will happen if you don’t wish for it."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**ef: a tale of memories**](https://myanimelist.net/character.php?q=ef%3A%20a%20tale%20of%20memories&cat=character), [**ef: a tale of memories**](https://myanimelist.net/search/all?q=ef%3A%20a%20tale%20of%20memories&cat=all)
