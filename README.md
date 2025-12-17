@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not asking you to love me. No, actually, please don't love me. But please let me be in love with you."
+> "You'll have some painful, despair-ridden experiences. In fact, most of them will be tragic. But we chose to walk this path. We'll take on the dirty work. And change the world. After we finish, we can disappear."
 
-&mdash; [**Fuyou Kaede**](https://myanimelist.net/character.php?q=Fuyou%20Kaede&cat=character), [**Shuffle!**](https://myanimelist.net/search/all?q=Shuffle!&cat=all)
+&mdash; [**Bulat**](https://myanimelist.net/character.php?q=Bulat&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
