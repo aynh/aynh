@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Country of birth, time period, parents, location... various factors make people's lives unequal from the very beginning."
+> "Snowdrop. I also don't know what I'm looking for. What does the future hold? Will I be able to not forget what I have found?"
 
-&mdash; [**Death Parade**](https://myanimelist.net/character.php?q=Death%20Parade&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
