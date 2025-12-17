@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life eventually ends. But that doesn't mean that the fact that we met, or the time we spent together will disappear."
+> "We are searching for a place where we can live our lives in peaceful days. No wars, no stealing; a place that isn’t run by fear; a place where people can live, and actually trust other human beings."
 
-&mdash; [**Mei**](https://myanimelist.net/character.php?q=Mei&cat=character), [**Arashi no Yoru ni**](https://myanimelist.net/search/all?q=Arashi%20no%20Yoru%20ni&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
