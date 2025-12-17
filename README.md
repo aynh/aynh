@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if the questions change, it makes no difference to me."
+> "Everyone loses sight of themselves sometimes. Don't worry about it."
 
-&mdash; [**Karma Akabane**](https://myanimelist.net/character.php?q=Karma%20Akabane&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Ichinose Hayato**](https://myanimelist.net/character.php?q=Ichinose%20Hayato&cat=character), [**Uta No Prince Sama**](https://myanimelist.net/search/all?q=Uta%20No%20Prince%20Sama&cat=all)
