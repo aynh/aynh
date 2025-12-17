@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are searching for a place where we can live our lives in peaceful days. No wars, no stealing; a place that isn’t run by fear; a place where people can live, and actually trust other human beings."
+> "If it's fear that you speak of, then I'll stand and face it. I'll never give up. The only time I lose is when I die!"
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
