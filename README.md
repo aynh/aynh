@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why torment yourself saying, 'Eventually, someday?' How long have you been fighting with your thoughts clouded by that brand of sweet poison?"
+> "I have so many things I want to say, so many things I want to ask you, but... When I see your face... None of that matters anymore!"
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Esdeath**](https://myanimelist.net/character.php?q=Esdeath&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
