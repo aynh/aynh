@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you said that we were scary, that means deep down, you had started to care about us! The thought of losing someone again… That’s the scary part, right?"
+> "However happy or sad something is, you’ll soon forget it if you don’t get a chance to recall it. What people don’t realize is that they’ve forgotten about forgetting. If everyone really preserved the happiest memory from their past perfectly, they’d only be sadder living in their relatively hollow present. And if everyone preserved the worst memory from their past perfectly, well, they’d still be sad. Everyone just remembers what it’s inconvenient not to remember."
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Kusonoki**](https://myanimelist.net/character.php?q=Kusonoki&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
