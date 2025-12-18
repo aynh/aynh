@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wasn't always fighting for love and justice. I was fighting for my friends and loved ones."
+> "The president did say please."
 
-&mdash; [**Usagi Tsukino**](https://myanimelist.net/character.php?q=Usagi%20Tsukino&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
