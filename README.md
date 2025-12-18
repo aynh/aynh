@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People bring the small flames of their wishes together... since they don't want to extinguish the small flame... they'll bring that small flame to a bigger fire. A big flame named Griffith. But you know... I didn't bring a flame with me. I think I just stopped by to warm myself by the bonfire."
+> "Modern-day saints carry assault rifles, and spread the word of God with their bullets."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
