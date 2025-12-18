@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mages of Fairy Tail... specialize in property damage!"
+> "When you said that we were scary, that means deep down, you had started to care about us! The thought of losing someone again… That’s the scary part, right?"
 
-&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
