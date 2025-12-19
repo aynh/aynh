@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, we have to look beyond what we want and do what's best."
+> "Kindness alone can't save people. It can't erase sin or wash away the impurities."
 
-&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Marida Cruz**](https://myanimelist.net/character.php?q=Marida%20Cruz&cat=character), [**Mobile Suit Gundam UC**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20UC&cat=all)
