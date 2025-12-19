@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans shouldn't just disregard something they cannot comprehend while also trying to define it."
+> "Humans who would dare to play God must pay a steep price for their arrogance, that is Truth."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Father**](https://myanimelist.net/character.php?q=Father&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
