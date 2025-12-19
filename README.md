@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not fighting because I want to win. I'm fighting because I have to win."
+> "Sometimes, we have to look beyond what we want and do what's best."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
