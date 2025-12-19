@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My mom told me, it's better to trust people than to doubt them. She said that people aren't born with kind hearts. When we're born, all we have are desires for food and material things. Selfish instincts, I guess. But she said that kindness is something that grows inside of each person's body, but it's up to us to nurture that kindness in our hearts. That's why kindness is different for every person."
+> "Rock, if you think about it, other than this, what do we really value in life? God? Love? Don't make me laugh. When I was a brat, crawling around in that shithole city, it seemed God and Love were always sold out when I went looking. Before I knew better, I clung to God and prayed to Him every single night — yeah, I believed in God right up until that night the cops beat the hell out of me for no reason at all. All they saw when they looked at me was another little ghetto rat. With no power and no God, what's left for a poor little Chinese bitch to rely on? It's money, of course, and guns. Fuckin' A. With these two things, the world's a great place."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
