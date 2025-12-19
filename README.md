@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kindness alone can't save people. It can't erase sin or wash away the impurities."
+> "Nothing can suppress a human's curiosity."
 
-&mdash; [**Marida Cruz**](https://myanimelist.net/character.php?q=Marida%20Cruz&cat=character), [**Mobile Suit Gundam UC**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20UC&cat=all)
+&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
