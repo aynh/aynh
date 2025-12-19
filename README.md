@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Things like heroes are unnecessary. Can't you save someone if you're standing right there, at that very spot? In front of your eyes are people that don't wish to cry that are crying! In front of your eyes are people that can only clench their teeth while struggling and can't even say the words 'please save me'! Is that not enough?"
+> "Just your touch... gets me excited. It makes me so happy. But those feelings will all turn into pain. The happier I am now, the more it'll hurt. I know how cruel this is... but no matter how hard I try, I can't rid myself of this. Nejima-kun... I... don't know... what love is."
 
-&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Takasaki Misaki**](https://myanimelist.net/character.php?q=Takasaki%20Misaki&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
