@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You let them take it from right under your nose."
+> "And now it's time for formal introductions. Eliza, my darling, meet Yoh Asakura. Yoh Asakura, meet your doom!"
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
