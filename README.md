@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We all live under the same sky. If each of us learns to shine, it won't matter how far apart we are. We'll be able to see each other."
+> "Humans shouldn't just disregard something they cannot comprehend while also trying to define it."
 
-&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
