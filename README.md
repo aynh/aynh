@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I did say that you could ask, but I didn't say that I would answer."
+> "I'm not fighting because I want to win. I'm fighting because I have to win."
 
-&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
