@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans who would dare to play God must pay a steep price for their arrogance, that is Truth."
+> "Growl, Haineko!"
 
-&mdash; [**Father**](https://myanimelist.net/character.php?q=Father&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
