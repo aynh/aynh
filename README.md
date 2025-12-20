@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*mockingly* That's amazing, Mikuru! We're counting on you! The Earth is in your-- *breaks into uncontrollable and hysterical laughter*"
+> "We've got no light of hope in our future! Nothing is going to happen! Our lives will be as dull as rocks! Maybe it's a life of boring happiness! But I don't want to be an adult who pretends to be satisfied with it!"
 
-&mdash; [**Tsuruya**](https://myanimelist.net/character.php?q=Tsuruya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
