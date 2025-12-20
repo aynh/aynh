@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What I desire is a heart... A heart that understands emotions."
+> "You may have grown too strong. Drunk on your own power, you forgot to put yourself in the shoes of someone weaker than you. That makes you no different than the student in the main campus."
 
-&mdash; [**Gowther**](https://myanimelist.net/character.php?q=Gowther&cat=character), [**Nanatsu no Taizai**](https://myanimelist.net/search/all?q=Nanatsu%20no%20Taizai&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
