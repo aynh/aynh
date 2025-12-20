@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look at my soldiers and their mean faces! I taught them that face!"
+> "[to Katara] You rise with the moon. I rise with the sun."
 
-&mdash; [**Prussia**](https://myanimelist.net/character.php?q=Prussia&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
