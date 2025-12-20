@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the ideal world can be found in a bad game, it can be found in the real world as well."
+> "How is this possible? I must be the first person in history who was flushed down the toilet!"
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Yuri Shibuya**](https://myanimelist.net/character.php?q=Yuri%20Shibuya&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
