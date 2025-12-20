@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have no effect on me because you are flat chested!"
+> "A wounded heart needs time to heal."
 
-&mdash; [**Laharl**](https://myanimelist.net/character.php?q=Laharl&cat=character), [**Disgaea**](https://myanimelist.net/search/all?q=Disgaea&cat=all)
+&mdash; [**Hibiki Kuze**](https://myanimelist.net/character.php?q=Hibiki%20Kuze&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
