@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Put a steel mask on your face and armor on your heart."
+> "Look at my soldiers and their mean faces! I taught them that face!"
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Prussia**](https://myanimelist.net/character.php?q=Prussia&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
