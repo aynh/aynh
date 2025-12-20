@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How is this possible? I must be the first person in history who was flushed down the toilet!"
+> "It is not justice that can oppose evil. It is an absolute evil that overpowers evil itself."
 
-&mdash; [**Yuri Shibuya**](https://myanimelist.net/character.php?q=Yuri%20Shibuya&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
+&mdash; [**Tendou Kisara**](https://myanimelist.net/character.php?q=Tendou%20Kisara&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
