@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The power of imagination is what changes everything."
+> "*mockingly* That's amazing, Mikuru! We're counting on you! The Earth is in your-- *breaks into uncontrollable and hysterical laughter*"
 
-&mdash; [**Shinsekai Yori**](https://myanimelist.net/character.php?q=Shinsekai%20Yori&cat=character), [**Shinsekai Yori**](https://myanimelist.net/search/all?q=Shinsekai%20Yori&cat=all)
+&mdash; [**Tsuruya**](https://myanimelist.net/character.php?q=Tsuruya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
