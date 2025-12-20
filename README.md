@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was only able to get back to being a real doctor by saving your life! I realized that human lives have equal value by saving you! Nobody has the right to take another's life! I've been living as a doctor with that engraved upon my heart for years!"
+> "The power of imagination is what changes everything."
 
-&mdash; [**Kenzo Tenma**](https://myanimelist.net/character.php?q=Kenzo%20Tenma&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Shinsekai Yori**](https://myanimelist.net/character.php?q=Shinsekai%20Yori&cat=character), [**Shinsekai Yori**](https://myanimelist.net/search/all?q=Shinsekai%20Yori&cat=all)
