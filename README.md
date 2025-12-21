@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let's show him...that the good guys always win."
+> "If a sorry could resolve everything, why would there be a need for hell in this world?"
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
