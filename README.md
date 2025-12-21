@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pride is not something you can surrender."
+> "Giving in to despair is a foolish choice."
 
-&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Inaho Kaizuka**](https://myanimelist.net/character.php?q=Inaho%20Kaizuka&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
