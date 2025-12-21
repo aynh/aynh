@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment people come to know love, they run the risk of carrying hate."
+> "If someone didn't have any pride, wouldn't they also be lacking in self-confidence? If someone was free of greed, wouldn't they have trouble supporting their family? And if people didn't envy one another, wouldn't they stop inventing new things?"
 
-&mdash; [**Obito Uchiha**](https://myanimelist.net/character.php?q=Obito%20Uchiha&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
+&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
