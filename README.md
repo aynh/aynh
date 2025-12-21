@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If a sorry could resolve everything, why would there be a need for hell in this world?"
+> "If we are to die one day, wouldn't it be better to have no regrets?"
 
-&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
