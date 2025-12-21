@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate talkative guys... They gross me out."
+> "Ooops....My finger slipped."
 
-&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
