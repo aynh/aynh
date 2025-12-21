@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No, she's hiding something. But what could it be? Snacks? Guitar? Wait, maybe ton-chan."
+> "It's the sky...that allows the clouds to move about freely."
 
-&mdash; [**Sawako Yamanaka**](https://myanimelist.net/character.php?q=Sawako%20Yamanaka&cat=character), [**K-ON!**](https://myanimelist.net/search/all?q=K-ON!&cat=all)
+&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
