@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If someone didn't have any pride, wouldn't they also be lacking in self-confidence? If someone was free of greed, wouldn't they have trouble supporting their family? And if people didn't envy one another, wouldn't they stop inventing new things?"
+> "Let's show him...that the good guys always win."
 
-&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
