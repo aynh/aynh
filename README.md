@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People's mind are like alien existence. We don't know where they are, and we can barely scratch the surface of what they really are."
+> "I consider everything that happened to be precious moments of my life. The pain. The suffering. The fun… And I am here right now, because everyone was there for me. I couldn't have accomplished anything by standing still, without anybody's help. I treasure every moment I have spent here. Unlucky? I feel pretty lucky. This is my resolve."
 
-&mdash; [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/character.php?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
+&mdash; [**Tsunayoshi Sawada**](https://myanimelist.net/character.php?q=Tsunayoshi%20Sawada&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
