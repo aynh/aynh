@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's the sky...that allows the clouds to move about freely."
+> "It is a virtue to devote one's self to something, firmly believing in one's own ideals. But that does not mean it's alright to belittle the ideals or feelings of others. If you lead such a busy life and you don't realize how your parents feel, it's only self-satisfaction. It's alright to stop every now and again, if you want a moment's rest, if you want to feel what other people feel."
 
-&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
