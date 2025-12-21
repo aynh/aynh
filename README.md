@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Giving in to despair is a foolish choice."
+> "I am Horo the Wise Wolf, and I am a very proud wolf."
 
-&mdash; [**Inaho Kaizuka**](https://myanimelist.net/character.php?q=Inaho%20Kaizuka&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
