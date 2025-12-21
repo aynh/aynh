@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The longer you're with someone, the tougher it is to part ways."
+> "No, she's hiding something. But what could it be? Snacks? Guitar? Wait, maybe ton-chan."
 
-&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Sawako Yamanaka**](https://myanimelist.net/character.php?q=Sawako%20Yamanaka&cat=character), [**K-ON!**](https://myanimelist.net/search/all?q=K-ON!&cat=all)
