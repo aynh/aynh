@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why should I apologize for being a monster? Has anyone ever apologized for turning me into one?"
+> "I have no idea what just happened, but I'll gladly take credit for it."
 
-&mdash; [**Juuzou Suzuya**](https://myanimelist.net/character.php?q=Juuzou%20Suzuya&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
