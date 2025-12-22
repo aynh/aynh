@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you see a guy ignore the light in order to cross the street, you just can't stand still."
+> "I don't want to get so caught up in searching for what I can't see, that I lose sight of what I can."
 
-&mdash; [**Kato Kenichi**](https://myanimelist.net/character.php?q=Kato%20Kenichi&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
