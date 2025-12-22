@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Plainly speaking war is nothing other than 'wanting to impose your beliefs on your opponent.' It only happens for that reason. You don't have any exception to that rule."
+> "There's no sense in going out of your way just to get somebody to like you."
 
-&mdash; [**Koumei Ren**](https://myanimelist.net/character.php?q=Koumei%20Ren&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
