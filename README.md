@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want to get so caught up in searching for what I can't see, that I lose sight of what I can."
+> "You are the most important person to me in the whole wide world."
 
-&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Sakura Kinomoto**](https://myanimelist.net/character.php?q=Sakura%20Kinomoto&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
