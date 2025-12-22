@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no sense in going out of your way just to get somebody to like you."
+> "Hold on. Don't go! Let's argue again. I'll bribe you with a canelé. I'll call you to kill time. I don't mind being Friend A. Please don't go. Please don't go. Please don't go...please don't leave me behind."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
