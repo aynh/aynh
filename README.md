@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Giraffe! Giraffe! I love Giraffes!"
+> "Romance is like an extra in life. I don't mind having it, but I'm not in the mood to chase it."
 
-&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
