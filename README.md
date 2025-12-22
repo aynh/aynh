@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans, in general, feel uneasy when there’s dissonance between them and their external environment. And so, to cancel that uneasiness they try to synchronize (or make peace) with that environment."
+> "Studying is important, but I think love is too. It's the last summer of high school. It's a precious time that won't come again."
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
