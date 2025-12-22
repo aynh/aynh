@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Romance is like an extra in life. I don't mind having it, but I'm not in the mood to chase it."
+> "The strong feed upon weak. It's such an obligingly simple rule. Except in this world, my friends tried to be strong."
 
-&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
