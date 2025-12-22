@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Night is good. Appearances lose their meaning and get swallowed up by the darkness."
+> "[to himself as he chops at the ice] I'm just a guy with a boomerang. I didn't ask for all this flying and magic."
 
-&mdash; [**Yoite**](https://myanimelist.net/character.php?q=Yoite&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
