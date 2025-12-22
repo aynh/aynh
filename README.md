@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Studying is important, but I think love is too. It's the last summer of high school. It's a precious time that won't come again."
+> "The worst part about being strong is that no one ever asks if you're ok."
 
-&mdash; [**Kaizaki Arata**](https://myanimelist.net/character.php?q=Kaizaki%20Arata&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
