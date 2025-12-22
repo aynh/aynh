@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every individual must be aware of themselves. If not, those who watch them think fools of themselves."
+> "I hate talkative guys... They gross me out."
 
-&mdash; [**Fuyumi Irisu**](https://myanimelist.net/character.php?q=Fuyumi%20Irisu&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
