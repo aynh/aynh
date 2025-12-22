@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are the most important person to me in the whole wide world."
+> "Humans, in general, feel uneasy when there’s dissonance between them and their external environment. And so, to cancel that uneasiness they try to synchronize (or make peace) with that environment."
 
-&mdash; [**Sakura Kinomoto**](https://myanimelist.net/character.php?q=Sakura%20Kinomoto&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
