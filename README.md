@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The right to use my friends as a weapon, that is the sinful crown I shall adorn."
+> "Once you see a guy ignore the light in order to cross the street, you just can't stand still."
 
-&mdash; [**Shū Ouma**](https://myanimelist.net/character.php?q=Sh%C5%AB%20Ouma&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Kato Kenichi**](https://myanimelist.net/character.php?q=Kato%20Kenichi&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
