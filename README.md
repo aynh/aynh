@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how well you get along together, sometimes the smallest of cracks turn into a lethal abyss in time."
+> "The curtain that falls down at the end, shall be pulled down by the blade of my sword."
 
-&mdash; [**Ai Kotani**](https://myanimelist.net/character.php?q=Ai%20Kotani&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
