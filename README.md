@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*referring to Alphonse* This pain's nothing...compared to what he's given up..."
+> "When it comes to catching Spinda, we sure are the Winda!"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
