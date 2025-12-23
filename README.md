@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "None of that will ever happen. I hate myself! But still, I have to keep these fantasies going! If I have a thousand of them, at least one of them might come true one day. If you stop fantasizing, you have no choice but to be crushed by reality."
+> "Someday, I just want to marry a regular girl who isn't too ugly and not too pretty. Have two children, first a girl, then a boy. Retire after my daughter is married and my son becomes a successful ninja, and spend the rest of my life playing shōgi or Go. Then die of old age before my wife."
 
-&mdash; [**Kidou Eita**](https://myanimelist.net/character.php?q=Kidou%20Eita&cat=character), [**Ore no Kanojo to Osananajimi ga Shuraba Sugiru**](https://myanimelist.net/search/all?q=Ore%20no%20Kanojo%20to%20Osananajimi%20ga%20Shuraba%20Sugiru&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
