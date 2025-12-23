@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you forced someone to do something they didn’t want to do, they’d just end up hating life."
+> "Shadow and light are two sides of the same coin... One cannot exist without another."
 
-&mdash; [**Chihiro Sengoku**](https://myanimelist.net/character.php?q=Chihiro%20Sengoku&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Princess Zelda**](https://myanimelist.net/character.php?q=Princess%20Zelda&cat=character), [**The Legend Of Zelda**](https://myanimelist.net/search/all?q=The%20Legend%20Of%20Zelda&cat=all)
