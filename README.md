@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want to lie anymore. The words 'I believe in you' is a curse. No, it's a spell. If the one who hears it feels cursed, they are."
+> "People tend to push the pain they're burdened with onto other people."
 
-&mdash; [**Watanuki Sakuya**](https://myanimelist.net/character.php?q=Watanuki%20Sakuya&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
+&mdash; [**Ushiromiya Ange**](https://myanimelist.net/character.php?q=Ushiromiya%20Ange&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
