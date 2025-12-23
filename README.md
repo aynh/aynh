@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Loyalty to someone is different from depending on them."
+> "After being driven out of the orphanage, I had nothing to eat, nowhere to sleep, and, as one might expect, not a cent to my name. Yet, I lack the courage to commit theft. That is how I've arrived at my current predicament... However... if I wish to live, I have no choice but to steal and take from others!"
 
-&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Atsushi Nakajima**](https://myanimelist.net/character.php?q=Atsushi%20Nakajima&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
