@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When it comes to catching Spinda, we sure are the Winda!"
+> "I wonder how long... How long will I remain anchored at this harbor known as battle?"
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
