@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are from a world Su will never understand."
+> "*referring to Alphonse* This pain's nothing...compared to what he's given up..."
 
-&mdash; [**Su**](https://myanimelist.net/character.php?q=Su&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
