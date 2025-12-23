@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether you get mad, whether you laugh. The sun will set, morning will come. Each and every time, I'll just start over again."
+> "To take responsibility is to take the pain onto yourself. It means to bear more pain than what others felt because of your mistake."
 
-&mdash; [**Atsuhiro Maeda**](https://myanimelist.net/character.php?q=Atsuhiro%20Maeda&cat=character), [**Tari Tari**](https://myanimelist.net/search/all?q=Tari%20Tari&cat=all)
+&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
