@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tornado Flip!"
+> "I don't want to lie anymore. The words 'I believe in you' is a curse. No, it's a spell. If the one who hears it feels cursed, they are."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Watanuki Sakuya**](https://myanimelist.net/character.php?q=Watanuki%20Sakuya&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
