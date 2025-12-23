@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The curtain that falls down at the end, shall be pulled down by the blade of my sword."
+> "Trunks, I never hugged you as a baby… let me hug you."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
