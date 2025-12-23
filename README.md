@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Shut it! Do you know the pain of having a permanent perm?!"
+> "Words are very powerful. That's why you have to watch everything that comes out from your mouth."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
