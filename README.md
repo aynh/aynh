@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've lived longer than you. And times have been bad. I know the pain of loss. You and I haven't really been fortunate. It's true. But it could be worse. For me, and for you, too... We've found good friends, haven't we? Because of your losses, you should understand."
+> "What are you smoking? Don't you see how cool I am? You think I'm going to settle for a flat chested girl like her?"
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
