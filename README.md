@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was in the avatar state... But I was outside my body watching myself. It was scary. I was scary..."
+> "Words are cheap. There's no guarantee she won't tell anyone. Humans lie without a second thought. Including me, of course."
 
-&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji: Book of Circus**](https://myanimelist.net/search/all?q=Kuroshitsuji%3A%20Book%20of%20Circus&cat=all)
