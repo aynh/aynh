@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry, Aizen-sama. I got caught."
+> "I won't ask what you wish for. I only hope it comes true by your own two hands. (to Kyo)"
 
-&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
