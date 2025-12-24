@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There probably isn't any meaning in life. Perhaps you can find something interesting to do while you are alive. Like how you found that flower. Like how I found you."
+> "When you talk properly, you get your feelings across properly, right?"
 
-&mdash; [**Orochimaru**](https://myanimelist.net/character.php?q=Orochimaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Shouta Kazehaya**](https://myanimelist.net/character.php?q=Shouta%20Kazehaya&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
