@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't understand what I say that makes people so mad. I don't understand how they feel. I know that's because I haven't properly socialized, I've tried to learn. I've tried to study up on it, but I just don't know what's right."
+> "When you lose something, you gotta find something to take its place. I guess it's just time... for me to move forward for once."
 
-&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Kato Kenichi**](https://myanimelist.net/character.php?q=Kato%20Kenichi&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
