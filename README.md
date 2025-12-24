@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can become happy right now.' I won't say these types of absurd lies. However, if you get through these current hardships and survive - a time where you can be happy will come."
+> "Yes, we have no destiny. Only those swallowed up by ignorance and fear who take false steps, shall plunge us into the waters called “destiny”."
 
-&mdash; [**Shin Woo Baek**](https://myanimelist.net/character.php?q=Shin%20Woo%20Baek&cat=character), [**Teen Spirit**](https://myanimelist.net/search/all?q=Teen%20Spirit&cat=all)
+&mdash; [**Kisuke Urahara**](https://myanimelist.net/character.php?q=Kisuke%20Urahara&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
