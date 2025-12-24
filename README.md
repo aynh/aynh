@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you talk properly, you get your feelings across properly, right?"
+> "I've lived longer than you. And times have been bad. I know the pain of loss. You and I haven't really been fortunate. It's true. But it could be worse. For me, and for you, too... We've found good friends, haven't we? Because of your losses, you should understand."
 
-&mdash; [**Shouta Kazehaya**](https://myanimelist.net/character.php?q=Shouta%20Kazehaya&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
