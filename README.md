@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Words are cheap. There's no guarantee she won't tell anyone. Humans lie without a second thought. Including me, of course."
+> "Everyday was the same. Deep down, I felt bored. But it wasn't the days that felt boring. It was being just like everyone else."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji: Book of Circus**](https://myanimelist.net/search/all?q=Kuroshitsuji%3A%20Book%20of%20Circus&cat=all)
+&mdash; [**Sorata Kanda**](https://myanimelist.net/character.php?q=Sorata%20Kanda&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
