@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyday was the same. Deep down, I felt bored. But it wasn't the days that felt boring. It was being just like everyone else."
+> "I'd rather die with someone than let that person die before my eyes. More so if she's a girl like you."
 
-&mdash; [**Sorata Kanda**](https://myanimelist.net/character.php?q=Sorata%20Kanda&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
