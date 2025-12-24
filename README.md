@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'd rather die with someone than let that person die before my eyes. More so if she's a girl like you."
+> "I’m not going to apologize. This is an absurd, unfair world."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Yahiro Samukawa**](https://myanimelist.net/character.php?q=Yahiro%20Samukawa&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
