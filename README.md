@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ichigo Kurosaki, all of the battles you've fought, were all part of my plan."
+> "I put my hopes in it that maybe I could turn your heart just a little. Why do I end up dreaming over and over again without getting tired of it as if that's all I know."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
