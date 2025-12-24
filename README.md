@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yes, we have no destiny. Only those swallowed up by ignorance and fear who take false steps, shall plunge us into the waters called “destiny”."
+> "Be Yourself because an Original is worth more than a Copy"
 
-&mdash; [**Kisuke Urahara**](https://myanimelist.net/character.php?q=Kisuke%20Urahara&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
