@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So I'll search for my real ''wings'', because if I stay in the comfort of my nest, I'll never be able to use my own strength to fly."
+> "Sorry, Aizen-sama. I got caught."
 
-&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
