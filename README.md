@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[about his Hollow group prior to them becoming Arancar as he eats pieces of them] You sicken me. You're all just a bunch of bloody cowards. Alright, I'll eat all of you. You'll see how it feels on the next level, as a part of my own flesh. I am... I am the king!"
+> "I was in the avatar state... But I was outside my body watching myself. It was scary. I was scary..."
 
-&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
