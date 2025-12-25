@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know we can't immediately treat her as part of our group, but if we always think of her as an outsider, she'll never have a chance to become part of our group."
+> "No one actually knows what's best or what the future holds. Until you actually see the results, no one ever knows. So at the very least, why don't we rely on what we do know. Let's keep the feelings that we have right now precious. Even though it seems like our lives never change, they slowly do. And just like how we never notice... the changing of the seasons... the same goes for our hearts."
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
