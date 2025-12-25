@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't tell me he wants to conquer the world? Can't he come up with something more original?"
+> "I believe that there's not a single person whose heart is evil."
 
-&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
+&mdash; [**Kanzaki Nao**](https://myanimelist.net/character.php?q=Kanzaki%20Nao&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
