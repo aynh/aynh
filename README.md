@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are two kinds of fights. As long as we place ourselves in battle, we must always know the difference, a fight to defend life or a fight to defend pride."
+> "Don't tell me he wants to conquer the world? Can't he come up with something more original?"
 
-&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
