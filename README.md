@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Gohan, let it go. It is not a sin to fight for the right cause. There are those who words alone will not reach."
+> "It looks to me like you've completely lost your touch."
 
-&mdash; [**Android 16**](https://myanimelist.net/character.php?q=Android%2016&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
