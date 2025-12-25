@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hold on. Don't go! Let's argue again. I'll bribe you with a canelé. I'll call you to kill time. I don't mind being Friend A. Please don't go. Please don't go. Please don't go...please don't leave me behind."
+> "In our society, letting others find out that you're a nice person is a very risky move. It's extremely likely that someone would take advantage of that."
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
