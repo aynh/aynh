@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People fear death because they don't 'understand' it, and we're afraid of strangers because we don't 'know' them. Not being able to understand the one you love... is the worst fear of all."
+> "Real love... if such a thing existed, would not be something as stupid as a woman's looks or the size of her bust."
 
-&mdash; [**Mitsuzaki Yosuga**](https://myanimelist.net/character.php?q=Mitsuzaki%20Yosuga&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Ludwig Kakumei**](https://myanimelist.net/character.php?q=Ludwig%20Kakumei&cat=character), [**Ludwig Kakumei**](https://myanimelist.net/search/all?q=Ludwig%20Kakumei&cat=all)
