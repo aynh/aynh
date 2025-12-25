@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How do you prove that you exist...? Maybe we don't exist."
+> "People fear death because they don't 'understand' it, and we're afraid of strangers because we don't 'know' them. Not being able to understand the one you love... is the worst fear of all."
 
-&mdash; [**Vivi Ornitier**](https://myanimelist.net/character.php?q=Vivi%20Ornitier&cat=character), [**Final Fantasy IX**](https://myanimelist.net/search/all?q=Final%20Fantasy%20IX&cat=all)
+&mdash; [**Mitsuzaki Yosuga**](https://myanimelist.net/character.php?q=Mitsuzaki%20Yosuga&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
