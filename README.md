@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It looks to me like you've completely lost your touch."
+> "There are two kinds of fights. As long as we place ourselves in battle, we must always know the difference, a fight to defend life or a fight to defend pride."
 
-&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
