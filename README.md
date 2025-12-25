@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can take control of my mind and my body, but there is one thing a Saiyan always keep… his PRIDE!"
+> "Girls who are pretty and pure only exist in fantasies."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Rentarou Kurahashi**](https://myanimelist.net/character.php?q=Rentarou%20Kurahashi&cat=character), [**Love Lab**](https://myanimelist.net/search/all?q=Love%20Lab&cat=all)
