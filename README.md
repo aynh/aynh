@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In our society, letting others find out that you're a nice person is a very risky move. It's extremely likely that someone would take advantage of that."
+> "No matter how much is in your heart, if you don’t tell that person, then it’s meaningless."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Junjou Romantica**](https://myanimelist.net/character.php?q=Junjou%20Romantica&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
