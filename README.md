@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have a mind of a genius and a strong sense of justice."
+> "I know we can't immediately treat her as part of our group, but if we always think of her as an outsider, she'll never have a chance to become part of our group."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
