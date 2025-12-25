@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Enough. I've had enough. I'm dropping out."
+> "You can take control of my mind and my body, but there is one thing a Saiyan always keep… his PRIDE!"
 
-&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
