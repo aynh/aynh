@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Girls who are pretty and pure only exist in fantasies."
+> "Keep reinventing and polishing yourself, and who you want to be can be reborn over and over."
 
-&mdash; [**Rentarou Kurahashi**](https://myanimelist.net/character.php?q=Rentarou%20Kurahashi&cat=character), [**Love Lab**](https://myanimelist.net/search/all?q=Love%20Lab&cat=all)
+&mdash; [**Su**](https://myanimelist.net/character.php?q=Su&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
