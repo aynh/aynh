@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Studying is for people to get the knowledge they need to not screw up in life."
+> "In this world, evil can arise from the best of intentions. And there is good which can come from evil intentions."
 
-&mdash; [**Makoto Sunakawa**](https://myanimelist.net/character.php?q=Makoto%20Sunakawa&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
+&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
