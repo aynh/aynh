@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is impossible to not hurt someone. Humans unconsciously hurt others by simply existing. Whether you are alive or dead, you keep hurting people. Getting involved will hurt them, but trying not to get involved might hurt them too. But if it's someone you don't care about, you won't notice you've hurt them. What's important is your awareness of it. It's because you care about them, that you feel like you've hurt them. Caring about someone means being resolved to the fact that you'll hurt them. The more people care for each other, the farther out of reach certain things get. But that's not something to be sad about, I think it's probably something to be proud of."
+> "The future has shown us with its glorious brilliance the time to seize our destiny and conquer all our fear is now! In ancient times, man rubbed sticks together and created fire, then they slaughtered the whales and battled one another for oil. After that, came the atomic age. In every chapter of our history, we've danced with danger. But now, for the first time in existence, we will be delivered from fear. Finally, we will escape the prison of our illusions and the beautiful night will embrace us all. It's already too late! I will live by this and I will die by this!"
 
-&mdash; [**Shizuka Hiratsuka**](https://myanimelist.net/character.php?q=Shizuka%20Hiratsuka&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Dr. Franken Von Vogler**](https://myanimelist.net/character.php?q=Dr.%20Franken%20Von%20Vogler&cat=character), [**Giant Robo**](https://myanimelist.net/search/all?q=Giant%20Robo&cat=all)
