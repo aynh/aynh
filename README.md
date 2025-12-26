@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "FOOL! As someone who is unaware of the vital role that singing has played in the cultural history of mankind you are in no position to question me. Remember that the next time you stop to consider your place in this world. You do not possess the power to deny a singer his song. Do you understand what I'm telling you?"
+> "No idiot would want to be friends with an unmoving, unspeaking telephone pole. However, unmoving and unspeaking is exactly what you'd want from a telephone pole."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ushiromiya Ange**](https://myanimelist.net/character.php?q=Ushiromiya%20Ange&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
