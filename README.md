@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Protecting a man’s pride… is a woman’s duty."
+> "Unwavering Faith and Resilient Bonds will bring even miracles to your side."
 
-&mdash; [**Saeko Busujima**](https://myanimelist.net/character.php?q=Saeko%20Busujima&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
