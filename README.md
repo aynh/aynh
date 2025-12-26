@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*about Grevil* He's the owner of the oddest hair in all of Sauville."
+> "Face it kid, I'm much too big of a guy for you to handle and you know it. Do you see how the very ground shakes beneath me feet?"
 
-&mdash; [**Victorique de Blois**](https://myanimelist.net/character.php?q=Victorique%20de%20Blois&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
