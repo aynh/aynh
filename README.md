@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm here because I don't like to be tied down. So you should decide for yourself who you want for your friend."
+> "Studying is for people to get the knowledge they need to not screw up in life."
 
-&mdash; [**Hayabusa Shou**](https://myanimelist.net/character.php?q=Hayabusa%20Shou&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
+&mdash; [**Makoto Sunakawa**](https://myanimelist.net/character.php?q=Makoto%20Sunakawa&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
