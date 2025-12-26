@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Believe in yourself and create your own destiny. Don't fear fate."
+> "So he killed my father and murdered my people. That means nothing to me. Strength is the only thing that matters in this world. Everything else is just a delusion for the weak."
 
-&mdash; [**Outlaw Star**](https://myanimelist.net/character.php?q=Outlaw%20Star&cat=character), [**Outlaw Star**](https://myanimelist.net/search/all?q=Outlaw%20Star&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
