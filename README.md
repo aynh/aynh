@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who can't love themselves are the ugliest."
+> "*about Grevil* He's the owner of the oddest hair in all of Sauville."
 
-&mdash; [**Ichijou Kazuomi**](https://myanimelist.net/character.php?q=Ichijou%20Kazuomi&cat=character), [**Mayonaka Ni Kiss**](https://myanimelist.net/search/all?q=Mayonaka%20Ni%20Kiss&cat=all)
+&mdash; [**Victorique de Blois**](https://myanimelist.net/character.php?q=Victorique%20de%20Blois&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
