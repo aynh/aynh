@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Face it kid, I'm much too big of a guy for you to handle and you know it. Do you see how the very ground shakes beneath me feet?"
+> "Our lives were real! Not a single moment of them were fake! Everyone lived the best they could! We carved those memories into ourselves! Memories of living as hard as we could! No matter what kind they were, they're the life we led! Erasing them in the blink of an eye like that... Wasn't your life also real to you?!"
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Yuzuru Otonashi**](https://myanimelist.net/character.php?q=Yuzuru%20Otonashi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
