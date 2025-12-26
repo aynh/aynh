@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, evil can arise from the best of intentions. And there is good which can come from evil intentions."
+> "When I think too much, my brains get itchy."
 
-&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Kanako Sasa**](https://myanimelist.net/character.php?q=Kanako%20Sasa&cat=character), [**Hourou Musuko**](https://myanimelist.net/search/all?q=Hourou%20Musuko&cat=all)
