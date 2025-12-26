@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What we call the human heart... It's such a mystery, isn't it?"
+> "People who can't love themselves are the ugliest."
 
-&mdash; [**Irisviel von Einzbern**](https://myanimelist.net/character.php?q=Irisviel%20von%20Einzbern&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Ichijou Kazuomi**](https://myanimelist.net/character.php?q=Ichijou%20Kazuomi&cat=character), [**Mayonaka Ni Kiss**](https://myanimelist.net/search/all?q=Mayonaka%20Ni%20Kiss&cat=all)
