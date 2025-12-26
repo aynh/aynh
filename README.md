@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "History is not merely a linear collection of points that we pass through on a timeline. They are connected by a line. No, perhaps it is more accurate to say that they are made to connect."
+> "You can come after me as many times as you want. I'll cut you down every time."
 
-&mdash; [**Serial Experiments Lain**](https://myanimelist.net/character.php?q=Serial%20Experiments%20Lain&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
