@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "From the perspective of others I am part of the world, but when I observe the world from my perspective I am nowhere to be found. To observe is to create perspective. I can never cease to be the point of origin from my perspective. I observe that which is not myself. This is the first principle to find."
+> "My will is society's will. My eyes are society's eyes. Since you vowed to respect the law, you cannot deny me... no matter how much you despise latent criminals."
 
-&mdash; [**Ergo Proxy**](https://myanimelist.net/character.php?q=Ergo%20Proxy&cat=character), [**Ergo Proxy**](https://myanimelist.net/search/all?q=Ergo%20Proxy&cat=all)
+&mdash; [**Sakuya Tougane**](https://myanimelist.net/character.php?q=Sakuya%20Tougane&cat=character), [**Psycho-Pass 2**](https://myanimelist.net/search/all?q=Psycho-Pass%202&cat=all)
