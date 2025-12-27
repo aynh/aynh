@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I think too much, my brains get itchy."
+> "I can't surpress my feeling anymore. When she gets confused, I will still her back. Yes I know I am selfish, I don't care."
 
-&mdash; [**Kanako Sasa**](https://myanimelist.net/character.php?q=Kanako%20Sasa&cat=character), [**Hourou Musuko**](https://myanimelist.net/search/all?q=Hourou%20Musuko&cat=all)
+&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
