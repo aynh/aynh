@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So maybe I can't defend against attacks from multiple angles, but sometimes a good defense is just kicking ass!"
+> "If we only believe when the odds are with us, then that's not believing at all."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Ousawa Akatsuki**](https://myanimelist.net/character.php?q=Ousawa%20Akatsuki&cat=character), [**Hagure Yuusha No Estetica**](https://myanimelist.net/search/all?q=Hagure%20Yuusha%20No%20Estetica&cat=all)
