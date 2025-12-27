@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What could that creep possibly be thinking sending sexy underwear to his own daughter."
+> "Stop pouting! You learned something valuable. Remember the lesson, not the disappointment."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
