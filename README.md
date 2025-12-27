@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Water is mysterious, isn't it?. It can become vapor. It can become snow. It may take various forms, but in reality - it's all water. Even if it's invisible to our eyes, it cannot disappear from this world."
+> "There can be no happiness in a world where the undesirables are thrown away."
 
-&mdash; [**Saki**](https://myanimelist.net/character.php?q=Saki&cat=character), [**Steel Angel Kurumi**](https://myanimelist.net/search/all?q=Steel%20Angel%20Kurumi&cat=all)
+&mdash; [**Monkey D. Dragon**](https://myanimelist.net/character.php?q=Monkey%20D.%20Dragon&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
