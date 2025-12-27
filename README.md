@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't surpress my feeling anymore. When she gets confused, I will still her back. Yes I know I am selfish, I don't care."
+> "From the perspective of others I am part of the world, but when I observe the world from my perspective I am nowhere to be found. To observe is to create perspective. I can never cease to be the point of origin from my perspective. I observe that which is not myself. This is the first principle to find."
 
-&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Ergo Proxy**](https://myanimelist.net/character.php?q=Ergo%20Proxy&cat=character), [**Ergo Proxy**](https://myanimelist.net/search/all?q=Ergo%20Proxy&cat=all)
