@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "NEETs aren't people who can't do or won't do things. The only difference is the rules. Because we're playing with different rules, we're forced to do things differently. The participants are disoriented. They frown. Then they are discouraged by labeling and stereotyping and find comfort in isolation."
+> "You're trying to stay unscarred, aren't you? If you've come this far, you'll have to hurt someone. The more time you take to decide, the deeper and more it'll hurt. For all of you."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Sunohara Youhei**](https://myanimelist.net/character.php?q=Sunohara%20Youhei&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
