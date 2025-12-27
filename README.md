@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Shinpachi* When your friend is crying, cry with him. When your friend is worried, you should worry with him. And when your friend has an awkward bowel movement, then you must have an awkward bowel movement too, Shin-chan. If you are a friend, you should be able to share the other's pain, no matter what. And Shin-chan, if your friend goes down the wrong path... Then, you must stop your friend, even if it ruins your friendship. That is true samurai friendship."
+> "So maybe I can't defend against attacks from multiple angles, but sometimes a good defense is just kicking ass!"
 
-&mdash; [**Shimura Tae**](https://myanimelist.net/character.php?q=Shimura%20Tae&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
