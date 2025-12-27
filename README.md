@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop pouting! You learned something valuable. Remember the lesson, not the disappointment."
+> "Why not just try hard again? Quit mopping around. Stop lying to yourself and try once more."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Kagaku no Railgun**](https://myanimelist.net/search/all?q=Toaru%20Kagaku%20no%20Railgun&cat=all)
