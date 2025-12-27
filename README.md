@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we only believe when the odds are with us, then that's not believing at all."
+> "How could I forget? He's into dead girls."
 
-&mdash; [**Ousawa Akatsuki**](https://myanimelist.net/character.php?q=Ousawa%20Akatsuki&cat=character), [**Hagure Yuusha No Estetica**](https://myanimelist.net/search/all?q=Hagure%20Yuusha%20No%20Estetica&cat=all)
+&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
