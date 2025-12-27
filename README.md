@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why not just try hard again? Quit mopping around. Stop lying to yourself and try once more."
+> "A great enough sorrow can stop time, but someday, time will start moving again. No matter how many years may pass."
 
-&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Kagaku no Railgun**](https://myanimelist.net/search/all?q=Toaru%20Kagaku%20no%20Railgun&cat=all)
+&mdash; [**Grandmother Sawatari**](https://myanimelist.net/character.php?q=Grandmother%20Sawatari&cat=character), [**Tamayura**](https://myanimelist.net/search/all?q=Tamayura&cat=all)
