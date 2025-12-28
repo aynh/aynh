@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's always someone better. That's why I can't stop fighting."
+> "Don’t be so stuck-up. Just enjoy this! Killing and being killed. They are just a way to pass time."
 
-&mdash; [**Hidetora Toujo**](https://myanimelist.net/character.php?q=Hidetora%20Toujo&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
+&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
