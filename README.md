@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People become themselves through their encounters. With different things, people, and emotions."
+> "He can't dance in my world right now. Don't let me cry!"
 
-&mdash; [**Joutarou Kawasumi**](https://myanimelist.net/character.php?q=Joutarou%20Kawasumi&cat=character), [**Inu X Boku SS**](https://myanimelist.net/search/all?q=Inu%20X%20Boku%20SS&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
