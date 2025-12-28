@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don’t be so stuck-up. Just enjoy this! Killing and being killed. They are just a way to pass time."
+> "[to Toboe] I wanted to take you to paradise."
 
-&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
