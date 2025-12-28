@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to the Sound Ninja Four] Which do you prefer? To die, or to obey?"
+> "A fight you can't win becomes an obsession"
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Askeladd**](https://myanimelist.net/character.php?q=Askeladd&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
