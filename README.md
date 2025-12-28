@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What a silly little girl I was, thinking you would change. I should have known how you would turn out. You had it written in ugly black letters all across your soul."
+> "There's always someone better. That's why I can't stop fighting."
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Hidetora Toujo**](https://myanimelist.net/character.php?q=Hidetora%20Toujo&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
