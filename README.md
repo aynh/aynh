@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Lambo*  Smile... I said smile! Smile! Damn you!"
+> "No matter how scared you are, it is important that you learn about what you fear."
 
-&mdash; [**Ryōhei Sasagawa**](https://myanimelist.net/character.php?q=Ry%C5%8Dhei%20Sasagawa&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Adolf Reinhardt**](https://myanimelist.net/character.php?q=Adolf%20Reinhardt&cat=character), [**Terraformars**](https://myanimelist.net/search/all?q=Terraformars&cat=all)
