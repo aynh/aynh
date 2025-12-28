@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how scared you are, it is important that you learn about what you fear."
+> "A world created through oppresing others with brute force has no meaning!"
 
-&mdash; [**Adolf Reinhardt**](https://myanimelist.net/character.php?q=Adolf%20Reinhardt&cat=character), [**Terraformars**](https://myanimelist.net/search/all?q=Terraformars&cat=all)
+&mdash; [**Yuzu Hiiragi**](https://myanimelist.net/character.php?q=Yuzu%20Hiiragi&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
