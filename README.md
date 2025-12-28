@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Exactly when did I say that I do this because I am a shinigami? My killing you is no other reason than the fact that you... Pointed your blade [view shifts to Rukia] at my pride."
+> "Even if you can forget, you can't erase the past."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kenzo Tenma**](https://myanimelist.net/character.php?q=Kenzo%20Tenma&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
