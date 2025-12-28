@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's too bad I don't think of you as anything. If you get in my way... I'll kill you."
+> "What a silly little girl I was, thinking you would change. I should have known how you would turn out. You had it written in ugly black letters all across your soul."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
