@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you accept everything you’re told without question, you’ll lose your ability to think. Even if you reached the same conclusion, it would still be worth analyzing the reasons behind it."
+> "I'll always be by your side, just like the wind that flows through your hair."
 
-&mdash; [**Lacie Baskerville**](https://myanimelist.net/character.php?q=Lacie%20Baskerville&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Kazuma Yagami**](https://myanimelist.net/character.php?q=Kazuma%20Yagami&cat=character), [**Kaze no Stigma**](https://myanimelist.net/search/all?q=Kaze%20no%20Stigma&cat=all)
