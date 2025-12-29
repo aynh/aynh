@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The envy of a man runs deeper than a woman's, surprisingly."
+> "Showing your back in a battle? You've become a fool Yoruichi!"
 
-&mdash; [**Yahiro Takigawa**](https://myanimelist.net/character.php?q=Yahiro%20Takigawa&cat=character), [**Shinmai Maou no Testament**](https://myanimelist.net/search/all?q=Shinmai%20Maou%20no%20Testament&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
