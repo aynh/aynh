@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Choose the best thing you can do now, in order to get a step closer to your dream."
+> "Trunks, Bulma, I’m doing this for you. And yes, even for you, Kakarot."
 
-&mdash; [**Tsukitachi**](https://myanimelist.net/character.php?q=Tsukitachi&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
