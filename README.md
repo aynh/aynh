@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dad left... A long time ago, when brother and I were still boys. Mom stared off into the distance a lot. But she carried on as if nothing were wrong."
+> "The envy of a man runs deeper than a woman's, surprisingly."
 
-&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Yahiro Takigawa**](https://myanimelist.net/character.php?q=Yahiro%20Takigawa&cat=character), [**Shinmai Maou no Testament**](https://myanimelist.net/search/all?q=Shinmai%20Maou%20no%20Testament&cat=all)
