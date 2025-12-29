@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trunks, Bulma, I’m doing this for you. And yes, even for you, Kakarot."
+> "Those who make mistakes blame themselves and close their hearts. It's impossible to fix the mistake. Men can't return to the past. That's why they drink. Lushes, drunks, sliding alcohol down their throats to try to dilute the memories that can't be forgotten. Frank Marlon, the gunsmith, does nothing but drink, and questions the glass after it's empty. 'Am I wrong? Was I wrong?'"
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
