@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Showing your back in a battle? You've become a fool Yoruichi!"
+> "Choose the best thing you can do now, in order to get a step closer to your dream."
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tsukitachi**](https://myanimelist.net/character.php?q=Tsukitachi&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
