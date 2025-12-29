@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "May those who accept their fate be granted Happiness, may those who defy their fate be granted Glory."
+> "Trust? I hate that word, but coming from you it sounds different."
 
-&mdash; [**Edel**](https://myanimelist.net/character.php?q=Edel&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
+&mdash; [**Porco Rosso**](https://myanimelist.net/character.php?q=Porco%20Rosso&cat=character), [**Porco Rosso**](https://myanimelist.net/search/all?q=Porco%20Rosso&cat=all)
