@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A fight you can't win becomes an obsession"
+> "No matter what, if you intend to interfere, I will eliminate you too."
 
-&mdash; [**Askeladd**](https://myanimelist.net/character.php?q=Askeladd&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Scar**](https://myanimelist.net/character.php?q=Scar&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
