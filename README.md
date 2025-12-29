@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trust? I hate that word, but coming from you it sounds different."
+> "The depths of despair…. I feel so calm here. I won’t be tricked by anyone anymore, and I don’t have to resent anyone. There’s nothing here. Not even loving. Nothing but to keep dancing until I die away."
 
-&mdash; [**Porco Rosso**](https://myanimelist.net/character.php?q=Porco%20Rosso&cat=character), [**Porco Rosso**](https://myanimelist.net/search/all?q=Porco%20Rosso&cat=all)
+&mdash; [**Rue Kuroha**](https://myanimelist.net/character.php?q=Rue%20Kuroha&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
