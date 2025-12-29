@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our bodies get bigger, but our hearts get torn up."
+> "To have the one you think is your ideal self standing in front of you, it's tough..."
 
-&mdash; [**Mikoto Suoh**](https://myanimelist.net/character.php?q=Mikoto%20Suoh&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
+&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
