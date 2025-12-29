@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who make mistakes blame themselves and close their hearts. It's impossible to fix the mistake. Men can't return to the past. That's why they drink. Lushes, drunks, sliding alcohol down their throats to try to dilute the memories that can't be forgotten. Frank Marlon, the gunsmith, does nothing but drink, and questions the glass after it's empty. 'Am I wrong? Was I wrong?'"
+> "If you accept everything you’re told without question, you’ll lose your ability to think. Even if you reached the same conclusion, it would still be worth analyzing the reasons behind it."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Lacie Baskerville**](https://myanimelist.net/character.php?q=Lacie%20Baskerville&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
