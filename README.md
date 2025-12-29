@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Destiny isn't something to make you as you're told. By overcoming difficulties, life and this whole world can advance forward. That's what destiny is for. A world that has lost the power to advance forward, will be destroyed."
+> "If you want to grant your own wish, then you should clear your own path to it."
 
-&mdash; [**Aladdin**](https://myanimelist.net/character.php?q=Aladdin&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
+&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
