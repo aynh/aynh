@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you ready now to witness a power not seen for thousands of years?"
+> "Why didn't you take me with you!? Yoruichi?"
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
