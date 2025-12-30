@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, it's not a big deal or anything... but I was almost killed."
+> "It was just a rebound! Don't make a big deal over one or two arms!"
 
-&mdash; [**Yashiro Isana**](https://myanimelist.net/character.php?q=Yashiro%20Isana&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
