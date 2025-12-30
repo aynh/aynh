@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look at my soldiers and their mean faces! I taught them that face!"
+> "I am Justice! I protect the innocent and those who fear evil. I'm the one that will become the god of a new world that every one desires!"
 
-&mdash; [**Prussia**](https://myanimelist.net/character.php?q=Prussia&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
