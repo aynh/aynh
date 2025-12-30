@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am Justice! I protect the innocent and those who fear evil. I'm the one that will become the god of a new world that every one desires!"
+> "Despair to the ones who become swelled with pride."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Truth**](https://myanimelist.net/character.php?q=Truth&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
