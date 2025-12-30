@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In every time, in every world, the strong polish their fangs while the weak polish their wisdom."
+> "The difference in ability... What about it? Do you think I should give up just because you're stronger than me?"
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
