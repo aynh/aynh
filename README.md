@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as humans are not virtuous beings, desire will always win over the fear of punishment. What’s necessary is not punishment, but to deal with that desire."
+> "Well, it's not a big deal or anything... but I was almost killed."
 
-&mdash; [**William Twining**](https://myanimelist.net/character.php?q=William%20Twining&cat=character), [**Makai Ouji : Devils And Realist**](https://myanimelist.net/search/all?q=Makai%20Ouji%20%3A%20Devils%20And%20Realist&cat=all)
+&mdash; [**Yashiro Isana**](https://myanimelist.net/character.php?q=Yashiro%20Isana&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
