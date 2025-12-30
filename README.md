@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why didn't you take me with you!? Yoruichi?"
+> "Feelings are connection. They surpass time, and find their way back to the people you love."
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
