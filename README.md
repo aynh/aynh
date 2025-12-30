@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A terrible premonition can bring about a terrible reality."
+> "Don't try to find a reason for somebody's love!!"
 
-&mdash; [**Ryougi Shiki**](https://myanimelist.net/character.php?q=Ryougi%20Shiki&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Sengoku the Buddha**](https://myanimelist.net/character.php?q=Sengoku%20the%20Buddha&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
