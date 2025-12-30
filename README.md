@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's more to a real man than just his good looks!"
+> "They've been exposed to the outside world, up close and personal. They've had that fear planted in them. And they've endured it. Overcome it. Each has grown from that experience... and forgotten how to hesitate."
 
-&mdash; [**Uno**](https://myanimelist.net/character.php?q=Uno&cat=character), [**Nanbaka**](https://myanimelist.net/search/all?q=Nanbaka&cat=all)
+&mdash; [**Eraserhead**](https://myanimelist.net/character.php?q=Eraserhead&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
