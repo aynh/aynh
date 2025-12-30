@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't believe in god. There's no proof he exists. In a world where there isn't even proof of the future, the past exists. Even if it's tainted with misunderstandings and delusions, if the people themselves believe in it, the past is the truth to them. And, if you base your actions or your life around it, in a way, it's a type of god itself."
+> "You will not go in there with hopes of winning the tournament the first time you compete. To do so would be arrogant! And arrogance is for fools, not warriors! So you will enter the tournament with the sole purpose of improving your fighting skills."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Master Roshi**](https://myanimelist.net/character.php?q=Master%20Roshi&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
