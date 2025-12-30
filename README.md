@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This device paints the illusion of fairy tales for those with naive wishes in their hearts, who say they wish something eternal existed, who say they wish the power of miracles existed. But, there's no place higher than this room. This room is the summit of Ohtori Academy, and of the world."
+> "No matter what kind of past you had, don't lose sight of yourself."
 
-&mdash; [**Akio Ohtori**](https://myanimelist.net/character.php?q=Akio%20Ohtori&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
+&mdash; [**Ayato Naoi**](https://myanimelist.net/character.php?q=Ayato%20Naoi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
