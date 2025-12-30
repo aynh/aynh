@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what kind of past you had, don't lose sight of yourself."
+> "You can never win if you're afraid to lose so much that you refuse to put up a fight."
 
-&mdash; [**Ayato Naoi**](https://myanimelist.net/character.php?q=Ayato%20Naoi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Furude Rika**](https://myanimelist.net/character.php?q=Furude%20Rika&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
