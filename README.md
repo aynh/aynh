@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can never win if you're afraid to lose so much that you refuse to put up a fight."
+> "In every time, in every world, the strong polish their fangs while the weak polish their wisdom."
 
-&mdash; [**Furude Rika**](https://myanimelist.net/character.php?q=Furude%20Rika&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
