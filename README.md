@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't really want you to understand... I just don't want you to be like, 'Oh, is that all'? I don't need people to get it. These feelings... are important to me, and they're just for me."
+> "I don't believe in god. There's no proof he exists. In a world where there isn't even proof of the future, the past exists. Even if it's tainted with misunderstandings and delusions, if the people themselves believe in it, the past is the truth to them. And, if you base your actions or your life around it, in a way, it's a type of god itself."
 
-&mdash; [**Takasaki Misaki**](https://myanimelist.net/character.php?q=Takasaki%20Misaki&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
