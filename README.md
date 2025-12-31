@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I become Fuhrer President, all female personnel in the military ... will have to wear mini-skirts."
+> "People... need to be needed by someone in order to live. If a person isn't needed, they're worthless!"
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Moeka Kiryū**](https://myanimelist.net/character.php?q=Moeka%20Kiry%C5%AB&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
