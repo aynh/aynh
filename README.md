@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "‎[to Takumi Myama] Why are you blocking us when you have someone else that you like? We can easily see her feelings towards you so there's no way you haven't realized what's there. Yet you just leave the situation half-finished. Aren't you just saving her for when things don't work out with your favorite?"
+> "Isn't chasing our dream our job right now?"
 
-&mdash; [**Takumi Nomiya**](https://myanimelist.net/character.php?q=Takumi%20Nomiya&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Minako Kanou**](https://myanimelist.net/character.php?q=Minako%20Kanou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
