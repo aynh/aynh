@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Isn't chasing our dream our job right now?"
+> "I've been trying so hard... Even though you rejected me, I've been trying my best. But if I go on liking you like this then nothing will change."
 
-&mdash; [**Minako Kanou**](https://myanimelist.net/character.php?q=Minako%20Kanou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
