@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have two rules: First, I'm never wrong. Second, if I'm wrong... back to the first rule."
+> "I'm no expert, but I think people mope when their expectations are too high. It's tiring when you always have to overachieve. Don't overdo it. Just work on achieving what you can."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
