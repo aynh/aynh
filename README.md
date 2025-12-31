@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love, passion, why do we get caught up by such troublesome feelings? The mind couldn't ever get things straight, and you lose control to know what is sensible. Deep down it's all so vexing."
+> "No, things can change. But things don't have to change. Whatever is fine."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Hikari Sakishima**](https://myanimelist.net/character.php?q=Hikari%20Sakishima&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
