@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think that in the end, I just care a lot about myself. I was the only one that I loved and respected. That's why I was scared to know what the others thought about me. I was afraid to get hurt, so I ran away and locked myself into my shell."
+> "Play to the last note, and leave no regrets."
 
-&mdash; [**Kirara**](https://myanimelist.net/character.php?q=Kirara&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kiyora Miki**](https://myanimelist.net/character.php?q=Kiyora%20Miki&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
