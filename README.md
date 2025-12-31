@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No, things can change. But things don't have to change. Whatever is fine."
+> "I've only just started to understand it myself. That by depending on others, and letting them depend on you, people can exceed what they can do as individuals."
 
-&mdash; [**Hikari Sakishima**](https://myanimelist.net/character.php?q=Hikari%20Sakishima&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
+&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
