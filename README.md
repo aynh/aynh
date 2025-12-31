@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's nothing more satisfying than conquering all types of girls."
+> "I too, was looking for something. Something real in this world. For me, it was the warmth of your hand."
 
-&mdash; [**Mikoto Mikoshiba**](https://myanimelist.net/character.php?q=Mikoto%20Mikoshiba&cat=character), [**Gekkan Shoujo Nozaki-kun**](https://myanimelist.net/search/all?q=Gekkan%20Shoujo%20Nozaki-kun&cat=all)
+&mdash; [**Lisbeth**](https://myanimelist.net/character.php?q=Lisbeth&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
