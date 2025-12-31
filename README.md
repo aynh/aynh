@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you have a power, sometimes you are put into a situation which make you carry extra burdens, and live all your life with pain."
+> "What is important is to know fear and yet take a step forward."
 
-&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Rosette Christopher**](https://myanimelist.net/character.php?q=Rosette%20Christopher&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
