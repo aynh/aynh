@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I too, was looking for something. Something real in this world. For me, it was the warmth of your hand."
+> "I think that in the end, I just care a lot about myself. I was the only one that I loved and respected. That's why I was scared to know what the others thought about me. I was afraid to get hurt, so I ran away and locked myself into my shell."
 
-&mdash; [**Lisbeth**](https://myanimelist.net/character.php?q=Lisbeth&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Kirara**](https://myanimelist.net/character.php?q=Kirara&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
