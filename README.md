@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People... need to be needed by someone in order to live. If a person isn't needed, they're worthless!"
+> "I never... [chuckles]... laughed this hard in front of my parents.(to Tohru)"
 
-&mdash; [**Moeka Kiryū**](https://myanimelist.net/character.php?q=Moeka%20Kiry%C5%AB&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
