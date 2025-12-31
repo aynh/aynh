@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Near and the others told me that this woman was supposed to be the second Kira. But could it really be this unbelievably stupid girl?.."
+> "When I become Fuhrer President, all female personnel in the military ... will have to wear mini-skirts."
 
-&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
