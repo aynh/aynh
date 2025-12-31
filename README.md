@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never... [chuckles]... laughed this hard in front of my parents.(to Tohru)"
+> "Once you have a power, sometimes you are put into a situation which make you carry extra burdens, and live all your life with pain."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
