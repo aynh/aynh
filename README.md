@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Killing's easier than you think; you just have to forget how sweet the sugar is."
+> "Curiosity is like a cockroach. It likes to stumble upon secrets that are supposed to stay hidden."
 
-&mdash; [**Rosso**](https://myanimelist.net/character.php?q=Rosso&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
