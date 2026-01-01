@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not very good at sensing people's boundaries. Without knowing how far is too far, I gradually get closer and closer. It's terrifying. Being unable to sense that is terrifying."
+> "I want to survive...And see her again. As a person, I'm really lower than shit...But she knows that, and she smiles kindly at me anyway."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Ymir**](https://myanimelist.net/character.php?q=Ymir&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
