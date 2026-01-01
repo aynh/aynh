@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now there's something I understand a little better. Hate, sadness, even joy. To be able to share it with another person... Naruto Uzumaki. From fighting him I learned that. He knew pain like I did and then he taught me that you can change your path. I wish that one day I can be needed by someone. Not as a frightening weapon... But as the sand's Kazekage."
+> "The world is a big cradle of lies where people lay their heads on pretending nothing is wrong. A cycle where mortals dwells upon to...for a cursed one like me happily watch them from darkness savoring each moment a human dies due to their ignorance..."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Flandre Scarlet**](https://myanimelist.net/character.php?q=Flandre%20Scarlet&cat=character), [**Touhou Project**](https://myanimelist.net/search/all?q=Touhou%20Project&cat=all)
