@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no lack of painful things in this world, but hunger and loneliness must surely be two of the worst. Thanks to you, I didn't know a moment of either of them."
+> "Victory is everything in this world. The victory is acknowledged, and the vanquished is disavowed. Because I am victorious overall, I am always the just."
 
-&mdash; [**Sakae Jinnouchi**](https://myanimelist.net/character.php?q=Sakae%20Jinnouchi&cat=character), [**Summer Wars**](https://myanimelist.net/search/all?q=Summer%20Wars&cat=all)
+&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko's Basketball TV 3**](https://myanimelist.net/search/all?q=Kuroko's%20Basketball%20TV%203&cat=all)
