@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is a big cradle of lies where people lay their heads on pretending nothing is wrong. A cycle where mortals dwells upon to...for a cursed one like me happily watch them from darkness savoring each moment a human dies due to their ignorance..."
+> "I'm not very good at sensing people's boundaries. Without knowing how far is too far, I gradually get closer and closer. It's terrifying. Being unable to sense that is terrifying."
 
-&mdash; [**Flandre Scarlet**](https://myanimelist.net/character.php?q=Flandre%20Scarlet&cat=character), [**Touhou Project**](https://myanimelist.net/search/all?q=Touhou%20Project&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
