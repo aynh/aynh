@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are only two paths you can choose. You can sit quietly and be selected out of this world, or you can adapt and change."
+> "Don't tell people to disappear like it's nothing! Words can hurt people! You can't ever take them back! Even if you regret it, you can never take them back!"
 
-&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Naruse Jun**](https://myanimelist.net/character.php?q=Naruse%20Jun&cat=character), [**Kokoro ga Sakebitagatterunda.**](https://myanimelist.net/search/all?q=Kokoro%20ga%20Sakebitagatterunda.&cat=all)
