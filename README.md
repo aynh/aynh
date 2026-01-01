@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The opposite of love isn't hate, it’s apathy."
+> "Now there's something I understand a little better. Hate, sadness, even joy. To be able to share it with another person... Naruto Uzumaki. From fighting him I learned that. He knew pain like I did and then he taught me that you can change your path. I wish that one day I can be needed by someone. Not as a frightening weapon... But as the sand's Kazekage."
 
-&mdash; [**Kyouko Houin**](https://myanimelist.net/character.php?q=Kyouko%20Houin&cat=character), [**Kodomo no Jikan**](https://myanimelist.net/search/all?q=Kodomo%20no%20Jikan&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
