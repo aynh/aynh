@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm as normal as they come and this is a contest of freaks! What do you want me to do, shoot my slingshot at him?"
+> "By abandoning offense, even without winning, the result will be effectively victory."
 
-&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Togame**](https://myanimelist.net/character.php?q=Togame&cat=character), [**Katanagatari**](https://myanimelist.net/search/all?q=Katanagatari&cat=all)
