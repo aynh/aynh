@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to know the truth, you must have the courage to accept it."
+> "There are only two paths you can choose. You can sit quietly and be selected out of this world, or you can adapt and change."
 
-&mdash; [**Bear**](https://myanimelist.net/character.php?q=Bear&cat=character), [**.hack//SIGN**](https://myanimelist.net/search/all?q=.hack%2F%2FSIGN&cat=all)
+&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
