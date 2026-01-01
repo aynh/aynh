@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "By abandoning offense, even without winning, the result will be effectively victory."
+> "There's no advantage to hurrying through life."
 
-&mdash; [**Togame**](https://myanimelist.net/character.php?q=Togame&cat=character), [**Katanagatari**](https://myanimelist.net/search/all?q=Katanagatari&cat=all)
+&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
