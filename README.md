@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not that I don't trust you all. It's the opposite. I'm going because I believe in you all. You all know this well, right? No matter who betrays me, I won't betray anyone."
+> "If you want to know the truth, you must have the courage to accept it."
 
-&mdash; [**Tsubaki**](https://myanimelist.net/character.php?q=Tsubaki&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
+&mdash; [**Bear**](https://myanimelist.net/character.php?q=Bear&cat=character), [**.hack//SIGN**](https://myanimelist.net/search/all?q=.hack%2F%2FSIGN&cat=all)
