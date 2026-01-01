@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How rude! You knocked his block off, and you didn't even have the courtesy to yell 'Heads up'!"
+> "Killing's easier than you think; you just have to forget how sweet the sugar is."
 
-&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Rosso**](https://myanimelist.net/character.php?q=Rosso&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
