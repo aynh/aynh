@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Falling is just another way of flying."
+> "Such a shame. I overestimated you. As a vampire, you were just a pathetic piece of shit. And now you're nothing but dog shit!"
 
-&mdash; [**Nine**](https://myanimelist.net/character.php?q=Nine&cat=character), [**Terror in Resonance**](https://myanimelist.net/search/all?q=Terror%20in%20Resonance&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
