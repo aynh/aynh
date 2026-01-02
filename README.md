@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we understood how other people felt, then nobody would ever start wars!"
+> "Every minute felt like an eternity time, clearly as if it had malicious intent, slowly ebbed away from me, I clenched my teeth and keeping myself from crying was the only thing I could do..."
 
-&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Takaki Toono**](https://myanimelist.net/character.php?q=Takaki%20Toono&cat=character), [**5 Centimeters per Second**](https://myanimelist.net/search/all?q=5%20Centimeters%20per%20Second&cat=all)
