@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The closer you get to the sun, the darker your shadow will be."
+> "Love. I myself have never loved another person.  Most likely, I don't even love myself.  I do have knowledge of it.  But I am incapable of determining whether or not it is vital in my life."
 
-&mdash; [**Aria Link**](https://myanimelist.net/character.php?q=Aria%20Link&cat=character), [**Tegami Bachi**](https://myanimelist.net/search/all?q=Tegami%20Bachi&cat=all)
+&mdash; [**Vorona**](https://myanimelist.net/character.php?q=Vorona&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
