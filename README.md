@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nobody is ever born into this world as a soldier."
+> "You don't understand anything, do you?! The most important thing isn't power, it isn't courage, it isn't even having friends! The only thing that matters is that you can rely on ME."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
