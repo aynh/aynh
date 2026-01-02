@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know that I have no strengths to offer. It irritates me how weak I am. But let me protect them!"
+> "Listen up, brats! Today’s defeat is the seed for tomorrow’s victory! We’ll rise up and show them! We don’t know the meaning of giving up!"
 
-&mdash; [**Yona**](https://myanimelist.net/character.php?q=Yona&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
