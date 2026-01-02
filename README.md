@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death is the end of everything. Your past and future will be lost in an instant where there will be no second chance. However as long as you live there will be a chance of pulling a win."
+> "The closer you get to the sun, the darker your shadow will be."
 
-&mdash; [**Kazuma Yagami**](https://myanimelist.net/character.php?q=Kazuma%20Yagami&cat=character), [**Kaze no Stigma**](https://myanimelist.net/search/all?q=Kaze%20no%20Stigma&cat=all)
+&mdash; [**Aria Link**](https://myanimelist.net/character.php?q=Aria%20Link&cat=character), [**Tegami Bachi**](https://myanimelist.net/search/all?q=Tegami%20Bachi&cat=all)
