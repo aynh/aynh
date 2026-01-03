@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long is you still draw breathe, there is no way to escape having to bid others farewell.  It doesn't matter if you're human or not...we all have to say good-bye."
+> "Bearing the sins of the children of earth, the moon begins to consume its light."
 
-&mdash; [**Yasaburou Shimogamo**](https://myanimelist.net/character.php?q=Yasaburou%20Shimogamo&cat=character), [**Uchouten Kazoku**](https://myanimelist.net/search/all?q=Uchouten%20Kazoku&cat=all)
+&mdash; [**Bertha**](https://myanimelist.net/character.php?q=Bertha&cat=character), [**Darker than Black**](https://myanimelist.net/search/all?q=Darker%20than%20Black&cat=all)
