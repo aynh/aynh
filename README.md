@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Most people are irresponsible, changing their opinions easily based on unconfirmed information or convenient rumors."
+> "It works better if you don't try as hard, just like in real life."
 
-&mdash; [**Saki Morimi**](https://myanimelist.net/character.php?q=Saki%20Morimi&cat=character), [**Eden of the East**](https://myanimelist.net/search/all?q=Eden%20of%20the%20East&cat=all)
+&mdash; [**Nagisa Hazuki**](https://myanimelist.net/character.php?q=Nagisa%20Hazuki&cat=character), [**Free!**](https://myanimelist.net/search/all?q=Free!&cat=all)
