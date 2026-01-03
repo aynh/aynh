@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is only one person who you can each truly love. It’s too bad that you can’t change who that person is. If you could, the you both would be a lot happier."
+> "I probably won't be able to look forward to summer for a long time. My chest will hurt. My tears will be overflowing. But this warmth in my hands and these summer memories will live on in my heart."
 
-&mdash; [**Juri Arisugawa**](https://myanimelist.net/character.php?q=Juri%20Arisugawa&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
+&mdash; [**Hotaru Takegawa**](https://myanimelist.net/character.php?q=Hotaru%20Takegawa&cat=character), [**Hotarubi no Mori e**](https://myanimelist.net/search/all?q=Hotarubi%20no%20Mori%20e&cat=all)
