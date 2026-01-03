@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I probably won't be able to look forward to summer for a long time. My chest will hurt. My tears will be overflowing. But this warmth in my hands and these summer memories will live on in my heart."
+> "As long is you still draw breathe, there is no way to escape having to bid others farewell.  It doesn't matter if you're human or not...we all have to say good-bye."
 
-&mdash; [**Hotaru Takegawa**](https://myanimelist.net/character.php?q=Hotaru%20Takegawa&cat=character), [**Hotarubi no Mori e**](https://myanimelist.net/search/all?q=Hotarubi%20no%20Mori%20e&cat=all)
+&mdash; [**Yasaburou Shimogamo**](https://myanimelist.net/character.php?q=Yasaburou%20Shimogamo&cat=character), [**Uchouten Kazoku**](https://myanimelist.net/search/all?q=Uchouten%20Kazoku&cat=all)
