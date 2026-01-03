@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It works better if you don't try as hard, just like in real life."
+> "The slight difference between those who always aim for the top and those who don't... It'll come to matter in a big way once you all emerge into society."
 
-&mdash; [**Nagisa Hazuki**](https://myanimelist.net/character.php?q=Nagisa%20Hazuki&cat=character), [**Free!**](https://myanimelist.net/search/all?q=Free!&cat=all)
+&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
