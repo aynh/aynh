@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know that we can be foolish and make mistakes and we get hurt so easily. But with each mistake, we improve ourselves and with each wound, we don’t want to be hurt again. We keep moving on. We cherish the past, the present, and the future."
+> "I never wanted to save the world or make everyone happy. I never wanted to play God like that. If I could just save my family, and my friends… If I could just be a hero like that, I’d be happy."
 
-&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
+&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica: The Different Story**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica%3A%20The%20Different%20Story&cat=all)
