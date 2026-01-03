@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Walking along the path that she chose, without being affected by others... in this sense, white is her color...in another sense, it also makes me want to put more colors on her."
+> "I have a lot of different words desperately trying to get my message across. However, you, were able to pass on what you wanted to say with just a few of them."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
