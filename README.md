@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It was the only way the world had to be fixed! A purpose, given to me!"
+> "I know that we can be foolish and make mistakes and we get hurt so easily. But with each mistake, we improve ourselves and with each wound, we don’t want to be hurt again. We keep moving on. We cherish the past, the present, and the future."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
