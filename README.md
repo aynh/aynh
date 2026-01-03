@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I'm an outsider, even if I'm hers for only a moment, I wanted to become someone special to her. Just by being together with me, just for a little while, I wanted her to be happy."
+> "People change. And as the years go by, so do our environments. I think it’s alright for there not to be a 'proper' way of living. But I do believe that instead of trying to be satisfied on just one answer and blocking out the rest, searching for more answers, despite the pain they may bring, is a much more honest way of living."
 
-&mdash; [**Daiki Mamura**](https://myanimelist.net/character.php?q=Daiki%20Mamura&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Harumi Shuntarou**](https://myanimelist.net/character.php?q=Harumi%20Shuntarou&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
