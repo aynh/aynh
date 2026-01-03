@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't care where I get hurt, as long as my injuries are visible."
+> "You're about to find out what it's like to fight a real super saiyan...and I'm not talking about Goku."
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Trunks Brief**](https://myanimelist.net/character.php?q=Trunks%20Brief&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
