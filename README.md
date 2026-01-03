@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People change. And as the years go by, so do our environments. I think it’s alright for there not to be a 'proper' way of living. But I do believe that instead of trying to be satisfied on just one answer and blocking out the rest, searching for more answers, despite the pain they may bring, is a much more honest way of living."
+> "I don't care where I get hurt, as long as my injuries are visible."
 
-&mdash; [**Harumi Shuntarou**](https://myanimelist.net/character.php?q=Harumi%20Shuntarou&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
