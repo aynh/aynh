@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When people are protecting something truly special to them, they truly can become... as strong as they can be."
+> "Everything we see, everyone we meet, is caught up in a great unseen flow. But it's bigger than that. It's the entire world, the entire universe even. And compared to something as big as that, Al, you and I are tiny, not even the size of ants. Only one small part within a much greater flow. Nothing more than a fraction of the whole. But by putting all those 'ones' together, you get one great 'All', just like Teacher said. The flow of this universe follows laws of such magnitude that you and I can't even imagine them."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
