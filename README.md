@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this small universe, it's an endless cycle of winning and losing until you begin losing your mind."
+> "Are you afraid? You don’t want to die, do you? Not just Abarai, if anyone… acts upon the thought of not wanting you to die, you will suddenly begin to fear your impending death, right?"
 
-&mdash; [**Rei Kiriyama**](https://myanimelist.net/character.php?q=Rei%20Kiriyama&cat=character), [**3-gatsu no Lion**](https://myanimelist.net/search/all?q=3-gatsu%20no%20Lion&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
