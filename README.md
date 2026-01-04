@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm telling you, it's just that it's soooooo lolilolilolied that it smokes. Come on, girls. One of you loan me your whistle. I'll lolly it up!"
+> "Those who aim further for other's sake. Those who think of others before themselves. ...And those who hate themselves more than anyone. These are the qualities of a Magus. This is a contradiction you can only have if you are born broken."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Tohsaka Rin**](https://myanimelist.net/character.php?q=Tohsaka%20Rin&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
