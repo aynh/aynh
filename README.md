@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In ages past, dragons and men were one. Those who lusted after wealth chose the land and the sea and became men. Those who cherished freedom, became dragons and chose wind and fire."
+> "[to Yammy Rialgo, as the Espada grips the edge of a hole in the floor] Mala Suerte. I pity you. [shoots the floor just before Yammy's hand, causing him to fall] Oh, and I broke the pillars on every floor on the way up. So, you'll probably fall all the way to the bottom."
 
-&mdash; [**Root**](https://myanimelist.net/character.php?q=Root&cat=character), [**Tales from Earthsea**](https://myanimelist.net/search/all?q=Tales%20from%20Earthsea&cat=all)
+&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
