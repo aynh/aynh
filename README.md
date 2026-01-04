@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can worry about things all you want, but it doesn't mean you'll always get an answer. What's important to remember, is that when it's all said and done and you got through it all somehow, are you the person you wanted to be?"
+> "I won't live my life by another person's script."
 
-&mdash; [**Hibiki Tokai**](https://myanimelist.net/character.php?q=Hibiki%20Tokai&cat=character), [**Vandread**](https://myanimelist.net/search/all?q=Vandread&cat=all)
+&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
