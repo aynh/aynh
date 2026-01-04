@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are weak. For every cure found, another disease is uncovered. It's a game of chase."
+> "Humans who lose the capacity to think become creatures who's existence has no value. Think, you humans who are split into two worlds, unless you want the gulf between humans to expand into oblivion, you must think!"
 
-&mdash; [**Kazutaka Muraki**](https://myanimelist.net/character.php?q=Kazutaka%20Muraki&cat=character), [**Yami no Matsuei**](https://myanimelist.net/search/all?q=Yami%20no%20Matsuei&cat=all)
+&mdash; [**Michael Seebach**](https://myanimelist.net/character.php?q=Michael%20Seebach&cat=character), [**The Big O**](https://myanimelist.net/search/all?q=The%20Big%20O&cat=all)
