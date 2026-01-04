@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you believe it was destined to happen it is most likely to happen, if you believe nothing has been decided then most likely nothing has been decided."
+> "You can’t stop fighting to play. Once you've lost that drive, you’ll start to lose your edge."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Yuusei Nishida**](https://myanimelist.net/character.php?q=Yuusei%20Nishida&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
