@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you afraid? You don’t want to die, do you? Not just Abarai, if anyone… acts upon the thought of not wanting you to die, you will suddenly begin to fear your impending death, right?"
+> "Humans are weak. For every cure found, another disease is uncovered. It's a game of chase."
 
-&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kazutaka Muraki**](https://myanimelist.net/character.php?q=Kazutaka%20Muraki&cat=character), [**Yami no Matsuei**](https://myanimelist.net/search/all?q=Yami%20no%20Matsuei&cat=all)
