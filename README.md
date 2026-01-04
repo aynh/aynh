@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no way to train your heart to be invulnerable."
+> "You can worry about things all you want, but it doesn't mean you'll always get an answer. What's important to remember, is that when it's all said and done and you got through it all somehow, are you the person you wanted to be?"
 
-&mdash; [**Lubbock**](https://myanimelist.net/character.php?q=Lubbock&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Hibiki Tokai**](https://myanimelist.net/character.php?q=Hibiki%20Tokai&cat=character), [**Vandread**](https://myanimelist.net/search/all?q=Vandread&cat=all)
