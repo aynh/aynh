@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Yammy Rialgo, as the Espada grips the edge of a hole in the floor] Mala Suerte. I pity you. [shoots the floor just before Yammy's hand, causing him to fall] Oh, and I broke the pillars on every floor on the way up. So, you'll probably fall all the way to the bottom."
+> "In this small universe, it's an endless cycle of winning and losing until you begin losing your mind."
 
-&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Rei Kiriyama**](https://myanimelist.net/character.php?q=Rei%20Kiriyama&cat=character), [**3-gatsu no Lion**](https://myanimelist.net/search/all?q=3-gatsu%20no%20Lion&cat=all)
