@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After the first note resonated through the hall, You became everything I yearn for."
+> "In ages past, dragons and men were one. Those who lusted after wealth chose the land and the sea and became men. Those who cherished freedom, became dragons and chose wind and fire."
 
-&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Root**](https://myanimelist.net/character.php?q=Root&cat=character), [**Tales from Earthsea**](https://myanimelist.net/search/all?q=Tales%20from%20Earthsea&cat=all)
