@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just like those who try their best, even when they're afraid."
+> "If you can fool your friends, you can fool your enemies."
 
-&mdash; [**Kirishima Shouko**](https://myanimelist.net/character.php?q=Kirishima%20Shouko&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Xelloss Metallium**](https://myanimelist.net/character.php?q=Xelloss%20Metallium&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
