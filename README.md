@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*talking about Shinsengumi* Every time I'm with all of you, there's always a gap. I'm different from all of you."
+> "People can really change. When they're far away from each other, their hearts will change. It's so cruel that the only thing I can do is wait."
 
-&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
