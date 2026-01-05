@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I may be inept, but at least I don't forget to aim high!"
+> "Even in the depths of Hell... blooms a beautiful flower of friendship... leaving its petals as mementos... bobbing back and forth on the waves... may it one day bloom once more...the Okama Way."
 
-&mdash; [**Aoi Toori**](https://myanimelist.net/character.php?q=Aoi%20Toori&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
+&mdash; [**Mr. 2 Bon Clay**](https://myanimelist.net/character.php?q=Mr.%202%20Bon%20Clay&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
