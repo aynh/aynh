@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sadistic? I don't mind you calling me that. If you don't want to get hurt, don't attack me when I say not to."
+> "*talking about Shinsengumi* Every time I'm with all of you, there's always a gap. I'm different from all of you."
 
-&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
