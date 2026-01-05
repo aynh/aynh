@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People can really change. When they're far away from each other, their hearts will change. It's so cruel that the only thing I can do is wait."
+> "A man who cannot play by himself, cannot improve by himself."
 
-&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Midorima Shintarou**](https://myanimelist.net/character.php?q=Midorima%20Shintarou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
