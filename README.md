@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I die here, then I'm a man that could only make it this far."
+> "Sadistic? I don't mind you calling me that. If you don't want to get hurt, don't attack me when I say not to."
 
-&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
