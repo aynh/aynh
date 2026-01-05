@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you wanna make people dream, you've gotta start by believing in that dream yourself!"
+> "That's it! My head as a trampoline is where I draw the line!"
 
-&mdash; [**Seiya Kanie**](https://myanimelist.net/character.php?q=Seiya%20Kanie&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
+&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
