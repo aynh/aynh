@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love breeds sacrifice... which in turn breeds hatred. Then you can know pain."
+> "Then let me ask you, do gods of death love apples?"
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
