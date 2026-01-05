@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's been troubling me lately are these small farewells that make me feel a bit lonely. Brief meetings and farewells. I want to treasure each and every moment."
+> "I may be inept, but at least I don't forget to aim high!"
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume's Book of Friends**](https://myanimelist.net/search/all?q=Natsume's%20Book%20of%20Friends&cat=all)
+&mdash; [**Aoi Toori**](https://myanimelist.net/character.php?q=Aoi%20Toori&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
