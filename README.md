@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Living things are restrained by Chains: The laws of nature, the flow of time, the vessel known as your “body”, and the existence called your mind. There's only one chain that people can wield: WORDS."
+> "That’s something you can’t know until you've tried it, and you still won’t understand after you play. I've been playing for 45 years and I still don’t understand. I've never been able to figure it out. That’s why I keep playing."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Hidehiro Harada**](https://myanimelist.net/character.php?q=Hidehiro%20Harada&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
