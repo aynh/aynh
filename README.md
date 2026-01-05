@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Isn’t there something strange in becoming friends because you’re asked? Friends aren’t given; you’re supposed to make them."
+> "If I die here, then I'm a man that could only make it this far."
 
-&mdash; [**Fujibayashi Kyou**](https://myanimelist.net/character.php?q=Fujibayashi%20Kyou&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
