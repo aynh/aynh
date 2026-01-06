@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When a dog soils the carpet, its master is responsible."
+> "The Other Side of the Other Side of the Other Side would be the Other Side."
 
-&mdash; [**Cruhteo**](https://myanimelist.net/character.php?q=Cruhteo&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
