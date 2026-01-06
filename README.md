@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't need to blame yourself just because you've hurt someone, just like when you're walking you can't really blame yourself to crush some ants... that's what being stronger ones means."
+> "A hero must be tough, strong and beautiful... As well as able to promptly and splendidly eradicate evil."
 
-&mdash; [**Shuu Tsukiyama**](https://myanimelist.net/character.php?q=Shuu%20Tsukiyama&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Sweet Mask**](https://myanimelist.net/character.php?q=Sweet%20Mask&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
