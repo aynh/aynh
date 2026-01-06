@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You should enjoy the little detours. To the fullest. Because that's where you'll find the things more important than what you want."
+> "When a dog soils the carpet, its master is responsible."
 
-&mdash; [**Ging Freecss**](https://myanimelist.net/character.php?q=Ging%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Cruhteo**](https://myanimelist.net/character.php?q=Cruhteo&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
