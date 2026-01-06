@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment a person says he's working hard without thinking, he's still being naive. He is not trying at all!"
+> "There are no regrets. If one can be proud of one's life, one should not wish for another chance."
 
-&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
