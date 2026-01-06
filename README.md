@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's not exactly right. If you had to sacrifice many things to protect one, you're more likely to give up and throw it away. Including relationships you have in your hand now."
+> "Whether I go or not, I'll die anyway. I have an organ more important than my heart. Although you can't see it, I feel it going through my head down to my feet, and I know it exists within me. It lets me stand on my feet, it lets me walk forward without trembling. If I stop here, I feel like it would break... My soul will break."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
