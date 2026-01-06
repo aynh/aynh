@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Run-chan was chasing a butterfly and was about to get hit by a car..."
+> "You see, for as long as we draw breath into our lungs, we shall keep hope alive inside our hearts."
 
-&mdash; [**Ichii Tooru**](https://myanimelist.net/character.php?q=Ichii%20Tooru&cat=character), [**A Channel**](https://myanimelist.net/search/all?q=A%20Channel&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
