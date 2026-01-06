@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A hero must be tough, strong and beautiful... As well as able to promptly and splendidly eradicate evil."
+> "Haven't you already lifted your foot, preparing to step forward? Then you only have one option! Finish taking that step!"
 
-&mdash; [**Sweet Mask**](https://myanimelist.net/character.php?q=Sweet%20Mask&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Sumire Kanō**](https://myanimelist.net/character.php?q=Sumire%20Kan%C5%8D&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
