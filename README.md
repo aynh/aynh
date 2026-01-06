@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You see, for as long as we draw breath into our lungs, we shall keep hope alive inside our hearts."
+> "God spares no salvation to those who would beg for it. Nor is he merciful to those who would beseech his benevolence. These petty requests are no invocation to god. They are your death."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
