@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is truly good about a person can't be expressed in words, that it can not. What matters is the feeling of trust one gets after spending time with him."
+> "Run-chan was chasing a butterfly and was about to get hit by a car..."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Ichii Tooru**](https://myanimelist.net/character.php?q=Ichii%20Tooru&cat=character), [**A Channel**](https://myanimelist.net/search/all?q=A%20Channel&cat=all)
