@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The Other Side of the Other Side of the Other Side would be the Other Side."
+> "Katsura, just stop this. No matter how elegant you think dying is, your death won't appease your conscience and won't change anything."
 
 &mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
