@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If a person you love doesn't love you back, you're worthless. That's what I always told myself."
+> "That's not exactly right. If you had to sacrifice many things to protect one, you're more likely to give up and throw it away. Including relationships you have in your hand now."
 
-&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
