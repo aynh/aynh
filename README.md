@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Katsura, just stop this. No matter how elegant you think dying is, your death won't appease your conscience and won't change anything."
+> "The moment a person says he's working hard without thinking, he's still being naive. He is not trying at all!"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
